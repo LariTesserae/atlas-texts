@@ -1,0 +1,45 @@
+The city occupies a low plain that may once have been seabed, though no one agrees on when the sea withdrew. It is a broad, warm country of black silt and pale mineral crust, almost level to the horizon. Nothing here has had time to become rounded. Drainage channels have sharp lips. Embankments break in clean, angular slabs. Wherever the ground has split, the exposed layers remain vividly distinct—gray clay over greenish sand over a thin seam that shines like powdered glass.
+
+Water is present without ever quite possessing the land. Rain comes infrequently, usually as a soft nocturnal fall, but condensation gathers every evening on walls, leaves, cables, and the undersides of elevated roads. By dawn, gutters are moving. Narrow streams appear between foundations, fill shallow courts, and vanish into the soil before noon. Outside the city, isolated pools occupy fresh depressions in the plain. They are dark, warm, and crowded with floating vegetation, though their shores may be surrounded by kilometers of dry, compacted mud.
+
+The city has been built around these brief movements of water.
+
+It is extensive but strangely unfilled. Districts stand far apart, joined by causeways, buried transit lines, and strips of faintly luminous pavement. A cluster of slender towers might be followed by half a kilometer of gardens, empty foundations, reed beds, or open earth. There are grand plazas with only three structures on them. Habitation is concentrated vertically or underground, leaving enormous intervals of cultivated quiet between occupied places.
+
+The oldest buildings are not very old. Their concrete is still white where vines have not covered it, their corners sharp, their retaining walls scarcely weathered. Yet they already seem to belong to several incompatible periods. Low masonry arcades support surfaces that have no visible thickness. Brick reservoirs sit beneath towers whose upper stories are larger than their lower ones, held aloft by some arrangement of mass that conventional surveying cannot record. Bridges cross canals and continue across dry ground, sometimes arriving at neighborhoods that cannot be seen from the place where the bridge begins.
+
+Construction is ongoing, but rarely noisy.
+
+The city’s machines do not hammer or grind. They persuade. Along its outskirts, ranks of black pylons stand in bare fields and alter the tendencies of matter within a measured radius. Soil compacts itself into load-bearing terraces. Silica migrates upward and forms translucent ribs. Walls grow overnight as pale, seamless extrusions, wet at first and warm to the touch. By the following evening they have developed doors, ventilation pores, and an interior grain resembling wood.
+
+No one seems to direct these changes locally. Survey kites drift above the plain without wings or propellers, their shadows lagging several seconds behind them. Fine threads descend from their bodies and stop just short of the ground. Where a thread hangs, a road may slowly bend over the course of weeks, or a grove may shift its pattern of growth to leave space for a future station.
+
+The vegetation is lush but discontinuous. Thickets gather wherever moisture hesitates: around cooling towers, below the edges of levitating platforms, in the lee of retaining walls. Fernlike trees unfold from swollen trunks and spread horizontal crowns of blue-black leaves. Creepers make thick green curtains across unused facades. Moss grows in deep cushions inside ventilation courts, fed by constant condensation. In the open ground, colonies of silver grass remain separated by wide tracts of naked silt, as if each patch were an island defending invisible borders.
+
+Some plants have been engineered; others may have adapted to the city’s peculiar physics. The distinction is increasingly difficult to make. There are columnar shrubs that store rain internally and release it as mist when the air becomes dry. There are vines whose leaves turn toward nearby conversations rather than toward light. A low red groundcover grows only above active data conduits, tracing buried infrastructure across parks and abandoned lots. At night its flowers open in sequences corresponding to traffic elsewhere in the city.
+
+Light rarely becomes strong. The sky is usually covered by a high, featureless haze, pearl-gray in the morning and brown-violet toward evening. Sunlight arrives diffused, with no obvious source. Even at midday, buildings cast only shallow stains beneath themselves. Interior illumination is equally restrained: narrow amber strips along stairs, green pools under trees, soft blue markings that surface on walls when approached.
+
+The dimness is not oppressive. It makes the city feel sheltered, as though the entire plain lies under an immense roof too high to see. Surfaces remain visible in fine detail. Wet leaves shine. Condensation beads on metal. The mineral seams in the soil give off a cold, buried gleam.
+
+Animals are rare enough to be noticed individually. Small six-legged waders visit the temporary pools after rain, walking delicately over the floating leaves. They have translucent throats and make no sound. A few dark gliding creatures live among the towers, but they are seen only in peripheral vision, passing between structures without losing height. In the outer reed beds, something occasionally presses a long path through the stems. No tracks remain afterward.
+
+Most pollination is performed by the city itself. During the warmest hour of the night, vents exhale slow currents that carry pollen from one district to another. Seed capsules attach to maintenance drones or ride beads of condensation down sloped cables. In some gardens, flowers are opened by changes in local gravity rather than by insects.
+
+The quiet has layers. Close to the ground there is dripping, leaf friction, the soft passage of water through ceramic channels. Far away, one may hear a transit capsule moving beneath the plain: not a rumble, but a brief tightening of the air, followed by a tone too low to locate. Towers occasionally emit single notes as their structures adjust to temperature. These notes can travel for many kilometers and are answered by other towers, so that weather passing over the region becomes a sparse, unhurried music.
+
+Human voices remain subdued in the open spaces. Sound behaves unpredictably near certain buildings. A shout may be absorbed at once, while a whisper spoken under an arch can arrive intact in a courtyard on the other side of the city. Public conversation therefore gathers in places mapped for acoustic safety: stepped gardens, sunken tea courts, broad rooms lined with porous stone. Elsewhere people use light, gesture, or private fields of vibration carried through the bones of the wrist.
+
+Warmth rises from below after sunset. The plain stores the day weakly, but the city’s buried systems release heat in slow circulations. Mist forms in the lower streets. It pools ankle-deep in plazas and flows down ramps like a visible tide. Where it passes, dormant moss brightens and leaves unfold. By midnight, whole neighborhoods appear to be standing in shallow milk.
+
+Then the active phase begins.
+
+Water condenses along the high structures and descends through branching channels. Gardens swell. Reservoir skins flex to accommodate new volume. Unoccupied buildings open apertures to the damp air. Roads alter their permeability, sending runoff toward thirsty districts. The black pylons in the outer fields lean by a fraction of a degree, correcting stresses in the ground. Now and then a vacant tower quietly dismantles one of its own floors, reducing it to drifting grains that cross the city and settle where construction is needed.
+
+At dawn, much of this motion ceases. The mist sinks into cisterns. Leaves harden against evaporation. Paths that were soft become firm. Fresh walls stand where there had been open lots, and some familiar passage may have narrowed, branched, or turned toward a destination not present the day before.
+
+This is the central rule of the place: the city is not treated as separate from weather, geology, or life. It belongs to the same category as a marsh or a growing reef. Its districts germinate, compete for water, shed obsolete structures, and migrate slowly across the young plain. Maps record probabilities rather than streets. Ownership applies for intervals, not locations. Foundations are licensed with the understanding that the ground may decide to become a pond.
+
+Beyond the outer neighborhoods, the plain continues under the dim sky. Scattered installations, groves, and isolated residential towers diminish toward the horizon. Channels flash briefly where moisture has collected. New cracks run ruler-straight through the silt, untouched by erosion. In the distance, fresh structures rise without cranes, narrow as reeds.
+
+The landscape is not ruined, nor is it unfinished. It is simply too young to have settled into the distinction between natural and made. Everything is still choosing what kind of thing it will be.

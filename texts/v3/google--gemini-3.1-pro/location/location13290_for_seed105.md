@@ -1,0 +1,25 @@
+To exist here is to be embraced by a crushing, freezing velocity. 
+
+You are entirely submerged, but not in a conventional sea. This place rests at the roof of the world, a colossal, jagged alpine caldera suspended miles above sea level, somehow drowning in a permanent, hyper-dense ocean of its own making. There is no true surface to this altitude-locked abyss. Above, the liquid simply thins, stretching upward into a vertical gradient of heavy, breathable rain, then into a violent, perpetual storm-cloud, and finally into an atmospheric oblivion. The weight of the sky presses down, keeping this super-cooled liquid from boiling off into the thin high-altitude air. 
+
+It is bitterly, viciously cold. The temperature hovers permanently at the absolute threshold of freezing. The liquid feels heavier than saltwater, thick as syrup, maintaining its fluidity only through the sheer, violent kinetic energy that courses through it. 
+
+It is ceaselessly active, and undeniably loud. The auditory landscape is a deafening, 360-degree roar of water in motion. Colossal, braided sub-aquatic jet streams tear across the valley floor. Helical currents, driven by strange thermal inversions from the jagged depths of the caldera, plunge and rise like localized underwater tornadoes. In the dark, the noise of these currents meeting is a deep, chest-rattling boom, overlaid with the high-pitched shriek of water being forced through the narrow canyons of the mountain rock.
+
+The darkness is near absolute. What little light manages to penetrate the miles of churning atmosphere and violent water above arrives only as a bruised, slate-grey twilight, just enough to render the landscape in heavy, ink-wash silhouettes.
+
+Despite the punishing cold, the crushing pressure, and the eternal dusk, life flourishes here—though its distribution is profoundly uneven. The vast majority of the terrain is a sparse, sweeping expanse of grey bedrock. Millennia of these violent currents have eroded the stone into smooth, fluted terraces and sweeping, frictionless plains. But scattered sparsely across these wide, empty expanses are immense, isolated oases of aquatic lushness. 
+
+When you encounter one of these groves, the vegetation is staggeringly dense. Enormous, cathedral-like thickets of "rime-kelp" anchor themselves in the deepest fractures of the stone. These plants are built to withstand the tearing gales. Their trunks are as wide as ancient redwoods, black and rubbery, secreting a thick, anti-freeze resin that gels into a glowing, luminescent-blue rim around their edges—the only faint light in the pitch. The canopies of these groves are lush and chaotic, exploding into thousands of miles of heavy, sweeping fronds that whip wildly in the current. Fungal-like blooms, pale and gelatinous, cling to the stalks, releasing billions of heavy spores that are instantly caught in the invisible cyclonic winds, creating localized blizzards of organic snow.
+
+Yet, despite this massive botanical engine, the ecosystem is entirely devoid of animal life. There are no eyes watching from the dark fronds. No silver flashes of fish dart through the currents. No crustaceans skitter across the scoured stone. No filter-feeders cling to the rock. The valleys are haunted only by the roaring water and the wild, thrashing geometry of the plants. It is an intensely active, living world, entirely free of a nervous system.
+
+And then, as you cross a long stretch of barren, water-scoured basalt between the towering groves, you find the tethers.
+
+They emerge from the gloom like old ghosts: colossal structures of primitive, exhaustive labor. Scattered miles apart across the terraced valley floor are monolithic stone anchors. They are roughly quarried blocks of dense igneous rock, each the size of a small house, scarred with the unmistakable, rhythmic strike-marks of heavy hand-tools. Chipped by unknown hands, hauled and dropped into this freezing darkness. 
+
+Bored through the center of each monolith is a massive, crude eyelet. Knotted through these holes are cables of immense thickness, braided from the black, rubbery fibers of the rime-kelp. 
+
+The ropes stretch upward. They do not slacken. They are pulled perfectly, violently taut, ascending in straight, unyielding lines into the crushing black gradient of the upper waters, vanishing into the storm above. 
+
+Whatever these tethers are holding, whatever colossal raft, floating city, or buoyant beast rests miles above in the transitional zone between sea and sky, it is massive enough to require the weight of mountains to hold it in place. The violent underwater currents beat against these vast, woven cables, and because they are pulled so tight, they vibrate. They act as mile-long strings, humming with a deep, resonant bass note that joins the roar of the water—an endless, mournful tolling ringing out across a cold, dark, empty world.

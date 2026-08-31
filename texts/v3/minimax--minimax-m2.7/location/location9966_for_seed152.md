@@ -1,0 +1,21 @@
+The light arrives in threads—thin, golden spears that descend through fissures in the ceiling, illuminating motes that drift through air thick as breath. This is a pocket carved into the world: perhaps eighty meters across, half that in height, a single enclosed void where the old stone meets new stone in an embrace that is also a slow, slow war.
+
+The erosion is embryonic. The basalt still remembers its liquid origins—its surfaces glassy, its fractures sharp as the day they cooled. But water has begun its patient work, seeping through the ceiling in threads so fine they catch the light like spider silk, pooling in hollows where white mineral deposits build their slow cathedrals. The stone is learning a new shape. In ten thousand years it will be different; in a hundred thousand, unrecognizable.
+
+Yet this place remembers an older transformation. Scattered across the floor lie the remnants of a settlement: a stone archway, collapsed but still purposeful; steps descending into dark water; the corner of a wall whose purpose has been swallowed by the moss that covers everything. The ruins are older than the erosion—old enough that the stone has forgotten its human shape, old enough that ferns have colonized every crack and the roots of small trees have cracked what remained of the ancient flagstones.
+
+Between the old and the new, life persists in its abundance. The vegetation is not the riotous tangle of true tropics but something more tentative and more strange: the lushness of the willing, the green of persistence. Ferns drape from every ledge. Tiny trees whose names are lost grow in the crevices, their leaves pale in the dim light. Vines thread through every gap, their tendrils searching, patient. Flowers bloom—white ones, yellow ones, the pale faces of things that bloom for insects rather than for beauty.
+
+In the water at the chamber's heart, something moves. Not fish—or not only fish. Shrimps, perhaps, their bodies translucent as glass, their motions quick and convulsive. Mosquito larvae crowd the shallows. The pool is fed by a thin cascade from the far wall, a curtain of water no wider than an arm, its voice a whisper rather than a roar.
+
+The fauna makes itself known in movement and sound: the scuttle of cave crickets beneath the stones, the flutter of a bat's wings as it emerges from a high crevice, the distant call of a bird that has found its way in from some other world. A small lizard suns itself on a fallen column. Somewhere in the darkness beyond the light, something breathes.
+
+This is the full sound of the place: water finding its way downward, drop by patient drop. The creak of wood that no longer exists except as a memory in the fungi that consume it. The faint rustle of wings. Nothing else. The silence is not emptiness but attention—the sound of a world that does not need to shout.
+
+The warm dampness makes everything alive in the way of terrariums, of greenhouses, of places sealed away from wind and season. A leaf falls into the pool and becomes a small event: a universe of decomposing, of larvae feeding, of fish rising, of the heron that once stood at the water's edge and left its tracks in the mud, now dry.
+
+Everything here is both old and new. The cavern is a child in geological terms, still being carved, still deciding what shape it will be. The ruins are ancient—older than the stone that now surrounds them. The moss is centuries old. The pool has been here since before the ceiling began to fall.
+
+And all of it, every grain of sand and every drop of water and every small quick life, is moving. The water flows. The moss grows. The ferns uncurl. The insects hatch and feed and are eaten. The processions of decay and renewal continue in their patient circles, indifferent to the presence or absence of anyone to witness.
+
+The place does not know it is hidden. It does not know it is strange. It is only what it is: a pocket of time sealed away from the larger world, where ancient settlement and infant geology and persistent life have found a way to share the same small darkness.

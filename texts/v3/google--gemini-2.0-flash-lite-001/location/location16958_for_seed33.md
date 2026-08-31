@@ -1,0 +1,19 @@
+The world breathes in near-silence. It is a vast, open expanse of crystalline plateaus and mesas, their facets catching the dim, filtered light. There is no sun, no sky as such, but an unbroken, almost milky corona that permeates the air with a cool, perpetual twilight. The scale is immense, stretching beyond the horizon in every direction, a landscape not of land and sky, but of stone and light.
+
+Water is a forgotten concept. There is no rain, no rivers, no oceans. The only traces of liquid are within the deep, glassy veins that occasionally course through the crystalline structures, hinting at a past when the world held different secrets.
+
+Vegetation, as it is understood, does not exist. Instead, the landscape is etched with intricate patterns. These could be seen as the remnants of a long-vanished, perhaps even *impossible*, biomorphology. They are not plant-like, but patterns that crawl over the planes, like the intricate tracery on the inside of a geode. Some suggest the presence of a fungal network, others, some kind of energy pattern radiating outward from unknown origins, weaving complex, and non-repeating designs across the surfaces.
+
+The cool temperature is a constant, a fundamental aspect of this world. There is no warmth, only a pervasive chill that seems to emanate from the very stones. This cold, combined with the dim light, creates an atmosphere of profound stillness, as if the world holds its breath.
+
+Everywhere, the dominant material is the crystal; monolithic structures rise and fall in improbable geometries. The built environment is both urban and utterly alien. These are not buildings as we know them, but fused, impossible structures, layered and interwoven within the natural crystalline formations. It is as if the crystals themselves grow into and around the structures. Each city section is a distinct 'biome', connected by vast, open plazas, etched with the intricate patterns, creating a sense of organized construction.
+
+Tech is absent. No tools or devices mar the landscape. Instead, the 'technology' of this place is subsumed within the crystals themselves. The very structures that make up the cities seem to "know" how to channel and manipulate the dim, ambient light, focusing it into corridors, or refracting it into shimmering displays of nothingness.
+
+Even in the profound quiet, the world is dynamic. The crystalline structures are subtly, almost imperceptibly, shifting and growing, the patterns expanding and contracting. Weather cycles, while unlike those on the familiar world, are still present. Light patterns shift and change, from a soft, almost imperceptible pulsation to occasional bursts of an almost painful clarity. These, along with other cycles, are woven into the very fabric of the world.
+
+Fauna is rare, and what little of it exists is hard to perceive, let alone fully understand. Some whisper of creatures that exist as ephemeral forms, or perhaps as resonating patterns within the crystals themselves. Occasionally, a streak of chromatic light or a fleeting distortion of the landscape might indicate the passing of one of these beings.
+
+The reality of this world is fragile. Cracks appear in the crystalline structures, and impossible geometries bloom from them. The laws of physics seem to bend and distort. Locally, zones of altered reality appear and dissolve without warning. A piece of pavement might shimmer and become a passage into another place, only to revert without indication. The world is breaking down, but it is also expanding into new, strange shapes.
+
+Sound is a rare visitor, a delicate intrusion into the persistent silence. Sometimes, a low hum can be heard, vibrating the air, a sound neither mechanical nor biological, but a resonance within the crystals themselves. Occasionally, a shifting of crystal might send a sound that echoes endlessly, an impossibly long reverberation of tones and timbres that seem to map out the very architecture of reality.

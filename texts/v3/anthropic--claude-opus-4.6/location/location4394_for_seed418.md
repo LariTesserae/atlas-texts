@@ -1,0 +1,39 @@
+# The Basin of Mouths
+
+---
+
+There is a city here, or what a city became after the city forgot what it was for.
+
+You have to get down on your hands and knees to see it. The whole thing fits inside a depression in the earth no wider than a dining table — a shallow basin of eroded rock, dark and heat-smoothed, worn so long by so many patient centuries that its surface has the texture of wax left too close to a flame. The stone is a deep ferric red, nearly black in the dim light, and it holds warmth like a living body. The air above it shimmers faintly, a private weather system rising from the basin's breath.
+
+The city — call it a city — is built into the pores of the rock.
+
+Tiny structures, no taller than a thumb joint, made of calcium and kerite and something like calcified mucus. They cluster along the basin's drainage channels where water seeps up from below, not flowing exactly, but *arriving* — materializing in thin films across the stone, condensing from the saturated air, pooling in depressions no bigger than a coin. The buildings, if that's what they are, have been shaped by something with intention. Doorways face the water. Walls curve to channel condensation toward central reservoirs the size of teardrops. Bridges — actual bridges, with weight-bearing arches — span the micro-ravines that erosion has cut into the basin floor over millennia. Some of these ravines are so old they've eroded past sharpness into gentle troughs, their edges soft as gums.
+
+The light is wrong here, or rather, it arrives depleted. The basin sits at the bottom of a shallow overhang — not a cave, just a slight geological lean, enough to keep direct sun from ever reaching the floor. What light gets in has bounced off other surfaces first, losing its authority. It arrives amber and exhausted, casting no distinct shadows, only gradients of dimness. In this light, the tiny city looks half-dreamed.
+
+And it is *full of animals*.
+
+That's the wrong word. They aren't animals the way you know animals. They are the size of rice grains and apple seeds and lentils, and they move through the city with a density that borders on the impossible, like watching a capital at rush hour through a telescope held backwards. They have too many legs — or perhaps those are cilia, or fingers, or tongues. Some of them are translucent, and you can see darker structures inside them pulsing with slow, patient rhythms. Others are matte and furred, covered in something that might be hair or might be sensory filament. A few are rigid and shelled, like tiny crustaceans, but they flex at joints you can't quite locate, as if their armor is hinged in dimensions you're not tracking.
+
+They use the city. That's the part that unsettles.
+
+They enter and exit the structures. They gather at the water points. They cross the bridges in what appears to be organized, directional flow — streams of bodies moving one way along one bridge, the other way along another, as if traffic has been solved at this scale. Some of them carry things: granules of mineral, flakes of dried biofilm, fragments of something pale and fibrous that might be food or building material or both. A cluster of the shelled ones appears to be repairing a wall, adding wet secretion to a crack, layering it with a care that looks deliberate.
+
+There is no sound you can hear at first. You press your ear closer to the basin — closer than feels comfortable, because the heat rising from the stone is damp and organic-smelling, like breath from a throat — and then you catch it. A hum. Not mechanical. Biological. The aggregate vibration of thousands of tiny bodies in frictive contact with each other and with the stone. It's barely there. It lives at the basement of perception. But once you hear it, you can't unhear it, and it seems to come from the rock itself, as if the basin is a resonating chamber and the city is a larynx.
+
+The vegetation is almost nonexistent. A few smears of something cyanobacterial along the wetter channels, blue-green stains that look painted on. One structure — taller than the others, slightly off-center in the basin — has something growing from its roof: a single filament, pale, no longer than an eyelash, with a bead of moisture clinging to its tip. It might be a plant. It might be a fungus. It might be an antenna. Several of the translucent creatures have gathered at its base, oriented toward it, motionless, in a configuration that looks like either worship or maintenance.
+
+The basin is old. Whatever geological event first created this depression — impact, subsidence, the dissolution of some softer mineral vein — happened so long ago that the evidence has been smoothed into ambiguity. The rock remembers nothing but its current shape. The city, too, feels ancient, though it's harder to tell — the structures are maintained, rebuilt, kept in a state of repair that obscures their true age. But some of the deeper channels have buildings *embedded* in their eroded walls, as if the city was once at surface level and the stone has slowly consumed it, and new structures were built on top, and consumed in turn, and rebuilt again, a cycle so gradual it operates on a timescale closer to geology than biology.
+
+You wonder what generation of city this is. The hundredth. The thousandth.
+
+The heat is constant and close, the kind that doesn't fluctuate with day and night but radiates from some deeper source — geothermal bleed, maybe, or the metabolic output of the colony itself, thousands of small bodies generating warmth that the basin cups and holds. The water, too, seems warm. Where it pools, it doesn't evaporate quickly despite the heat; the air is already so saturated that equilibrium has been reached. Everything is damp. Everything is warm. The basin exists in a state of thermal and hydrological stasis, a pocket climate unto itself, decoupled from whatever weather moves above.
+
+Occasionally, one of the larger creatures — and "larger" here means the size of a small beetle — emerges from a structure near the basin's edge and moves to the perimeter, where the eroded stone slopes upward toward the world outside. It pauses there. Its sensory appendages — the fringe of filaments around what you decide to call its head — extend and wave slowly in the air, sampling something. Then it turns and goes back inside. You watch this happen three times over what must be twenty minutes. The creature always stops at the same point. It never crosses the rim.
+
+You begin to suspect the basin is not just a habitat but a *boundary*. That whatever these creatures are, whatever their city is, it exists in deliberate containment — whether self-imposed or the result of some constraint you can't perceive. The world outside the basin is dry, flat, featureless eroded stone extending in every direction under a hazy sky. Nothing out there for them. Everything they need is in here: the seep-water, the warmth, the ancient architecture of channels and pools that erosion has carved and they have furnished. They are a civilization fitted precisely into a wound in the rock, and they have been here long enough that the distinction between the city and the geology has started to dissolve.
+
+You pull back. From a standing height, the basin is just a dark smear on the ground, a shallow dip in an expanse of worn stone. You could step over it. You could step *in* it and never know. The hum is gone at this distance. The creatures are invisible. The city is invisible. The whole world you just witnessed collapses into a minor blemish on a featureless plain.
+
+The heat presses on your shoulders. The light is flat and dim. Somewhere, water is arriving at the surface, molecule by molecule, to feed a civilization you are now too tall to see.

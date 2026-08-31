@@ -1,0 +1,21 @@
+Darkness is absolute here. Not the mere absence of light, but a heavy, velvet presence that presses against the skin, suggesting that the concept of "vision" is a superstition from other worlds. You navigate by touch, by the temperature of the air, and by the feel of moisture on your face.
+
+The air is humid and thick, warm like the breath of a sleeping animal, tasting of wet minerals and ancient dust. You are high up—this much is told by the thinness of the breath and the way sound carries a hollow, mountainous resonance—but this specific place is a pocket, a hidden cavity nestled within the ribs of the peaks. It is not a cavern so much as a hollow, a room-sized bubble embedded deep within the raw, unyielding rock.
+
+The defining characteristic of this space is its *sharpness*.
+
+Because the erosion parameter is so low, the geology here is embryonic. There are no smooth, river-worn stones, no sanded floors, no rounded edges. The walls are jagged, presenting a topography of fresh, ragged fractures. It feels as though the rock fractured only moments ago, opening this wound in the mountain. The surfaces are raw and abrasive, catching at clothing and skin. The stone itself feels dense and surprisingly hot to the touch, radiating a geothermal warmth that keeps the chill of the high altitude at bay.
+
+Water is everywhere, yet it does not flow in the traditional sense. With the lack of gravity-fed rivers and the sheer density of the rock, the water moves like blood through capillaries. The entire chamber weeps. The ceiling is hidden, but you can feel the condensation forming heavy, rhythmical drops that fall with a hollow, echoing *plink* onto the uneven floor. There is no drainage; the water pools in the countless micro-basins and cracks in the floor, creating a network of tiny, still mirrors. The air is so saturated with moisture that it coats the inside of your lungs with every breath.
+
+Despite the sparse vegetation—there is no green here, no photosynthesis—the space feels crowded. This is the density of the inorganic. The raw geology is aggressively present; stalactites and stalagmites, driven by the condensing atmosphere, are erupting from floor and ceiling, meeting in the middle like the teeth of a closing jaw. They are packed tightly, forcing you to squeeze through narrow, mineral corridors. It is a dense forest of stone, wet and slick, composed of needles and blades that have never known the smoothing hand of time.
+
+The silence is profound. It is a "mostly quiet" that feels almost vacuum-sealed. There is no wind in this enclosed pocket. The only sounds are the molecular ones: the slow drip of water, the shifting of your own body, and the faint, high-pitched ringing of silence that often accompanies absolute darkness. It is an equilibrium that feels frozen. The water drips, but the pools never overflow; the rock is hot, but the air does not scorch. It is a system holding its breath, locked in a stasis that feels both eternal and precarious.
+
+There are signs of the scattered and the primitive.
+
+Deep within the thicket of stone formations, where the walls press closest, you find the artifacts. They are not technological in the modern sense, but crude, hand-fashioned markers. Smoothed pebbles, incongruous against the razor-sharp native rock, arranged in spirals. Piles of bones—small, blind creatures, rare fauna that perhaps lived their whole lives within this single dark room—stacked with intent. Scratch marks on the walls, made by stone on stone, forming patterns that suggest a map or a prayer.
+
+It is a chapel of the raw. A hidden, high-altitude womb where the world is still being born, sharp and wet and dark, crowded with the potential of what it might one day become, should time ever begin to move here.
+
+You are an interloper in a geology that has not yet decided to be hospitable. The space accepts your presence only as a temporary variable in its dense, unchanging equation. To be here is to feel the raw, unfinished edges of the planet pressing against you, warm and wet and utterly indifferent to your existence.

@@ -1,0 +1,37 @@
+The place is a hollow in the summit of a newly risen mountain, though “hollow” suggests more space than there is. It is a chamber no wider than a village square, pinched between slabs of black stone that have thrust upward through older rock. Their surfaces are raw and sharp, scarcely weathered: glassy ridges, broken shelves, splinters of pale mineral caught in the seams. The mountain seems unfinished. No soil has gathered in the cracks except a gray paste made from powdered stone, shed skin, and the droppings of the animals that crowd the place.
+
+The hollow lies high enough that the world below is absent. Clouds drift beneath its rim like a slow, luminous sea, but the chamber itself remains dark. The walls lean inward overhead, meeting in a crooked aperture no larger than a doorway. Sunlight reaches it only briefly, if at all, and never reaches the floor. Most of the illumination comes from dampness: beads of condensation shining faintly along the rock, and thin blue-white films of lichen that wake when touched.
+
+Moisture arrives in pulses. A cold fog pours over the rim every few days, spills down the stone, and vanishes into the cracks. Rainwater collects in shallow basins, each no deeper than a hand, before freezing or sinking away. The air smells of wet iron, mineral dust, and the sour warmth of too many living bodies packed together. At times the whole chamber breathes with mist. At times it is dry enough for the stone to rasp beneath every movement.
+
+There is little vegetation. A few black, jointed stalks grow from the wettest seams, each one carrying a single translucent leaf like a shard of ice. They do not bend toward light. They bend toward sound. When the animals stir, the stalks turn in unison, slowly, as if listening with their entire bodies. There are also mats of low moss, dense as felt and almost colorless, which drink condensation directly from the air. Nothing here grows tall. There is not enough warmth, soil, or time.
+
+But there are animals everywhere.
+
+They occupy every layer of the chamber: beneath stones, inside the walls, along the ceiling, packed into the narrow channels where water passes. Small pale bodies slide over one another in constant, patient traffic. Many have no visible eyes. Some possess clusters of soft sensory filaments that comb the air. Others are armored in thin, overlapping plates, their shells powdered with the same gray dust as the floor. They are not frantic. Their abundance is not the abundance of a swarm in panic, but of a place in which every surface has become habitat.
+
+A ledge that appears bare will twitch when approached. The crack beside it will open into a mouth. A hanging fold of rock may reveal itself as the folded wing of something that has been waiting motionless for several seasons.
+
+The largest creatures are long and low, pressed nearly flat against the stone. They resemble blind mountain salamanders stretched to impossible length, their ribs visible beneath translucent skin. They feed on the smaller animals and on one another, but rarely fight. When two meet, they merge their heads, exchange a faint pulse of color, and separate. Their bodies leave wet trails that evaporate slowly in the cold.
+
+Above them cling the bell-throated things. They hang from the ceiling by hooked feet, bodies folded inward, and produce the chamber’s loudest sounds: deep, resonant calls that begin as a vibration in the rock and end as a hollow booming in the chest. The calls are not frequent, but when one begins, all the others answer in staggered sequence. The result is less a chorus than a geological event—an immense knocking from inside the mountain.
+
+The sound never truly stops. Small claws tick over stone. Wings scrape the ceiling. Water clicks into basins. Hidden animals make wet, rhythmic chirps from behind the walls. The chamber amplifies everything, so that a single creature moving in a crack can sound like a procession crossing the floor. The animals themselves seem accustomed to this roar. They navigate by it. When the bell-throated things call, the blind creatures turn toward the vibration, and the strange listening plants slowly incline their leaves.
+
+The place has rules, though they are not rules of intention.
+
+Sound draws life. Warmth draws life more quickly. Stillness is the only disguise, but stillness cannot be maintained for long in the crowded hollow. Any exposed body becomes a surface, and every surface is eventually investigated. Creatures that die do not remain recognizable for more than a few hours. They are opened, hollowed, and reduced to damp fragments. The bones—if they have bones—are carried into the cracks, where another generation uses them as anchors.
+
+The animals do not seem to age in the ordinary way. They grow slowly, shed layers, and sometimes remain in one place until their bodies become part of the chamber. A thing may enter a crevice young and emerge years later with its skin replaced by mineral. Some of the oldest inhabitants are indistinguishable from the rock except when they breathe. Their breathing causes the walls to flex.
+
+The mountain’s sharp features are evidence of its youth. Fresh fractures run through the chamber, and occasionally a slab shifts by the width of a finger. The movement is slow enough to seem imagined, but it crushes whatever lives beneath it. New surfaces are revealed, wet and black, and immediately colonized. Pale eggs appear in the seams within days. Within weeks, the new rock is furred with tiny bodies.
+
+Nothing has been built here. There are no shelters, tools, trails, or deliberate boundaries. Yet the density of life has produced arrangements that look almost made: curtains of hanging animals, clustered shelves of shells, bridges of entwined bodies spanning narrow gaps. A primitive hand might mistake them for woven things. They are not. They are simply the accumulated consequences of too many creatures following moisture, vibration, and heat through a space too small to contain them.
+
+At the center of the hollow is the deepest basin. It holds water year-round, though only a little: a black pool beneath a lip of stone. The surface is perfectly still except when the mountain trembles. Nothing drinks from it directly. Instead, minute organisms gather at its edge and draw water through their bodies, passing it outward through the living mass. The pool is less a source than a heart. Every few hours, a faint pulse travels across it, and the creatures nearest the basin respond by shifting, tightening, or opening their mouths.
+
+If one watches long enough, the chamber appears to move as a single organism. Not quickly. It expands and contracts over hours. The animal layers settle, then rise. Condensation gathers, falls, and is carried away. The plants turn toward distant noises. A crack widens imperceptibly. Somewhere below, the mountain continues to cool and harden.
+
+The surrounding peaks may be vast, but this place is intimate: a dark, crowded room at the top of the world. Its walls are close enough to touch from almost anywhere. Its inhabitants brush against one another constantly. Its cold is not clean or empty; it is warm with breath, damp with hidden circulation, and loud with the labor of countless small lives.
+
+And beneath all of it, too deep to see, the new mountain slowly finishes becoming itself.

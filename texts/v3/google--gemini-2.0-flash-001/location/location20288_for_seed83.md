@@ -1,0 +1,23 @@
+The first thing that strikes you, descending into the pressure lock, is not the heat, though that's considerable, a heavy blanket even through the environmental suit's cooling mesh. No, it's the smell. Acrid, metallic, tinged with the sickly-sweet odor of something organic… decaying perhaps, or undergoing some strange alchemical transformation. It coats your tongue, sticks in your nostrils. You can taste the place before you see it.
+
+Once the inner door hisses open – a slow, deliberate groan that seems to echo for an impossible distance – the darkness becomes a more immediate concern. The helmet lamp sputters weakly, casting a pathetic, yellowed pool that barely penetrates the gloom. You adjust the gain, coaxing a little more light, and the world sluggishly reveals itself.
+
+This isn't a cave, not exactly. It's more like the hollowed-out innards of some colossal beast, now petrified. Eroded, yes, but eroded by something other than wind and rain. Acid, most likely. Acid, and time. The walls are a dense, black slag-stone, porous and shot through with veins of a lighter, almost bone-white mineral. It feels strangely warm to the touch.
+
+Water is everywhere, not in torrents or pools, but as a damp, clinging presence. Condensation beads on every surface, collecting into slow, glistening tears that track down the slag-stone walls. The air itself feels saturated, heavy with moisture and something else… an oily, particulate residue that clings to the light. The single light source refracts into a thousand scattered points. Visibility is perhaps fifteen feet before the darkness swallows everything whole again.
+
+The "ground" is no better. An uneven expanse of broken slag, interspersed with patches of a gritty, reddish dust. Walking is treacherous, your boots sinking ankle-deep with each step. The silence is broken only by the drip, drip, drip of condensation and the wheezing rattle of your own respirator.
+
+Here and there, clinging to the damp walls or growing from the acidic dust, are the sparse remnants of a strange, subterranean flora. Mostly lichen-like growths, dull grey and brown in color, but occasionally a patch of something more vibrant – a cluster of fleshy, purple fungi that pulsates faintly, or a single, elongated stalk topped with a bioluminescent orb that flickers with an unsettling rhythm.
+
+Further in, the terrain shifts, and signs of the "built" environment begin to emerge from the claustrophobic darkness. Grotesque, fused metal structures twist and coil like the skeletons of long-dead machines. Pipes, some shattered, others still intact, snake across the walls and ceiling, their surfaces corroded and pitted. Valves and junctions, frozen mid-operation, seem to whisper stories of a frantic, mechanical past.
+
+Everywhere is a suffocating density. Structures upon structures in decaying layers of technological strata. Close inspection reveals that the metal is not steel, or aluminum, or any substance you recognize. Its dark sheen is unearthly.
+
+You come across a chamber, perhaps the size of a large hangar, with rows of rusted machines. They stand silent, their purpose long forgotten, like the bones of extinct metal beasts. The air here is thick with the smell of ozone and decay. Strewn on the floor around the machines are strange artifacts, remnants of a civilization that existed only to disappear into its own constructs: tools, shattered components, half-formed objects of unrecognizable purpose.
+
+Fauna is scarce. You glimpse a flicker of movement in the shadows – a pair of glowing eyes that vanish as quickly as they appear. And once, a strange, chitinous skittering that sends a shiver down your spine. Beyond that, nothing; just the omnipresent sense of being watched, of being an intruder in a place that has long since ceased to welcome visitors.
+
+There is a profound sense of age about this place, not merely in the physical decay, but in the very fabric of reality. Time seems to flow differently here, slower, thicker somehow. The slow, acid drip, the pulsing of the fungal lights, the grinding groan of the earth… they all speak of a patience that transcends human understanding.
+
+It's a tomb, a factory, a cathedral, all rolled into one. A monument to a dead civilization, built on a foundation of industry and consumed by its own creations. A place where the line between the organic and the artificial has blurred beyond recognition and where the darkness whispers secrets that are best left undisturbed.

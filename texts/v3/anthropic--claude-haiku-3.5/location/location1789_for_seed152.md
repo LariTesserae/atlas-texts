@@ -1,0 +1,13 @@
+In the depths of a lightless ocean, a living architecture unfolds—a world of vegetal tendrils and liquid membranes, suspended in a perpetual cold twilight. This is not a landscape of stone and soil, but a breathing ecosystem where plants have become the fundamental substrate of existence.
+
+Massive, translucent kelp-like structures rise and intertwine, forming cathedral-like chambers that pulse with slow, almost imperceptible movement. These are not plants as we know them, but living conduits—part organism, part structure—that filter and channel the dense, dark water around them. Their tissues are semi-transparent, revealing intricate networks of bioluminescent veins that pulse with a soft, bluish-green light.
+
+The water itself is alive. Not just inhabited, but sentient—a thick medium that carries sound in deep, resonant waves that reverberate through the plant-structures. These sonic frequencies are constant, a loud, thrumming language that seems to communicate something just beyond comprehension. Strange fauna drift through the spaces between the plant-architecture—soft-bodied creatures with multiple sensory tendrils, some larger than a human body, others tiny and darting.
+
+At the edges of this ecosystem, something is perpetually emerging. New plant-structures bud and extend, not through traditional growth, but through a kind of cellular negotiation—testing, probing, establishing connection. The boundaries are fluid, the topology always in a state of gentle transformation.
+
+Primitive technologies are embedded within this living system—tools crafted from the plant-structures themselves, biological implements that are grown rather than manufactured. Fragments of settlements nestle within the larger plant chambers, their boundaries blurred and organic.
+
+This is a world of perpetual, controlled stasis. Nothing truly changes, yet everything is in a state of constant, microscopic adjustment. The temperature remains constant and cold, the water dense and thick, the plant-structures maintaining a delicate equilibrium that has existed for perhaps millennia.
+
+Weirdness permeates every membrane and current. This is not an alien world, but a world so fundamentally different from terrestrial experience that it defies easy categorization—a place where the boundaries between environment, organism, technology, and consciousness have dissolved into a single, breathing entity.

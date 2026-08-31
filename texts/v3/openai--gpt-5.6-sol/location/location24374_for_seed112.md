@@ -1,0 +1,45 @@
+The high country begins above the atmosphere’s lower haze, though there is no clear boundary and no mountain range in the ordinary sense. The land simply lifts for thousands of kilometers: a broad, cool vault of mineral and living tissue, pale under a sun that seems too near.
+
+From a distance it looks sparsely covered. Immense intervals of silver, chalk-yellow, and blue-white lie between upright forms. Yet there is no exposed ground. What appears to be stone is vegetable matter: old compressed rind, layered over ages until it has the hardness of ceramic. The plains are one continuous organism—or an interlocked congress of organisms too ancient and thoroughly grafted to distinguish. Their upper skin is dry, ridged, and reflective. It contains almost no water. Life here runs on liquid hydrocarbons, ammonia salts, and slow exchanges of fluorine-bearing sap sealed inside pressure-tight fibers. A cut surface does not bleed; it exhales.
+
+The apparent emptiness is a matter of spacing. The vegetation has made the land, but most of that vegetation lies flat, dormant-looking, and armored. Its active parts rise at intervals of several kilometers: black stalks like factory chimneys, radial groves of glassy vanes, enormous hollow bulbs held aloft on cables of root. Nothing crowds. Each structure requires a territory wide enough to gather sunlight, wind charge, and mineral vapor. Around every trunk stretches an austere apron where the substrate has been swept clean of loose growth by ceaseless turbulence.
+
+There is no water anywhere—not in pools, clouds, blood, or sap. The sky carries dry dust and volatile organic gases. Clouds form nonetheless: amber sheets of wax aerosol, pale green blooms of spores, and towering columns of carbon powder raised by thermal updrafts. They do not rain. They pass overhead and plate the landscape in molecular films, feeding one region while poisoning another.
+
+The light is brilliant. It comes from the sun, from the reflective plains, and from the plants themselves. Tall vane-groves turn their mirrored faces through the day, throwing kilometer-long bars of white glare across the plateau. Smaller organisms unfurl foil-thin leaves, each one angled to avoid overheating while redirecting excess light toward shaded tissues below. When whole provinces adjust at once, brightness moves over the country in orderly sweeps, as if some invisible lighthouse were rotating beneath the horizon.
+
+The air is cool despite the radiance. Altitude thins it, and the living surface rejects heat efficiently. Shadows are abruptly cold. In the lee of the great stalks, frostlike crystals of solidified plant oils feather across the ground, though no ice can form here. At night the temperature falls hard enough to make the plains contract. Old seams open with reports like artillery, exposing dim orange tissue before slowly sealing again.
+
+Nothing is quiet.
+
+The first sound is the wind, accelerated over the high plateau and forced through billions of pores, whistles, vents, and resonant chambers. The vegetation has not merely adapted to the wind; it metabolizes it. Towering stalks inhale through slots along their windward sides. Internal membranes beat and piston. Gases are compressed, separated, and pumped down through buried vascular networks. Each mature tower produces a note too low to hear cleanly, but the combined vibration passes through bone and shell. Over it rises a shrieking register from the vane forests, where rigid leaves swivel on fibrous bearings.
+
+This is an industrial landscape without industry having been built.
+
+Everywhere, biological processes have converged on the forms of engines. Seed mills rotate in the gale, grinding mineral crust into powder. Root furnaces oxidize methane-rich sap in sealed chambers, warming germinating tissues through the cold season. Long belts of linked pods creep across the plains, each pod gripping, releasing, and passing nutrient pellets toward the central trunks. At dusk, electrical organs discharge along branching surface veins. Blue arcs leap between widely spaced spires, cracking the air and fixing atmospheric compounds into edible salts.
+
+There are no roads, walls, ruins, or tools. No hand designed the pistons. No mind laid the buried conduits. The resemblance to manufacture is the outcome of scale and long necessity: production without builders, infrastructure without construction, a continent running itself.
+
+Its age is visible in the shape of the land. Wind has carved broad channels through the living rind, but the channels heal so slowly that they function as valleys for tens of thousands of years. The edges are rounded, lacquered, and densely scarred. Fallen towers leave basins hundreds of meters deep; over centuries these become sheltered nurseries, then harden into circular mesas as their new growth compresses. Entire ridgelines are the petrified folds of earlier vegetation, pushed upward by newer tissues spreading beneath them.
+
+Erosion and growth have reached a violent balance. The plateau is always being stripped and always replacing itself. Dust storms plane away the sunward surfaces. Root pressure lifts fresh layers from below. Vast slabs occasionally peel upward, caught by the wind like loose bark, and travel for days through the upper sky before shattering. Their fragments descend slowly on inflated seed bladders, casting moving constellations of shadow.
+
+The fauna lives in the machinery.
+
+Long-bodied grazers move along the sheltered sides of the vascular trenches. They have six or eight low legs and smooth mineral shells, polished by airborne dust. Rather than drink, they bite blisters from the ground and crush them to release concentrated solvent-sap. Their mouths close hermetically while feeding. Behind them come flocks of bright, paper-thin scavengers that skate on pressure changes, snatching chemical crystals from the grazers’ footprints.
+
+Higher up, animals inhabit the towers. Hook-winged flyers circle the intake vents in vast numbers, sometimes forming living rings several kilometers across. They feed on spores and on small balloon creatures swept into the updrafts. Their wings are stiff lattices rather than membranes; the wind plays them like reeds. A migrating flock adds its own screaming chord to the landscape.
+
+Predators are few but conspicuous. Some are almost indistinguishable from broken branches, waiting beside the conveyor lines until a pod-animal passes. Others are aerial: broad black forms that fall from the bright sky without flapping, strike once, and reopen into kites. Most creatures navigate by vibration because ordinary hearing is nearly useless. Their feet read the substrate. Their shells sense the low frequencies of pumping roots. Silence, when it occurs locally, is treated as danger: it means a vascular line has shut down, a storm front has stolen the wind, or something large is damping the ground.
+
+The weather can change the workings of whole regions in minutes. A pressure surge arriving from the western escarpment causes the towers to close their upper vents. Their notes descend together. Vane forests flatten. Grazers lock their feet into the rind. Then the front arrives—not with rain, but with darkness, static, and a wall of abrasive spores.
+
+Within the storm, the landscape becomes hyperactive. Root valves hammer belowground. Electrical trees branch into sheets of violet fire. Pods rupture and launch filamentous young into the gale. Animals tumble through the air in defensive curls. Sections of living crust buckle as pressure shifts inside them, forming hills where there were none and opening trenches that reveal luminous organs turning slowly in the depths.
+
+The storm may last an hour or a month. When it passes, a province has been rearranged. Towers lie splintered across the plain. New stalks have unfolded from the cracks. A migration route is gone; a fresh one pulses with chemical warmth. Dust has etched every standing surface, sharpening old scars and softening new wounds.
+
+Yet this turbulence is not youth. It is the mature behavior of the place. The plateau has been remaking itself this way for geological ages. Its catastrophes are seasonal gestures. Its apparent factories bloom, wear down, collapse, and are digested. Its mountains are old husks. Its valleys are healed injuries. Even the emptiness between its great organs is actively maintained: open space gives the wind room to gather force, gives the mirrors room to cast light, gives the flyers room to spiral.
+
+At midday, under the hardest glare, the vastness becomes almost unreadable. Distance disappears in reflection. The scattered towers seem near enough to touch, though some stand beyond the curve of the world. Their synchronized pumping makes the horizon tremble. Dry clouds unwind from their crowns. Herds pass as dark flecks over the luminous rind.
+
+The whole high continent roars—wind, wings, valves, cracking crust, rotating groves, electrical discharge—an untouched wilderness performing the labor of an immeasurable machine, manufacturing only itself.

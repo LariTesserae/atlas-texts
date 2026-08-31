@@ -1,0 +1,11 @@
+You find yourself standing at the edge of a vast subterranean chamber, the ceiling lost in darkness high above. The air is cool and still, the only sound the faint hum of unseen machinery echoing off slick, obsidian walls. Dim red lights embedded in the stone cast an eerie glow over the space.
+
+The chamber is cavernous, the rough-hewn walls curving out and up on all sides. It's dominated by a series of stepped, concentric platforms plunging down from where you stand, each one large enough to build a city. Staircases and elevators connect the levels.
+
+Scattered across the platforms is a fascinating mix of organic and synthetic forms. Tortuous coils of bioluminescent vines seem to meld with glowing tendrils of fiber optic cables. Strange, hybridized trees with metal rings and pulsing veins stand alongside algae-choked ponds circled by calm robot sentinels. Chunky, angular buildings that appear to be made from some dark, heavy stone are interspersed with translucent domes and geodesic spheres.
+
+There is a sense of immense age and permanence, yet an alien liveliness as well. The structures seem to have grown as much as they were built, organic and inorganic matter intertwining. Strangely-shaped vessels drift lazily through the air between platforms on whisper-quiet repulsor fields. Grazing them are creatures that look like animated statues of rough-furred beasts, leaving trails of faint glowing motes floating in their wake.
+
+High above, caught in flickering lights, you glimpse strange floating entities the size of buildings. Large crystalline spires aim up from the edge of the platforms like thorns, each one encasing nebulous opalescent whorls that shift and twist hypnotically.
+
+Translucent conduits weave through it all like veins and arteries, pulsating with gentle, syncopated rhythms. They seem to feed the structures, the strange flora. The air hums with power. Here and there, floating motes gather in cumulus-like clumps, solidifying, bits of heavy, dark metal extruding from them to plat onto a slowly growing structure. Beneath, beneath, beneath, the platforms lower on and on in a never-ending sequence, dropping into the basement of the space, a compression of necks and gambrels and spires...to where, down, down?

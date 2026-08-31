@@ -1,0 +1,27 @@
+The world is made of terracotta. 
+
+If you were to drill down through the floor for miles, you would find only more layers of hand-pressed red brick, wet lime mortar, slabs of pale soapstone, and rough-beaten bronze plates. There is no bedrock here, no sand, no native granite. The solid ground is entirely built, yet it has been raised with the tools of a basin-dwelling ceramicist. Every surface bears the trace of manual labor: the faint chevron-patterns of thumbs pressed into wet clay before firing; the irregular, hand-chopped edges of slate tiles; the thick, uneven seams of white mortar that have been sloughed off with wooden trowels and left to dry.
+
+It is suffocatingly hot, a wet and heavy heat like the interior of a brick-kiln that has been doused with water but not yet allowed to cool. The air is thick with the smell of baked earth, damp lime, and the sharp, mineral tang of sulfurous steam. 
+
+This steam is the sky. There are no clouds, only a low, universal ceiling of grey condensation that hangs fifty feet above the masonry, dripping back down in a relentless, silent drizzle. The light is dim and bronze, diffused through this hot fog so that there are no distinct shadows. It is a perpetual, sweating twilight.
+
+The scale of this construction is continental, perhaps planetary, but it is mostly empty. For leagues in every direction, the landscape is a flat, low-slung plain of glistening red tiles. It is a desert of masonry. Occasionally, miles apart, the emptiness is interrupted by singular, lonely structures: a massive, leaning chimney of dry-laid stone that vents green steam into the fog; a thirty-foot-wide circular basin tiled in blue glaze, brim-full of boiling, mineral-heavy water; or a long, windowless gallery of sun-dried mud brick that stretches toward the horizon before ending abruptly in a heap of broken potsherds.
+
+There is no vegetation. In the joints between the wet bricks, where one might expect moss or weeds, there is only a dry, white efflorescence—salt-crusts that bloom in delicate, crystalline feathers, mimicking the shapes of ferns. They grow an inch in an hour, fed by the hot minerals bubbling up from below, only to be dissolved and washed away when a slow wave of condensation rolls across the floor. 
+
+There are no animals. Nothing crawls through the damp mortar; no birds fly through the hot steam. 
+
+Instead, the land itself possesses a heavy, non-biological turbulence. The geometry of this constructed world is unstable, undergoing a slow, manual-looking genesis and collapse. Without warning, a square mile of the flat brick floor will begin to buckle. There is no sound of shifting tectonic plates—only the wet, rhythmic *clack-clack-clack* of tiles sliding over one another, driven by some hidden, subterranean weight. The bricks tilt, rising into stepped pyramids or sinking into deep, octagonal wells. You can look down into these new pits and see, forty feet below, the massive wooden beams and coarse hemp ropes of giant counterweight systems shifting slowly in the dark, coated in grease and wet clay.
+
+But the mechanics do not obey physical laws. 
+
+Sometimes, a flight of brick stairs will build itself upward into the steam, each step sliding out from the one below it with a wet, scraping sound, only for the stairs to loop back onto themselves in an impossible ring. If you walk along a straight seam of lime-mortar for an hour, you may find the horizon tilting slowly until the wet red floor becomes a vertical wall beside you, though your feet remain inexplicably glued to the tiles. 
+
+The water here does not gather in oceans or lakes. It exists as a thin, universal film, a fraction of an inch deep, constantly moving across the ceramic plains. It flows in intricate, shallow channels carved directly into the stone slabs, running in geometric spirals that seem to have no beginning and no end. Because of the subtle shifts in gravity and geometry, this water occasionally flows uphill, climbing the sides of low terracotta ridges in thin, glassy sheets before vanishing into decorative drain-holes.
+
+The silence is vast, but it is not absolute. The wet air dampens sound, sealing you in a small pocket of your own existence, but from the far distance, filtered through miles of steam, come occasional notes of activity. You might hear the deep, hollow *tock* of a wooden mallet hitting a wedge—a sound that repeats every twelve seconds for an hours-long stretch before stopping. There is the faint, musical *ping* of cooling earthenware, the wet sigh of steam escaping from a newly opened flue in the floor, and the distant, heavy *shlap* of wet clay being dropped from a great height onto stone.
+
+Everything is new, yet everything is unfinished. The edges of the bricks are sharp and clean; the bronze rivets holding the copper gutters together are bright and unpatinated. There is no sign of wear, no rounding of corners by wind or time, because the landscape is constantly resetting itself. A plaza of black-glazed tile, laid down with geometric perfection, will slowly turn to slurry over the course of an afternoon, the grout softening back into gray mud, the tiles sinking into the warm red broth below, only for a new pattern of yellow-brick herringbone to begin pressing itself upward through the muck a mile away.
+
+It is a world built by hand, but there are no hands. It is a monument to an impossible labor, sweating in the dark, shifting its bricks in a slow, feverish sleep.

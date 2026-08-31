@@ -1,0 +1,25 @@
+The place is called, by no one in particular, the **Weave Yard**—though whether it was named before or after it became itself is unclear. It sits low, lower than the surrounding land, a shallow bowl in cool clay that never fully dries. The elevation is barely above sea level; fog pools here, and rain, when it comes, does not run away quickly but lingers as a sheen on every surface, as beads in the hollows of things.
+
+The scale is intimate—no larger than a hamlet block, a single enclosed court with boundaries that feel both accidental and absolute. There is space here, much of it. Density is sparse: presence gathers, then releases. You can walk for long minutes between one substantial thing and the next.
+
+And yet the vegetation is total.
+
+This is the central contradiction that gives the Yard its character. The plants do not grow *around* the space; they *are* the space, but arranged with deliberate emptiness between them. Massive, slow, cathedral-scale root-bundles rise from the damp ground at wide intervals—each one a pillar, a wall, an arch of living substrate. Their surfaces are not bark but something closer to woven fiber, damp and cool to the touch, breathing slowly in the gray air. Between these living structures, there is nothing but empty ground: not barren, but holding—moss thick as carpet in patches, then bare cracked clay, then shallow pools of accumulated moisture that reflect the overcast sky. The plants fill the world, yet they stand as scattered monuments to themselves, leaving the air and the distance between them untouched.
+
+Embedded within this plant-substrate is the industrial remnant.
+
+The Yard was once a factory, or a workshop, or some mechanized settlement of small scale—organized construction layered over itself, then left to settle. The tech is still present, but it has entered its own state of balance. Rusted iron gears, larger than a person, lie half-buried in the root-tissue. Their teeth have become ridges in the plant walls. Pipes—some copper-green, some black with age—thread through the hollow stems, and they still function, though not for water or fuel, but for sap: a slow, cool circulation driven by osmotic pressure. There are engines, though they do not roar. They turn with a rhythm so gradual it might be mistaken for stillness, powered now by the plants themselves. The machinery is weathered, settled-form; it has been here long enough to forget urgency.
+
+The atmosphere is cool and consistently damp—intermittent moisture made permanent through condensation. Water does not fall here in torrents; it arrives as mist, as drip from the upper surfaces of the root-arches, as a thin film collected on the rusted metal. Small pockets of it gather in the depressions of old paving stones, now broken and softened by centuries of pressure.
+
+Light is normal—no stark drama, no burning sun or deep shadow. The sky is present, gray and even, filtering through the gaps between plant-pillars with an unremarkable clarity that lets you see every detail without emphasizing any of it.
+
+Sound is mostly quiet. The quiet has texture: the occasional drip from a pipe onto moss, the almost-inaudible creak of root-fiber adjusting to temperature, the low, intermittent tick of a valve opening or closing somewhere deep in the integrated machinery. There is wind, but it moves slowly through hollow stems, producing not a whistle but a soft, breathy resonance.
+
+Fauna is rare—so rare it seems the Yard has agreed not to be lived in by animals. Perhaps there are small insects in the moisture, or microscopic lives in the damp moss, but nothing visible moves across the open spaces. The ecosystem is in motion, but it is a motion of plants and machines, of slow chemical exchange, not of pursuit or flight.
+
+There is something slightly wrong, but only slightly—the weirdness is low, a gentle deviation rather than a rupture. Perhaps it is the geometry: the root-pillars grow in patterns that match the old factory grid with unsettling precision. Perhaps it is the silence of the engines, which turn without purpose, without product, maintaining only their own continued turning. Perhaps it is the sense that this is not decay, not ruin, but a completed transformation—an industrial settlement that has not fallen apart but been digested, incorporated, made into the architecture of something that no longer remembers being built.
+
+And it is active. Dynamic processes fill the emptiness with invisible motion. Moisture cycles through root and pipe. The engines turn. The plants grow—not quickly, but visibly, if you stay long enough to observe. There is a biological pace merged with a mechanical one, both slow, both cool, both damp.
+
+You stand in the Weave Yard, in the sparse, cool space between living pillars, and the world holds its breath not in suspense, but in the steady, quiet continuation of what it has become.

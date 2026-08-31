@@ -1,0 +1,29 @@
+The place is called the **Weeping Escarpment**, though no one has spoken that name in three hundred years.
+
+It begins with verticality. The land does not rise so much as it refuses to end. Cliffs of dark olivine and wet schist climb for kilometers in staggered shelves, each one so vast that clouds form and dissolve against their faces like breath on glass. The altitude is punishing; the heat is worse. At these elevations the air should be thin and cold, yet the temperature remains a wet, tropical 48 °C, held there by something that is not quite a greenhouse effect. The atmosphere itself seems to sweat. Water condenses on nothing, drips upward in slow pearls, then falls again. Every surface is lacquered with moisture.
+
+The vegetation has taken the heat and the water as permission. It is not jungle. It is something older and more architectural. Great lattices of bromeliad and lithophytic fern grow in horizontal planes that jut from the cliffs like bracket fungi the size of sports fields. Their roots drink directly from the weeping rock. Between them rise candelabra trees whose trunks are hollow and filled with luminous blue pitch that pulses faintly, in time with something deeper. Vines thick as thighs drape in slow motion, their leaves so densely layered that they form living ceilings hundreds of meters across. Every surface that is not stone is furred, feathered, or fronded. The green is so complete it has weight.
+
+Yet the place is not young. The erosion parameter has settled into equilibrium centuries ago. The cliffs have stopped retreating; instead they have been *accepted*. Their faces are carved by millennia of trickling water into baroque galleries, fluted columns, and hollows that resemble abandoned pulpits. In places the stone has been replaced, molecule by molecule, by something that looks like petrified coral but behaves like muscle. It flexes—very slowly—once every few days, adjusting the angle of an entire escarpment wall by half a degree, as though the mountain is trying to get comfortable.
+
+Scattered across the shelves are the remains of the people who once tried to live here. A single tower of black glass, half-swallowed by a strangler fig that is itself half machine. A broken sky-bridge whose cables still hum with residual charge. A ring of seven obelisks whose tops have been melted into glassy puddles by some event no longer remembered. These artifacts are rare, half-digested by the greenery, and they feel less like ruins than like punctuation the land has chosen to keep.
+
+The fauna is loud and everywhere. Cicadas the size of human hands scream in frequencies that make the teeth ache. Cloudgliders—something between manta and jellyfish—drift on thermals thick with humidity, their translucent bodies glowing soft cyan. On the vertical faces, herds of six-legged browsers move like slow brown water, their feet equipped with suction pads that click and pop in wet rhythm. Deeper in the thickets live things that are harder to classify: translucent anemone-like predators that root in the bromeliad lattices and bloom into brilliant red flowers when they detect movement; colonies of metallic bees that have learned to weave lightning into their hives; and, rarely, the Long Singers—creatures that might be birds or might be drones—whose calls last forty minutes and seem to rewrite the local gravitational constant while they last.
+
+Sound is constant, layered, and strangely orchestral. The insects, the dripping water, the creak of flexing stone, the distant thunder of waterfalls that fall for so long they turn to mist before they hit the next shelf. All of it merges into one continuous roar that never quite becomes noise. It is loud the way a cathedral organ played at half speed is loud: immense, patient, devotional.
+
+The technology that remains is beyond modern in the way a glacier is beyond a snowflake. Beneath the vegetation, running through the weeping rock itself, are lattices of what look like liquid mercury circuitry. They move. Not quickly—never quickly—but they reconfigure over decades, forming new junctions, new slow computations. The entire escarpment is, in its way, thinking. The thinking is geological. It does not care about you. It is working on something that will not be finished until the next ice age or the heat death of the universe; the difference is, to it, academic.
+
+Light here is normal and yet wrong. The sun is ordinary, the sky a saturated cyan, but every droplet of water acts as a lens. The result is that the entire landscape glitters and refracts. Shadows have edges sharp enough to cut. Rainbows appear in places where there should be none, forming brief arches that last for days. At night the sky is almost too clear; the stars look close enough to snag on the tallest candelabra trees.
+
+Nothing here hurries.
+
+A cliff may take three human lifetimes to shift its posture by the width of a hand. A single vine may require a century to complete one spiral. Even the violent rainstorms that arrive every few weeks feel measured, as though the sky is carefully watering something that must not be rushed.
+
+This is not wilderness. It is a long, slow, loud, wet, hot cathedral that has been praying to itself since before humanity learned to speak. The scattered ruins are not scars; they are devotional objects the land has decided to incorporate into its own ongoing liturgy.
+
+If you stay long enough, you begin to feel the flex in the stone under your feet. You begin to notice that the screaming of the cicadas is not random. You begin to suspect that the entire escarpment is one organism wearing the disguise of landscape, and that it is perfectly content to wait another ten thousand years for you to finish looking at it.
+
+It will still be weeping when you are gone.  
+It will still be singing.  
+It has time.

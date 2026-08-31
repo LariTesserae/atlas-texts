@@ -1,0 +1,19 @@
+# The Gullet
+
+You stand in the throat of a world.
+
+The air is thick, warm, and wet—not with rain, but with the constant, slow exhalation of moisture from every surface. Condensation beads on the slick, rubbery walls and drips in a slow, irregular percussion from a ceiling lost in shadow. The light is a faint, bioluminescent green, emanating from pulsating nodules clustered in fungal shelves and from the veined, translucent skin of the dominant life-form: the plant.
+
+This is not a forest. It is a single, sprawling organism.
+
+The **vegetation** here *is* the landscape. Walls, floor, and ceiling are composed of a colossal, layered rhizome—a network of woody tubes, spongy pulp, and membranous leaves that have fused over millennia into a stable, breathing substrate. You walk on a floor of springy, fibrous mat, resilient and slightly damp. The "architecture" is organic and settled (**erosion: established**); arches of hardened root-wood curve overhead, polished by the constant flow of air and moisture. Chambers and corridors exist not by design, but as natural cavities within the great plant's body—some cathedral-vast, others intimate as a closet.
+
+It is **small** in human terms—a hamlet-sized network of these chambers, a bounded feature within the larger, drier planetary crust. Yet within its confines, life is **overwhelming**. **Fauna** is the dominant presence. The dim air hums and buzzes and clicks with a deafening (**sound: loud**) chorus. Swarms of tiny, beetle-like creatures with crystalline wings cloud the air, feeding on airborne spores. Larger, mantis-shaped grazers with scything mouthparts move slowly along the walls, pruning the living plant-substrate, which heals behind them in a wet, knitting sound. From hidden crevices, the sudden, violet flash of a predator's tongue snags a grazer, accompanied by a sharp, hydraulic *thwip*. The ecosystem is in constant, frantic **motion**.
+
+What seems at first like ruin is in fact **industry**. The fauna are the engineers. On ledges of hardened sap, colonies of worm-like creatures with metallic carapaces tend fungal gardens, their movements precise and synchronized. The loud drone here shifts to a rhythmic, mechanical *chug-chug-chug*—the sound of immense, beetle-like "pistons" (thorax-mounted organs) pumping nutrient-rich sap from deep root-chambers to surface bladders. This is a scaled, electrified-seeming production, but **organic**. Bio-luminescent wiring (conductive fungal threads) snakes along the walls, powering nodules that glow brighter in response to activity. The "machines" are living creatures; the "factories" are symbiotic organs of the greater plant.
+
+The **strangeness** is in the integration. Nothing is separate. A long, centipede-like creature, its segments glowing with different colors, serves as a living conduit for sap, its body a pipe. Birds (or things like birds) with broad, leafy wings don't fly; they *photosynthesize*, clinging to walls and digesting light that isn't there, surviving on the chemical byproducts of the fauna's industry. There is no soil, no stone, only plant, and the creatures who have made it their world.
+
+The **dampness** is constant, but the water is never free-standing. It is captured, held in the tissues of the mega-flora, cycled through fauna, and condensed anew. A **warm**, close heat radiates from the plant's metabolism and the sheer density of living bodies. The **sparse** feeling comes not from emptiness, but from scale; you are a microbe in the circulatory system of a god. The spaces between the chitinous bodies, between the pulsing root-veins, feel vast and contemplative in the dim green glow.
+
+You are not in a ruin. You are in a living engine, warm-breathed, loud, and ancient, where the city is a organism, and the inhabitants are its beating, buzzing heart.

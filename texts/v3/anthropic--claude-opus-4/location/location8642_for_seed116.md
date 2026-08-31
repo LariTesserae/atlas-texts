@@ -1,0 +1,17 @@
+The Brass Plateau of Final Forms rises impossibly high, its ancient metal surface tarnished to deep verdigris and burnt umber. This is architecture become geology—a vast constructed tableland that has outlived its makers by epochs beyond counting. The original structures have fused and weathered into something between monument and mountain, their purposes eroded to abstraction.
+
+Condensation beads perpetually on the warm metal surfaces, gathering in shallow depressions worn smooth by millennia of the same drops falling in the same places. These temporary pools reflect the dim amber light that seeps from hairline cracks in the plateau's surface—the last gasps of some unimaginably old power source still bleeding warmth into the brass bones of this place.
+
+The sound never stops. Deep thrumming reverberates through the metal substrate, a bass note that changes pitch over months as thermal expansion and contraction work their patient havoc. Sometimes the plateau groans—vast sheets of fused bronze settling against copper buttresses with sounds like distant thunder. The condensation adds its own voice: millions of drops falling in irregular rhythms, each impact amplified by the hollow spaces below.
+
+Everything here was made, but made so long ago that it has become a kind of nature. Rivet heads have swollen into metallic hills. Seams between massive plates have widened into canyons. What might have been ventilation shafts now yawn like volcanic throats, exhaling warm, stale air that smells of heated copper and ancient oils.
+
+The sparseness is profound. Between the major features—a spiral of melted gantries here, a field of oxidized domes there—stretches seemingly endless expanses of pitted metal. The eye struggles for purchase on these barren reaches, finding only subtle variations in corrosion patterns and the occasional inexplicable symbol etched deep enough to survive the eons.
+
+Water finds its way. It pools in billion-year-old footprints. It traces the outlines of forgotten machines, now just raised patterns in the metal. It drips through levels upon levels of structure below, each drop a tiny archaeologist exploring chambers that haven't seen purpose since before the first star died.
+
+The strangeness creeps in slowly. Why do some surfaces stay warm while others feel cold enough to burn? What are the almost-patterns in the arrangement of ancient anchor points—not random, but not quite regular either? Sometimes the thrumming synchronizes across vast distances, as if the entire plateau remembers, for just a moment, what it was built to do.
+
+At the extreme edges, where the plateau meets whatever passes for horizon at this altitude, the metal frays into suspension bridges to nowhere, launching ramps for vehicles that will never come, and observation platforms overlooking an absence of world. The dim light makes distances uncertain. Perhaps those shapes in the far haze are other plateaus. Perhaps they are clouds. Perhaps they are something else entirely, approaching at geological speed.
+
+This is the final form of all built things: not ruin, but transformation into landscape. Not dead, but dreaming in deep time. The plateau continues its slow becoming, its ancient materials cycling through states of decay and preservation, its sounds evolving over centuries, its sparse waters carving new channels in metal worn smooth as stone. It is complete. It is eternal. It is still changing, grain by grain, drop by drop, groan by groan.

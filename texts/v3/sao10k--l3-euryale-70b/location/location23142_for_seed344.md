@@ -1,0 +1,11 @@
+In this dimly lit pocket realm, strange sounds emanate from the twisted metal structures that poke out from the slick, grey soil. Crude oil pumps creak and groan, violent mechanical ratcheting echoing through the sparsely vegetated marsh. The fetid air hangs heavy with fumes of grease and decay. 
+
+Mist clings to the puddled ground and oozes from cracks in the rust-streaked steel of the derelict machines. Moisture drips from curved glass portholes and splashes onto the bumpers caked with grime and muck. Ways open into gloomy chambers within the patchwork of vanes, spindles and rivets.
+
+Barren stalks poking from the loam between the scattered pumps sway and whisper in the murk. Rotting logs half-submerged in tepid pools exhale soggy bubbles. Bare trees claw the low sky, angular branches outlined against the featureless grey. Glinting rivulets trace down the dark slopes of artificial berms mounded among stagnant pools and silvery sheens of standing water.
+
+Scattered about are caches of salable scrap - corroded fasteners, dented gauge casings, and curled scraps of metal sheeting scavenged by who knows what. Bundles of degraded industrial cable lashed with moldering cord rot beside splintered spools. An acid-streaked soapstone quarry smolders, jagged ruins describing the precipitous decline of a long-silent work site.
+
+The entire scene is set in a vast natural amphitheater of water-sculpted stone gullies plunging into darkness, the far walls schooling fins of eroded overhangs straked with leaching rivulets veined in chemically bright oxides. The wind soughs and whistles through the rockwork, counterpointing the mechanical clamor of the pumps. Compression-chamber yowls and rotor-fluctuations make the air tremble. Strange lights blink in focus and swim out of visibility, slowly pulsing in meretric rhythms.
+
+Overhead, tattered swags of woven saplings and metallic tongs laundry-flutter in a faint updraft rising from the den of abandoned apparatuses. The murk above seems to waver and ripple with odd refractions, a panous techno-omega magically seething at the corner of perception. Pustulate fungal growths wall they way here as you pick cautiously through the razors of steel and stone.

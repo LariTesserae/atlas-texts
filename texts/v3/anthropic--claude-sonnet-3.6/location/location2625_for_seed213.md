@@ -1,0 +1,17 @@
+A perpetual dusk hangs over the wide basin, where the air is thick enough to drink. Water seeps from every surface - not rushing or flowing, but steadily weeping from moss-draped rock faces and gathering in shallow, mirror-like pools that reflect the muted purple sky. The humidity is absolute, turning distant features into soft-edged shapes that loom and recede in the haze.
+
+This is a realm of constant motion that somehow maintains perfect quietness. Everywhere, creatures move - an endless procession of amphibians ranging from thumbnail-sized to larger than a person, their skin patterns creating living camouflage against the damp earth. They navigate between the pools with deliberate grace, some walking on delicate fingers, others rolling in fluid motions that barely disturb the thin film of water coating every surface.
+
+The scattered vegetation grows in distinct clusters rather than continuous cover - islands of twisting, rubber-thick leaves that collect water in their curves and support complex communities of smaller life. These plant clusters seem to pulse subtly, and closer inspection reveals they are constantly in motion from the countless creatures using them as highways and hunting grounds.
+
+Between these islands of green, the ground is a complex geography of shallow depressions and low ridges, all worn smooth by countless years of water's patient work. The rock beneath has a peculiar quality - somewhere between stone and clay, it holds impressions of every creature that has passed but slowly heals them over, creating a constantly shifting record of movement that spans days or weeks before fading.
+
+Here and there stand the remnants of something like trees - pale, smooth columns that might be stone or might be bone, worn to gentle curves by time and weather. Some still stretch toward the dim sky, while others have collapsed into arrangements that create new microhabitats, new pathways for the endless parade of creatures.
+
+The air carries only the softest sounds - the gentle pat of water droplets, the whisper of skin on stone, occasional distant trills that might be mating calls or might be something else entirely. But there's a constant undertone, felt more than heard, of thousands upon thousands of hearts beating, lungs breathing, bodies moving in their ancient patterns.
+
+When rain comes - as it does often - it falls in large, warm drops that seem to hang in the air before reaching the ground. Rather than disrupting the landscape's rhythms, the rain intensifies them, bringing new creatures up from their hiding places and setting the whole basin into a dance of life that feels both entirely natural and somehow ritualistic.
+
+This place operates on its own time scale, measured in the pulses of countless small lives and the slow breathing of the earth itself. It feels ancient and untouched by anything but its own processes, yet it's anything but static - it's an endless cycle of small changes that somehow maintain a perfect, dynamic balance.
+
+The darkness never quite becomes complete, nor does the light ever fully assert itself. Instead, the purple twilight shifts subtly through different shades, creating a day-cycle marked by the changing behaviors of the countless creatures rather than any significant change in illumination. It's a world that seems to exist in a permanent in-between state, neither one thing nor another, but entirely itself.

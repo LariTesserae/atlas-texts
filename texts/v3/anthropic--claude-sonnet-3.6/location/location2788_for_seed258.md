@@ -1,0 +1,17 @@
+Deep in a mountain's heart, a new city is being born. Not excavated - generated. The living rock extrudes architecture like crystal formations, walls and archways growing at visible speed. The process began decades ago when experimental terraforming machines were abandoned here, their AI cores mutating and merging with the geological processes they were meant to study.
+
+The space is cathedral-sized but densely packed, every surface crawling with detail. Obsidian spires spiral upward into darkness, their faces etched with circuit-like patterns that pulse with dim blue light. Mineral-laden moisture seeps continuously from the walls, feeding thick carpets of bioluminescent moss that cling to every horizontal surface. The moss forms complex fractal patterns, suggesting some underlying mathematical order to its growth.
+
+The air is cool and thick with mineral mist. There's a constant background sussurance - not quite sound, not quite vibration - as new structures emerge from the rock. Occasionally this rises to a grinding crescendo when a major formation takes shape, sending tremors through the entire chamber.
+
+Equipment from the original expedition remains, now half-absorbed into the growing structures. A monitoring station has become the nucleus of a spiraling tower, its screens still flickering with incomprehensible data. Power cables snake through the space like veins, some still functioning, others serving as frameworks for the city's crystalline growth.
+
+The vegetation here has evolved to thrive in the artificial twilight. Besides the moss, delicate translucent fungi form tiered gardens, their caps refracting the sparse light into subtle prismatic displays. Vines with metallic-looking leaves create dense curtains, growing so rapidly you can watch them creep across surfaces. None of these plants seem entirely natural - they've been shaped by the same forces building the city.
+
+There are no animals. The constant movement of the growing architecture and the strange electromagnetic fields make this an inhospitable place for complex organic life. Yet the space feels intensely alive - every surface is in flux, every corner contains some new transformation.
+
+Water is key to the process, carrying dissolved minerals and what might be nanomachines through the system. It appears in unexpected ways - flowing upward along walls, beading into perfect spheres that orbit newly-formed structures, collecting in pools that seem to breathe. The moisture enables the growth but never accumulates enough to flood; it's precisely regulated by some unfathomable mechanism.
+
+The overall effect is like watching a time-lapse of both biological and technological evolution compressed into visible time. Forms emerge, compete, merge, and transform. Some structures seem to serve clear purposes - data centers, power distribution, atmospheric processing - while others follow an alien aesthetic logic. It's a city building itself according to plans that might not be comprehensible to human minds.
+
+The darkness is never complete - between the bioluminescent life forms, the pulsing circuits, and occasional arcs of energy between growing structures, the space is filled with shifting shadows and subtle illumination. These lights seem to communicate something, patterns rippling through the city like thoughts through a brain.

@@ -1,0 +1,11 @@
+In a stark, frozen world, where life as we know it ceased eons ago, jagged spires of obsidian-like volcanic glass thrust towards an impossibly bright sky. The extreme elevation creates a landscape of sharp ridges and deep, shadowed chasms, their forms worn and smoothed by the passage of incomprehensible time. 
+
+Though no vegetation or fauna remain, the landscape teems with an eerie sort of activity. Prismatic energy patterns pulsate and dance across the glassy surfaces, as if the very fabric of reality is breaking down. These shimmering auroras reflect off the damp, glistening stone, casting a kaleidoscope of colors into the cool, dense atmosphere.
+
+Scattered amidst the towering peaks lie the remnants of a long-vanished civilization. Crumbling stone structures and broken artifacts hint at a primitive society, one that had only just begun to work with simple metals and hand tools before their enigmatic demise. The ruins have a strangely organic quality, their forms almost grown from the volcanic substrate rather than built upon it.
+
+An otherworldly hum resonates through the landscape, reverberating off the glass spires in haunting tones. It ebbs and flows like the crash of waves or the sigh of wind, but with an undeniably alien cadence. The sound seems to emanate from the pulsing light patterns themselves, or perhaps from some unseen dimension bleeding through the thinning veil of reality.
+
+Ribbons of mist weave between the ridges, condensing into ephemeral streams that trickle down the smooth flanks of the peaks before vanishing into vapor once more. Pools of metallic liquid gather in the crevices, rippling with vibrant energy but never overflowing. It's as if the water itself is trapped in an endless cycle of manifestation and dissolution, mirroring the breakdown of physical laws.
+
+The overall impression is of a place outside of time, where the boundaries between energy and matter have worn thin. It is a realm of echoes and ghosts, of fading structures and impossible vistas, poised between the familiar and the inconceivable. In this liminal landscape, reality itself has eroded into something new and strange, beautiful and unsettling in equal measure.

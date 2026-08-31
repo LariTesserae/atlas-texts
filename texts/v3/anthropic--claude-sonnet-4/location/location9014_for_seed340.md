@@ -1,0 +1,19 @@
+The Aerie of Kethros sits impossibly balanced on a needle of volcanic glass, a spire that rises three miles from the salt plains below into the thin, cool air of the upper reaches. The city—if it can be called that—is built entirely within and upon this single black pillar, no wider at its base than a cathedral nave, tapering to a point that disappears into low-hanging clouds.
+
+The spire itself is ancient beyond memory, formed when this world still breathed fire. Its surface has been worn smooth by millennia of wind, polished to an obsidian mirror that reflects the pale sky. But it is hollow—generations of inhabitants have carved chambers and passages through its volcanic glass heart, creating a vertical honeycomb of living spaces connected by spiral stairs and rope lifts.
+
+Steam-powered winches and pulleys, their brass fittings green with patina, move goods and people between levels. The mechanical heartbeat of these engines provides the only regular sound—a distant, rhythmic thumping that echoes up and down the hollow core. Copper pipes snake along the inner walls, carrying heated air from forges in the lower chambers to the residential spaces above, where families huddle around ceramic radiators.
+
+The city's inhabitants have learned to build with weight in mind. Structures are impossibly light—frameworks of hollow metal bones stretched with treated hides and thin-spun glass fiber. Everything curves inward toward the spire's core, creating spaces that feel like being inside a vast, sectioned seashell. There are no straight lines here, no right angles—only the organic flow of architecture that has grown with the needs of its people.
+
+Outside, on narrow ledges carved into the spire's face, metal platforms extend like branches. Here, the city's remarkable aerial ecosystem thrives. Thousands of small, jewel-bright creatures—part bird, part butterfly, with wings like stained glass—nest in woven baskets suspended from the platforms. They feed on thermal currents and microscopic particles carried up from the salt flats below, their wings catching and refracting the diffuse daylight into rainbow patterns that dance across the black walls.
+
+Larger creatures—leathery, intelligent beings the size of housecats with membranous wings—have formed a symbiotic relationship with the city's people. They carry messages between levels, hunt the smaller flying creatures, and in return receive shelter in the warm alcoves near the mechanical heating systems. Their soft chittering conversations echo in the quieter passages, a sound like distant rain on glass.
+
+The air here is thin and cold, requiring newcomers to spend days adjusting. It carries strange scents—ozone from the electrical systems that power the few lights, metal polish, the faint mineral tang of the volcanic glass itself. Sound behaves oddly in this vertical world; conversations can be heard clearly across the hollow core, but footsteps are muffled by the curved walls and soft furnishings.
+
+At night, when the pale daylight fades, the spire becomes a beacon. Bioluminescent cultures, carefully tended in glass vessels throughout the city, provide gentle illumination. The flying creatures glow softly as they sleep, and their collective radiance creates a pillar of soft, shifting light visible for miles across the empty salt plains.
+
+Change comes slowly to Kethros. Children grow up to take their parents' places at the winch stations. The glass walls grow smoother with each passing decade. New chambers are carved perhaps once in a generation, when population pressures demand it. The great thermal currents that sustain the aerial ecosystem shift with the seasons, but in patterns that have remained constant for centuries.
+
+It is a place of profound verticality and careful balance, where every decision must account for the precarious beauty of existing at the edge of the possible, suspended between earth and sky on a thread of ancient glass.

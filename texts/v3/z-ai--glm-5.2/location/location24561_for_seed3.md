@@ -1,0 +1,63 @@
+# The Scaffolded Ascent
+
+It begins with the rock.
+
+Not old rock — not the patient, worn-down kind that has spent a hundred million years learning to be smooth. This rock is new the way a wound is new. The plateau heaved itself skyward so recently that the stone still carries the warmth of its own rupture, though the air up here steals that warmth within minutes. You can see the strata bent and broken in great frozen waves, layers of shale and limestone and something darker, something that doesn't quite match any mineral name you know, threaded through the uplift like veins in a clenched fist. The surfaces are raw. Unweathered. There are no rounded edges. Everything is angle and fracture and the pale first rind of oxidation just beginning to bloom across exposed faces. In a thousand years this will be a different place — smoothed, settled, drained of its angular urgency. But that is not now. Now the geology is still mid-birth.
+
+And into this rawness, they came.
+
+## The Works
+
+The settlement — you cannot call it a city, not yet, though it aspires — clings to the southern face of the uplifted plateau where the rock shelf widens into something almost generous. Multi-tiered construction stacked against and into the cliff, connected by a lattice of catwalks, ore-tram rails, freight elevators with cabled arms reaching down into the lower valleys where the raw material comes in. Foundries. Sorting houses. Engine halls where turbines turn with the patience of things that have learned to run on the thin air up here, each one modified for altitude, smokestacks breathing out pale plumes that the cold snaps into vapor almost immediately. The buildings are mostly corrugated steel and prefab concrete paneling, functional, unlovely, stained already by the mineral runoff that streaks down from the fresh-cut rock above. Nothing is decorative. Everything is process.
+
+But there is more construction than there is activity. The scaffolding extends past the built sections, reaching out over bare rock and empty shelf, frameworks waiting for walls that haven't been fabricated yet, rail-lines leading to processing plants that exist only as foundation trenches and stacked components. The place was planned for a population that hasn't arrived. Streets run between structures that are half-empty. The machinery runs at partial capacity. There is a sense — pervasive, almost atmospheric — that the settlement is waiting for something. Or that it is a rehearsal for a city that will exist later, in some more completed version of the world.
+
+The noise is considerable. Industrial noise — the grinding of stone-cutting rigs, the rhythmic compression of ore-crushers, the low continuous hum of generators — but it carries strangely up here. The thin air reshapes acoustics. Sounds arrive late, flattened, as though the noise has had to travel a great distance even when its source is fifty meters away. There is a persistent echo problem. The plateau's walls catch every mechanical sound and roll it back with a quarter-second delay, so that the whole settlement seems to be accompanied by a ghost of itself, an after-image in audio. At times the echoes layer and you hear a machine that was shut down an hour ago still faintly grinding in the reverberations caught between rock walls. The sound does not fully dissipate. It accumulates in pockets.
+
+## What Grows
+
+And yet — the vegetation.
+
+It should not be here. The altitude is too extreme, the temperatures too low, the soil too new and too thin. But it is here, and it is lush, and it is wrong. Mosses and creepers coat the northern faces of the raw stone where condensation collects, a deep blue-green that almost glows in the dim light. They grow with a speed that makes no biological sense — you can watch a tendril of some climbing vine extend across a concrete wall over the course of an afternoon, probing the surface with delicate tendril-tips that seem to taste the material before committing. The roots go deep, deeper than they should be able to penetrate in freshly-uplifted rock, as though the plants have found fissures that don't correspond to visible cracks. As though they are growing into a different layer of reality that underlies the physical stone.
+
+In the drainage channels where condensation and the occasional thin rain collect, the growth is denser. Fern-like fronds in colors that shift between green and violet depending on the angle of the dim light. Small fungal colonies that bloom overnight in pale clusters and are gone by midday, leaving dark stains on the rock. The plants do not seem to obey the seasons. They grow continuously, slowly but without pause, as though they are not responding to external cycles but following some internal clock that has nothing to do with the sun's passage.
+
+The workers have given up trying to clear the growth from the infrastructure. It returns. It always returns. Now they build around it, and in some places the vegetation has been incorporated into the structures deliberately — living walls of packed moss between steel frames, vines trained along walkways as though they are ornamental, though no one planned them to be. The settlement is slowly being woven into something organic, something that is neither city nor forest but some third thing that does not yet have a name.
+
+## The Dimness
+
+Light is a limited resource up here.
+
+The plateau sits at an elevation where the atmosphere thins to almost nothing, and the sky above is not the blue or gray you might expect but a deep indigo, shading toward black at the zenith, scattered with stars even at what should be midday. The sun, when it is visible, is a hard white point, unaccompanied by the diffusion that makes daylight on lower ground. There is no soft ambient glow. Light either strikes you directly, sharp and cold, or you are in shadow, and the shadows up here are absolute — dark as caves, with no scattered radiation to fill them. The settlement runs on electric light: sodium-vapor lamps along the walkways, incandescent bulbs in the work halls, the orange-yellow flicker of furnaces visible through the open doors of the foundries. The combination of the deep-indigo sky and the warm industrial lighting gives everything a quality of permanent dusk, a world caught between day and night, unable to commit to either.
+
+When the clouds come — and they come rarely, but they come — they roll in at the plateau's level rather than above it, moving through the settlement like slow gray animals. The moisture condenses on every surface. Droplets form on steel beams and stone walls and the leaves of the impossible vegetation, and the whole place becomes briefly, subtly wet, everything glistening in the lamplight, and then the clouds pass and the moisture evaporates in the thin air within minutes. These are the damp intervals. Not rain, not mist, but a kind of breathing — the environment inhaling water and exhaling it again, slowly, on a cycle that takes hours.
+
+## What Lives
+
+The fauna is the strangest part, and the most disturbing, because at first it seems ordinary, and only gradually do you realize it is not.
+
+Birds. There are birds up here, at an altitude where no bird should survive. They are small, sparrow-like, and they live in the crevices of the raw rock and in the gaps between the prefab buildings. They eat the insects that have also somehow colonized this height — thin-winged flies that drift in the condensation fog, beetles that live in the moss. The ecosystem is functional. It works. It simply should not exist.
+
+And then you watch the birds longer.
+
+They move in ways that are almost correct but not quite. Their flight paths have a geometry to them — not the organic, reactive fluttering of normal birds, but a kind of pre-planned trajectory, each turn anticipated, each landing pre-selected. They do not startle. You can walk through a flock and they will rearrange themselves around you with a fluid precision that suggests they were aware of your position before you arrived. They roost in patterns — always in patterns, never randomly, clusters of three and five and seven arranged in formations that echo the layout of the scaffolding below them.
+
+There are other things. Things that are harder to categorize. Movement in the peripheral vision, between the buildings, in the spaces where the construction is incomplete. Shapes that are the right size to be dogs or large cats but that do not move like animals. They move like something learning what animal movement is supposed to look like. They are shy. They keep their distance. But they are present, and they are numerous, and their tracks — when you find them in the morning dust on the unfinished platforms — do not match any known species.
+
+The workers have a name for them. They call them the *echoes*, and they treat them with a superstitious caution that sits uneasily alongside their industrial pragmatism. Do not follow them. Do not make eye contact. Do not go where they have been. These are rules passed between shifts, not written anywhere, but observed with a consistency that suggests they are based on experience.
+
+## The Fissure
+
+At the center of the settlement, where the plateau's uplift is most recent and the rock is most raw, there is a fissure. It runs roughly north-south, perhaps three meters wide and of unknown depth — the workers have dropped measuring lines four hundred meters without finding a bottom. The walls of the fissure are not natural. They are too smooth, too regular, and they are covered in a fine inscriptions that might be geological striations or might be script. No one has been able to determine which. The stone inside the fissure is the dark mineral, the one that doesn't match known compositions, and it has a faint luminescence — a deep blue-green glow, barely visible in the dimness, that pulses on a cycle of approximately forty seconds.
+
+This is where the vegetation is densest. This is where the birds roost in their largest formations. This is where the *echoes* are most often seen.
+
+The fissure is also the reason the settlement exists. The dark mineral is the resource. It is extracted in blocks from the fissure walls and sent down the cable-lines to the valley processing stations, and no one up here is entirely clear on what it is used for downstream. The pay is good. The work is steady. The company requires no qualifications beyond willingness and a tolerance for altitude. The worker turnover is high, but not because of the conditions. The conditions are manageable. It is the other thing — the thing that happens around the fissure, the way reality seems to thin and stretch in its proximity — that drives people away.
+
+Things are not stable here. Not because of any single anomaly but because the place itself is not finished becoming a place. The plateau was thrust up so fast and so recently that it is not yet fully *located* — it has not yet settled into the fabric of the world, and the rules are still being written. Gravity is mostly reliable but occasionally hesitates, and objects in free fall will sometimes hang for a fraction of a second before committing to downward. Distance is approximate — the walk to the foundry is sometimes shorter than the walk back. Time keeps a pace that varies with proximity to the fissure, and the workers have learned not to wear mechanical watches, which all run differently here and none of them correctly.
+
+The landscape is not breaking down. It is still coming together. It is a place in the process of deciding what it is, and it has not yet decided, and everything in it — the rock, the plants, the birds, the *echoes*, the machinery, the people — is participating in that decision, whether they know it or not.
+
+The settlement will be here for a while yet. There is still mineral to extract. The scaffolding still extends past the built sections. The plans still call for a larger population. But the workers have begun to notice — slowly, because everything here is slow — that the unbuilt sections are not staying empty. Something is building in them. Not the company. Not the workers. Something that uses the scaffolding the way the vines use the walls — growing into the prepared spaces, filling the planned structures with a presence that was not in the blueprints.
+
+The place is becoming itself. It is not yet done. And it is not clear, as the dim light shifts and the machinery grinds and the birds move in their careful patterns and the fissure pulses its slow blue-green heartbeat, whether what it is becoming will be a city, or a forest, or something for which no word has been invented yet.

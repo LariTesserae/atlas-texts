@@ -1,0 +1,15 @@
+Through the thick glass of the observation dome, the water column stretches up into darkness. We're at the bottom of what they call a thermal chimney - a vertical tunnel of perpetually rising warm water that bores through the ocean's cold depths. The chamber itself is small, maybe thirty feet across, anchored to the seafloor by articulated legs that shift and adjust with the currents.
+
+The water outside pulses with bioluminescent creatures drawn to the warmth. They swim in shifting clouds, their lights creating abstract patterns as they chase microscopic prey through the upwelling current. The biggest aren't much larger than a hand, but they move with unsettling coordination, like a single distributed organism testing the boundaries of the dome.
+
+Ancient-looking mechanical arms extend from the chamber's base, their joints encrusted with pale anemones and filter-feeding worms that have adapted to metallic surfaces. The arms still work - they have to, to maintain the heat exchangers that keep the chimney flowing - but they move with the deliberate slowness of machines that have been operating continuously for decades.
+
+The noise is constant: the deep thrumming of pumps, the crystalline ping of pressure adjustments, the scrape and whir of the maintenance arms. But underneath it all is a stranger sound, a kind of musical moaning that seems to come from the chimney itself. The engineers say it's just water movement through the thermal gradient, but it sounds almost purposeful, like the voice of something vast and patient trying to form words.
+
+Patches of bacterial mat glow a dull orange where the warm water meets the seabed, forming concentric rings around the base of the chamber. Blind crabs move through these bacterial gardens, their shells decorated with symbiotic polyps that pulse with their own inner light. The polyps seem to communicate through patterns of illumination, though no one has decoded their meaning.
+
+Every few hours, a mass of bubbles rises through the chimney like a silver storm. The local life responds with frenzied activity - feeding, mating, fighting - as if these moments of increased turbulence are the heartbeat of their world. Then the water clears and the normal rhythms resume, though "normal" here is relative. This is a pocket ecosystem that shouldn't exist at this depth, sustained by human technology but having evolved into something we barely understand.
+
+Looking up through the chimney is like gazing into a liquid telescope pointed at nothing - the water column eventually fades to absolute darkness, though the temperature probe readings tell us it extends up another thousand meters. Sometimes larger shapes move through that darkness, visible only as momentary interruptions in the pattern of bioluminescence. The research team calls them "visitors," but no one has managed to capture a clear image of one.
+
+The whole scene has the feeling of a terrarium designed by someone with only a loose grasp of Earth's physics - a small, self-contained bubble of warmth and life in the cold desert of the deep ocean, following rules that seem to drift further from the familiar with each passing year.

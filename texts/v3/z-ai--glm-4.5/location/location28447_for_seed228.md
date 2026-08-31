@@ -1,0 +1,21 @@
+The noise hits you first—a constant, roaring thrum that vibrates in the teeth and bones. It is not the sound of wind, though there is air movement, nor is it strictly mechanical. It is the sound of volume being occupied aggressively, a chaotic choir of frequencies that suggests a massive engine idling at the edge of redline.
+
+You are in a void, perhaps three hundred feet across and a hundred high—a cathedral of air buried deep beneath the crust of the planet (Elevation: 0.0). The scale is intimate enough to see the walls, but vast enough to feel swallowed.
+
+The illumination is blinding (Light: 2.6). There is no single source, no sun or fixture. The light seems to bleed out of the damp air itself, a harsh, clinical white that saturates every shadow. It creates a world of high contrast where wet surfaces sparkle with painful intensity.
+
+Everything is wet (Water: 2.1). The humidity is visible; the air is thick with suspended mist, a warm, tropical fog that condenses instantly on skin and stone. The walls of the void weep constantly. Water does not just trickle; it is forced out of the rock in thick, heavy sheets, as if the stone itself is sweating under immense pressure. Puddles on the uneven floor do not sit still; they shiver with the ambient noise, jittering into frantic crowns of droplets.
+
+The terrain is a ruin of soft geometry (Erosion: 2.2). The rock—grey, porous, and ancient—has been worn down not by wind, but by a relentless, physical logic that rounds every corner. It looks settled, a landscape that has achieved a terminal state of decay. Yet, it feels wrong. The erosion is too uniform. The natural-looking pillars and arches seem to have been *placed* there by geological decree, arranged with the sparse, aesthetic precision of a zen garden (Density: 1.3).
+
+Here and there, the "natural" lie falters (Built: 0.7). A section of the wall peels back to reveal a lattice of gold-white filaments pulsing deep inside the stone. A puddle slides sideways, defying gravity, draining into a grate that wasn't there a moment ago. These are the scattered remains of a technology that has ceased to be distinct from the geology (Tech: 2.6). The physics here feel local; light bends around the water droplets in impossible spirals, and the condensation seems to organize itself into fleeting, geometric glyphs before collapsing back into sludge.
+
+Vegetation is a desperate afterthought (Vegetation: 0.9). There are no trees, no grass. Only single, solitary stalks of translucent, glass-like ferns erupting from the wettest crevices. They do not photosynthesize—they vibrate, tapping into the ambient roar of the room to sustain themselves.
+
+The environment is unstable (Dynamic: 2.6). The floor is in a state of constant, slow-motion churn. Rocks do not just sit; they breathe. The ground heaves in a slow, peristaltic rhythm, a "Solaris-like" turbulence where solid matter behaves like a slow liquid. A ridge of stone might dissolve into sand and re-crystallize as a bridge within the span of an hour. It is a storm-state of matter, chaotic but contained within the boundaries of the cavern.
+
+There is no fauna to speak of (Fauna: 1.0), save for the "Skimmers"—frail, insectoid machines the size of a hand, built from discarded shards of the environment. They dart through the mist, their wings creating high-pitched chirps that punctuate the low roar. They seem to be repairing the erosion, welding the cracks in the reality-warping machinery with pincers that glow with a cold blue light.
+
+The air is warm (Temperature: 2.0), carrying the metallic tang of ozone and the dusty smell of wet concrete. It is the smell of a storm that never breaks, a weather system trapped in a box.
+
+The rules here are simple but brutal: The landscape is being digested and reconstituted simultaneously. To stand still is to risk being incorporated into the architecture. The turbulence is not an accident; it is the function. This place is a factory for erosion, a hyperactive anthill of geological processes running at a thousand times their natural speed, grinding down the world to build it anew, screaming with light and sound while the water weeps for the rock that is dying and being born, all at once.

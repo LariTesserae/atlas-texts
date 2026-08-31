@@ -1,0 +1,15 @@
+A garden in vacuum. That's the first impression - impossibly verdant growth spreading across the face of a small moon or asteroid, leaves and vines unfurling in the starlight without atmosphere or liquid water to sustain them.
+
+Looking closer, what appeared to be plants reveals itself as something stranger: crystalline structures that grow and branch like vegetation, but composed of complex carbon lattices that draw energy directly from quantum fluctuations in space-time. They form vast fractal forests stretching over the curved horizon, their "leaves" actually gossamer-thin computational surfaces that shimmer with iridescent patterns as they process information.
+
+The ground beneath is ancient regolith, meteor-powdered stone that has been undisturbed for billions of years except where the crystal-plants have taken root. Their roots extend deep into the rock, creating networks of hollow channels that make the whole moon surprisingly porous. These channels carry no water, but rather pulses of energy and data that feed the crystal forest above.
+
+In the perpetual twilight (this moon orbits far from its dim star), the crystal-plants give off a subtle phosphorescence - blues and greens that ripple through their branches in slow waves. This light show is actually a visible manifestation of their processing activity, as they run vast calculations whose purpose remains mysterious.
+
+Scattered through this landscape are what appear to be seeds or nodes - perfectly spherical structures about the size of a house, their surfaces a deep black that seems to drink in light. These are the remnants of whatever civilization created or seeded this place. They hum at frequencies just at the edge of perception, maintaining the environmental conditions that allow the crystal-forest to exist.
+
+The entire moon vibrates with subtle activity despite its airless silence. Energy pulses through the root networks, new crystal-growth emerges in fractal patterns, and occasionally whole sections of the forest reconfigure themselves in response to some unknown stimulus. Weather here isn't made of wind and rain, but of quantum probability waves and information flows that surge through the crystal matrices.
+
+In places, the crystal-plants have grown into massive structures - cathedral-like forms that rise kilometers into space, their branches forming impossible geometries that seem to fold through extra dimensions. These structures appear to act as processing nodes for the entire network, though their true purpose remains opaque to human understanding.
+
+The overall effect is of a world-spanning computer built from crystalline pseudo-life, running some vast calculation that has continued uninterrupted for eons. Whatever civilization built this place is long gone, but their garden continues to grow and compute in the vacuum, following patterns laid down in deep time.

@@ -1,0 +1,15 @@
+A hanging greenhouse, half-abandoned, still thrums with the industrial heartbeat of its ancient climate systems. The glass-and-steel chamber, roughly the size of a medieval chapel, clings to the side of a mountain face so high that clouds drift through its interior when the panels gap open. The elevation makes every breath feel precise and intentional.
+
+The mechanicals never sleep. Deep in the structural supports, massive fans cycle endlessly, their drone rising to a fever pitch before descending again in seven-minute intervals. The sound resonates through the steel skeleton and sets the glass walls humming - a perpetual, almost musical roar that drowns out thought. When the fans reach their peak, loose panels shudder and droplets of condensation rain down from the framework above.
+
+Thick vegetation crowds every surface, though it respects certain boundaries - paths and machinery remain mysteriously clear, as if the plants know where not to grow. The greenery has a cultivated feel despite its obvious overgrowth, suggesting decades of careful breeding followed by years of benign neglect. Broad leaves in deep forest green catch what little light filters through the perpetual mountain mists, their waxy surfaces beaded with moisture.
+
+The darkness is near-complete, but not quite natural. Maintenance lights cast deep red glows at regular intervals, barely illuminating the space while sustaining the plants. These mix with the rare shaft of diffuse daylight penetrating the clouds to create strange shadows and false depths. The red light catches the omnipresent water droplets, making them seem like suspended blood.
+
+There's a pattern to the chaos - the fans' cycling, the drip of condensation, the slow drift of fog, and the way the plants shift in the artificial airflow all move together in a complex dance. The chamber feels like a lung or a heart, some vital organ still functioning though the body around it has fallen into disuse.
+
+Rust traces delicate patterns across control panels that still blink and whir. The original purpose of the facility remains unclear - perhaps pharmaceutical research, or experimental agriculture, or something more esoteric. A few scattered tools rest on workbenches, complex instruments whose functions are no longer obvious. The plants have grown around them, incorporating them into their tangled architecture.
+
+The air is cool but not cold, kept in careful balance by those tireless systems. It tastes of green things and metal, of ozone and organic decay, of height and isolation. Despite the constant motion - of air, of moisture, of leaves - there's no sign of animal life, not even insects. The plants reign alone in their mechanical kingdom.
+
+At the far end, a door hangs ajar, opening onto empty sky. Mist pours in continuously, forming eddies and whorls in the artificial wind before dissipating into the humid air. The effect is of standing in some impossible space between earth and cloud, neither fully natural nor fully built, preserved in its liminality by forces set in motion long ago and still thundering forward through time.

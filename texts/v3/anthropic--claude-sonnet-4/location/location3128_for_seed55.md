@@ -1,0 +1,21 @@
+In the deepest basin of what was once an ocean floor, where the weight of countless eons has pressed the earth into its final, quietest form, lies a vast city of living architecture that breathes beneath a ceiling of black water.
+
+The water here is not the restless sea of surface worlds, but something older—a stratified mass that has settled into layers like geological time itself. Closest to the city, it moves with the thick viscosity of ancient amber, stirred only by the slow exhalation of the structures below. Higher up, invisible in the absolute darkness, lighter currents may flow, but down here in the deep foundation of things, the water is patient, dense, and still.
+
+The city spreads across what might once have been a continent, its boundaries lost in the pressing dark. Every surface, every form, has been grown rather than built—vast coral-like towers that spiral upward in slow helixes, their surfaces furred with delicate fronds that sway almost imperceptibly in currents too gentle to feel. These are not the corals of sunlit reefs, but something that learned to flourish in the deep cold, their calcium carbonate bones dense as marble, their living tissues a deep red-brown that photosynthesis never touched.
+
+Between the towers, the streets are grooves worn smooth by the passage of the city's makers—though they are long gone now, and only the channels remain, filled with the same viscous water, lined with the same living walls. These walls pulse so slowly that you might watch for hours before noticing the rhythm—a breathing that might be circulation, or might be something else entirely.
+
+The vegetation here has evolved beyond the need for roots or leaves. Enormous bladder-like pods, some the size of buildings, hang in clusters from the coral frameworks, their surfaces studded with tiny mouth-like openings that filter nutrients from the water. Delicate tubes connect them in networks that span city blocks, pulsing occasionally with some slow circulation that sustains the vast organism the city has become. Where the tubes cluster thickest, the water takes on a faint warmth—the only heat in this cold, settled world.
+
+The cold here is not the sharp bite of winter, but the profound chill of depths and ages. It settles into everything, making each movement deliberate, each change slow. The living city has adapted, growing thick walls and developing its own sluggish metabolism. Its chambers trap pockets of slightly warmer water that rises in columns so gradual they can barely be called currents.
+
+Sometimes—perhaps once in a span that surface dwellers would call years—a section of the city stirs more actively. A cluster of the great pods will contract in sequence, pushing a pulse of nutrient-rich water through the tubework, and for a brief time the red-brown fronds will bristle and reach, the coral towers will creak almost audibly, and something like a sigh will propagate through the water for miles in all directions.
+
+The silence is profound but not complete. If you press your ear to the coral walls, you can hear the slow circulation within—a sound like distant breathing, like the echo of a heartbeat slowed to geological time. The water itself carries whispers: the tiny sounds of membranes flexing, of chambers slowly filling and emptying, of the city's ancient metabolism continuing its patient work.
+
+No creatures swim these waters. Whatever fauna once lived here departed long ago, or were absorbed into the city itself. The ecosystem is singular now—one vast organism that has learned to sustain itself in the cold and the dark, processing the minerals that seep up from the earth below, recycling its own substance in cycles that span millennia.
+
+The tools that built this place were simple once—hands and basic implements working with living matter, coaxing growth rather than forcing construction. But the city has been building itself for so long now that it has forgotten the distinction between maker and made. Each new formation is both structure and inhabitant, both shelter and organism.
+
+In the deepest dark, where even the faintest chemical luminescence has faded, the city continues its work. Growing. Breathing. Waiting in its ancient patience for something that may never come, or may have already passed, leaving only this monument to endurance in the crushing, fertile dark.

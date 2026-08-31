@@ -1,0 +1,17 @@
+The place is called the Hollow of Fixed Ash.
+
+It is a low, wide basin no larger than a cathedral’s footprint, yet it feels far older than any building. The ground lies only a few meters below the surrounding rim, but once you descend the gentle slope you are sealed inside a private world. There is no water here and never has been; even the memory of water has been scorched away. What remains is a single, immense sheet of fused mineral — not quite glass, not quite stone — pale ochre and bone-white, swirled with faint ribbons of rust and charcoal. Over uncountable time the surface has settled into a slow, almost muscular topography: low ridges, shallow troughs, and broad, shallow bowls that never quite become puddles because nothing liquid has ever touched them.
+
+The heat is constant and dry. It does not radiate from any visible sun; the sky above is a uniform, depthless charcoal that gives no clue of day or night. The warmth simply *is*, baked into the mineral itself, as though the basin remembers a catastrophe that ended long ago and has refused to cool since. Your skin tightens the moment you enter. Sweat cannot form. Breath feels thin, almost brittle.
+
+Vegetation is almost an insult to the eye here. Sparse black filaments — something between lichen and charred root — cling to the mineral in isolated colonies. They grow no taller than a finger’s width and are spaced so far apart that each one feels like an individual decision rather than a community. Their leaves, if they can be called leaves, are stiff and needle-thin, perfectly still. They do not photosynthesize in any familiar way; they seem to drink the slow radiation of the stone itself.
+
+There is no animal life. Not even the suggestion of beetles or mites. The silence is so complete that the soft crunch of your own footsteps on the glassy grit becomes rude, intrusive. After a few minutes you find yourself trying not to make sound, as though the place were a sleeping thing that should not be woken.
+
+Everything is in balance. Erosion has long since finished its work; the basin has reached its final form and will not change again. The ridges will not wear down further. The black filaments will not spread. The temperature will not drop. Time has been gently asked to leave this room and has obeyed. The light is almost nonexistent — a faint, sourceless phosphor that barely outlines shapes. You see the world in shades of near-black and dull ember, the way one sees a coal fire after the flames have died.
+
+There are no ruins, no tools, no footprints except your own. The only evidence that anything conscious ever visited is the unsettling feeling that the basin is *aware* of your presence in the same way a mirror is aware of a face. It does not react. It simply continues its long, mineral meditation.
+
+If you sit long enough and make yourself quiet, you begin to notice that the faint warmth rising from the stone has a rhythm — not quite a pulse, but a slow, patient breathing, as though the entire basin were one vast, dormant lung that has not needed to inhale for ten thousand years and sees no reason to start now.
+
+This is a place that has achieved its final shape. It asks nothing. It remembers everything. And it will outlast you without ever noticing you were here.

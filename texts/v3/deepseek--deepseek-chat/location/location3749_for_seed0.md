@@ -1,0 +1,13 @@
+**The Drowned Jungle of Shattered Echoes**  
+
+The air is thick, warm, and wet—not with rain, but with the slow exhalation of unseen water, seeping from the slick black bark of towering trees, beading on broad leaves that sag under the weight of their own dampness. The ground is a tangle of roots and spongy moss, sucking at your feet with every step. Pools form in hollows, not from rivers or streams, but from something deeper, older—water that rises when the earth exhales, then vanishes again into the dark soil.  
+
+The jungle is **lush**, but not with life as you know it. The vegetation is **dense**, yes, but wrong—leaves too broad, stems too flexible, vines that writhe when touched, not with malice, but with a slow, unthinking recoil. The trees are massive, their trunks ribbed like the throats of great beasts, their roots knotted into arches and hollows where things scuttle and hiss. The air hums with **sound**: the clicking of chitinous limbs, the wet rustle of unseen movement, the distant, shuddering calls of creatures whose voices echo through the canopy like stones dropped into deep water.  
+
+There is **darkness**, but not the absence of light—rather, a suffocating closeness, a dim green glow that filters through the leaves, turning the world into a shifting mosaic of shadow and emerald. The jungle breathes, pulses, shifts—**turbulent**, never still. Trees groan as they twist against one another; roots split stone; new growth surges from the rot of the fallen. The land is **young**, raw, still forming itself, and the violence of that birth is everywhere—cracks in the earth exhale mist, sudden sinkholes swallow stands of vegetation whole, and the water that rises is never the same twice.  
+
+The creatures here are **overwhelming**—not in number, but in presence. They move through the undergrowth like liquid, all segmented limbs and iridescent carapaces, their bodies built for this wet, claustrophobic world. Some are silent, others scream, their voices layering into a **deafening** chorus that never fades, only shifts in tone. They are not predators, not prey—just things that exist, feeding on the rot, the damp, the constant churn of the jungle.  
+
+And there is something else. Something **unusual**. A wrongness in the way the shadows pool, the way the water sometimes refuses to reflect, the way the air tastes of salt and iron when there should be none. The jungle knows you are here. It watches. It waits.  
+
+You will not leave unchanged.

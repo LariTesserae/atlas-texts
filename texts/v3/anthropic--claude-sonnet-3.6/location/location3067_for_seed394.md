@@ -1,0 +1,17 @@
+A vast greenhouse chamber perches near the summit of an artificial mountain, its diamond-paned walls sweating perpetually in the trapped heat. The structure feels both massive and intimate - a cathedral-scaled terrarium perhaps two hundred meters across, yet so densely packed with engineering that one can never see more than twenty or thirty meters through the humid air and layered infrastructure.
+
+The floor is a maze of elevated walkways and maintenance gantries, suspended above an endless array of hydroponic basins. These chrome-edged pools form recursive geometric patterns, each one precisely temperature-controlled and rich with carefully calibrated nutrients. Most contain no soil at all - just deep, still water threaded with pale roots and supported by an arsenal of pumps, filters, and monitoring systems.
+
+The dominant vegetation is vanilla orchids - thousands upon thousands of them, their thick green vines climbing engineered supports in dense columns that reach toward the ceiling thirty meters above. Their aerial roots dangle like pale fingers into the nutrient soup below. The plants are so precisely maintained and genetically optimized that they bloom year-round, filling the hot, wet air with a subtle but persistent fragrance.
+
+Between the orchid columns, other crops grow in vertical layers - rare spices, pharmaceutical botanicals, and extinct species recreated through bioengineering. The plants have been shaped over generations to thrive in this artificial environment, developing unusual features - leaves that collect and channel condensation with mechanical efficiency, stems that interface directly with the support infrastructure.
+
+The chamber's climate is regulated to tropical precision, but feels natural in its stability. Warm updrafts rise constantly from the heated pools, condensing against the cooler glass ceiling and running down the walls in steady rivulets. These artificial rain-tracks feed back into the hydroponic system in endless cycles.
+
+The facility is largely automated. Maintenance drones move silently through the canopy on preset paths, pollinating flowers and harvesting mature pods. Their gentle whirring and the omnipresent drip of water are the only consistent sounds. The rare human technicians who visit must use protective gear - the optimized atmosphere, while perfect for the plants, contains carefully calibrated fungal and bacterial communities that can be harmful to unprotected lungs.
+
+The whole chamber has the feeling of a machine that has grown into itself - technology and biology so thoroughly integrated that the boundary between them has dissolved. Even the "natural" elements are engineered, while the machinery has taken on organic qualities, developing patinas of beneficial biofilms and symbiotic relationships with the plants it tends.
+
+Time moves slowly here, measured in the gradual maturation of crops and the steady cycles of water. The facility operates on its own peculiar schedule, indifferent to day and night. The light level remains constant, provided by arrays of specialized growing lamps that mirror the exact spectrum of an equatorial sun, filtered through mountain atmosphere.
+
+Here and there, gaps in the vegetation reveal glimpses of the outside world through the greenhouse glass - steep drops down engineered mountainsides, other agricultural modules clinging to the slopes, and always the sense of great height, of being suspended in a precise slice of artificial tropics far above the world below.

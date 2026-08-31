@@ -1,0 +1,22 @@
+The place is called the Underfoundry.
+
+It is no larger than a single cathedral nave, yet it feels like a continent folded into a pocket. Every surface—floor, walls, ceiling—is engineered. There is no natural stone, no soil, no untouched substrate. The entire chamber was grown or machined from a single continuous lattice of dark gunmetal and pale ceramic. It is a room that was born industrial.
+
+You stand on a narrow steel catwalk suspended three meters above a shallow, restless lake of condensed water. The water is not still; it is constantly being born. From the porous ceramic ceiling, thick droplets form in slow motion, swell, and fall with audible plops that somehow cut through the surrounding roar. The droplets strike the black water below and send up brief silver crowns that collapse instantly. The lake itself is only ankle-deep at its edges but seems bottomless in the center, because the floor beneath it is itself a vast grate of revolving perforated plates. Water is continuously sucked down, filtered, heated, pressurized, and pumped back up through hundreds of weeping pipes that line the walls like organ pipes. The walls themselves cry. Every vertical surface is ridged with condensation channels that glitter and trickle without cease.
+
+The air is cool (just above freezing) and so saturated that breath condenses the moment it leaves your lungs. The atmosphere itself feels like it is sweating. Mist forms, drifts, is torn apart by violent air currents, then reforms. The ceiling is only twelve meters high, yet it feels like the sky of a private world.
+
+Everything is sharp-edged and new. The erosion parameter is low because nothing here has been allowed to weather; every edge is still machined-perfect, every weld still bright. Fresh zinc and molybdenum gleam along seams that were sealed only decades ago. The place smells of ozone, hot transformer oil, and wet iron.
+
+The sound is total.  
+Three colossal reciprocating pumps, each the size of a locomotive, labor in sequence along the far wall. Their pistons slam upward with a sound like continents colliding, then hiss downward on cushions of steam. Between their beats, the water itself roars as it is forced through a thousand micro-perforations. Overhead, banks of transformers and rectifiers hum at a pitch that vibrates teeth. The combined noise is so dense it becomes architectural; you do not hear the Underfoundry so much as inhabit its sound. Conversation is impossible. Thought itself must be shouted inward.
+
+Vegetation is almost absent. Only a thin black film of extremophile bacteria stains the wettest ceramic surfaces in long vertical streaks, like rust that learned how to grow. Here and there a single iron-colored lichen has managed to colonize a joint where heat from a steam vent meets perpetual moisture, but these are rare, tiny, and look more like corrosion than life.
+
+No animals. Not even midges. The environment is too loud, too chemically sharp, too perfectly controlled.
+
+Light is minimal and functional. A few banks of industrial sodium lamps burn low along the catwalks, throwing long trapezoids of sickly orange across the water. Most of the illumination comes from the machinery itself: the blue-white arc of electrical discharge across ceramic insulators, the dull red glow of overheating bearings, the greenish phosphorescence of radium dials on pressure gauges that no one has read in years.
+
+The entire mechanism is active, almost frantic. Every thirty seconds a relief valve opens somewhere with a scream like a dying god and a geyser of white steam erupts toward the ceiling, only to be instantly sucked into intake vents. Then the chamber re-condenses, the weeping begins again, and the cycle repeats. The Underfoundry is locked in an eternal act of industrial respiration: it drinks its own tears, pressurizes them, bleeds them out as steam, and drinks again.
+
+You are inside a machine that was built to be a closed hydrological loop, a self-sustaining water engine forged at high altitude inside a mountain that no longer exists. The outer world has been deleted. There is only this pocket of engineered wetness and deafening labor, humming in the dark like the heart of something that has not yet decided whether it is a cathedral, a factory, or a tomb.

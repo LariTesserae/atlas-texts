@@ -1,0 +1,15 @@
+This is the Basin of the Drowned Spires, a vertical ocean where the water is not merely a medium, but a dense, pressurized architecture of suspended life.
+
+There is no "surface" here. Looking up, one sees only a thickening gradient of bruised, indigo-black liquid, cold and heavy as leaden mercury. This place sits at a crushing altitude—atop the highest, most ancient mountain range of a world that long ago dissolved its tectonic plates. There is no bedrock. The entire environment is built from the remains of the Primordial Kelp-Cities, a skeletal framework of calcified, interlocking stalks that rise for miles like the ribs of some impossible leviathan.
+
+Everything here is constructed out of other living things. There is no stone, no synthetic metal, no cold, unyielding plastic. The "built" environment is a total architecture of chitinous, porous amber-grafts and translucent, vein-threaded conduits. These structures are ancient—pre-dating the concept of decay—having reached a state of "final-form" stability eons ago. They do not grow, and they do not die. They simply *are*.
+
+The light is nonexistent, save for the rhythmic, bioluminescent pulse of the fauna. Because the landscape is sparse—vast, open galleries of water separated by immense, carved-out hollows of plant-matter—the light does not diffuse. It acts as a beacon, cutting deep, needle-thin violet lines through the darkness. These lights do not flicker; they are locked in a permanent, static frequency, contributing to the feeling that time has ceased to pass entirely.
+
+The sound is immense, a constant, low-frequency thrum that vibrates through the entire skeleton of the place. It is a wet, mechanical grinding—the sound of trillions of microscopic pores filtering the thick, nutrient-rich water. It is the sound of a lung breathing that never stops, never hitches, and never changes tempo.
+
+Fauna are abundant, but they are tethered to the architecture. They are mostly sessile, stalk-like creatures with iridescent, fan-like membranes that catch the drift of the water. They resemble frozen chandeliers of pale gel, anchored to the ceiling and walls of the plant-cathedrals. Occasionally, a scavenger—a long, whip-thin organism with a dozen glassy eyes—will drift through the wide, empty interstices between the plant-towers. They move with an unnatural, gliding grace, their paths long-since mapped and unvarying.
+
+There is no erosion because there is no friction; the water moves with such heavy, viscous intent that it polishes rather than breaks. 
+
+To inhabit this space is to exist inside a giant, submerged clockwork of biological matter. It is cold—a deep, marrow-aching chill that is held in check only by the thick, insulated walls of the vegetal towers. You feel the weight of the water above and below, a crushing, balanced pressure that holds the world in a state of eternal, silent equilibrium. Nothing is being born, and nothing is rotting. The Basin of the Drowned Spires is finished. It is a monument to the end of process, suspended in a dark, infinite, and perfectly-crafted deep.

@@ -1,0 +1,11 @@
+In the midst of a high mountain valley, a small, ancient town clings to the steep slopes, its stone buildings and terraces hewn directly into the bedrock. The architecture is simple but sturdy, crafted by hand with primitive tools from the cool gray stone of the mountains themselves. Narrow, winding streets and stairways navigate the sharp contours of the landscape.
+
+Despite the town's density, the overall sense is one of emptiness and vastness. The valley is a natural amphitheater, and sounds echo off the sheer rock walls - the constant white noise of waterfalls cascading down the cliffs, the loud calls of the few hardy mountain birds, the creaking of wood and rope bridges spanning gaps between buildings.  
+
+Lush moss and lichen thrive on the perpetually damp stones, fed by mist, rain, and snowmelt trickling across every surface. Hardy conifers and low shrubs take root in any pocket of soil. But vegetation is patchy, and the overwhelming impression is of stone and water and thin mountain air.
+
+The town has a dreamlike, not-quite-real quality, as if it emerged directly from the rock by some force of geological intention. Buildings meld into the cliff faces, stairways end abruptly at sheer drops, and the organic curves and sharp angles defy usual architectural logic. It's a landscape still becoming itself, raw and unfinished, shaped more by the patient weathering of stone than the recent arrival of humans and their tools.
+
+Glimpses of strangeness catch the eye. Doors and windows hint at rooms carved deep into the mountainside. Channels and pipes divert water into hidden cisterns and storage pools. Polished metal dishes and mirrors on the rooftops catch the sun, flashing signals to unknown receivers. Figures draped in gray move silently along the winding paths, faces obscured, purpose unclear.
+
+The light shifts slowly across the sheer valley walls as the sun arcs overhead, shadows stretching and compressing in a patient cyclic dance. At dusk, firelight flickers in the windows, and the smell of wood smoke mingles with cold stone and damp moss. The town settles into the night sounds of dripping water, creaking wood, and occasional distant calls echoing across the empty spaces, beneath a dome of brilliant unfamiliar stars.

@@ -1,0 +1,41 @@
+The sea begins above the clouds.
+
+It rests at altitude without a visible shore, a warm, suspended body of water spread across a region of newborn peaks. From below, it would appear as a dark turquoise ceiling, thickening the sky; from within, there is no clear sense that anything impossible is happening. Water fills the world in every direction. Sunlight enters from far overhead in broad, ordinary shafts, pale gold at noon and green where it passes through leaves. Beneath the lower boundary, beyond an wavering plane of refraction, cloud banks drift through open air and distant mountain summits rise like islands turned upside down.
+
+The high sea does not fall. Its lower surface sags between peaks, held by a slow balance of pressure, mineral charge, and the living mesh of the forest. Drops occasionally loosen from it, but rather than becoming rain they trail downward only a short distance, hesitate, and are drawn back into the mass. During the warmest hours, the underside frays into long transparent veils. At night it contracts, becoming deeper and more sharply bounded.
+
+Within it, the terrain is steep and recent. Black ridges thrust upward from the cloudward floor, all splinters, blades, and glassy ledges. Some are volcanic stone, still faintly warm in their seams; others are pale mineral extrusions grown directly from the water, fibrous as bone and edged with translucent crystal. Erosion has barely begun. Corners remain hard. Fresh fractures glitter. Fine sediment exists only in protected pockets, where it settles as blue-gray flour among roots.
+
+The peaks do not break the upper surface. Even their highest spires remain submerged, clothed to their tips in vegetation.
+
+Growth is everywhere, though little of it resembles a terrestrial forest. Dense cords descend from the ridges in curtains, branching and rebranching through the open water. Their leaves are thin, rounded membranes held at every angle, so that a single plant gathers light from above, from the sides, and from the reflections below. Some leaves contain beads of gas and hang upward; others are heavy with minerals and stream downward. Together they occupy nearly every layer, turning the sea into a three-dimensional canopy.
+
+There are forests of ribbonwood whose trunks have no rigid center. They flex in slow arcs between rock anchors, braided from thousands of green fibers. Pale fans spread across vertical cliffs. Rust-colored mosses grow on fresh basalt, dissolving it grain by grain. Long translucent vines bridge whole chasms, their inner channels carrying sap that glows faintly amber when struck by sunlight. In sheltered clefts, bulbous gardens cluster so densely that no water is visible between them: violet bladders, chalk-white cups, black fronds with silver margins, and soft red mats that fold shut when shadow passes overhead.
+
+Nothing here grows quickly. The lushness is the accumulation of ages, not abundance in motion. A leaf may take a season to uncurl. A vine may spend decades crossing the distance between two neighboring crags. The water itself moves almost imperceptibly, with broad regional currents too slow to bend a frond from one hour to the next. The forest records these currents in its shape: entire valleys of foliage leaning northward, entire walls of ribbonwood combed into gentle spirals.
+
+There is no surf, no chatter of rain, no constant bubbling. The place is mostly quiet.
+
+Sound travels clearly when it comes. Stone cooling in a deep fissure produces a single, resonant crack that can be heard across many kilometers. Gas escaping from a plant’s silver pores makes a brief chain of tiny notes. Once or twice a day, some remote mass of mineral detaches and slides down a slope, the vibration arriving as a low pressure felt in the chest and jaw rather than heard. Afterward, silence closes again.
+
+Animals are rare enough to seem accidental.
+
+A solitary flat-bodied swimmer may appear between the leaves, dark as a shadow and wider than a person, advancing with one slow ripple along its margins. It has no obvious eyes. Pale threads hang from its underside and taste the surfaces it passes. Tiny seedlike grazers cling to certain warm rocks, but they remain sealed and motionless for years at a time, opening only after distant eruptions enrich the water. Higher in the sea, glass-winged creatures drift in small groups, perhaps five or six across an entire valley. They feed on floating pollen and are so transparent that their presence is usually revealed by the brief disappearance of a sunbeam.
+
+There are no schools, no swarms, no pursuit. Predation, if it occurs, is patient. Some flowers grow mouths among their petals and wait a century for something edible to brush against them. Certain vines tighten around an animal only after days of contact. Death is likewise slow. Bodies become nurseries of mineral algae before they have visibly begun to decay.
+
+The water is warm throughout, but not uniformly so. Near dark stone it carries the lingering heat of formation. Around the pale ridges it is cooler and tastes sharply of salt and metal. Temperature changes form invisible topographies layered over the physical ones: warm terraces, cool wells, narrow rivers that do not flow but remain suspended within the surrounding sea. Vegetation marks these boundaries. Emerald leaves give way abruptly to bronze; bronze forests fade into fields of colorless threads.
+
+From a high saddle between two peaks, the landscape opens for an immense distance. Ridge after ridge recedes through green water, each one densely furred with suspended forest. Valleys deepen toward the lower boundary, where the world brightens strangely from cloud-reflected light. Above, the upper reaches are a luminous blue. Far away, a column of darker water rises through the sea like weather: not a storm, but a slow bloom of minerals from some newly opened mountain wound.
+
+The land is still making itself. New fins of rock emerge from cracks without violence, pushed outward over years. Crystal reefs bud along fault lines. Sometimes a summit divides, revealing an interior brighter and rawer than its skin, and plants gradually turn toward it as if toward a second sun. Yet the overall world seems motionless. Its transformations are too large and too gradual to witness directly. One notices them only through discrepancies: a passage narrowed since last season, a golden grove now rooted where there had been open water, a distant pinnacle no longer aligned with the one behind it.
+
+There are no paths. There is no sign that anything has ever tried to master the place. No cut surface, no stacked stone, no discarded object interrupts the continuity between geology and life. Even the cleanest-looking arches and chambers are natural—formed where roots held soft mineral apart until the mineral hardened around them, leaving vaulted spaces inside the cliffs. They resemble ruins only because the forest has discovered shapes that construction might one day imitate.
+
+Orientation remains uncertain. Plants grow both upward toward the sun and downward toward the bright cloud floor. Gas-filled seeds rise; mineral-heavy spores sink; both may germinate wherever they lodge. A traveler could mistake the underside for the surface or descend for hours toward clouds that remain forever beyond the skin of the water. In some valleys, the pull of gravity weakens and suspended stones collect among the vines. In others, every loose thing settles sideways against a cliff. The forest accepts these changes without distinction, rooting into whichever direction behaves as earth.
+
+At dusk, the sea does not go dark all at once. Light drains from the upper canopy, then returns from below as the last sun catches the cloud deck beneath the water. For a while, every peak has two shadows. The transparent vines become visible as dim amber lines connecting ridge to ridge, and the whole region appears threaded together by a buried constellation.
+
+Then the lower light fades. Leaves close in successive bands across the valleys. The final sounds are minute: pores sealing, membranes folding, one distant stone ticking as it cools.
+
+The high sea holds itself in the dark, warm and nearly still, its mountains sharp beneath the patient weight of water.

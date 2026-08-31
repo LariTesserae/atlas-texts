@@ -1,0 +1,17 @@
+The heat here is a physical weight, a humid, breathless pressure that suggests the sky above—if there is a sky—must be miles of solid rock. This is a subterranean sump, a hollowed-out pocket far below the crust, where the air is a thick soup of salt-spray and machine exhaust. 
+
+Water does not flow here so much as it perspires. It beads on the high, vaulted ceilings of the cavern and falls in a rhythmic, heavy patter, turning the floor into a mirror-slick expanse of knee-deep brine and alkaline mud. Everything is wet. The stone walls are perpetually weeping, slicked with a thin, shimmering film of condensation that catches the dim, orange glow of industrial lighting. 
+
+Rising out of the brackish shallows is a town of iron and clay—not a ruin, but a construction that seems perpetually unfinished, raw and jagged. It is an urban space compressed into a single, massive chamber. The architecture is dense and stacked: tiered tenements with rusted corrugated roofs, catwalks that crisscross the dark air like spiderwebs, and massive, slow-turning turbines half-submerged in the swampy floor. This is an industrial settlement built into the very bones of the earth, organized around the extraction of heat or mineral, though the purpose feels secondary to the simple act of enduring. 
+
+The geology here is embryonic. The rock isn't weathered or smooth; it is sharp, crystalline, and "new." Beneath the water, the ground feels like freshly cooled lava or hardening cement—pustulant and jagged, yet to be worn down by the eons. There is almost no green. What vegetation exists is stunted and pale: translucent mosses clinging to the rusted undersides of pipes, or stringy, albino fungi that sprout from the joints of the iron pilings. 
+
+But if the flora is absent, the fauna is a riot. 
+
+The space is suffocatingly alive. In the dim, amber light, the air is thick with clouds of heavy-bodied moths and humming, iridescent beetles that swarm around the steam-vents. Crabs the size of dinner plates clatter over the submerged scrap metal, their shells stained with rust. In the rafters of the industrial gantries, thousands of leathery-winged creatures—not quite bats, not quite birds—huddle in squirming masses, their chittering a constant, high-pitched vibration. The water ripples constantly, not from wind, but from the movement of unseen, multi-legged things scuttling through the silt. It is a biological over-saturation that contrasts jarringly with the stark, metallic hardness of the town.
+
+The sound is a textured roar. It is the deep, tectonic thrum of the massive engines that pump the water away from the living quarters, overlaid with the chaotic, wet symphony of the animal life. The splash of a falling drop, the screech of a metal hinge, the frantic buzzing of an insect swarm—it all echoes and amplifies within the stone bowl of the cavern.
+
+Time moves with a strange, heavy patience. Despite the noise and the swarms, nothing happens quickly. The rust creeps across the beams in decades-long patterns; the water rises and falls in sluggish, tidal cycles governed by pressures miles above. The citizens of this place—shadowy figures glimpsed through steam and lattice—move with the deliberate slowness of those who have adapted to high heat and low oxygen. 
+
+It is a place of organized struggle. Everything is damp, everything is hot, and every surface is being reclaimed by a swarm of something hungry. It is a hamlet of iron drowning in a sea of life, buried in the dark, warm heart of the world.

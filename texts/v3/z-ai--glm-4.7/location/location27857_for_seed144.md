@@ -1,0 +1,19 @@
+The air up here tastes like copper and burnt dust. It is thin, searingly hot, and dry enough to crack lips the moment they part, yet the rocks are slick to the touch.
+
+This is the High Fracture, a place of extreme elevation where the horizon is a jagged tear of stone against a bleached white sky. The terrain is not a sprawling plain, but a chaotic density of verticality—towering pillars, mesas, and spires packed so closely together that they create a continuous maze of shadow and sunlit cliff. The scale is regional; you could walk for weeks and never find the edge of the stone forest, but the intimacy of the crowded formations makes the world feel tight, claustrophobic, as if the mountains are huddled together for warmth against the freezing void of space.
+
+And it is hot. A relentless, radiating heat (2.9/3) bakes the stone. Up here, the sun is an executioner. The rocks, weathered into settled, rounded shapes by eons of wind, retain the heat like coals in a dying fire.
+
+But the water is strange. There are no rivers, no rain clouds. The dampness here is a betrayal of physics. It rises from the ground itself. Condensation weeps from the cracks in the basalt, collecting in pockets and rivulets that run only a few dozen yards before vanishing back into the thirsty gravel. This intermittent moisture sustains a meager, stubborn ecology. The vegetation is sparse—hard, thorny lichens and leather-leaf succulents that cling to the vertical faces of the spires, blooming only where the shadow meets the wet stone.
+
+The true landscape, however, is defined by what lies beneath and between the rocks.
+
+This is an industrial graveyard, or perhaps a machine that is merely sleeping. Great, rusted gantries of iron and steel pierce the stone, grown over by the terrain like kudzu. The "scattered" built structures are actually massive in scale but few in number—a single, shattered compressor station the size of a cathedral dominates the central valley; a lone, rusted pipeline the width of a subway train cuts through a canyon of granite before abruptly ending in mid-air.
+
+These are the bones of an ancient, heavy industry, repurposed by the new world.
+
+The tech here is industrial and muscular, but it is silent (0.9/3). The great pistons and flywheels are frozen in rust, yet the space feels active (2.3/3). The activity comes from the life that has infested the machine. The fauna is abundant, a teeming ecology of heat-loving scavengers. They are things of chitin and shell—millipedes the length of a man, scuttling through the shadows of the gantries; sleek, copper-scaled reptiles basking on the warm metal flues; swarms of buzzing, metallic flies that congregate around the vents where the earth still exhales its hot, damp breath.
+
+The "weirdness" is subtle but pervasive. The silence of the place is heavy. It feels like the pause between breaths. Occasionally, the ground shudders—a deep, subsonic thrum that vibrates in the teeth and the bones of the rocks. The temperature spikes, the dampness vents as steam from a fissure, and the creatures scatter in a rippling wave of motion, before settling back into their patient rhythm.
+
+It is a place of dynamic stillness. The heat creates a shimmering mirage that distorts the distance, making the packed spires look like they are swaying. The air smells of ozone and dry rot. There are no human voices here, only the hissing of steam, the distant clatter of a rockfall, and the ceaseless, industrious clicking of a million small claws moving through the ruins of a dead giant. It is a valley of ovens, quiet and crowded, sweating in the sun.

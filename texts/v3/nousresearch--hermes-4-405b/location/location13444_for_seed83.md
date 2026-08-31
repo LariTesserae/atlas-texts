@@ -1,0 +1,19 @@
+The air is hot and humid in the tunnel. It is also very dark. Only a small number of electric lights are embedded in the ceiling, just enough to cast the chamber in deep shadow, leaving most to gloom. You can hear water dripping somewhere, an occasional hollow plink, then the soft rush of a rivulet over stone. It is rare for the fauna to venture down here.
+
+You're in a large, long, and entirely artificial space - a vast, single room built perhaps centuries ago, but no longer used. Thick walls of brick and mortar have been tunneled through the earth to reach this chamber. The builders of this place talked too much about the materials they used: the stone cut from quarries, the bricks made from the clay of this area, the concrete and iron that binds them.
+
+It's not a temple, not a city, but a single massive space that was built for a purpose that's no longer pursued. A carbide factory, perhaps, now lying useless. There are a few remnants of the machinery that once filled this room: rusted iron, some old gears, a great tangle of chains. A few bits of metal and wood hang from the ceiling -- hooks, containers, levers, pieces of conveyor belts. They are old and in various states of decay. There are also some remnants from later visitors: small piles of wood and trash, a few empty cans and bottles.
+
+A large beam sits in the exact center of the chamber, slightly elevated, with a giant spoked wheel at its top. Below it, a dozen thick iron rings hang from the ceiling. More chains and hooks hang from these, creating a dense tangle. It is unclear if these things were part of the same machine, or separate devices. In any case, the great machine is long dead, broken and scattered, and all but buried under dust and time.
+
+What little light there is comes from a few dim bulbs that have been placed here and there, glowing with a thin orange light. The ceiling is very high, and the walls loom over you. Most of the floor is covered in dust, thick as wrinkled velvet. The only sounds are the dripping of water, the soft scuff of your footsteps, and the groaning of ancient timber.
+
+A long stairway, made of thick wooden planks that have turned the color of sepia photographs, ascends into darkness. It is clear it was once a grand staircase, but time and humidity have made it unsafe, and it has been blocked off at the top with stacks of rusted barrels and ruined furniture.
+
+Despite the size and the oppressive heat and the perpetual gloom, the room has a certain grace. The brickwork varies and creates patterns of dark and light. The windows, which were likely once made of glass, are now covered in a thick, dark grime. One is broken and opening onto a descent into pitch black. Through it, you can feel a slight draft and smell the mineral scent of a subterranean river.
+
+The density of objects in the room is striking. So many remnants hang from the ceiling, or sit on the floor, that it feels almost claustrophobic, even in this huge open space. It is a place where nothing is lived, nothing is born, nothing is used. Only the very slow passage of time alters it: the erosion scraping at the walls and floor, the thick dust and mineral deposits slowly encasing everything in this buried ruin, the rare water slowly carving its path at the edges of the room.
+
+The water collects in a few shallow puddles, reflecting the dim light, and you can see the tracks of tiny creatures that have come to drink from it. It's an echo of the larger river that must exist somewhere beyond the chamber. Perhaps that's why this space was built here, or perhaps it is a flaw in the design.
+
+All this taken together has created a dense, strange landscape. It is a museum of disuse. A single grand space that has held so much. Some parts are clearly visible, but most is lost to the shadows, hidden in the hard-to-surmounting density of old iron and wood, dust, the hot humid darkness.

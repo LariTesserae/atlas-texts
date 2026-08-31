@@ -1,0 +1,17 @@
+Deep beneath the surface, there is a place where growth never ceases but change never comes. The Living Vault, they might have called it, if anyone remained to name it. Here, the ceiling drips not water but thin tendrils of pale vegetation that reach downward like frozen rain, each strand precisely where it has always been, neither advancing nor retreating.
+
+The space extends vast and hollow, an inverted prairie of hanging plants that fill the upper reaches while leaving the floor remarkably open. The ground itself is a continuous matt of mushroom-flesh, springy and warm underfoot, its surface an unbroken expanse of bioluminescent patterning that provides most of the chamber's steady, unchanging light.
+
+The defining feature is the sound - an endless, overwhelming roar that comes from everywhere and nowhere. It's the sound of uncountable billions of cell walls expanding, of water moving through countless vessels, of photosynthesis itself somehow made audible. The biological processes that are silent in the world above are here expressed as a physical force, a wall of pure life-noise that never varies or ceases.
+
+Scattered through this bizarre space are what appear to be structures, though whether they're truly built or grown is impossible to determine. They resemble inverted bowls or bells, formed from densely woven vegetable matter, suspended from the ceiling by thick cables of vine. Their purpose is unclear - they might be abandoned nests of some vanished species, or the remnants of some long-ago attempt at cultivation or harvest.
+
+The air is thick with moisture, but it never quite condenses into drops. Instead, it creates a constant haze that refracts the bioluminescence, causing light to bend in strange ways. Sometimes this creates the illusion of movement where there is none - the only true motion here is the steady flow of water and nutrients through the living systems that make up every surface.
+
+Small channels cut through the mushroom floor, carrying warm water rich with minerals and organic compounds. These streams never vary in their course or flow rate, having found perfect equilibrium with the massive root systems that both feed and are fed by them.
+
+The few animals that exist here are strange, silent things - pale arthropods that move with mechanical precision along unchanging paths, gathering exactly as much of the abundant fungal growth as they need, no more and no less. They seem less like living creatures and more like mobile parts of the ecosystem itself, biological automatons maintaining the eternal status quo.
+
+What's most unsettling is how the place feels simultaneously young and ancient - the tissue everywhere is fresh, constantly renewed, yet the patterns and structures have the weight of eons behind them. It's as if some vast process reached a perfect steady state and simply... stopped evolving, frozen at the moment of emergence, neither decaying nor developing further.
+
+The borders of this space are gradual fades rather than sharp transitions - the ceiling slowly slopes upward until it vanishes into darkness, the floor gradually becomes less uniform until it breaks up into isolated patches, but you could never point to where exactly the Living Vault ends and something else begins.

@@ -1,0 +1,38 @@
+**The Sundered Basin**
+
+You do not enter it so much as it engulfs you. There is no horizon, only a cessation of detail at a distance that feels both near and infinite. The scale is not one you can walk; it is one you are *within*, like a cell in a body, or a dream in a sleeper. This is a world that has forgotten the concept of "background."
+
+**Terrain & Materials:**
+The Basin is a single, continent-spanning marsh not of peat and reeds, but of *lithic slurry* and *silica gel*. The ground is not a surface but a condition—a saturated, semi-solid matrix of ground quartz, clay, and precipitated salts that yields with a soundless sigh underfoot, then re-knits itself moments later. There are no hills, only immense, slow-memory swells in the terrain, like the breath of a sleeping giant. "Erosion" here is not a force but a state of being: everything is rounded, blurred, dissolved at the edges. Rocks are not rocks but *geological intentions*, softened spheres of granite, pumice, or metallic ore that weep continuous, thin rivulets of mineral-laden water from their entire surface. These "weeping stones" range from the size of a hill to that of a pebble, packed so densely you could skip from one to the next forever without touching bare substrate.
+
+The primary material is ** Chalice-Silt**: a fine, pale-green sediment that behaves like a non-Newtonian fluid. In stillness, it is firm as packed snow. Disturb it, and it flows like cold honey, releasing trapped gases that smell of wet iron and ozone. Where it pools, it forms perfect, shallow basins that reflect a sky you cannot see.
+
+**Atmosphere & Light:**
+The light is a diffuse, sourceless amber glow, as if the world is seen through thick honey or the bottom of a deep pool. The sun, if it exists, is a myth whispered by the heat. The temperature is a warm, constant, skin-clinging 30°C (86°F), but the damp chills the bones. The air is a saturated brine of mist and aerosolized silicates, tasting of salt and stone-dust. It carries the deafening sound.
+
+**Sound:**
+The **Deafening** is not loud in the way of waterfalls, but in the way of a fundamental frequency—a sub-audible, tectonic hum that vibrates in the fillings of your teeth and the fluid of your inner ear. It is the sound of the planet’s crust settling its final, ancient accounts, the groan of silica chains locking into place, the sigh of pressurized aquifers releasing millennia of stored breath. Over this base tone are layered a trillion micro-sounds: the *hiss* of a mineral vein crystallizing, the *pop* of a gas bubble bursting in Chalice-Silt, the low *thrum* of a distant landslough (a slow-motion avalanche of slurry). It is a soundscape of completion and dissolution, so total that silence is an unthinkable absence. Speech is impossible; communication must be gesture or shared, silent understanding.
+
+**Ecology & Fauna:**
+Vegetation is indeed sparse. Life here did not evolve leaves and roots, but *lichen-grafts* and *pressure-cysts*.  
+- **Silt-Moss**: A velvety, black biofilm that drinks the mineral soup and grows in slow, fractal rings. It is the only green, but it is the green of tarnished copper.  
+- **Dome-Fungi**: Transparent, bladder-like structures that rise from the slurry, filled with a clear, carbonated fluid. They pulse gently.  
+- **Strand-Trees**: Rare, columnar formations of fused silicate crystals, jointed like bone. They do photosynthesize, but by catalytically splitting water molecules with latent geothermal energy, releasing bubbles of pure oxygen that hang in the air like silver beads.  
+
+Fauna are rare, spectral, and profoundly adapted:  
+- **Mud-Skippers**: Not amphibians, but living clouds of magnetotactic bacteria that coalesce into brief, swirling shapes to navigate the iron-rich slurry, their passage leaving transient phosphorescent trails.  
+- **Breath-Holders**: Armored, pancake-like creatures that bury in the silt for decades, emerging only during the rare "Clearance" (see Dynamics) to gulp the dense, oxygen-rich air before sinking back into hibernation.  
+- **Sky-Silts**: At the dizzying "top" of the atmosphere, where the mist thins, float vast, jellyfish-like beings of stabilized foam, filtering silicate dust. They are the only thing that moves against the hum, their bellies glowing with a soft, cold bioluminescence.
+
+**World Rules & Weirdness (Reality Breakdown):**
+The Basin operates on rules that bend and break.  
+1.  **Spatial Saturation (Density 3.0):** There is no "between." Land, mist, water, and stone are interpenetrating states. A "rock" may be 40% solid mineral, 30% water, 20% air, and 10% something else—a fourth state of suspended *potential*. Empty space is a philosophical error.  
+2.  **Temporal Turbulence (Dynamic 3.0):** The Basin is in a state of perpetual, chaotic becoming. The "erosion" is not slow but hyperactive, happening in visible, minutes-long pulses. A dome-fungus may grow to full size and collapse into dust in an hour. A landslough can open a new, kilometer-wide depression in the time it takes to watch it. Time is not a river but a shattered mirror, reflecting different rates of change in overlapping patches.  
+3.  **The Clearance:** Once every few days, the deafening hum pauses. For 10-15 seconds, there is absolute, ringing silence. In that silence, the Chalice-Silt becomes perfectly transparent and solid. The mist vanishes. The sky (a bruised purple) is visible for a moment, along with the slow, orbital movement of three tiny, cold suns. Then the hum returns, the silt liquefies, and the mist rushes back in, as if nothing happened. During Clearance, the Breath-Holders surface in frantic, silent swarms.  
+4.  **Memory-Stones:** Scattered (Built 0.8) are occasional, perfect artifacts: a smooth, black monolith carved with impossible, non-repeating curves; a lattice of fused glass resembling a circuit board; a cluster of hexagonal pipes that emit a warm, dry breeze. They are not built. They are *recovered*—constellations of matter that briefly solidified in a pattern from a different reality or a previous cosmic cycle. They are inert, but their presence causes local spatial warping (a path leading back to itself, a stone that casts two shadows).  
+5.  **The Whispering Silt:** In the most turbulent zones, the slurry itself forms fleeting, solid faces or shapes—a hand, an eye, a towering, abstract cityscape—that hold for a heartbeat before melting away. They are not alive. They are the landscape *thinking* in stone, the final, dying echoes of a geology that once dreamed.
+
+**The Feeling:**
+To be in the Sundered Basin is to experience a profound cognitive dissonance. It is ancient (erosion 2.8) yet violently active (dynamic 3.0). It is packed (density 3.0) with barely a living thing (vegetation 1.2, fauna 1.4). It is wet (water 2.2) but not with familiar water; it is wet with *process*. The dim light (1.4) and warm temperature (2.0) give it the feel of a global, geologic incubator. The weirdness (2.7) is not in "monsters," but in the ground's refusal to obey a single set of physical laws. The deafening sound is the proof of its age—it is the noise of everything that can erode, finally doing so, together, at once.
+
+It is a place at the end of its story, still trying to write the last chapter in a language of mud, hum, and fleeting, impossible shapes. There are no rules for survival here, only rules for *endurance*: go slow, follow the solidity, trust the patterns, and never, ever seek the source of the hum. The Basin is not a location. It is a condition. And it is waiting, packed and perfect and deafening, for the final Clearance that may never come.

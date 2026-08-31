@@ -1,0 +1,53 @@
+The city stands on land that has not finished becoming land.
+
+It spreads across a low basin of dark new stone, a wide shallow bowl between distant ridges that still look cut rather than weathered. Their edges are too crisp for mountains, more like broken ceramic raised from below. The ground under the streets is young basalt and glassy mineral foam, black, blue, and green where it catches what little light there is. In some places the crust has buckled into narrow fins and sharp shelves, and the city has not removed them; it has threaded itself around them, over them, through them, as if the geology were a language still being spoken.
+
+The air is warm and dim. Not night, not quite clouded day. A low ceiling of vapor hangs over the basin, copper-gray and faintly luminous from within, so the city receives its light as a slow seep rather than a beam. Shadows are soft but persistent. Surfaces gleam with condensation. Railings, leaves, cables, stone lips, and window membranes all carry tiny beads of water that gather, tremble, and fall at irregular intervals. Rain comes briefly and often, sometimes as a fine slanting mist, sometimes as large drops that strike only one district while another remains dry and steaming.
+
+Water is present but not abundant. It hides in seams.
+
+Along the avenues run shallow channels no wider than a handspan, fed by condensers mounted high on towers and by the sweating of the stone itself. The channels fork, vanish beneath transparent walkways, reappear as small pools set into plazas, then drain into reed-filled sumps where silver-green plants root in black grit. There is a river, but it is intermittent: a broad, stony corridor curving through the city, dry for days except for threads of water gleaming among the pebbles, then suddenly alive after the vapor ceiling collapses into rain. Its banks are raw and steep, not yet softened by time. The bridges over it look permanent, but the river does not.
+
+Vegetation has taken the city with patience rather than violence. It is lush where it is allowed to be lush, gathered in suspended gardens, roof basins, wall terraces, and the moist hollows between foundation plates. Trees grow from narrow beds of engineered loam, their roots guided through ceramic conduits and nutrient meshes. Their leaves are large, waxy, and dark, adapted to the dimness; many are nearly black on top and violet underneath, so that wind turns the gardens into slow-moving bruises of color. Vines descend from transit pylons in long curtains, sparsely spaced but extravagant where they occur. Ferns crowd around vents where warm damp air exhales from beneath the city. Moss grows only in chosen places, bright as powdered emerald, outlining stair edges and the bases of statues that are probably not statues.
+
+Between these living masses there is space. The city is not crowded in the old way. Its districts are separated by broad open aprons of stone, quiet transit fields, drainage flats, and empty plazas large enough for assemblies that no longer happen. Buildings rise in clusters, then give way to long stretches of polished ground where rainwater crawls in hairline streams. The openness makes the settlement feel both urban and abandoned, though it is not abandoned. It is simply built at a scale that assumes other kinds of movement, other forms of presence.
+
+The structures are difficult to classify. Some resemble towers, but their upper portions bend out of ordinary geometry, becoming thin lattices that fade into the mist. Some buildings are low and massive, like dark shells half-buried in the young rock. Others appear grown rather than built: layered ribs of pale composite, translucent skin stretched between them, internal lights pulsing faintly like organs. No single era owns the architecture. There are arcades of cut stone beside vertical gardens held aloft by magnetic tension. There are old brick service houses sealed inside pressure-clear domes. There are avenues paved with self-repairing ceramic scales, each scale shifting slightly underfoot to shed water and distribute weight.
+
+The city’s technology is everywhere, but it does not announce itself with noise. It is quiet, embedded, almost ecological.
+
+Condensation nets hang high between towers, invisible until droplets collect on their filaments and reveal them as silver webs across the sky. The nets draw moisture from the air and sort it molecule by molecule, sending clean water down through transparent veins in the walls. Beneath the streets, something like a transit system moves without wheels, without rails, without any sound except a low pressure change in the ear. Platforms open when approached, not with doors but with local permission: surfaces becoming permeable, then solid again after passage.
+
+In certain plazas, gravity is slightly misaligned. Fallen leaves gather in shallow spirals above the pavement instead of on it. Rain in those places drops diagonally or pauses for a moment before remembering the ground. Children, if there are children here, must be warned not to chase floating fruit too far upward.
+
+There are lamps, but they are kept dim. Most illumination comes from surfaces with stored dawn inside them: curb edges, undersides of bridges, path markers embedded in roots, the slow blue glow of water channels after rain. Windows do not shine so much as breathe faintly. The result is a city seen through half-closed eyes, its outlines clear only when one is near them. Farther away, towers dissolve into vapor and foliage, and the basin becomes a layered murk of silhouettes.
+
+Sound is sparse. Drops ticking from leaf to leaf. The faint creak of vine cables shifting. A distant tremor from beneath the crust, not dangerous, just the land settling into its new shape. Occasionally a soft chime passes through the city, transmitted through building skins and bridge rails rather than the air. It is not an alarm. It may be a weather notice, or a migration signal, or the city speaking to its own systems.
+
+When rain arrives, the place becomes briefly articulate. Channels fill and begin to murmur. Roof basins overflow in orderly sheets. Water runs down the faces of buildings in designated paths, making the architecture visible by tracing it. The broad dry river flashes awake, carrying leaves, mineral dust, and little white petals from some unseen upper garden. Then, just as quickly, the rain thins. Warmth rises from the black stone. Mist lifts from the streets. The water withdraws into seams, cisterns, roots, and hidden machines.
+
+Fauna is rare enough that each animal feels like an event. Pale insects live in the condensation nets, moving only at dusk, if dusk can be distinguished from the rest of the dim day. Small amphibious things sometimes appear in the rain channels after storms, translucent, quick, and gone before they can be studied. High among the tower gardens, a birdlike creature with four folding wings nests in the warm exhaust of atmospheric processors; its call is a single dry click, heard perhaps once in an afternoon. There are pollinators, but many are artificial or half-artificial—soft motes that drift from flower to flower with impossible patience, their bodies no larger than seeds and occasionally blinking with internal calculations.
+
+The plants do not behave entirely like plants. Some turn not toward light but toward passing bodies. Some close their leaves when spoken near. In one district, tall reed columns grow from water courts and resonate with underground frequencies, bending in patterns that seem to forecast rain hours before the sky changes. In another, vines have learned the schedule of the silent transit and lift themselves away from the air lanes just before a vehicle arrives, though no vehicle can be seen.
+
+The rules of the place are not hostile, but they are particular.
+
+Do not step across red mineral seams after rain; they mark crust still cooling below.
+
+Do not drink from open pools unless the surface reflects the sky correctly.
+
+Do not sleep beneath the white-rooted trees during condensation hour, because their dreams leak downward.
+
+Do not follow a street that repeats the same doorway three times.
+
+These are not superstitions, exactly. They are civic instructions, printed in small glyphs on public stone and grown into the undersides of leaves at path junctions. The inhabitants, whoever they are, understand that the city rests on unstable agreements: between wet and dry, wild and engineered, living tissue and built material, present physics and the newer disciplines that have replaced it.
+
+The city remains active, though much of its activity is slow. Roots thicken through guide tubes. Buildings heal hairline cracks before they widen. The riverbed shifts after each pulse of water, and survey drones like black seeds drift low over the stones, mapping changes. Vapor harvesters open and close their high nets according to pressure patterns. Whole facades subtly rotate their pores toward humidity. Underground reactors, if they are reactors, breathe heat into garden soils and keep the basin warm through the dim season.
+
+There are people, perhaps, but they are not immediately visible. Their traces are everywhere: clean thresholds, tended fruit, repaired walkways, a cup left beneath a dripping condenser, footprints drying on a bridge. In the open plazas stand slender kiosks of dark glass that respond to touch with ripples of remembered maps. Some show streets that exist. Some show streets not yet grown. Some show the basin before the city, when the land was steam and molten stone. Some show a future in which the river is permanent and the towers have become cliffs for forests.
+
+From a distance, the whole settlement looks less like a city imposed on a landscape than a treaty drafted in architecture. Low warm land, fresh from upheaval. Moisture rationed through air and stone. Luxuriant growth gathered in islands and cascades. Enormous quiet spaces between districts. Technologies so advanced they have become manners rather than machines. A dim basin where rain does not fall enough to dominate, yet water’s absence organizes everything.
+
+And always, beneath the softness of leaves and vapor, the youth of the ground remains visible. Sharp ridges cut through gardens. Fresh fractures cross avenues and are bridged with flexible spans. Black stone shines where it has not yet dulled under weather. The city may be ancient in knowledge, but its world is new—newly lifted, newly cooled, newly habitable.
+
+It has the feeling of a place waiting for its first true history, while already remembering several impossible ones.

@@ -1,0 +1,15 @@
+This is the Abyssal Conservatory, a submerged necropolis of glass and kelp that sprawls across the floor of an ocean that has no surface. 
+
+It is a world of absolute, bone-crushing immersion. Here, the water is not merely a medium; it is a heavy, pressurized weight that sits at near-freezing temperatures, thick with the brine of eons. There is no sunlight, nor any bioluminescence to break the gloom; the darkness is total, a physical shroud that defines the very architecture of the space.
+
+The geography is entirely artificial. It is a continental-scale lattice of vaulted galleries, fluted columns, and sediment-choked aqueducts, all constructed from a porous, matte-black mineral that hums with a lingering, faint vibration. There is no bedrock here, no raw earth beneath the structures—only the repeating, fractal geometry of a civilization that finished its work millions of years ago. The erosion is profound; the once-sharp edges of the stonework have been softened by the relentless, slow-motion pressure of the deep currents, turning the corridors into smooth, featureless tunnels that look like the throat of a petrified titan.
+
+Despite the crushing cold and the darkness, the Conservatory is lush. Massive, fern-like structures of translucent, rubbery vegetation grow directly from the pores of the constructed walls. They do not photosynthesize; they draw heat and trace minerals from the deep-ocean currents that circulate through the city. These plants are the only "living" things in a world devoid of animal life. They grow at an agonizingly slow pace, their fronds swaying with a lethargic, rhythmic grace that takes years to complete a single cycle of expansion. 
+
+The environment is incredibly dense. Every cubic meter of space is occupied, either by the dark, curving architecture or by the thick, tangled weave of the deep-sea vines. One must navigate through narrow, interstitial gaps, feeling the smooth, cold surfaces of the walls and the slick, waxy touch of the flora.
+
+The silence here is absolute, broken only by the occasional *thrum* of a shifting current or the microscopic, crystalline popping of frozen architecture adjusting to the pressure. There is no sound of heartbeat, no struggle, no hunting. The rules of this world are determined by "The Great Stasis"—a primordial physics that prioritizes preservation over generation. 
+
+The technology that built this place—if it can be called technology—is strangely primitive in its design, though monumental in its output. There are no sparks of electricity, no complex gears, and no flickering data streams. The structures were shaped by manual, heavy-handed tools, carved into existence over cycles so long that the tool-marks themselves have been worn away by the water. 
+
+There is a terrifying sense of finality to the location. It is a finished project, a planet transformed into a single, cold, underwater garden of stone and vine. It waits for nothing, moves for no one, and keeps its own dark time. To be here is to be an intrusion, a fleeting spark of heat in a place that has long since settled into the permanent, shivering equilibrium of the end.

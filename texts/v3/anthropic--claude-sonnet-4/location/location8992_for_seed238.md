@@ -1,0 +1,17 @@
+**The Breathing Basin**
+
+In a shallow depression no wider than a monastery courtyard, the earth exhales water in gentle, perpetual sighs. Here, where ancient bedrock has only recently cracked along crystalline seams, thermal springs well up through fissures so new they still glisten with virgin mineral deposits. The stone around each spring mouth gleams white and amber, unmarked by weathering, edges sharp as broken glass.
+
+The heat rises in visible waves, turning the air thick and honeyed. Every surface weeps—not from rain, but from the basin's own humid breath condensing and trickling down in countless threadlike streams. The temperature hovers at the edge of comfort, warm enough to flush skin within moments, to make clothing cling and breath come shallow.
+
+Vegetation crowds every available surface in riotous abundance. Broad-leafed plants with surfaces like velvet push against each other in dense, breathing masses. Vines cascade down the basin's walls in curtains so thick they block the view beyond, their leaves overlapping like scales, creating a living wallpaper of forest green shot through with veins of gold and deep burgundy. Delicate ferns unfurl from every crevice in the rock, their fronds trembling in the barely-perceptible air currents. Moss grows in pillowed mounds, so dense and yielding it appears to pulse with its own soft rhythm.
+
+Yet for all this abundance of plant life, nothing else moves. No insects drone, no birds call, no small creatures rustle through the undergrowth. The silence is profound but not empty—it's filled with the whisper-soft sounds of growth itself: the barely audible unfurling of new leaves, the gentle drip of condensation, the quiet bubble and sigh of thermal springs. Sometimes, if you listen closely, there's a sound like distant breathing, as if the basin itself has lungs.
+
+The light that filters down through the canopy of leaves arrives already dimmed and green-tinged, creating a submarine atmosphere where shadows pool in unexpected places. Shafts of golden light occasionally pierce through gaps in the vegetation, illuminating columns of steam that rise from the hot springs like slow-dancing spirits.
+
+The springs themselves follow no human logic—some bubble actively while others remain mirror-still, their surfaces reflecting the verdant ceiling above. The water ranges from crystal clear to milky white with dissolved minerals, and each pool maintains its own precise temperature. Where the thermal water meets cooler air, delicate mineral formations grow with impossible speed—tiny terraces and flowstone cascades that seem to reshape themselves between one glance and the next.
+
+There's something unsettling in the perfection of it all, in the way every leaf seems positioned just so, every droplet of condensation following precisely the right path down smooth stone. The basin feels curated by some intelligence that understands beauty but not quite wildness—a place where nature has become more itself than it should be, lush beyond reason, humid beyond comfort, silent beyond explanation.
+
+The boundaries are absolute: walls of living green that rise just high enough to contain this pocket world completely, cutting it off from whatever lies beyond. Here, in this breathing chamber of stone and steam and impossible abundance, time moves like honey, and the very air seems to pulse with quiet, watching life.

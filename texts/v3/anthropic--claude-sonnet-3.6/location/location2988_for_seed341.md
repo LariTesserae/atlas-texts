@@ -1,0 +1,19 @@
+The first sensation is the sound - a constant, overwhelming roar that seems to come from everywhere at once. It's the sound of water meeting stone, but magnified and distorted by the cavern network until it becomes something else entirely - a living presence that fills the space with such density it feels like you could reach out and grab handfuls of it.
+
+This is a place in the process of becoming. Deep underground, a vast system of chambers and passages is being actively carved out by furious underground rivers. The water moves with unusual force and speed, as if driven by some deeper pressure. It doesn't flow so much as hurl itself through the space, smashing against half-formed rock walls with percussion that adds to the overwhelming soundscape.
+
+The chambers are massive - you could fit small villages in some of them - but they feel crowded, dense with activity and presence. This is partly due to the countless water-streams that crisscross through the space at all angles, defying normal gravitational behavior. Some surge up walls, others spray in horizontal jets between rock formations, creating a complex three-dimensional maze of liquid motion that forces any travelers to carefully plot their paths.
+
+The rock itself seems to be in an embryonic state. Rather than the smooth, worn surfaces of typical cave systems, these walls have a raw, unfinished quality. In places, the stone appears almost soft, like cooling lava or half-set clay. New formations emerge and collapse in real-time - stalactites grow visibly, columns form and dissolve, rock bridges span gaps and then crumble away.
+
+What little light exists comes from patches of pale, phosphorescent fungus that cling to the more stable surfaces. Their dim blue-green glow reveals glimpses of the chaos but never enough to fully comprehend the space. The fungi seem to respond to the sound vibrations, pulsing brighter when the water's roar hits certain frequencies.
+
+The vegetation is minimal - mostly those strange fungi and occasional patches of dark, rubbery-looking plants that seem to feed directly on the rock rather than requiring soil. They cluster especially around the few areas where the water runs warm, creating small oases of relative stability in the otherwise chaotic environment.
+
+Evidence of human presence is sparse but intriguing. Simple stone platforms have been constructed in some of the more sheltered alcoves, and crude bridges of lashed-together timber span some of the smaller water channels. These structures have a temporary feel - built with the knowledge they might need to be abandoned quickly as the cave system continues its rapid evolution.
+
+The few creatures that make their home here have adapted to the extreme conditions. Blind salamanders with oversized sensing organs navigate the water currents with uncanny precision. Colonies of what appear to be modified crayfish build strange geometric structures from rock particles, only to have them washed away and rebuilt elsewhere. Occasionally, something larger moves in the deeper shadows - but whether it's a natural creature or something born of this unusual environment is unclear.
+
+The air is cool and so heavy with moisture it's almost liquid itself. Water doesn't just fall or flow - it seems to exist in all states at once, creating a perpetual mist that flows and swirls in complex patterns, adding another layer of motion to the already dynamic space. The moisture makes every surface slick and uncertain, adding to the sense that nothing here is quite fixed or final.
+
+This is a place of perpetual becoming, an architectural process caught in mid-explosion and somehow sustained there. The overwhelming sound, the constant motion, the density of activity - it all creates a sense of being inside something huge and alive, witnessing the birth of a landscape that hasn't quite decided what it wants to be.

@@ -1,0 +1,19 @@
+In this place, the horizon is a concept but never a sight. The world is a low, sprawling basin of mineral ribs and porous basalt, settled into a permanent, cooling gloom. Light is a rare failure of the atmosphere; instead, there is only a thick, charcoal-colored dusk that smells of wet stone and musk.
+
+The terrain is a vast, eroded network of "pipes"—not made of metal, but formed by the slow, rhythmic dripping of mineral-rich condensation over eons. These limestone-like conduits, polished to a dull sheen, weave through one another in a dense, claustrophobic embroidery. They are like a city’s plumbing exposed and enlarged, filling the valley floor with a labyrinth of smooth, cold curves. There is no soil, no grass, no wood. If there is life that photosynthesizes, it exists far above the ceiling of this place, forgotten.
+
+The dampness is constant but subtle. It does not fall as rain; it arrives as a heavy, cooling mist that clings to the underside of the rock arches. Every few minutes, a bead of water heavy with dissolved salts lets go of a stone rib and falls, not to the ground, but into the waiting open mouth of a creature.
+
+For while the world is biologically barren of plants, it is choked with breath.
+
+The scale of life here is overwhelming. Every vertical inch of the mineral pipes is occupied. There are no hollows left unfilled. The fauna is a gelatinous, soft-bodied tide, a thrumming carpet of eyeless, many-limbed things that rely entirely on touch and vibration. They are stacked like shingles—pale, translucent organisms with the consistency of squid mantle, shivering in the cool air. They do not fight for territory; they have reached a density so total that they have become the territory. To move is to move across a living floor of undulating flesh.
+
+The sound is the true master of the geography. It is a physical weight. Because the inhabitants are blind, they communicate through a relentless, industrial-strength cacophony of clicks, thrums, and resonant whistles. The sound bounces off the eroded stone walls, amplifying until it reaches a deafening, vibrating roar that rattles the marrow of the bone. It is the sound of a million wet valves opening and closing, a million chitinous legs drumming on hollow stone, a million soft throats vibrating in a low-frequency hum that suggests the earth itself is purring. It is not a quiet nature; it is a screaming, frantic biological engine.
+
+The weirdness lies in the lack of predation in the traditional sense. In this dense, lightless valley, the organisms seem to function as a singular, panicked organ. They pass nutrients through skin-contact; they filter the thick, humid air through specialized gill-flaps that rhythmically open and close in a synchronized wave across the valley floor. 
+
+The atmosphere is active, driven by the heat of these millions of bodies fighting against the cool dampness of the stone. A low-lying fog of respiration hangs in the troughs between the mineral pipes, a biological smog that never clears. It smells of salt, ammonia, and old rain.
+
+There is no "up" here that matters. The elevation is low, a valley of sediment and stone where everything has eventually settled. The erosion is finished; the rocks have been smoothed into their final, comfortable shapes by the constant friction of soft bodies passing over them for ten thousand years. The stones are as polished as gemstones, worn down by the billion-fold tactile exploration of a world that can only see through its skin.
+
+In this place, you are never alone. You are a disturbance in a high-density sea of shivering, clicking life. The darkness is not empty; it is crowded. To stand still is to feel the air around you vibrate with the collective heartbeat of a valley that has forgotten the sun and replaced it with the deafening, damp pulse of the swarm.

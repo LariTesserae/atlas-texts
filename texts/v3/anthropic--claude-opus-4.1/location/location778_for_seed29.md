@@ -1,0 +1,13 @@
+**The Furnace Chamber**
+
+Deep within the planet's crust, a spherical cavity no larger than a cathedral nave throbs with mechanical life. The walls are raw basalt, still weeping from their recent formation—the stone hasn't had time to cool completely, and in places it runs like thick tar, reforming the chamber's geometry by imperceptible degrees. No water has ever touched this place; the air itself is bone-dry hydrogen and methane, pressurized until it behaves almost like a liquid.
+
+The darkness here is absolute save for the dull cherry glow of the flowing rock. Yet this pocket world teems with industry. Every cubic meter writhes with machinery—not built, but *grown*—crystalline engines that precipitated from the superheated gases like frost forming in reverse. They mesh together so tightly that distinguishing one mechanism from another becomes impossible. Gears of condensed carbon mesh with pistons of metallic hydrogen, all fused into a single vast machine that fills the chamber from wall to wall.
+
+Between the machinery, in spaces barely wide enough for a hand, creatures flow. They are not life as we know it—more like organized electricity given substance, plasma beings that feed on the temperature differential between the molten walls and the cooler mechanical core. Thousands of them, perhaps millions, threading through gaps measured in millimeters. They move languidly despite their numbers, processing through the mechanical maze in slow migrations that take hours to complete a single circuit.
+
+The sound is overwhelming—a deep industrial drone that penetrates bone, the grinding of mineral against mineral, the hiss of phase-change chemistry, the subsonic rumble of the planet's own geology. It builds and releases in waves that take twenty minutes to complete, like the breathing of something vast and patient.
+
+This place is being born, has been being born for perhaps a thousand years, will continue being born for a thousand more. The machinery precipitates, operates, and sublimes away in cycles measured in months. The creatures evolve through their electrical generations. The chamber itself expands by a finger's width each decade as the surrounding rock softens and retreats.
+
+There is no purpose here that we could recognize—only process, only the slow transformation of heat into order into heat again, playing out in a hidden womb of stone and impossible chemistry.

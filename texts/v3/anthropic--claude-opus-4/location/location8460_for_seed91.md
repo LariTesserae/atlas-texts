@@ -1,0 +1,21 @@
+The Breathing Chamber
+
+Deep beneath the surface, where the earth has hollowed itself into a vast pocket, lies a cavern that defies expectation. The space is cathedral-sized, perhaps two hundred feet across at its widest, with a ceiling that arches up into darkness punctured by countless small apertures. Through these natural skylights, concentrated beams of sunlight pierce downward like solid pillars, creating pools of intense brightness amid the general twilight.
+
+The heat here is oppressive, radiating from the stone walls themselves. The rock—a peculiar amalgamation of compressed salts and minerals—has taken on a crystalline quality over millennia, its surfaces worn smooth by the strange chemistry of this place. Instead of water erosion, the cavern has been shaped by cycles of thermal expansion and chemical sublimation, creating flowing forms that seem almost organic in their curves and hollows.
+
+What makes this place extraordinary is its vegetation. In complete defiance of conventional biology, a lush ecosystem thrives here without a drop of water. The plants have evolved to extract moisture directly from the superheated air, their leaves—if they can be called that—are thick, waxy structures that shimmer with an oily iridescence. They grow in scattered clusters around the light pools, their roots penetrating deep into the salt-rock to anchor themselves and extract minerals.
+
+The dominant species resembles enormous fungi crossed with succulents, their bulbous forms swelling to the size of small buildings. Their surfaces are covered in thousands of tiny pores that open and close in slow waves, breathing in the hot air and somehow metabolizing its components. When the light hits them at the right angle, you can see their translucent flesh pulsing with slow circulation—not of water, but of some viscous, oil-like fluid that serves the same purpose.
+
+Between these giant organisms, smaller plants carpet the cavern floor in patches. These low-growing species have leaves like scales or coins, overlapping in spiral patterns. They photosynthesize not through chlorophyll but through some other chemistry that gives them colors ranging from deep purple to burnished copper. When disturbed, they release clouds of microscopic spores that drift through the still air like smoke.
+
+The few structures here are ancient and minimal—carved directly into the living rock rather than built upon it. Simple alcoves and platforms suggest that someone, long ago, found ways to inhabit this space. The tools they left behind are primitive but clever: obsidian blades knapped from the volcanic glass found in the deeper passages, grinding stones for processing the oily seeds some plants produce, and curious containers carved from the hollow stems of the larger vegetation.
+
+Sound barely travels in this thick air. The silence is profound, broken only by the occasional crack of thermal expansion in the rock or the soft whisper of spore clouds settling. Even footfalls seem muffled, absorbed by the spongy plant matter underfoot.
+
+The ecosystem pulses with its own slow rhythm. The plants follow cycles tied not to day and night but to the thermal currents that rise and fall through the cavern. As the rocks heat and cool, the vegetation responds—pores opening wider, colors shifting subtly, new growth emerging from seemingly dormant stems. Small creatures—something between insects and crustaceans—emerge during the cooler periods to feed on the plant oils, their chitinous bodies adapted to conserve every molecule of moisture.
+
+The air itself seems alive with potential. In certain conditions, when the temperature gradients are just right, you can see the heat shimmer take on almost crystalline patterns, like the ghosts of the minerals that once filled this space before they sublimated away. It's a place that exists in a delicate balance, maintained by processes that took millions of years to establish and could be disrupted by the slightest change.
+
+This is not a dead place, despite its alien chemistry. It breathes, grows, and changes—just at a pace and in a manner utterly divorced from the water-based world above.

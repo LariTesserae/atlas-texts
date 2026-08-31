@@ -1,0 +1,19 @@
+The sun is a sullen brute, a white dwarf hanging low in a sky choked with ruddy dust. Heat shimmers off the obsidian plains, the black glass fractured into a million plates, each one catching a sickly gleam. This is the Scarred Lands, a place of broken cities and patient machines, a place of industry and absence.
+
+Water here is a memory, a phantom limb. The air holds a perpetual dampness, a ghost of rain that never truly falls. It condenses on the cold, shadowed undersides of structures, creating slick, oily sheens. You sometimes hear a slow, heavy drip, and the echoing splash is a lonely punctuation in the near-silence. 
+
+No plants grow here. Nothing *grows* here. The land is not old enough for that. Everything is built, or left over from the building, or on its way to becoming more of the same. The material that builds the Scarred Lands is a kind of glass, a volcanic substance that fractures and reforms with glacial slowness.
+
+The topography is an insult to nature. Mountains are not organic, but constructed. Great, jagged spires of black glass rise from the plains, sculpted into impossible angles, like the broken teeth of some colossal instrument of destruction. These are "Foundries", the last and central engines of the world. They are the heart of the landscape here, and they are hot, always hot. The air shimmers with the energy they hold. They spew vapor that condenses on the structures surrounding them, while occasionally, the glass itself flows in rivers of magma.
+
+The cities are a layered mess, built atop each other but also *within* each other. The old ones are half-buried, swallowed by the glass. Some stand out like teeth, their jagged peaks eroded by the slow, grinding processes of the Foundry's output. Newer structures are built of interlocking plates, a gridwork of obsidian and steel, connected by canals that carry the oily, damp condensation. The cities are built with an understanding of extreme temperatures: shade is prized, and everything is dark.
+
+The industry here is vast and archaic. The Foundries are powered by gigantic, grinding heat-engines that pull power from the sun and the Earth's core. They seem to do nothing but manufacture the raw material itself, the black glass. The production is constant, but the machinery is old, slow, and mostly silent. There are no explosions, no roaring, no obvious signs of frantic labor. 
+
+There are machines here, though. Mostly, they drift slowly through the air or crawl on the ground. Some are for maintenance, others for repair; and a surprising few seem to simply hold the world in place. They are all of a uniform, rusted steel, marked with the same angular geometry of the buildings. They make little noise, humming quietly.
+
+The fauna may be rare, but it is present. Sometimes, when the sun passes a certain angle, a large, dark shape moves against the horizon, though it is never clearly visible. It might be a beast of bone and metal, a relic of some forgotten era. Mostly, however, it is the humming of the machines that dominates the quiet — a constant, almost inaudible thrum that resonates deep in your bones.
+
+The light is the light of a perpetual twilight. The dusty atmosphere scatters the harsh solar rays, creating a diffuse, filtered glow. It is enough to see, but shadows are deep and secrets are kept in the darkness.
+
+This landscape is an industrial cathedral built in a time before life, and now holding a life that came too early. It is a slow place, defined by processes that take centuries, a land of forgotten purpose, a city of black glass, built for something that has already ended. It is waiting.

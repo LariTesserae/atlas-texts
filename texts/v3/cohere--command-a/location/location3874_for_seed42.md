@@ -1,0 +1,31 @@
+**The Submerged Grove of Echovale**  
+
+The world here is a cathedral of water and living wood, a place where the ocean has risen to claim a forgotten city, its streets now channels of current and its spires skeletal fingers reaching toward a dim, greenish light. The water is cool and clear, filtered by layers of vegetation that cling to every surface—a city rewilded, its stone and mortar veins now pulsing with the slow, deliberate rhythm of growth. This is Echovale, a submerged grove suspended in time, where the past and present intertwine like kelp around a sunken archway.  
+
+The terrain is a mosaic of reclaimed architecture and lush, water-adapted flora. Massive trees with bark like submerged armor rise from the foundations of ancient buildings, their roots intertwining with crumbling bricks and cracked roadways. Canopies of broad, translucent leaves form a ceiling just below the surface, diffusing the light into a soft, emerald glow. The water here is still, but not silent—it carries the hum of life, a symphony of clicks, gurgles, and the occasional resonant thrum of a bio-luminescent fish darting through the fronds.  
+
+Vegetation dominates the space, a totalizing presence that feels both alien and familiar. Vines curl around rusted lampposts, their tendrils tipped with tiny, bioluminescent blooms that pulse in time with the faint currents. Ferns unfurl from cracked windows, their fronds so dense they form living walls, their surfaces patterned with the faint impressions of old graffiti. Even the air—or what passes for air in this liquid world—is thick with the scent of wet earth and blooming algae, a scent that clings to the tongue like a memory.  
+
+Elevation is marked by the remnants of the city’s skyline: a jagged, half-collapsed tower here, a spiral staircase there, now encrusted with coral and colonized by clusters of filter-feeding sponges. The highest points are the crowns of the ancient trees, their branches piercing the surface where they form floating islands of moss and lichens, tiny ecosystems unto themselves. These surfaces are rarely seen, as the water line is a distant ceiling, a shimmering barrier between this world and the one above.  
+
+Erosion has softened the edges of the built environment, rounding corners and blurring the line between human and natural. Stone blocks have been worn smooth, their edges nibbled away by centuries of water and the industrious work of microscopic fauna. The balance here is delicate but enduring—a testament to the slow, patient processes that shape this place.  
+
+Scale is intimate, as if the entire grove could fit within the walls of a grand cathedral. The boundaries are clear: a sunken plaza here, a flooded courtyard there, each space defined by the remnants of its former purpose. Yet the sparseness of the layout—the scattered spires, the wide avenues now choked with seaweed—gives the impression of vastness, a sense of being small in a world that has outgrown its makers.  
+
+Density is a paradox. The space feels full—the air thick with life, the water teeming with movement—yet there is room to breathe, to drift. Schools of silver fish part like curtains, and the occasional turtle glides past with the grace of a spirit. The emptiness between presences is intentional, a pause in the music, a moment for reflection.  
+
+The built environment is urban in its organization but wild in its execution. Streets are now canals, their cobblestones overgrown but still hinting at the grid of a once-thriving metropolis. Archways frame views of forests, and balconies have become perches for jellyfish-like creatures that pulse with iridescent light. The infrastructure is layered, a palimpsest of human ambition and natural reclamation.  
+
+Technology here is primitive, vestigial. Tools lie scattered like relics—a rusted hammer wedged in a tree root, a shard of pottery half-buried in the silt. The inhabitants, if they can be called that, are simple creatures: bioluminescent shrimp that clean the algae from stone carvings, schools of fish that nibble at the edges of wooden beams. The only "craft" is the relentless work of nature, shaping and reshaping this place in its image.  
+
+Light is normal but otherworldly, filtered through layers of water and vegetation. It casts long, undulating shadows that dance with the movement of the currents. Bioluminescence supplements the gloom, painting the undersides of leaves and the faces of statues in shades of blue and green.  
+
+Fauna is abundant, a cacophony of life that fills the grove with sound and motion. Crabs scuttle across the forest floor, their shells clicking like castanets. Schools of fish dart in unison, their movements synchronized as if choreographed. Above, in the floating islands, birds occasionally dive into the water, their wings beating the surface in a splash of sound.  
+
+Weirdness lurks in the details: a statue whose face has been colonized by a species of mushroom that glows faintly, its eyes now twin orbs of light; a tree whose roots seem to shift imperceptibly when no one is looking; a fish with a human-like hand for a fin, a mutation that defies explanation. Yet these strangenesses feel natural, as if they’ve always been a part of the grove’s fabric.  
+
+Sound is loud, a choral composition of the submerged world. The rush of water through narrow channels, the snap of wooden beams settling further into the silt, the chirps and whistles of aquatic creatures—it all blends into a symphony that never pauses. Yet there is rhythm here, a pulse that matches the slow heartbeat of the grove itself.  
+
+The dynamic is glacial, change measured in decades rather than days. The grove is in a state of perpetual becoming, but its transformations are so gradual as to be imperceptible. A new shoot unfurls. A stone shifts. A fish is born. Time here is not linear but circular, a patient spiral that has no beginning or end.  
+
+Echovale is a place out of balance, yet utterly itself—a city that drowned but refused to die, a forest that rose to meet the water, a world where the past and future are indistinguishable. It is a monument to resilience, a hymn to the slow, relentless power of life.

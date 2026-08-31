@@ -1,0 +1,45 @@
+# The Spire Hives
+
+You enter through a crack—a fissure no wider than your shoulder—and emerge into a space that shouldn't exist at this altitude. The air is thin and cool, almost crisp, carrying a mineral taste. Your breath doesn't mist much, but what vapor does form catches what little light filters down from above, tracing the shaft of space above you like a script you can't quite read.
+
+The crack widens as you descend, and the walls reveal themselves: stacked plates of something between stone and shell, warped at angles that suggest they were fused while moving. The material is pale gray with veins of darker mineral running through—not quite metal, not quite rock, but something that catches your eye when it catches the light. It's warm to the touch. Always warm, even though the ambient temperature hovers just above cold.
+
+What you're standing in is not natural stone. Not entirely.
+
+The space opens into a chamber perhaps thirty meters across—*a chamber*, though it's hard to call it that because the walls don't stay still. At first you think it's an optical illusion, a trick of the dim light, but your eyes adjust and you see: the walls are textured with thousands of small protrusions, each one the size of a fist or smaller. They're organic in appearance but rigid—chitinous, perhaps, or ceramic. They catch the light in a way that makes the wall seem to pulse, to breathe, though the movement is surely just your perception struggling with so much detail in low light.
+
+It's not breathing. But parts of it are.
+
+Movement catches your attention: small creatures dart through the chamber—pale, nearly translucent, no larger than your hand. They move too quickly for you to count them, but there are *many*, hundreds perhaps, or thousands. They cling to the textured walls, probe at joints in the pale plates, occasionally vanish into apertures you hadn't noticed. They make almost no sound. Sometimes you hear a faint chittering, almost subsonic, that you feel more in your sternum than hear with your ears.
+
+The creatures aren't parasitic, you realize. They're integral. The wall-texture moves because they move. They're not crawling *on* the structure—they *are* the structure's expression. Movement. Maintenance. Thought, maybe.
+
+The chamber isn't empty of construction. Scaffolding—if you can call it that—rises in irregular columns from the floor. It's made of the same pale material as the walls, and it's clearly been built or grown recently. The edges are sharp. No weathering. There are seams where sheets of material have been fitted together with precision, though not symmetry. The arrangement is almost organic: curves and angles that respond to some logic you don't immediately grasp. Some kind of stress distribution, maybe. Or flow.
+
+The floor itself is a patchwork: sections of polished mineral that look almost glassy alternate with areas of the same porous, chitinous material that covers the walls. The textured sections hum—a low, almost subliminal vibration that you feel in your bones. It's not constant. It rises and falls in cycles of roughly ten seconds. Your heart wants to sync with it and you have to consciously resist.
+
+Deeper in the chamber, the construction intensifies. Layers of the pale plates interlock at increasingly acute angles, creating a complexity that your eye can't quite parse. It's almost architectural—almost like a room within a room—but also clearly *growing*, or *becoming*. Fresh edges catch the light. You can see where material has been added, where the structure is expanding or reinforcing itself. There are no tools visible. The creatures do this work, or the structure does it through them, or there's no meaningful distinction between those two things.
+
+The light that fills the space comes from above and nowhere else. There's a shaft, the one you descended through, and its opening seems impossibly far away—maybe a hundred meters up. But there are other openings too: small holes scattered across the chamber, each one glowing faintly with a light that isn't quite white. It's cold light, the kind that comes from phosphorescence or bioluminescence or something stranger. The glow is steady but not uniform. Sometimes it brightens; sometimes it dims. The creatures seem to control this—you watch as they cluster around certain apertures, and the light there intensifies, then fades when they move away.
+
+The sound environment is strange. You'd expect echoes in a space this size, but there are almost none. The walls absorb sound, or the air is too thin, or something about the material's texture kills reverberation. The chittering of the creatures is the loudest thing, and it's barely above a whisper. The humming from the floor is more felt than heard. Occasionally there's a faint cracking sound—material settling, or material being placed—but it's distant and brief. The cool air moves, and you can hear that: a slight whisper, almost like breathing, almost like the space itself is respiring.
+
+The fauna—the creatures—are everywhere you look, but never where you're looking directly. Peripheral motion is constant. They're pale, almost white, with segmented bodies and too many limbs. Their eyes are clusters of simple eyes, reflective, catching and throwing back the faint light. They don't appear aggressive. They seem curious about you in the way that simple organisms can be curious—drawn to you, investigating, then moving on. Some cling to the walls and seem to work. Others move through the space with purposeful speed, traveling along invisible routes. A few have stopped, and they're making sounds—faint chirps or clicks—in patterns that almost seem communicative.
+
+The temperature is a surprise. The cool air above has warmed slightly as you've descended. It's not warm, but it's no longer crisp. It's almost womb-like. There's humidity too, though there's no water here—no free water anyway. The moisture might be coming from the creatures themselves, or from condensation on the warm materials, or from something in the air that shouldn't be there.
+
+The elevation is dizzying. You climbed, in a sense, to reach this place—this high-altitude chamber that sits in a mountain's bones, in a space that the mountain itself seems to be hollowing out, or that something inside the mountain is hollowing out for reasons unknown. There are chambers above and chambers below; you can sense it. The shaft you entered through continues downward, visible in cross-section where the pale material has been cut away, revealing descending levels. The whole structure seems to be a vertical city, or a vertical organism, stacked one layer upon another. You're not at the highest point, and you're certainly not at the lowest. You're somewhere in the middle of something vast.
+
+And the whole thing is changing.
+
+You watch—it takes several minutes for this to become apparent—but the structure is *reorganizing*. Sections that were flat are being angled. Areas of the dense, textured wall are being smoothed or roughened. Materials are being moved. The creatures swarm, and the work happens. It's not frantic. It's deliberate. But it's constant, and it's fast. In the time you've been standing still, entire sections of the chamber have been visibly reconfigured. It's like watching the inside of an anthill during renovation—purposeful chaos, controlled instability, a system that is never at rest because rest would mean death, or stagnation, or the failure of whatever function this chamber serves.
+
+You try to imagine the purpose. Mining? Refinement? The creatures process the pale material somehow—breaking it down, reshaping it, reinforcing the structure. Energy flows through this space; you're certain of it. Not electrical energy, or not exactly. Something more fundamental. The hum from the floor, the pulsing of the walls, the behavior of the creatures—it all suggests a circuit, a system, something that moves resources and intention from one level to another.
+
+The dimness makes it hard to see far. Your vision fades into the deeper parts of the chamber, into the complex interlocking structures, into regions where the scaffolding becomes so dense that it's more solid than empty. You might be looking at a hundred meters, or fifty, or a thousand—the perspective tricks you. The pale material recedes into shadow and haze.
+
+And everywhere, the quiet sounds: the whisper of air, the subsonic hum of the floor, the faint chirping of the creatures, the almost-inaudible cracking and clicking of material being fitted and refitted.
+
+It's a place of manufacture, but also of nature. A constructed world, but one that follows rules you don't understand. Cool and dense and dim and far too busy to sleep. Every surface occupied. Every moment full of work. A hidden world, nested inside stone, at an impossible height, where nothing grows but everything changes.
+
+You've entered the spire hive. You're not sure if you should be afraid.

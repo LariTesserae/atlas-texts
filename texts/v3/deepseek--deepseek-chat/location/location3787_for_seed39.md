@@ -1,0 +1,13 @@
+**The Weeping Peaks of Vaelmoor**  
+
+The land is a wound half-scabbed over, a place where the earth is still raw and trembling. High in the thin, cold air, the mountains rise like broken teeth, their jagged edges softened only slightly by time. The rock weeps—not with streams or rivers, but with a slow, persistent dampness, moisture seeping from unseen pores in the stone, gathering in shallow pools that never quite freeze but never warm enough to ripple. The air is thick with condensation, a perpetual mist that clings to the slopes like breath held too long.  
+
+This is a land caught between creation and decay. The mountains are young, their slopes still sharp, their valleys not yet carved deep by rivers. Erosion has only just begun its work, leaving the stone exposed, unweathered, as if the world here is still deciding what shape it will take. There are no trees, only sparse clusters of hardy lichen and moss, clinging to the damp rock like afterthoughts. The vegetation is thin, scattered—a few patches of wiry grass, a stubborn shrub here and there, nothing that would dare call itself a forest.  
+
+The silence is vast but not absolute. The wind hisses through the crags, and sometimes, from somewhere unseen, comes the distant groan of machinery. Factories, perhaps, or mines—some industrial presence humming far below, a reminder that even here, in this half-formed place, the world has been touched by industry. But no roads lead here, no structures break the horizon. The land is empty of human hands, though not untouched.  
+
+Life thrives in the cracks. Birds nest in the cliffs, their calls sharp and fleeting in the mist. Small, quick things scurry between the rocks—rodents, perhaps, or something stranger, adapted to the cold and the damp. Predators move among them, silent and efficient. The ecosystem is still finding its balance, species shifting, adapting, dying out, surging back.  
+
+The light is dim, filtered through the ever-present haze, casting the landscape in muted grays and blues. Shadows are soft, edges blurred. At times, the mist thickens into fog, swallowing whole swaths of the mountains, leaving only the nearest rocks visible, slick with moisture. The air smells of wet stone and something faintly metallic, like distant lightning or the echo of a forge.  
+
+This is a place in flux, a world still deciding what it will be. The water is everywhere and nowhere, the land neither fully alive nor fully barren. The machinery hums unseen, a ghost in the rock. And the mountains weep, slow and patient, as if they know something the rest of the world has yet to learn.

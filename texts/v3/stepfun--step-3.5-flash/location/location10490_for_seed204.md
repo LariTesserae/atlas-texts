@@ -1,0 +1,37 @@
+# The Sharded Mesa
+
+**Terrain & Materials:**  
+You are not in a valley or on a mountain slope, but inside a wound in the world—a canyon so narrow and vertical it feels more like a fissure than a geographical feature. The walls are raw, black volcanic glass (obsidian) still sharp with youth, fractured into hexagonal plates that interlock like the scales of a dormant leviathan. Between these plates, a constant seep of water emerges: not from streams, but from the rock itself, weeping in silver threads that converge into slow, cold rivulets tracing down the walls. The floor is not sand or soil, but a hardened crust of mineral salts and sintered silica, pale and cracked, reflecting the light like a shattered mirror. The air is thick with the smell of wet stone and cold ozone.
+
+**Elevation & Scale:**  
+The scale is deceptive. The walls tower three hundred meters overhead, yet the entire system—the canyon, its water, its structures—is contained within a space no wider than a city block. You could throw a stone from one side to the other. This is not a canyon that stretches for miles; it is a **pocket canyon**, a geological oddity perhaps formed by a focused geothermal plume or a relic of some ancient, precise impact. The height gives a qualifiable grandeur, but the confinement makes it intimate, a hidden room carved by earth and water.
+
+**Atmosphere & Light:**  
+Light is “normal”—meaning, it comes from a steady, sun-like artificial source mounted high in the fissure’s mouth above, simulating a perpetual late afternoon. It casts long, sharp shadows from the glass plates, and makes the seeping water gleam like liquid mercury. The atmosphere is moist and cold (temperature 0.2/3), and condensation beads constantly on every surface, dripping with a soft, irregular *tink… tink…* that is the dominant sound in an otherwise quiet place (sound 0.6/3). There is no wind; the air is still, heavy with mineral vapor.
+
+**Ecology & Fauna:**  
+Vegetation is 0.1/3—there is none. No moss, no lichen, no algae. The rock is bare, sterile. Yet, the water is not lifeless. In the slow, cold puddles and films of moisture, there are faint, pulsing geometries—**silicate-based colonial organisms** that look like灰色 lace or branching frost. They are not plants, fungi, or animals as known; they are slow chemical patterns, self-organizing in the mineral-rich water, blooming and dissolving with the daily condensation cycle. Fauna is rare (0.6/3): perhaps a few eyeless, chitinous skitterers in the deepest, wettest cracks, feeding on the silicate patterns, but they are seldom seen. The ecosystem is minimal, a whisper of complexity in a mineral world.
+
+**Built Environment & Technology:**  
+This is where the contradiction of “urban” and “high-tech” resolves into architecture that is part of the geology. The “settlement” is not built *in* the canyon; it *is* the canyon’s modification. The obsidian plates have been selectively **seeded with nanite swarms** that slowly reshape them. Where plates have been worked, they now form smooth, curved surfaces, arches, galleries, and balconies—all grown from the rock itself, as if the canyon learned to build. Buildings are not separate; they are sections of wall that have been refined, hollowed, annealed. Bridges are grown, not hung: strands of glass-fiber composite, strong as diamond, spun between plates by directed energy. There is no “city” of distinct structures—it is a **single, layered organism of stone and machine**, a vertical warren of habitation and utility that uses the canyon’s height and containment to its advantage. The technology (2.7/3) is subtle: you see the results—perfectly smooth transitions, rooms that breath warm air by drawing geothermal heat from deep below, water that is purified and cycled by invisible membranes—but the mechanisms are embedded, silent, and self-repairing. Light fixtures are mere variations in the stone’s phosphorescent inclusions.
+
+**Dynamics & Processes:**  
+The place is **active** (dynamic 2.4/3), but its activity is geological and engineered, not biological. Every hour, a low hum vibrates through the stone—the nanite swarms at work, slowly re-k Interlocking the sharp edges of the plates, preventing collapses, grooming the water channels. Twice a “day,” the artificial light dims slightly, and the condensation cycle intensifies, as if the canyon is breathing out. The water flow changes: some rivulets vanish (siphoned for use), others appear (new fissles opened). Erosion is young (1.1/3)—the features are sharp, the glass plates still pristine in their fractures, but the human (or post-human) intervention is a new, faster layer of change. There is no weather, but there is **process**: the slow, persistent work of making a sterile, vertical wound into a home.
+
+**Density & Spacing:**  
+Despite the “urban” built rating, the place feels **sparse** (density 1.2/3). There are no crowds. The habitation levels are small, alcoves and chambers carved into the walls, separated by hundreds of meters of raw, worked, or untouched cliff. You might see a single figure in a heat-reflective suit far above, traversing a glass bridge, a tiny mote against the black. The density is in the *layering* of function—water channels, power conduits,居住层, all stacked vertically within the same vertical meter—not in population. The emptiness between presences is profound; the canyon’s silence amplifies the distant sound of a grinding plate being adjusted.
+
+**Soundscape:**  
+Mostly quiet, but with a palette of precise, dry sounds: the *tink* of water droplets, the sub-audible hum of nanite activity, the very occasional *scritch* of mineral on mineral as a plate settles minutely. Your own footfalls on the salt crust are crisp and loud. There is no birdsong, no insect buzz, no rustle. The silence is not empty; it is *curated*, a medium in which the small mechanical noises stand out like notes.
+
+**Rules of the World:**  
+1. **Stone is mutable** given time and the right nano-seed.  
+2. **Water is sacred and scarce**, all of it recycled, none wasted.  
+3. **Height is security**—the only direction to expand is up, into the plates.  
+4. **Exposure is death**—the canyon mouth is the only place the “sky” is visible, and it is heavily fortified/regulated.  
+5. **Life is optional**—the inhabitants have largely abandoned biology for mechanical symbiosis; their bodies are likely augmented or housed in suits.  
+6. **Time is slow and fast**—geological time for the rock, nanosecond time for the machines that tend it.  
+7. **The outside is irrelevant**—this pocket canyon may be on a dead moon, a subterranean bubble on a frozen world, or a preserved fragment of a destroyed planet. No one speaks of it.
+
+**Emergent Sensation:**  
+You feel claustrophobic from the narrowness, yet awed by the height. You feel the cold in your bones, but see warm light glowing from honeycomb vents in the rock. You see evidence of immense intelligence and effort, but no sign of the beings who made it—only their tools, their scars on the stone, their silent, perfect city grown in a crack. It is a place that feels both **pre-biotic and post-biological**—a machine for living, built in a world that never grew a tree. The wetness is constant, cold, and utterly without comfort. The built environment is breathtaking, seamless, and utterly indifferent to your presence. You are a temporary ghost in a city that will outlast the stars, grown from a wound in a dead rock, drinking its own tears.

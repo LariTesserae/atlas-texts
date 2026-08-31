@@ -1,0 +1,15 @@
+The cavern unfolds in terraces, each level a crescent of dark soil thick with pale growth. What first appears as frost or fungus resolves into fields of translucent plants - their flesh nearly clear, their internal structures visible as delicate traceries. They carpet the ground in patches of waist-high stalks and fronds, drinking the constant mist that rolls down from somewhere above.
+
+The space is vast but compartmentalized, divided by sweeping walls of striated rock that curve like frozen waves. Between these natural partitions, the terraces step down into darkness, though the light remains steady - it radiates softly from colonies of bioluminescent organisms clinging to the higher reaches, their blue-white glow diffused by the perpetual fog.
+
+Water is more sound than substance here - the quiet music of drops falling from upper levels, the occasional rush of hidden streams beneath the soil. The moisture maintains the ecosystem but never quite accumulates, always moving, always seeking lower ground through invisible channels.
+
+The clear plants share space with more substantial vegetation - thick-stemmed bushes with leaves like black glass, tree-like growths that branch in perfect fractals. All seem to have adapted to the dim conditions by becoming either transparent or deeply light-absorbent, creating a landscape of extremes: crystal and shadow.
+
+The air moves in slow currents, carrying a chill that seems more chemical than natural. Occasionally these currents bring waves of spores or seeds drifting through the mist like underwater snow. The planted terraces appear cultivated, but not by any visible hand - rather, the growth patterns suggest organization by some internal logic of the ecosystem itself.
+
+Animals move through this space with surprising frequency - translucent insects that match the plants, finger-length amphibians that leave faint trails of bioluminescence, colonies of something like birds but blind and silent, nesting in the rock walls. Their movements create subtle disturbances in the mist, like ripples in an upside-down pond.
+
+There are structures, of a sort - but they seem grown rather than built. Hollow formations of mineral and plant matter combined, forming chambers and passages that could shelter inhabitants but show no sign of tool marks or deliberate construction. They emerge from the terrace walls like natural extensions of the rock, their purposes unclear but their forms too regular to be entirely accidental.
+
+The whole space feels like a garden that has forgotten its gardener - or perhaps evolved beyond the need for one. It maintains its own patterns, its own cycles of growth and decay, its own mysterious equilibrium in this underground world where the boundaries between living and mineral, natural and artificial, have grown beautifully unclear.

@@ -1,0 +1,7 @@
+This small, densely-packed, artificial terrestrial biome is dominated by massive, slowly-colliding, corroded steel bubbles, riveted together with a black, non-reflective surface coating. Striations scratched into the surface allow opening to add inert, yellow, particulate sand or empty organics-inert videoliquid. Every bubble is 3 meters in diameter and contains 0.25 cubic meters of poison gas produced by some old factory process. There is an atmosphere in here, but you need a gas mask to breathe.
+
+A loud, high-pitched whine of machinery accompanies a low rumbling, and in the distance, a hiss of decompression. The space is dimly lit, with only faint, flickering luminescence emanating from cracks in the walls, and the entire environment is alive with the sounds of creaking and groaning metal, bubbling noxious gases and an eerie screeching ode to long-disorientation of the machine's halting life. It is horribly hot in here.
+
+There are no plants, no animals — none can survive the extreme conditions. Nothing has been built here. At any given time, only one bubble is spurting out steady, medium-pressure jets of certified live blast mixture. After a slow, long day, a new bubble vents. 
+
+This world is precise and exact, as though engineered or programmed to be so. The cycles are long enough to wait through standing in one spot at any altitude. The sharp metal is slowly building up under your feet as the as-yet unopened, underside bubbles are filling in your living position with clean sand.

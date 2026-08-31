@@ -1,0 +1,23 @@
+# The Condenser Loft
+
+High in the mountains, bolted into the lee face of a peak whose name has been forgotten by everyone except the men who maintain it, there is a room. You reach it by a riveted catwalk that emerges from a tunnel mouth and bends around a buttress of cold iron. The catwalk is wet. Everything here is wet.
+
+The room is not large. Perhaps fifteen paces by ten. It was built for a purpose and the purpose still runs.
+
+The ceiling is a forest of copper pipework, blackened where the solder pooled, green where the condensate has been weeping for decades. The pipes are not arranged for beauty but they have, over time, become beautiful in the way that any honest mechanism does: bent around obstacles, patched, re-patched, labelled with stencils that have half-flaked away. From every joint a slow bead of water gathers, hangs, and falls. The floor is a grated steel mezzanine and beneath it you can hear the water finding the cisterns three storeys down, a thin continuous ringing fall through the dark.
+
+The walls are riveted plate. Behind them, on the outside, the mountain's own moisture wicks through the seams and runs down the inner face in slow vertical scripts of rust. The plate is new — you can tell by the brightness of the bolt heads, the sharpness of the burrs where the holes were drilled, the lack of any softening. This whole installation is recent. The peak itself feels recent: through a small thick-glass porthole at the room's far end, you can see, when the steam clears, a slope of raw scree, no lichen on it yet, no soil at all, the gravel still angular as if the mountain had been delivered yesterday.
+
+What grows here grows on the machine. A few clumps of pale moss have taken up residence in the corners where condensate pools — a sparse green that should not be possible inside an industrial chamber but is, because the chamber is essentially a permanent fog. A single fern, brought in by someone in a tin can perhaps, has set itself by the western drip-tray and made a go of it. That is the entire flora. No animals. No flies, even — the air is too saturated, the pressure differentials too violent.
+
+Because the sound. The sound is the thing.
+
+Three great reciprocating compressors run along the inboard wall, and they do not run quietly. Each piston-stroke is a hammer-blow you feel in the bones of your skull, and the three are slightly out of phase, so the blows interleave into a continuous concussive triplet that fills the room the way water fills a bottle — completely, with no remainder. Layered over this, the steam release valves cycle on a four-minute schedule and when they open the room becomes a single white shriek, and you cannot think, you can only stand inside the shriek and wait for it to end. Pipes knock. Relief valves chatter. Somewhere a governor whines up and down through its band. The deafness is not partial; it is the room's defining substance, the medium through which everything else is perceived.
+
+And yet the room is dim. Two caged sodium lamps, one over each doorway, throw a thick yellow that does not so much illuminate as stain. The steam swallows their light at three paces. You move through this room by memory and handrail.
+
+The room is active in the way a heart is active. Every few minutes a cycle completes: a valve thuds over, a pressure gauge swings hard and settles, a fresh wave of mist rolls down from the ceiling pipework and the floor's drip-tone changes register. Twice an hour a larger cycle: the main condenser dumps its load and the whole grated floor sings with a sudden roar of water finding the lower cisterns, and the temperature in the room drops by two degrees, and you can see your breath join the steam for a few minutes before the equilibrium reasserts itself. Once a shift, the great compressors stagger themselves into a maintenance idle and the room becomes, briefly, only loud rather than deafening, and in that interval the men come through with oilcans and rags.
+
+What is being made here? Water, probably. The installation pulls moisture from the high cold air and the weeping rock and concentrates it, pumps it down through the mountain to whatever settlement or industry waits below. Or perhaps the water is incidental and something else is being distilled — a gas, a salt, an essence of altitude. The pipes do not say. The stencils have flaked. The men who know are elsewhere.
+
+What matters is this: a small wet roaring room, bolted to a young mountain, full of machine and almost empty of life, dim and cold and shaking itself apart and being rebuilt by the same hands every week, a single fern by the drip-tray, and the long fall of water through the dark beneath the grate.

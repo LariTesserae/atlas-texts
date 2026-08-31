@@ -1,0 +1,17 @@
+The weight of the water is the first thing you notice—not crushing, but insistent. It is a heavy, silvery medium, cool and dense, filling the entirety of the known universe. This is not the open ocean; there are no distant horizons, no crushing abyssal plains stretching into infinity. The scale here is intimate, almost claustrophobic, like being inside a sealed jar or a single, suspended droplet of rain that has forgotten how to fall.
+
+The light is normal—startlingly so. It permeates the fluid evenly, casting no shadows, suggesting that the illumination comes from the water itself or perhaps is a property of the pressure. It is a laboratory-white afternoon, trapped eternally underwater.
+
+You are suspended in a low, enclosed basin. The "ground" is merely a dense accumulation of structures rising from the bottom, sharp and fresh. The terrain is young, geologically infantile. There are no rounded stones, no silt smoothed over millennia. Everything here looks as if it was broken yesterday. The edges are jagged, the fractures clean, the crystal faces of the rock catching the white light in hard, geometric flares.
+
+The "urban" aspect of this place is strange. There is no life here—no fish dart through the towers, no crabs crawl on the ledges. It is a city built for processes, not people. It is a settlement of towers and spires, packed so densely that there is barely enough width for a hand to pass between them. It is a vertical shantytown of glass, ceramic, and hyper-woven alloys, all growing from the floor.
+
+Because the scale is hidden, the city feels massive, yet you sense the curvature of the walls nearby. If you were to swim up, you would hit the "ceiling"—a membrane of tension that holds the water in. But within this pocket, the towers climb forever, or at least high enough to lose themselves in the brighter currents above.
+
+The technology is beyond modern; it ignores the usual friction of physics. The buildings are not static; they are in a state of perpetual, furious construction. This is the dynamic heart of the place. The water roars with the sound of industry—a constant, loud, rhythmic thrumming that vibrates in your teeth. It is the sound of molecules being unzipped and re-zipped.
+
+Dense clouds of nanoscopic particulates swirl through the water, thick enough to obscure the view of a building's base just a few yards away. These are not merely pollutants; they are the architects. In the bright, cool suspension, you can see the "vegetation"—sparse, alien growths that are neither plant nor animal. They are metallic lattices, sharp and branching, erupting from the sides of the towers like frozen lightning. They absorb the hum of the water and convert it into the sharp, fresh edges of the young stone.
+
+The silence of life is total. There is no splash, no vocalization, no heartbeat. The only movement is the mechanical metabolism of the city itself. Towers shift imperceptibly, grinding against one another in the packed density. New spires extrude from the seabed, shoving older structures aside with tectonic slowness but volcanic violence.
+
+It is a room of violent creation. The erosion is reversed here; rather than wearing down, the world is building up, sharp edge upon sharp edge, packed tighter and tighter, submerged in a cool, loud, glowing rush of fluid that refuses to let anything rest. It is a pocket of intense, luminous entropy, a factory ecosystem operating at the bottom of a bottle of light.

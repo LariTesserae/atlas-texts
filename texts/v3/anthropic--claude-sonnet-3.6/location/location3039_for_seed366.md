@@ -1,0 +1,15 @@
+High in a young mountain range, there's a peculiar valley that seems to have been scooped out of the rock like a serving of ice cream. The walls are nearly vertical, striated with bands of copper-stained limestone that catch the constant sunlight and gleam like circuit boards. The valley floor is perhaps the size of two football fields laid end to end, scattered with geometric blocks that might be buildings, might be natural formations - it's hard to tell at first glance.
+
+The air is stifling, trapped in this bowl of stone. What little moisture exists comes from an impossibly straight channel cut into one wall, where water seeps in a perfectly steady trickle, never varying its flow. The water disappears into precisely spaced holes in the valley floor, each rimmed with what looks like worked metal but might be some mineral formation.
+
+The most striking feature is the insects. They're everywhere, but they make almost no sound - massive iridescent creatures that drift through the hot air like living gemstones. Some have wingspans wider than a human's outstretched arms, their wings so transparent they're almost invisible except for geometric patterns that seem to glow from within. They move with unsettling precision, following invisible paths through the air, never colliding.
+
+The "buildings" reveal themselves to be nests or hives, their surfaces covered in hexagonal cells of various sizes. Some are small enough for a finger to fit inside, others large enough to crawl into. The material looks like clay but feels like metal to the touch, warm from the sun and slightly magnetic. There's evidence of tool use - edges too straight to be natural, regular patterns of holes and channels - but nothing that could have been made with conventional human tools.
+
+The insects appear to be maintaining these structures, but their actions are so slow and precise they're almost imperceptible. They carry tiny loads of building material in their mandibles, adding to the structures molecule by molecule. Over decades or centuries, they're either building something or following some ancient program of maintenance - it's impossible to tell which.
+
+The whole valley has the feeling of a vast machine that's been running unattended for millennia, or perhaps a laboratory abandoned by some unknown researchers. The insects might be the experiment, or they might be the researchers themselves, transformed by time and adaptation into something unrecognizable.
+
+The silence is profound, broken only by the soft whisper of giant wings and the steady drip of water. Even the wind seems to avoid this place, as if the valley exists in its own pocket of space where normal natural laws have been suspended in favor of some other organizing principle.
+
+At sunset, the insects emit a faint phosphorescence, turning the valley into a three-dimensional constellation of moving lights. The pattern of their movement becomes more apparent then - they're describing complex geometric shapes in the air, perhaps communicating, perhaps calculating, perhaps simply following the last commands of whatever intelligence designed this place.

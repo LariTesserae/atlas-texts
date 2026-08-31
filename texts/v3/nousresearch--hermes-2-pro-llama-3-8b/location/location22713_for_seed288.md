@@ -1,0 +1,13 @@
+Deep below the earth's surface, the landscape is a stunning, barely illuminated world. A cool, dim light barely flickers through the cracks of ancient rock formations, casting eerie long shadows over the lush, sparse vegetation that clings tenaciously to the life-giving mineral deposits in this silent, densely populated underworld.
+
+This is the Great Hollow, a region created by time and geological activity, shaped over eons by erosion and natural processes. The hollow stretches past the immediate, extending into vast chambers and labyrinthine tunnels, connecting to an intricate system of caverns, catacombs, and subterranean mesas.
+
+Much space is left open in this world, the darkness punctuated by islands of plant life and occasional mineral outcroppings which jut from the aged walls. The Hollow is teeming with life; ancient, adapted creatures find their niche in this strange ecosystem where adaptation has been the key to survival.
+
+In this world, there are no tools, no technology–only nature prevails. Close to the Roots, the minds of these beings are steeped in ancient wisdom, their senses keener, their instincts stronger than their remote, dim-witted kin dwelling above. In the world of Great Hollow, technology was never even conceived. The only sound is the soft rustling of vegetation, the whispering of air currents, and rarely, the drip of water–a precious resource in this landscape.
+
+The Hollow is deafening in its silence. The ancient rock and soil absorb sound, muffle voices, and snuff out every sound except the resonant murmur which emanates through the earth's crust, emanating from the heart of the crust. As such, every being in the great Hollow perceives only the softest vibrations, feeling rather than hearing the world around them.
+
+Here, time is slow. Though changes do occur, they are gradual and measured–cycles of life and death, the rise and fall of countless ecosystems over vast durations. Dynamic fluctuations are minimal and barely perceptible, punctuated by an occasional tremor or seismic event that refreshes this aged and primordial landscape.
+
+Despite the depleted resources and dim, resource-sparing light, a strange balance and harmony pervades the Great Hollow. The many diverse inhabitants find their unique position within the world, life finding ways to thrive even in these ancient, exhausted depths. The Hollow is not just a place, but a testament to the enduring will to survive, a living monument to the enduring power of nature.

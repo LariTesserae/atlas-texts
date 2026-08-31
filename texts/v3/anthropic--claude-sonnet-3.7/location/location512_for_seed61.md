@@ -1,0 +1,19 @@
+# The Undercity of Grath-Mol
+
+The sound hits you first. A constant *thrum-hiss* that vibrates the wet stone beneath your fingers, reverberating through your chest cavity. The din comes from thousands of pipeworks—clay, stone, and hammered copper tubes that crawl like petrified veins across every surface of this subterranean settlement. Water pulses through these ancient conduits, pushed by mechanisms no living resident understands.
+
+You're in a pocket realm beneath what must once have been a mountain, though the surface world may as well be myth to those who dwell here. Grath-Mol exists in perpetual cool dimness, lit by crystalline formations that absorb the water's vibration and transform it into a faint blue-green glow. This light reveals a dense warren of chambers and passages, every inch occupied by structure or function.
+
+The air is thick with moisture—not the organic dampness of swamps, but a mineral wetness. Water trickles down stone walls polished by centuries of such weeping. It pools in basins carved with symbols whose meanings have been lost, then drains through precisely engineered channels in the floor. The sound of dripping is constant but lost beneath the mechanical chorus of the great pipeworks.
+
+No plant grows here. Nothing green has ever touched this realm. Yet life persists in strange adaptations. Pale, translucent creatures—something between fish and salamander—swim through the larger water channels, blind but sensitive to vibration. Occasionally, a resident might catch one for a feast. Patches of luminous slime-molds cling to certain walls, feeding on minerals rather than light, harvested carefully by the undercity's alchemists.
+
+The people of Grath-Mol are short and sturdy, their skin alabaster where it isn't stained by the minerals they work with. They've built their dense warrens into every available space, using stone tools to carve new chambers from softer deposits, reinforcing with clay bricks hardened in the heat of underground thermal vents. Homes stack atop each other, connected by narrow stairs and ladders, every space utilized. Fabric screens, dyed with mineral pigments, separate private spaces from communal ones.
+
+Water shapes everything here. It powers the simple machinery—water wheels and hydraulic lifts that help move goods through the warren. It dictates social structure—those who understand the pipeworks hold positions of authority. It provides the rhythm of life—flowing faster during what passes for "day" in this timeless realm, slower during rest periods. The pipeworks' thrum never ceases entirely.
+
+The most sacred space in Grath-Mol is the central cistern, a perfect hemisphere thirty paces across, its surface a mirror so still it seems solid until a ceremonial stone is dropped to create ripples. During such rituals, the omnipresent mechanical noise diminishes, channels temporarily diverted, creating the only moments of relative quiet this realm ever knows.
+
+For centuries—perhaps millennia—nothing has changed in Grath-Mol. The residents repair what breaks using techniques passed through generations. They mine the same veins their ancestors did, craft the same tools, tell the same stories. The dead are dissolved in mineral-rich pools and their concentrated remains added to the mortar used for new construction—literally becoming part of the city.
+
+Outsiders are so rare as to be mythic. Those few who have stumbled upon Grath-Mol speak of the overwhelming sensation of finding a clockwork ant colony, hidden beneath the world yet utterly complete unto itself—humming, dripping, eternally moving water through stone veins while never truly changing.

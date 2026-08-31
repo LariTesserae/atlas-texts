@@ -1,0 +1,27 @@
+# The Reservoir
+
+A cathedral of still water, sealed and complete.
+
+You stand in what was once a city block — or perhaps still is, though no signage remains and the architecture has been softened past recognition. The water comes up to the third floor of what used to be a hotel, now a margin where the world above has forgotten to look down. Below the surface, everything is held in place. A bus leans against a lamppost at an angle no longer possible to disturb. A car drifts three inches from a fire hydrant, separated by decades of suspended contact. A woman's scarf extends from a taxi window into the blue, its fabric frozen in a gesture of waving or drowning that no living witness can resolve.
+
+The temperature is the temperature of cellars. Sixty-two degrees. Cool and absolute, with the particular chill of places that have stopped exchanging heat with anywhere else.
+
+Light enters in two ways. It comes down through the water's surface, thirty feet overhead, refracted into shifting columns that move with weather the submerged world cannot feel. And it comes from the workings — the industrial heart, the infrastructure that never shut off. Sodium lamps still burn behind shattered glass on the corner of Fifth. A generator somewhere in the basement of the municipal building has been turning over for so long that its fuel source has become an urban legend. The light it throws is amber, patient, the color of old photographs.
+
+Sound carries strangely. Mostly, there is the absence of sound — the profound and specific quiet of a place where nothing has ears to listen with. But water conducts, and if you put your head against a submerged rail, against the iron spine of a fire escape, against the bell of an old alarm, you can hear the city's remaining circulatory system: pumps running in some sub-basement, the cycling of a treatment facility, the slow tick of expansion in metal pipes. The rhythm suggests that someone, or some protocol, or some automated sequence from before the rising, is still keeping something alive down here. Maintaining what, exactly, is unclear. The system maintains itself.
+
+There are no fish. The salinity is wrong for the local watershed, the temperature wrong for most marine life, the duration wrong for anything evolutionary. What algae have colonized the lower floors form patterns like handwriting — green-brown stains climbing the white tile of a lobby, threading through the wrought-iron legs of a bench on which the algae, in another age, someone might have waited for a bus. Sparse vegetation, because vegetation requires sunlight and the sunlight is rationed here. What grows is patient, pale, adapted to the wavelength that survives the descent.
+
+The erosion is not the erosion of weather. It is the erosion of immersion. Brass fittings have gone verdigris. The chrome of automobiles has matted with calcium. Marble has taken on a softness, a grain, like something the sea has been asked to digest slowly. Brick has exhaled its lime. The forms are recognizably the forms they were — a storefront is still a storefront, an awning still an awning — but they have been recolored, retextured, given the patina of an archaeological site that is still in the process of becoming one. Long-existed. In balance with the water, finally. No longer fighting.
+
+The scale is human. A few blocks. A neighborhood. The dimensions of a place you could have walked across in fifteen minutes before the walking stopped. Now, in the diving gear that no one wears anymore, you could traverse it in an afternoon, weaving through the rooms of apartments in which fish never learned to live, gliding under the canopy of trees that died and stood and were mummified in place by the cool and the dark.
+
+No animals. Not even the ghosts of animals. Where the birds went, where the dogs went, where the rats went that must have outlived the humans — gone, or never came down. The absence has its own presence, the way an empty theater has a presence. You feel watched by the lack of watchers.
+
+Nothing moves, except the light, and the slow convection of water through the corridors of a grid that was never designed to hold this much of anything. The thermal layers are stable now. The salinity has stratified. The dissolved oxygen has found its level. A stillness that is not death but is not, exactly, life. A frozen equilibrium. A system at rest with itself.
+
+If you listen with the hydrophone pressed against the masonry of the old bank, you can hear, faintly, far below — beneath the basement, beneath the foundation, beneath the sewer lines that are now the river system of this small drowned kingdom — the cycling of the industrial heart. The pumps that pump for the sake of pumping. The motors that turn because they were built to turn and have not received the signal to stop.
+
+The place does not know it is abandoned. The place continues. The place is a reservoir now, and a reservoir only requires that the water be kept, and the water is being kept, and somewhere a generator runs, and the amber light on the corner of Fifth still throws the shadow of a lamppost onto the façade of a building whose name no one alive can pronounce, and the scarf still waves or drowns, and the algae still writes its slow calligraphy on the tile, and the cool is maintained, and the stillness holds.
+
+You surface, eventually, through the thirty feet of dark water, into the weather of the upper world, and the boat you came in waits. Above, the city goes on — if it goes on. You do not often look down.

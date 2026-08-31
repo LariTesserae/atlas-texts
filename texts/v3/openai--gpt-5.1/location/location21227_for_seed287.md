@@ -1,0 +1,89 @@
+It begins as heat and pressure in the dark.
+
+You are in a hollowed volume beneath the surface—somewhere between a cavern and an engine room—cathedral-wide but not endless, its edges implied by curved walls that withdraw into gloom. The air is thick and heavy, heat-soaked. You feel it before you see anything: a dense, wet warmth that clings to skin and condenses on every cold-enough surface, though there are almost no cold-enough surfaces left.
+
+This place sits below an arid land that rarely remembers rain. Up there: dust, stone, sky. Down here: everything that water and heat have been doing in secret for a very long time.
+
+The ceiling is low enough in places to show its texture: layered rock sagging in long waves, like a stone version of drapery, stained with dark mineral runnels where water sometimes seeps, then evaporates. In other places, the roof lifts away into darkness, swallowed by steam and shadow, suggested only by the rumble that resonates through huge unsupported spans.
+
+The light is made, not given. No sun reaches here. Dim bars of industrial lamps hang from old cables, their casings fogged and streaked, casting yellowish, particulate cones through the air. Many are broken, some flicker. Others are entirely blurred by roiling mist. The light never gathers into clarity; it catches on every droplet, every drifting filament, and turns the entire chamber into a series of floating planes and veils.
+
+Water: not abundant, but absolute in its intent. It appears as sweating pipes, dripping weld seams, thin rivulets that creep along conduits before falling in a continuous patter into reclamation channels below. There is a central trench, not wide but deep, a dark cut running the length of the space. Within it, viscous water crawls rather than flows, moving so slowly it is almost unmoving, its surface interrupted by occasional rising bubbles of geothermal gas that break with a soft, sticky pop. The trench is lined with mineral crusts in pale ochres and greens, thick as barnacles, built up layer by layer around every projection.
+
+Elsewhere, water collects in pockets: bowl-like hollows in the floor where condensation has accumulated over decades; shallow basins welded into the bases of machines to catch drips; the interiors of fallen ducts, now half-filled with opaque, warm liquid that smells faintly metallic and sweet, like overheated coolant. Thin films of moisture glaze the walls wherever a colder vein of stone dips close to the surface, sparkling dully when the light passes.
+
+The humidity is near-total, yet the surrounding world is, paradoxically, dry. Beyond these chambers the rock is parched, cracked, almost desiccated. This underground wetness exists as a localized system, a climate folded into itself. The groundwater here has been interrupted, trapped, redirected by something built long ago and then left to run on its own logic.
+
+Vegetation has taken that logic and embellished it.
+
+There are no trees here, nothing that expects wind or sky. Instead, the walls are alive with layered, clinging growth: mats of thick, rubbery moss in deep greens and bruise-purples, spongy to the touch but slick with condensation. Between them: curtains of translucent fungi that hang like strips of steamed rice paper, trembling whenever a vibration passes through the walls. Some glow faintly from within—soft pastel oranges and ghostly blues—barely noticeable until the lamps flicker and dim, and the space briefly rearranges itself under bioluminescent contours.
+
+From the mineral crusts along the trench rise dense colonies of stalked structures: neither entirely plant nor fungus. Each is about the thickness of a finger, pale and flexible, crowned with filigreed lattice caps. They sway slowly in currents of heated air, almost touching, packed close like an underwater grassland. When droplets condense on the ceiling and fall, they strike these caps with delicate, glassine chimes, producing a constant high, tinkling counterpoint to the heavier sounds of machinery.
+
+No animals move here. No wings, no skittering limbs. Even microbial life, if you imagine it, feels quiet and resolved. The vegetation has the place to itself, unchewed, unbrowsed. Leaves and fronds rot in their own time, undisturbed. Large, shelf-like fungi protrude from struts and pillars in cascading tiers, edges ruffled and thick, their surfaces patterned with subtle concentric rings of color—records of condensation cycles, of nutrient surges, of some very slow pulse in the environment.
+
+Everything grows where human industry once made contact with stone. Every joint where a pipe enters rock is wreathed in moss. Every seam in a metal floor-plate throbs with fine-rooted mats. Cable trays overhead drip with trailing epiphytes—thin, translucent vines that bear no leaves, just short, swollen nodes like beads of fat, each one collecting water and hazy light. They form curtains that almost touch the ground, brushing quietly against each other when the structure shivers.
+
+The built environment is scattered rather than orderly: remnants of an industrial system that once had purpose, maybe still does in some half-forgotten way. Rusted catwalks bolt themselves to the cavern walls, zigzagging at inconsistent heights. Many ladders lead up into darkness and simply end. Platforms project over the central trench like abandoned loading docks. On some of them sit machines, solitary and incongruous—boxy, riveted things with heavy housings, banks of faded indicators, and encrusted rotary valves that have not been turned in decades.
+
+Whenever you think the mechanical presence has ended, another structure reveals itself in the steam: the rounded shoulder of a pressure vessel emerging from a thicket of lichened piping; the skeletal arc of a crane arm, now swaddled in vines; a row of knee-high turbines half-buried in moss, their vanes barely visible under fungal plates.
+
+They are not entirely dead. Somewhere deeper in the complex, something massive is still running.
+
+The sound reaches you not as a noise but as a condition of existence. The whole place hums—a layered, resonant throbbing that seems to come from the rock itself. It is not sharp or chaotic; it is orchestral in its monotony. A low, dominant frequency, like the heartbeat of an enormous resting creature, underlies everything. Above it flare slower, cyclic pulses: a distant compressor taking in breath; a pressure release valve exhaling in a long, descending sigh; a pump laboring at a rate so slow it seems geological, each stroke a separate event halfway between a thud and a groan.
+
+Steam vents irregularly from corroded collars where pipes once sealed perfectly against stone. Each release hisses with a high, tearing noise that fills the chamber, reverberating in complex echoes, losing energy slowly as the sound ricochets across damp surfaces and disappears into pillowed fungal growths. Occasionally a deeper note rolls through as a subsystem somewhere releases pressure: a boom that is more felt in the chest than heard, followed by a backlash of tremors that wiggle droplets on every leaf and mushroom cap.
+
+The noise level would be overwhelming were it not oddly tuned to the architecture. The cavern geometry, long-smoothed by heat and drip and vibration, has arranged itself around certain harmonics. The loudness is there, but it finds stable paths, sliding through curved galleries, dispersing in slow spirals. You could shout here and barely hear yourself, yet the constant mechanical chorus feels strangely composed, like an industrial organ that has been playing the same set of chords for a century.
+
+The machines emit light as well. Not strong light: instrument panels glow in dim colors—tired reds, jaundiced greens, soft amber—through lenses fogged from the inside. Some readouts still flicker between values. One large dial twitches its needle every few minutes; the motion is minuscule but absolute. Another device delivers a periodical judder, as if something internal catches, fights, then slips by. These tiny motions and glows add to the sense that the system is not abandoned so much as… unobserved.
+
+There are signs someone once tracked all this. On a wall half-covered in moss: a painted diagram, almost obliterated, lines tracing pipes and chambers in a language of arrows and annotations now eaten by lichen. Nearby, an array of switches stands in a recessed panel. Each lever is locked in place by a fine, calcified film that has grown over the metal like coral, turning human interface into geology. The interface no longer belongs to hands; it belongs to time.
+
+What this place was for is no longer clear. A thermal plant? A water reclamation system? An experimental engine for something stranger—gravity, time, field manipulation? The noises don't quite match anything familiar; the regularity is wrong, the periodicities stretched. One huge cylindrical machine near the central trench doesn't seem to drive anything mechanical at all. No belts, no shafts, no visible output. It just sits there, encased in thick insulation that bursts at the seams with moist, glowing fungal shelves, vibrating so subtly that water beading on its surface arranges into standing waves.
+
+Perhaps its function is now only this: to provide steady heat and vibration for the little subterranean ecosystem that has grown around it.
+
+The rock itself shows long erosion, but not in the ordinary sense of flowing rivers or collapsing ceilings. Here, erosion is a negotiation: stone, water, and machine coming to an arrangement.
+
+Seams where groundwater once seeped are now lined with crystalline stalactites, truncated and re-sculpted by vibration. They are not spiky but rounded, almost melted, their surfaces covered in a fine nap of moss so complete that you hardly see the mineral beneath. Floors are subtly bowl-shaped around heavy installations, as if the repeated shaking of machinery has made everything slump toward them. At some edges, rock has powdered and been taken up by roots and fungi, forming a new composite material that is softer than stone but tougher than wood—strata of history knitted into living tissue.
+
+There is no rapid, visible change. Even the dripping water falls in contemplative rhythms: plop… plop…… plop. The loudness is deceptive; the processes are patient. Metals oxidize with immense slowness in this saturated heat, building thick, velvety rust foams that bulge from bolts and seams like frozen eruptions. Over them, thin green films grow—a photosynthesis analog that feeds not on sunlight but on some minor radiation leak, on chemical gradients, on electricity bleeding from old conduits.
+
+Because electric fields roam faintly here. You can see their traces where they interact with the growths. On certain walls, filaments of lichen align like magnetic filings, tiny threads all pointing toward unseen nodes beneath the surface. Some of the hanging fungal curtains thicken around active cables, forming translucent sleeves braided tight around the insulation, pulsing almost imperceptibly with charge. The ecosystem has learned to drink from more than water and mineral; it absorbs the waste outputs of the failing industrial veins.
+
+This mixing of biology and machinery never steps into outright machinery-as-organism cliché. Nothing moves with intention. No cables writhe. What is strange is how completely every surface, every interface, every apparently dead solid objects has been re-claimed by slow, inorganic-adjacent life. There is no clear line: rust becomes substrate; substrate becomes root-plane; roots bind machine housings into the rock. You watch a patch of growth and realize that what you took for paint blistering is actually a low, continual swelling and shrinking in response to moisture levels: the whole wall breathing with humidity.
+
+Above, beyond this chamber, there are likely more rooms, more machine hollows, more pools and pipes and slick walkways—an entire buried complex that once served a coherent purpose. But your world, as it presents itself now, is bounded: a single domain you can imagine as a map.
+
+Here is the central trench, with its slow, warm, mineral-rich water. On one side rises a bank of old generators—boxy, lined one after another, like a row of dark, overgrown sarcophagi. Between them, narrow aisles disappear into fungal shadow. On the other side stand columns of structural support cut directly from bedrock, their bases widened and rounded like tree trunks, each wrapped in layered growths that give them bark-like textures.
+
+Farther along, a cluster of tanks has sagged together, forming an enclosed pocket, a grotto within the larger hollow. Inside, the air is even hotter, sulfur-laced, its own microclimate. Here the vegetation turns paler, almost translucent, casting back the dim light like frosted glass. Long, pendulous sacs hang from overhead conduits—spore reservoirs, perhaps—that swell with captured moisture, then, when heavy enough, detach and fall with soft, wet impacts into the shallow pools below, where they slowly dissolve and spread filamentous webs.
+
+Everything in this place seems oriented toward slow cycles: condensation and drip; pressure and release; growth and soft decay. Even the loud machines participate on these timescales. Their roar is continuous, but their meaningful actions happen rarely. A vent opens once every hour, maybe once every day. A valve somewhere shudders and turns a few degrees over the course of a month. Gauges creep. Temperatures slowly ratchet upward in one corner of the system and downward in another, over months, years. You cannot see these changes, only infer them from the layered residues on surfaces, the thickness of mineral tongues, the age-grading in fungal rings.
+
+Rules of this world are simple, and deeply enforced:
+
+- There are no animals. Nothing scuttles, no fish in the trench, no birds overhead. Sound belongs entirely to environment, not to voices or feet. Anything ambulatory would be out of place here; the entire design has forgotten how to accommodate movement faster than the drift of a spore.
+
+- Heat rises from below and from the machines themselves, not from any sun. The further up you climb toward the unseen ceiling, the cooler and drier it becomes, until the growth thins and stone reasserts its roughness. But you rarely look up that far; the steam keeps the sky of this world low.
+
+- Water is never generous. It appears in exacting, localized phenomena: a dripping flange, a sweating pipe, a weeping seam. Floods are unknown; drought is structural. What exists is a tight, closed circulation—condense, drip, collect, boil, condense.
+
+- Time is thick. Processes that would be violent on the surface—pressure surges, thermal spikes—are here dispersed by convoluted architecture, damped by soft growths, slowed by loops and backflows. Catastrophe, if it comes, will be slow-motion: a decade-long clog; a century of gradual overheating.
+
+- The old purpose of the machinery no longer governs the space. Instead, their output—heat, vibration, stray fields—has become the primary “climate driver” for the ecosystem. The logic of the place has inverted. What was once a controlled environment for machines has become a controlled environment run by machines for the benefit of unintentional growth.
+
+The strangest element doesn’t announce itself in glowing anomalies or fractal impossibilities. It expresses as a kind of patterning across scales.
+
+Walk from one end of the chamber to the other and you start to notice repeating motifs. The way the trench curves, slightly offset from the main axis; the placement of load-bearing columns; the distribution of drip-points along the ceiling; the spacing of venting pipes. Overlay them and they seem to describe an emergent geometry, as if the whole space had been subtly re-shaped over decades to accommodate standing waves in pressure, sound, and growth.
+
+The dense mushroom curtains cluster at nodes corresponding to acoustic dead zones. The brightest (however dim) bioluminescent blooms occur where the electromagnetic fields, however faint, converge. The largest moss pillows form on surfaces tuned to resonate at particular low frequencies. It’s as if, in the absence of explicit guides, the system has iteratively rearranged itself—through corrosion, settling, expansion—into a form that minimizes strain and maximizes ongoing, balanced activity.
+
+The outcome is a landscape that, while clearly artificial in origin, now feels self-authored. Human intention has been eroded into background detail: a piece of conduit here, a handrail there, swallowed and woven into a new whole. The place doesn’t feel haunted. It feels occupied: not by minds, but by processes so interlocked that they resemble intention.
+
+Standing in the half-light, clothes damp with condensate, ears filled with layered engine-thunder and the delicate patter of drips on fungal stone, you are aware of being the only thing here that operates on a quick timescale. You inhale and exhale, and in that single breath ten thousand droplets condense and fall, ten thousand filaments adjust minutely to vibration and heat.
+
+Then the overhead lamps flicker and dim, plunging the chamber into a deeper, grainier twilight. The hum continues unabated. In the reduced electric light, the fungi and lichen glow more clearly—soft, pale halos outlining pipes and columns, tracing the old human geometry with a new biological script.
+
+Nothing reacts to your presence. No head turns, no branch trembles for you alone. The landscape continues its own long, loud, patient conversation between water, heat, rock, and machine—a damp, hot, buried engine-forest, in equilibrium with itself, strange and utterly self-absorbed.

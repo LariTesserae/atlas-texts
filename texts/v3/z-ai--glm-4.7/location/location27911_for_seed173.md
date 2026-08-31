@@ -1,0 +1,21 @@
+The silence here is not the absence of noise, but the presence of a constant, heavy pressure—a physical weight against the eardrums that feels almost solid. You are deep below the surface, suspended in a cool, liquid twilight where the water is so pure and still it feels less like a medium and more like a glass lens you are looking through.
+
+This is the Sump, a sunken cathedral of industry fully consumed by the ocean.
+
+The scale is deceptive. At first, the space feels boundless, but as your eyes adjust to the dim, bruised purple light filtering down from unseen heights, you realize you are contained within a single, immense chamber. It is a room the size of a town square, enclosed by walls that stretch up and out into the gloom.
+
+The floor beneath you is not rock or silt, but a checkerboard of reinforced concrete slabs, each one the size of a city block. They have settled into their final, ancient form over millennia. The sharp, industrial edges of the poured concrete have been eroded away by the relentless caress of the currents, worn down into smooth, river-stone shapes. The expansion joints are filled with a fine, pale silt that looks like dust on an abandoned shelf. The entire structure is sinking, imperceptibly, into the muck of the planet’s crust, a process that has been happening for so long the movement is indistinguishable from stillness.
+
+This is a totally made environment. There is no geology here, only architecture. Great pillars, thick as redwoods, rise from the floor to support a ceiling that is no longer there, having long since rusted away or collapsed. Now, the pillars stand as lonely monoliths, encrusted with layers of calcified barnacles and lime, turning the iron into living stone.
+
+The tech is massive, industrial, and primitive in its brute force. Huge pipes, some wide enough to drive a train through, run horizontally along the floor and walls. They are ruptured in places, sheared off by some ancient catastrophe. Yet, the system is not dead. It is active. From the broken stumps of the machinery, a steady stream of bubbles vents upward—a rhythmic exhalation that sounds like the breath of a sleeping giant. *Hhh-wump. Hhh-wump.* The vibration travels through the water and rattles your chest.
+
+The sound is loud, a cacophony of low-frequency thrums, metallic groans, and the rushing hiss of pressured water escaping valves. It is a symphony of decayed function. Gigantic gears, exposed to the water, still turn, grinding against one another with a slow, tectonic resistance. They are coated in a thick, black grease that floats in slow-motion clouds around the mechanisms.
+
+Despite the cold and the crushing industrial weight, life is abundant. The water is thick with fauna. Silver schools of fish, numbering in the thousands, dart in unison around the pillars, turning the dark water into flashing mirrors of light. They ignore the machinery entirely, having adapted their migration routes to the geometry of the ruins.
+
+Crustaceans the size of dogs clamber over the smooth concrete floor, their claws clicking audibly against the hard surface, a sharp, staccato rhythm that punctuates the deep thrumming of the engines. They are scavengers, feeding on the moss that grows in the cooler shadows of the vents. There are no plants here—vegetation is sparse, limited to a thin, slimy algae that coats the metal and gives it a sickly, iridescent sheen.
+
+The light is dim, provided mostly by bioluminescence. The jellyfish that pulse near the ceiling are large as parasols, glowing with a soft, electric blue neon that illuminates the rusted rivets of the high arches. Occasionally, a spark of electricity arcs from a damaged conduit on the floor, flashing a violent white that reveals the true scale of the room for a split second—catwalks hanging at crazy angles, the skeletal remains of walkways, the vast emptiness of it all—before plunging it back into violet shadow.
+
+It is a place of deep, ancient weariness. The water has won, but it didn't destroy; it simply occupied. The machines keep turning, grinding against the water, slowly wearing themselves down into nothingness, while the fish swim through the gears, unconcerned with the industry that built their cage. It is normal, logical, and utterly, profoundly submerged.

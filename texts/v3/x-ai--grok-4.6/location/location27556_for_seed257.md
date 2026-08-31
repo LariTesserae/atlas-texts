@@ -1,0 +1,49 @@
+The first thing is not a view. It is a temperature, held.
+
+Warmth sits in the water the way a hand sits in another hand after a long walk: not hot, not seeking, only remaining. You notice it before you notice that you cannot see. The dark is not a night that has fallen over something; it is the native condition of the volume. What little light there is arrives as a rumor along the edges of bodies—your own, and others—rather than as a source. Surfaces announce themselves by interrupting that rumor.
+
+You are inside a made thing that has forgotten it was made.
+
+The stone is everywhere the stone can be. There is no bedrock that is not also wall, no floor that was not laid, no ceiling that was not closed. Blocks were dressed by hands that knew only hammer, chisel, abrasion, fit. You can still, if you press a palm along a join in the right place, feel the ghost of a tool-mark: a shallow scallop, a lip where one face was never quite true. Time and water have spent those marks down until they read as geology. The masonry has arrived at its last possible shape. Corners have gone. Seams have gone. What remains is a single continuous mineral body, faintly faceted the way a river-stone is faceted if you remember it was once angular. This is not ruin. Ruin still argues with its original plan. This is the plan after the argument has ended.
+
+The space is small. Not a world. A nave. A cistern that learned rooms. You could cross it—if crossing were the point—in a few dozen slow strokes. Height and breadth are cathedral-order: tall enough that a body turning vertical feels the pressure change in the ears, wide enough that the far wall is a suggestion rather than a surface. And yet it is bounded. You always know where the stone stops the water. The knowledge is intimate, like knowing the dimensions of a bed in the dark.
+
+High. That is the other first fact, after warmth. The water here is a little thin. Not empty—full, saturated with life—but physically slight, as if the column above it had been subtracted. Whatever this tank sits upon, it sits upon the top of it. There is no deeper water below the floor. The floor is the roof of something that is no longer the point. The construction is a crown that was filled and then kept filled until filling became the only weather.
+
+Almost no air. Where a meniscus still exists it is a skin against the highest vaulting, a dark mirror pressed to dark stone, trembling only when something large turns over far below. In most of the chambers the water goes all the way up. You move as the animals move: completely inside.
+
+No plants. None. No leaf-shadow, no stem, no algal green even as a memory. The mineral is clean of that kingdom. What grows is simpler and does not count as growth in the old sense: a chalky film on the leeward faces of worn capitals, a faint grease of bacteria in the pores of the stone, a slow mineral snow that is always falling and always being eaten. The ecology does not photosynthesize. It recycles. It rasps. It waits.
+
+The animals are the density.
+
+They are not a decoration in the water. They are most of what the water is. You cannot extend an arm without the soft collision of a flank, a shell, a trailing barbel. They do not startle. Startling is for places with suddenness. Here the motions are all older than surprise. A pale school turns as one thought along a colonnade and the colonnade briefly becomes fish. Something with too many walking legs feels its way down a pillar the way a blind hand feels a familiar banister. Soft unsegmented bodies cling in overlapping tiles to the undersides of lintels, their edges lifting and settling in a rhythm too slow to be breath. There are mouths that work constantly on the bacterial film. There are mouths that work on those mouths. There are long ribbon-animals that hang in the warm dark like forgotten belts, tasting whatever the water has decided to be this century. Crustaceans the color of old ivory stack themselves in the sockets where statues might once have been—if this place ever had statues; the stone does not remember figures, only the hollows that figures would have required.
+
+They are quiet. The whole volume is quiet to a degree that makes the idea of sound feel theoretical. What exists is contact: the almost inaudible click of chitin on chitin once in a long while; the silk-tear of a fin; the pressure-thud, felt more than heard, when a heavy body changes depth. Water against worn stone has no vocabulary left. It has already said everything it is going to say.
+
+You begin to understand the construction as you move, because movement is the only surveyor.
+
+There is a central basin, oval, its rim a bench of melted steps. Around it, concentric galleries, each a little higher, each fully drowned, connected by short drowned stairs and by holes that were doors and are now just the shape of having been doors. Corbelled vaults swell overhead, their concentric rings worn into a single smoothness, like the inside of a throat. Niches puncture the walls in irregular rhythm—sleeping-places, offering-places, tool-caches—now occupied by whatever can coil or stack or hang. In one gallery the floor is a field of low stone troughs, hand-cut, their partitions almost gone; something larval lives in each trough as if the troughs had been cut for them, which perhaps, after long enough, they were. In another, a forest of slender pillars stands so close that bodies must turn sideways, and the pillars are furred with clinging fauna until pillar and animal are one texture.
+
+Everything is near everything. Density is not crowding so much as saturation. Layers: animals on stone, animals on animals, a slow rain of shed skins and fecal pellets and mineral dust, the next generation already feeding in the rain. You are never in empty water. Empty water is a theory this place discarded.
+
+The making of it was primitive and total. No metal that has survived as metal. What fastenings there were have become stains, or have been replaced by the lock of weight and water and time. The blocks are large because large blocks are what you use when your tools are honest and your labor is a people. Edges were picked, faces were pecked, joints were dry. Someone understood water. Someone understood that a crown-tank at the high place would hold. Someone did not need to understand that it would hold until the holders were gone and the holding became the world.
+
+How long. The erosion answer is: long enough that duration has flattened into condition. This is not a site that is becoming. It has arrived. The stone will not get smoother. The fauna have no further adaptations queued. The warmth does not increase or fade; it is the temperature of having been this temperature. Cycles exist—some faint upwelling from a crack in the deepest floor, a seasonal thickening of the bacterial film, a generation-turn in the ivory crustaceans that takes years you will not stay to count—but they are patient to the point of stillness. Gradients are weak. What changes changes the way a held note changes, which is almost not at all.
+
+The darkness is not complete only because life insists on being slightly visible to itself. Some of the ribbon-animals carry a dull interior phosphor, not a light, more a bruise of green-white that lets their own kind keep station. Eyes gleam and then are not eyes. Your hands, when you lift them, are a rumor. The vaults eat the rest.
+
+You can feel, if you rest against the highest stone, that there is a world-shape outside this one, and that this one is its summit furniture. The pressure says so. The thinness of the water says so. The way the whole construction sits like a bowl that has never known a slope down and away, only the idea of down as an interior. Whatever mountain or tower or piled earth once justified the word *high* has been built over or built out or simply ceased to be the subject. The subject is the tank. The tank is full. The tank is old. The tank is occupied.
+
+A large thing passes. You do not see it so much as you are displaced by it—a slow warm displacement, a decision the water makes to be elsewhere for a while. In its wake the smaller lives rearrange without comment, the way sand rearranges, except sand is not this awake. Then the silence that was never broken reseals.
+
+There are rules, though no one remaining would call them that.
+
+The water does not leave. There is no drain that still functions as drain. What evaporates against the meniscus, if the meniscus is there that year, returns as the faintest condensate on the inner vault and slides home. The system is closed enough to have opinions about newcomers. You are a temperature anomaly and a shape. The animals investigate with the tips of things. They do not hurry. They have the rest of the remaining world.
+
+Nothing here is wild in the sense of undomesticated, because there is no outside against which to be wild. Nothing is tame. The fauna use the architecture the way the architecture uses the fauna: as the other half of a finished sentence. Niches are dens. Troughs are guts. Pillars are the vertical habit of hanging. The stone is a reef that was assembled on purpose and then given enough time to forget purpose.
+
+If you stay long enough for your eyes to invent more than is present, you may think you see tool-handles fused into a wall, or the oval wear of a thousand palms on a particular corner, or a row of small regular pits that were once a count of something. You may be right. It does not matter. The count ended. The palms are gone. The handles are stone among stone. What continues is the warm dark, the press of bodies, the almost-silence, the mineral certainty of a place that was built completely and then allowed to become only what it could keep.
+
+A click, somewhere. Chitin. Then nothing for a long time.
+
+The water holds you the way it holds everything else it has decided not to lose.

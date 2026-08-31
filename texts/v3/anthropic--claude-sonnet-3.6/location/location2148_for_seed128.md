@@ -1,0 +1,17 @@
+A vast manufactured plain stretches to every horizon, its surface a continuous tessellation of hexagonal panels in subtle greys and silvers. Each panel, nearly a kilometer across, is actually a sealed membrane - a sophisticated material that mediates between the carefully maintained interior environment and the harsh exterior world. The plain undulates gently over rolling hills, like a silk sheet draped over hidden forms.
+
+Water is everywhere, but contained. It flows in precise channels between the panels, and more significantly, through the translucent material itself. The membrane panels are laced with a complex circulatory system - not pipes exactly, but a engineered matrix that carries water molecules in coordinated waves. This creates a constant, barely perceptible rippling across the surface, like muscles moving under skin. The water serves multiple purposes: temperature regulation, power generation, and most importantly, it forms part of the computational substrate of the plain itself.
+
+The air is cool and still. Occasionally, a soft hiss emerges as excess water vapor is released through microscopic pores, creating brief, localized fogs that drift and dissipate. These temporary clouds cast subtle shadows on the plain's surface, their movements tracked and incorporated into the ongoing calculations performed by the water-computing system.
+
+What little life exists here is purposeful. Maintenance organisms - engineered beings somewhere between machines and living things - move slowly across the surface, testing connections and repairing the rare imperfections. They're flat and wide, like living patches, barely distinguishable from the plain itself except for their measured movement.
+
+At regular intervals, slender towers rise from the junctions between panels. These are not buildings in any conventional sense, but rather interface points where the plain's deep processes become briefly visible. Inside their translucent walls, streams of water flow in complex helices, carrying information and energy between the surface world and the vast systems below.
+
+The entire plain is actually the outer layer of a structure that extends kilometers deep into the planet's crust. The surface panels are like the cells of a leaf - they capture energy and process information, but the real work happens in the layers below. The whole system operates with remarkable quietness - the loudest sound is the occasional soft pop of thermal expansion as the panels adjust to temperature changes.
+
+Tiny patches of primitive lichen-like organisms have established themselves in some of the panel seams, their presence tolerated because they've been found to enhance certain computational processes. Their silvery-green traces are the only spots of color in an otherwise monochromatic landscape.
+
+The whole plain moves with an almost imperceptible rhythm - a daylong cycle of minute expansions and contractions, like slow breathing. This movement, combined with the constant flow of water through the system, creates patterns of data processing that extend across thousands of square kilometers. The purpose of these calculations remains unclear - they may be modeling galaxy formation, or simulating evolutionary processes, or solving mathematical problems beyond human comprehension.
+
+As day shifts to night, the plain's surface takes on a subtle phosphorescence - not for illumination, but as a visible manifestation of its continuing processes. Waves of dim light flow across its surface like thoughts moving through a vast, artificial mind.

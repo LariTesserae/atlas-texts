@@ -1,0 +1,21 @@
+The Weeping Chamber lies beneath the surface world, a small sanctuary carved entirely from black volcanic glass that never quite finished cooling. Steam rises constantly from hairline fractures in the obsidian walls, where groundwater seeps through and meets the stone's retained heat. The chamber spans perhaps thirty paces across, its smooth walls curving upward to a dome pierced by a single opening above—not quite large enough for a person, but wide enough to glimpse a circle of sky.
+
+Every surface weeps. The glass walls run with condensation that forms, pools, and trickles in an endless cycle. Water collects in shallow basins carved into the floor, their edges worn smooth by countless hands. The moisture in the air is thick enough to taste—mineral-sharp from its passage through stone, carrying hints of sulfur and salt. Droplets bead on the skin within moments of entering.
+
+The floor rises in concentric terraces toward the center, each level carved from the same seamless obsidian. Channels spiral between the tiers, guiding the constant flow of condensation toward a central depression where water gathers and vanishes through an invisible drain. The stonework is precise but clearly hand-carved—tool marks catch the light, and slight irregularities speak of patient human labor with simple chisels and grinding stones.
+
+Sparse clusters of pale fungi emerge from the junction where wall meets floor, their caps no larger than thumbnails. They seem to feed on the minerals in the seeping water, glowing faintly with their own phosphorescence. The light they cast is barely perceptible, just enough to outline their ghostly forms in the chamber's perpetual twilight.
+
+The air moves strangely here. Warm drafts rise from the heated stone while cool currents descend through the opening above. These invisible rivers of air create pockets of different temperature and humidity, each with its own rate of condensation. Stand in one spot and feel the warmth; step two paces away and enter a cooler eddy where water beads more quickly on the skin.
+
+Sound behaves oddly in this space. The constant whisper of condensing moisture creates a barely audible susurrus that never quite stops. Footsteps echo with a crystalline quality off the glass walls, but voices seem muffled, absorbed by the humid air. Occasionally, trapped air bubbles escape through the stone with soft pops, like distant raindrops hitting leaves.
+
+The chamber's maker left no clear purpose behind—no altars, no obvious function. Yet every detail speaks of intention. The precise angles that encourage water flow. The height of each terrace, perfect for kneeling or sitting. The placement of the fungi clusters, creating subtle pools of light. It feels like a space designed for solitude, for listening to the breath of stone and water.
+
+As hours pass, the light filtering down from above shifts almost imperceptibly. The fungi brighten slightly when shadows deepen. Water levels in the basins rise and fall in gradual rhythms tied to pressure changes far overhead. The chamber breathes with the world above it, but slowly, on its own patient schedule.
+
+The glass itself tells the story of its making—not formed by any natural process, but shaped when the stone was soft with heat. Whoever built this place possessed the knowledge to work volcanic glass while it cooled, to carve and smooth it into this perfect shell. The craftsmanship suggests generations of accumulated skill, yet the tools used were simple: stone against stone, persistence against time.
+
+No creatures disturb this sanctuary. The environment is too specific, too isolated. Only the pale fungi mark the presence of life beyond whatever human hands shaped this place. Even insects seem absent, leaving only the eternal conversation between water and stone, heat and coolness, light and shadow.
+
+In the deepest hours, when the light from above fades to a distant star, the chamber reveals its most unsettling quality. The phosphorescent fungi pulse almost in unison, as if responding to some signal felt but not heard. The rhythm is too slow to be breath, too regular to be random—more like the heartbeat of something vast and sleeping, speaking through mineral flesh and condensing breath.

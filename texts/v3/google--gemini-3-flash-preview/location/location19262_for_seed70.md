@@ -1,0 +1,19 @@
+The world is a vertical ocean held in suspension by a gravity that has forgotten how to pull.
+
+At this altitude, the air is no longer a gas but a thick, warm soup of suspended droplets so dense they have coalesced into floating amorphous spheres of water the size of cathedrals. This is a highland of the clouds—not a solid mountain range, but a geography of liquid mass drifting slowly through a saturated sky. The elevation is extreme; the light here is thin and white, unfiltered by the lower atmosphere, casting a pearlescent glow over everything.
+
+Since the erosion is young, the "land" consists of massive, jagged shards of buoyant, porous pumice and crystalline salts that have only recently been coughed up from some subterranean or sub-oceanic upheaval. These stones are sharp, glass-edged, and violent in their geometry, having not yet been smoothed by the patient work of the tides. They do not sit on the ground; they drift inside the water-spheres, acting as anchors for a frantic, burgeoning ecology.
+
+The vegetation is a riot of green and violet. Because the medium is liquid and the temperature is a constant, humid warmth, growth is explosive. Thick, succulent vines—vascular tubes the diameter of a human waist—pulse with filtered seawater, weaving the floating islands together. Giant, bladder-like lilies with translucent petals span fifty feet across, acting as solar sails that catch the high-altitude light. The density is claustrophobic; there is no empty space. Every cubic meter is filled with trailing moss-filaments, buoyant seed-pods, or the heavy, wet leaves of ferns that thrive in the permanent mist.
+
+Everything is slow. The great water-globes collide with the soft impact of giant jellyfish, merging and parting over the course of days. The plants grow with a visible but patient intent, their tendrils curling around the sharp-edged rocks in a slow-motion strangulation.
+
+The rules of this place are dictated by surface tension and buoyancy. To move is to swim through the air. You can drift from a pocket of oxygenated mist directly into a sphere of suspended ocean, the transition marked only by a slight increase in pressure against the skin.
+
+There is a profound, muffled silence here. The sounds are liquid and internal: the deep *thrum* of water shifting weight, the occasional wet snap of a vine under tension, and the rhythmic, slow-motion splash of a smaller orb merging with a larger one. It is a world without the percussive strike of rain on solid ground, only the infinite, quiet absorption of moisture into moisture.
+
+Fauna is nearly non-existent, making the rare sightings feel mythological. Occasionally, a silver-skinned ribbon-eel, blind and shimmering, ripples through the green canopies, moving from one water-sphere to another by leaping across the humid gaps. These creatures are silent, ghostly presences that do not hunt so much as they graze on the microscopic algae blooming in the warmth.
+
+There is no trace of the "built." No steel, no stone-craft, no tools. The only geometry is the fractal explosion of the plants and the crystalline splintering of the young rocks. The "tech" of this world is entirely biological—pressure-sensitive membranes, bioluminescent signaling from the deep interiors of the moss-mats, and the hydraulic pumping of sap through the vine-bridges.
+
+It is a place of suspended transition. The world feels as though it has just been born from a planetary sneeze—a collection of liquid and solid debris flung into the high, warm sky, where the plants have already claimed the wreckage, turning a chaotic upheaval into a lush, suffocating, and beautiful nursery. It is a drowned mountain range that never reached the earth, forever drifting in a state of high-altitude, sun-drenched saturation.

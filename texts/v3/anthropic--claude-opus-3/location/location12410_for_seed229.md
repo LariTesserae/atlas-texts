@@ -1,0 +1,9 @@
+High in the dappled canopy of an alien forest, a strange ecosystem thrives in the warm, dim light filtering through lush foliage. The trees here are like nothing on Earth - towering, twisting structures of smooth, bioluminescent bark that pulses and shifts in mesmerizing patterns. Their branches reach out at odd angles, forming a dense web above a spongy, springy forest floor carpeted in luminous mosses and fungal blooms.
+
+The air is thick and humid, filled with the trilling, chirping, buzzing calls of abundant and bizarre fauna. Insectile creatures with iridescent carapaces and delicate, fringed wings flit between trees, while furry, multi-legged mammals scurry along branches, leaping improbable distances. A constant rustling and chattering suggests myriad hidden creatures in the dense undergrowth.
+
+Scattered throughout the forest are eerie remnants of some unknown civilization - crumbling stone structures overgrown with vines, half-buried statues with strange, elongated features, rusted metal fragments hinting at bygone technologies. The forest has long since reclaimed them, but they lend an unsettling, mysterious air.
+
+Sudden gales rip through the canopy without warning, setting the trees swaying and keening. Loose vines and dangling mosses whip about wildly. Creatures go suddenly silent, huddling in sheltered nooks. Just as abruptly, the winds cease and the forest's raucous symphony resumes. These chaotic episodes lend a turbulent, otherworldly dynamic to the place.
+
+Wafting on the disturbed air are heady, unfamiliar scents - pungent saps, musky animal odors, the loamy redolence of rot and new growth. Aerial rootlets brush against your skin, cool and damp. Everywhere is the sense that the forest is watching, considering, through a thousand hidden eyes. The rules that govern this realm are not ours; it is a place hauntingly alien yet undeniably alive, primeval and exquisitely strange.

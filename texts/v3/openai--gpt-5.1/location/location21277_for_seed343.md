@@ -1,0 +1,85 @@
+Imagine a world where the mountains themselves have already finished their story.
+
+They are not sharp, not young. They are worn almost down to thoughts of mountains—great, rounded, flattened backs of stone slumping into one another, like the last low swells in a sea that has forgotten how to make waves. The scale is broad: not a single cliff or peak, but an entire region of ancient height, a high, settled tableland that stretches as far as you can see in any direction. You’re already high above any imagined sea level; the air is thinner, but warm, stable, long-accustomed to its own altitude.
+
+Rock here is old beyond resentment. The surfaces are rubbed smooth by aeons of vanished winds and long-vanished rivers; the grand erosive dramas are done. This is the stable end-state of geology—plateaus planed down to broad, almost featureless domes, vast terraces tilted by incomprehensibly slow bends in the crust, shallow basins where grains of sand packed and fused and then were scoured again. Everything hard feels final. Nothing here is in a hurry to fall any further.
+
+Yet the place is not bare. It has been claimed—utterly and almost exclusively—by plants.
+
+The stone lies under a continuous, intricate skin of living matter. This isn’t a forest in the familiar sense; there are no clear trunks rising from soil, no obvious canopy line. Instead, plant life has taken over all roles: ground, wall, roof, bridge. A continuous vegetal architecture grows directly from the cracks, pores, and dissolved hollows in the rock, until you walk not on earth but on a woven, layered, living floor.
+
+From a distance you would see the plateau as a continent of muted green and layered color, softly undulating, its higher domes wrapped in deep, moss-dark mats and its long ridges draped with sheets of lichen and vine, like the folds of a colossal, faded tapestry. Each slope and depression has its own texture—velvet fuzz, thick pads, dangling curtains, latticeworks of stems.
+
+Up close, the substrate under your feet is a quilt of intertwined root-mats and spongy boles: thick, fibrous growths that have spread horizontally instead of vertically, compressing into dense, springy pavements. The “ground” gives slightly with your weight, exhaling a faint, damp warmth. There is no bare soil; anything that might have become soil has long ago been taken back up into plant bodies, recirculated, braided into the living mass.
+
+Moisture is intermittent, localized. There are no wide, open lakes; instead, water occurs in pockets and films and lines—a world of seepages and condensations. In the long shallow basins that punctuate the plateau, fog forms whenever the air cools, settling in slight hollows like spilled silk and then vanishing again as the sun climbs. These fogs dew themselves into the plant-skin: on leaf-surfaces, in velvet moss, in cup-like or gutter-like growths specialized to hold and channel droplets.
+
+Here, “rivers” are not open ribbons of free water. They are dark, narrow bands where the plant substrate grows wetter and denser, where every surface shines darker with absorbed moisture, and where the living mat has sunk slightly under its own weight, thick with sap and decay. In these channels, the biome thickens, color deepens into greens almost black, and the air changes—cooler, heavier, saturated with organic smell and vapor. Beneath the surface, within the body of the substrate itself, slow, hidden flows of water creep along root-lined tunnels, guided by the architecture of plant flesh. Occasionally, a fissure opens to the sky and this inner river breathes out as mist.
+
+Rain doesn’t come often, but when it does, it arrives in short, intense episodes. The sky is usually clear or fuzzed by thin, high cloud; but on certain days, dark, low-bellied masses of vapor blow in along the high plateau edge, snagged by this ancient elevation. For an hour or two, the world is all noise and white veils, the living skin drumming and streaming. Then it clears, and the plants drink down the last glints of water, and the surfaces return to their matte, humidity-holding calm.
+
+Despite the omnipresent plant life, the landscape feels strangely empty at first. There is so much space between things—between the great vegetated domes, between the few vertical structures, between one cluster of complexity and the next. Distances here are measured in valleys of silence and wind, in long, gently sloping traverses where the living floor rolls almost featurelessly to a hazy horizon.
+
+Yet this emptiness is false. The world is crowded—but not with structures, with organisms.
+
+Fauna is everywhere. The lives that inhabit this plateau do so in such numbers and intensity that stillness is almost impossible. And they are loud.
+
+Sound is the first overwhelming presence. The air shakes with it.
+
+You stand in air that is never quiet. A continuous broadband roar underlies everything, like the surf of an unseen ocean, but made of countless wings, exhalations, calls, chitterings, impacts, stridulations. The plateau is a resonant bowl, and the living mass atop it turns that bowl into an instrument.
+
+Across the valleys, great swarms of small flying creatures move like inversions of weather: black, shifting clouds that rise from moist channels at morning and evening. When they pass overhead, the sound is a rushing hiss, a thickening of the air, as if the sky has become a river flowing sideways. Their bodies catch the light in flashing, scale-like points; they drift, then coalesce and scatter again, endlessly rearranging.
+
+There are also the calls: layers and layers of them. Deep, percussive booms from enormous, unseen throats hidden under the vegetative crust; piercing, almost metallic shrieks from creatures that ride the thermals above the plateau; rattling, clacking choruses from communal nests grown into the sides of vegetative mounds. Many of these noises last only a second; others are sustained notes—rising whoops, oscillating trills, long hoots that tremble in your chest.
+
+The plants themselves participate. Some of the larger, hollow-stemmed species act as organs and drums. Wind rushing over their openings sends a low, breathy moan across ridges. When heavier animals move atop certain mats, gas is squeezed through pores, producing sharp, sighing whistles. There are seed-pods that explode with a dry, resonant crack when humidity shifts, and broad, taut leaves that rattle like skins when struck by falling debris or leaping bodies.
+
+This is the sound of an ecosystem in constant, dense motion. Predators chase prey not in scattered encounters but in waves and pulses. Entire swarms chase other swarms, driving flurries of motion over kilometers of plateau. Somewhere, at almost any moment, a kill is happening: a sudden crescendo of wing-thrashings and animal cries, followed by abrupt quiet and then the soft tearing sounds of consumption.
+
+Despite this ongoing drama, the physical spaces between major features remain sparsely structured. You can walk long distances seeing little in the way of discrete “objects”. The built remains—those small marks of intelligence—are rare, scattered, and mostly in retreat before the plant flood.
+
+Here and there, you come upon the remnants of simple constructions. Not cities; not even villages. A low ring of shaped stone that the vegetative mat has half-swallowed; a line of upright slabs, each crudely flaked and leaned together, now webbed with rootlets and green filaments. Splinters of bone carved into points and dropped, or carefully cached in hollows that have since become overgrown. A platform of tied branches collapsed under a century of additional growth.
+
+These artifacts hint at a people who lived within this world rather than above it—using simple tools, working wood and bone, perhaps cold-working small amounts of native metal if they found it, but never cutting deep scars into the plateau itself. Their technology is intimate, minimal: hand-shaped hunting implements, woven slings, baskets, framed shelters that would have grown into and out of the plant substrate rather than opposed it.
+
+Most of what they built has already been taken back. Taproots have punched through the floors of their shelters; green masses have bowed their frames outward. In some depressions you can guess at more deliberate patterning: stones arranged in arcs under the moss, regularly spaced post-holes now filled with dense, woody tissue that once followed the guidance of those posts and now continues without them. Whatever planning once existed here is being blurred into the slow creativity of the vegetation.
+
+The plants vary dramatically in form, but they share a few rules shaped by this environment: they spread laterally, they capture intermittent water ruthlessly, and they cooperate and compete with an intensity that leaves no room for neutral ground.
+
+Certain species form the base substrate: thick, peat-like sponges of fused roots and stems that act as universal soil. Other, more sculptural species erupt from this mat in limited numbers, forming arches, columns, and bony ridges of lignified tissue that serve as both structure and habitat. Some of these columns meet one another overhead, forming long, irregular galleries—green tunnels where the light is filtered to a dusk of deep greens and browns, air saturated with moisture and smell, every surface ticking with insect life.
+
+Elsewhere, huge, fanlike leaves rise only waist-high but extend for meters horizontally, overlapping like shingles, creating layered terraces that step down gentle slopes. Between their petioles, condensation collects and trickles downward through hidden channels in the substrate, feeding the underground water paths.
+
+In the driest, most exposed domes, tough, almost mineral-like plants dominate: low, crusty mats of lichen and scale-leafed shrubs hugging the rock through the living pad. Their colors tend toward muted ochres, greys, deep purples that absorb heat and shed water quickly. At high noon, these domes vibrate with the high-pitched chorus of small animals that bask and hunt there.
+
+Fauna has diversified into every niche the plants allow.
+
+Small, agile climbers flicker across the living floor—some furred, some scaled, some with folded membranes between limbs. They leap from pad to pad, vanish into narrow crevices under fibrous shelves, emerge again in bursts. They are prey to larger, more deliberate hunters that move with heavy certainty: wide-shouldered forms that sink deeply into the living mat with each step, leaving tracks that spring slowly back into shape behind them. These predators often hunt by sound, triangulating the deafening biome’s noise for individual disturbances: a panicked squeal here, a sudden change in swarm-tone there.
+
+In the air, bulb-bodied flyers with long, translucent wings spiral up on the warm currents that rise from the darker, wetter troughs. They hunt clouds of smaller fliers, plunging into them, engulfing them by the mouthful. Their translucent bodies flash with the colors of whatever they’ve recently consumed, and their calls—long, descending whistles—cut through the general roar, serving as both communication and hunting strategy, since certain prey species freeze when they hear that tone.
+
+Within the substrate, a whole other world exists. The living mat is riddled with tunnels, some finger-thin, some large enough to crawl through. Pale, blind organisms move through these green-walled corridors, feeding on decaying plant material, carrying spores and seeds, maintaining the slow, chemical transformation that keeps the ecosystem cycling. In some tunnel stretches, the walls shine not green but faintly blue or white: symbiotic fungal colonies glowing softly, used by burrowing animals as navigation points.
+
+Near moist channels, large, semi-aquatic beasts move along the dark, sunken paths, half swimming through saturated substrate, half walking on it. Their weight compresses the mat further, deepening these channels over centuries. Their grunts and bellows are among the loudest sounds in the landscape, echoing up through cracks to the surface, where predators listen and wait.
+
+The biosphere operates under a dynamic but anciently established set of cycles. Day brings intense activity, particularly in the hours when fog lifts and residual moisture beads on every surface. Many animals time their movements to drink from the transient droplets, licking water directly from leaves and stems. As the day warms to its gentle plateau-heat—warm, but softened by elevation and constant transpiration—certain swarms rise, feed, and settle in turn.
+
+Night is not exactly quieter, but its sounds change: less shrill, more resonant. A different set of hunters emerges then: those with sensitive hearing and heat-sensing organs, moving in the dark galleries under leaves and along the tunnels underfoot. Some of the larger plants open night-blooming flowers—heavy, pale structures that hang beneath arches or along the undersides of vegetative ledges—to attract specialized pollinators: thick-furred gliders that show up as brief, warm shapes against the cool night air.
+
+Weather cycles add their own rhythm: periods of dry clarity where everything seems to pause in tense expectation, followed by short, violent storms that reset balances—washing away nests, refilling hidden cisterns, bursting overripe pods. The ecosystem is active, but the underlying geology is not; the living processes play out atop a planet’s old, quiet bones.
+
+Weirdness here is subtle more than spectacular. Physics mostly behaves as you expect; gravity still points down, light still falls in straight lines. But the ecology has taken a direction that feels alien.
+
+Plants don’t just grow upward for the sun; they engineer the whole space. There are sheets of tissue stretched delicately between distant outcrops, thin as paper but strong enough to carry hordes of small creatures skittering along their undersides—living bridges that also act as fog nets. Some species respond to sound: their leaves tighten or spread in reaction to specific frequencies, opening to the loudest sections of daily animal choruses and closing in lulls, timing their gas exchange to the noise-level of the environment.
+
+Certain predator species use that plant-sensitivity for hunting. By producing specific calls, they cause plants to open or close in patterns that flush out prey or redirect them along predictable paths. Over long arcs of time, this has created a kind of emergent choreography: plants and predators and prey all entangled in a complex, landscape-scale game of misdirection and chase, written in sound and growth.
+
+Even the few marks of former tool-users are tangled in this. Some of the residual upright stones, once perhaps simple windbreaks or markers, are now grown-through with resonant plant tissue that hums or booms when the constant fauna noise hits particular pitches. Certain animals avoid these “singing stones”; others seek them out. What began as a human (or humanlike) imposition has become a subtle, living acoustic device in the plateau’s larger sound-ecology.
+
+Light falls normally—the sun arcs; shadows move. Daylight is neither dim nor harsh, tempered by the thin air and the plants’ endless, soft textures. On clear days, distances appear bigger than your instincts say they should. Ridges you think are near take hours to reach. Heat radiates off the living mat rather than bare stone, so the warmth is mellow, persistent, and slightly humid rather than scorching. At dawn and dusk, when the sky blazes around the plateau’s edges, the vegetative skin glows in layered, translucent depth: leaves lit from behind become sheets of color, galleries become pillared caverns of amber and green.
+
+In some of the oldest, most stable basins, an odd stillness gathers in the brief quiet between waves of animals. Here, the ancientness of the stone seeps through the busy skin of life. Surfaces feel more settled, growth slower, sounds slightly damped. It’s in these places that the scattered artifacts cluster most: the suggestion of former camps, fire-scars faintly darker in the living mat, patterns in the overgrowth that might once have been walls or corrals.
+
+Whoever lived here seems gone, or reduced beyond easy detection; the plateau has gone on without them. Yet the rules they once learned—the intermittent water, the overwhelming animals, the unforgiving openness—are written into the very structure of the plants and the habits of the beasts. A forgotten culture’s survival strategies now carried organically in root and bone and instinct.
+
+Taken as a whole, this landscape is paradoxical: high yet settled, empty in structure yet packed with life, dominated by plants yet defined by deafening animal noise. An ancient plateau, worn almost to oblivion, that has become the substrate for a loud, fervent, all-enveloping ecology—an entire region where the ground is alive, the air is crowded with wings and calls, and the quiet, slow processes of stone have long since yielded the stage to the faster, restless theater of biology.

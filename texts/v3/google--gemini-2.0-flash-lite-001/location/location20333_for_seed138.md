@@ -1,0 +1,13 @@
+The air hangs heavy, a humid blanket that clings to the skin. It tastes of iron and something else, something metallic and slick. The sky above is a muted grey, a constant lid on a world held in perpetual twilight. It’s hot, oppressively so, the kind of heat that presses down and slows your movements before the sun itself is visible.
+
+This is a place of raw, nascent industry, but it’s a factory choked with vegetation. Great steel girders, meant to define the stark lines of its architecture, are instead choked with the creeping, clinging vines of a plant not yet named. It’s a plant that thrives in the moisture, drawing the water from the constant condensation. The water is present everywhere. The very foundations seem to weep, puddles collecting in the cobblestone streets that run between the factories. Runoff from pipes and valves and the rain flows down the cobblestones, as it always has. Everything appears drenched. The stones themselves have slicked with moss, and the buildings run with condensation.
+
+The structures are monumental, but also decaying, the machinery within a complex and silent tapestry. Great engines stand still, rust already claiming them despite the recent manufacture. They are massive, dwarfing the scattered, diminutive structures woven between as if they were never meant to be. This place is small, focused—a single, massive complex enclosed by high walls, as if this whole place were only a single room.
+
+The only sound is the drone—a constant, unwavering *whirrr* that seems to emanate from the very air itself. It is the sound of the world's stillness, the humming of the gears that never turn. Once, the world was alive here, but it is now at rest.
+
+The vegetation is sparse overall, but very present. A few brave plants have taken root, clinging to the industrial structures, finding a way to thrive in the damp and the dimness. They cover the buildings, though. Climbing, spreading, wrapping. It’s hard to tell where the machines end and the flora begins.
+
+Life is the dominant feature of this space. The fauna are many, and large. Most of them dwell inside the machinery now, or in the high branches. They stalk the places where they work, silent as an apex predator. Their eyes gleam in the dimness. Creatures of bone and scale move through the shadows, always aware, never seen.
+
+The air is thick with the scent of machinery, rusting metal, and the unfamiliar sweetness of the plants. The dim light, a permanent state, casts long shadows that stretch and warp the massive metal and stone structures. Nothing changes. Everything decays in an elegant, fixed choreography. Nature continues to try and reclaim what was taken, but the machines remain. The hum persists. Forever.

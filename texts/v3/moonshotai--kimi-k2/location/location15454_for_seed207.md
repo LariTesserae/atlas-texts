@@ -1,0 +1,31 @@
+You arrive by forgetting.  
+That is the only known gate: a momentary lapse of a surface memory—some small, harmless inattention lasts a breath too long—and the dull black pane of the basement floor slides backward like water finding an edge. One foot notices the cold first; then the whole body is pulled downward into narrow dark.
+
+The air is wet enough to lick.  
+Not mist, not droplets—not even rain—just a slow osmotic dampness that condenses on eyelashes and lens glass as soon as you remember to open your eyes. It does not run; it clings, then evaporates. The temperature is just above where frost becomes fractal: every surface bears a skin of rime that flexes but does not crack. If you press a fingertip to a leaf, the ice accepts the print, melts, and re-freezes as iridescent lattice showing imbricate fingerprints like lichen.
+
+You are in the understory, but there is no sky above—only a vault of layered roots, stem, trunk, moss-black, frosted lumen-blue. The vegetation is luxuriant yet compressed: an entire canopy compressed into cellar height, as though an entire jungle has been slow-folding into itself for centuries. Ferns the color of malachite pillows unfurl along furled bark like calligraphy. Each leaf edge is bordered by fine lineaments of frozen dew, scintillation sharp enough to snag starlight from no stars at all. Everything seems to lean, not toward any light, but toward the precise center of the chamber.
+
+Scale denies containment.  
+The chamber is no more than ten arm-spans across, yet if you stretch out your explorations—every half-pace taking minutes—you uncover that the perimeter coils back to meet its center but displaced: a Möbius ulcer. You can place your palm against your own shoulder blade merely by walking steadily forward. The vegetation continues over that boundary, enclosing you in a pocket that nonetheless harbors the layers of a skyscraper-forest compressed into origami.
+
+Because the cold is steady and the fauna absent, no scavenger disturbs fallen matter; everything that sheds or seeds or rots stays exactly where it lands. Over eons the litter has cooked into a slow sediment: compressed chlorophyll that has jade-fossiled, root-thickets that have lignified at strange angles, and finally spongy fungal carapaces through whose pores the cold seeps. The ground is therefore elastic, resilient, like walking on a frozen lung. With each footfall the interior lights—if one can use that verb—announce themselves: sympathetic pulses, soft photons, turquoise and old rose, spiraling along itineraries that trace capillaries in rhizomes. They vanish almost before the eye acknowledges them, devoured again by dark.
+
+The one built thing is a lattice.  
+No builder remembers itself; the object seems assembled of scrolls: very thin sheets of metal-ceramic, no thicker than six carbon lattices, folded in six-dimensional pleats so fine that touching them is paradoxical—you press a finger and it meets resistance six millimeters away from the surface perception. The object is lying on its side like a stranded pergola whose intention is unknown. It is not furniture or shelter; perhaps it is a waking dream of scaffolding that nest-building fungi once dreamed and then grew around.
+
+Sometimes—hours apart—the lattice sings.  
+One sheet slides along another across that microscopic pleat, releasing a tone just below the range defined by any known instrument: a groan spun into silk. The sound can only be said to echo inside bone. When it subsides, the chamber returns to its wider hush: the exhalation of frost forming, the minute creak of leaves straightening after having folded too tight, the occassional drip somewhere forward but forever unreached.
+
+Processes here evolve on a calendar drawn by glaciers. A single vine may elongate one centimeter in decades, pulling emerald mist through itself. On those timescales the lattice’s occasional shiver is a lightning strike. Visitors, if ever tracked, become a geology; their footsteps become part of the folded strata, broken fibers revealed in the slow-toss hides of leafscale.
+
+Rules of the place:
+
+1. Anything you remember upon entry is held in the ice of your breath and will be returned only if you leave the same momentary forget behind.  
+2. With time your saliva crystallizes—the throat seals with lucent scales; speech after a day is impossible and after a week the lungs become chandelier-volume for the turquoise pulses.  
+3. The vegetation does not die, yet is not alive as living things know it; it is storage, polyphase green memory, cataloguing every photon that ever struck any leaf of the jungle the chamber holds. Accept the leaves’ gentle scorch and you browse that memory patchwork, frame after emerald frame, slower than tides colliding.  
+4. Direction tends inward: every vector is ultimately centripetal. A traveler may walk a hundred loops, straight lines, diagonal lapses—eventually the sole landmark is their own disappearance in the hiss of cold moisture stealing the last warmth from palms.
+
+When the lattice next murmurs, the tone aligns your heartbeat for three beats exactly with the slow suction that pulls water downward into sub-zero depths. You feel the tide of glacier-light dragging you down through capillary time. And because the dark is nearly absolute—save for the vanishing jets of turquoise—you learn again the textures of touch: Velcro beards of moss, lacerated by frost; the glassy skin of a bloom whose petals mimic unfolded satellite circuits; a finger-print shaped indentation in a root where perhaps some long-throttled visitor etched their name in molecular handwriting now stripped to the nub. Afterward the body becomes just another condensation, just another luminance released in slow flare accompanied by the breathing of the wet frost.
+
+One exits by remembering the shape of hunger. The stomach recalls a flavor absent three nights ago—then the cold floor rises up like lift-water flushing through drain into sunlight. Above ground the day continues long enough for a single exhalation to fog; the sky is ordinary, the street tree gone flat with the season. But beneath your coat, the turquoise filaments hum in your ribcage. And the lattice’s tone, once heard, is a seam that never quite closes.

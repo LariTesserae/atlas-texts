@@ -1,0 +1,15 @@
+Deep beneath the surface lies a sweltering maintenance level, a vast horizontal slice through the city's infrastructure that reads like a technical drawing made real. The ceiling hangs low - barely seven feet - creating an intimate, compressed space that stretches out in all directions through a forest of support columns.
+
+The air is thick with heat that rises from below, gathering in rippling waves near the ceiling. Water weeps constantly from overhead pipes, collecting in shallow channels that trace geometric patterns across the concrete floor. The drips echo in overlapping rhythms, a steady background percussion beneath the deep industrial drone that pervades everything.
+
+The rats own this place. They move in great swarms through the shadows, their mass flowing like liquid around the columns and machinery. Their constant motion creates a susurration that fills the humid air - thousands of tiny feet on wet concrete, countless small bodies brushing against pipes and conduits. They seem almost coordinated, moving with collective purpose through their urban habitat.
+
+Sparse fluorescent fixtures cast pools of sickly light that barely pierce the gloom, creating a patchwork of illuminated islands in the darkness. Steam rises wherever light meets standing water, adding to the perpetual haze. The few hardy plants that have found purchase here are pale, alien things that thrive in the artificial environment - ghostly fungi clustering around leaking joints, pale vines that seem to drink the condensation directly from the air.
+
+The infrastructure itself feels almost organic - a dense weave of pipes, cables, and conduits that pulse and throb with the city's circulatory rhythms. Pressure release valves hiss periodically like breathing. Pumps labor in the distance with a sound like massive heartbeats. Everything drips, sweats, and flows in slow but constant motion.
+
+Maintenance robots make their methodical rounds, their rubber treads nearly silent as they navigate the maze of supports. They pause occasionally to tend to gauges or adjust valves, indifferent to the rats that flow around them like water around rocks. Their indicator lights add brief splashes of color to the monochrome landscape - warning yellows, status greens, error reds reflecting off the wet surfaces.
+
+The space feels simultaneously claustrophobic and endless, the identical grid of columns and pipes stretching out beyond sight in the gloom. Time moves strangely here - the steady drips and mechanical rhythms creating a hypnotic effect, while the lack of natural light or seasonal change makes hours feel like minutes or days.
+
+This is the city's lymphatic system, where vital systems are maintained in a perpetual state of humid, teeming twilight. The rats have made it their kingdom, but they share it with the patient machines and pale fungi in an ecosystem uniquely adapted to this artificial environment.

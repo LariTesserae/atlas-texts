@@ -1,0 +1,57 @@
+# The Below
+
+It goes down farther than it should.
+
+Not in the way of caves — no karst plumbing, no water-cut passages, no dripstone. The passages were never hollowed. They were *left*, the way a mold is left when the casting is pulled away. Something vast occupied this space and then withdrew, and the stone set around the absence. The walls retain the impression: long vertical fluting, broad curves that suggest the former presence of cylindrical forms ten meters across, thirty, sixty. Where two impressions intersect, the stone is shattered into pale angular shards cemented by later mineral deposition — coppery sulfates, iron oxides in reds and mustard yellows, thin crusts of something translucent and waxy that has no name in surface chemistry.
+
+The temperature holds at thirty-four degrees. Everywhere. At every depth, in every chamber, in the tightest crevice and the most vaulted gallery. Thirty-four degrees, and the air moves so slowly that you feel it not as wind but as a lean, a barely perceptible drift in one direction or another, like the breathing of something so large that its respiratory cycle takes days. There is no convection. There is no gradient. The warmth is not *produced* here — it is a quality of the stone itself, or of whatever field the stone remembers. You do not cool off in side passages. You do not warm up near vents. There are no vents. There is only the warmth, uniform, everywhere, holding.
+
+---
+
+The scale becomes apparent only after you have traveled for a long time and the character of the walls does not change. A person might walk for two days down a single descending passage that never narrows below four meters and never widens beyond seven, always trending gently down, the floor tilted at an angle just steep enough to notice. Then the passage opens — without transition, without lip or threshold — into a chamber whose ceiling cannot be found by the beam of a hand-lantern. The floor drops away in steps. You realize you are standing on a shelf at the top of an immense terraced descent, and the terraces are not natural. They are cut. Each step is chest-high, the stone squared at the edges with a precision that would suggest metal tools except the tool marks are wrong — too smooth, too continuous, as if the stone was *parted* rather than carved. There are no pick scars. No percussion fractures. The stone was separated along lines of weakness that may not have existed until the moment of cutting.
+
+The terraces descend for what might be a kilometer of vertical drop. The horizontal extent of the chamber — you learn this only because someone has left markers, small cairns of flat stone stacked three-high at intervals — is something you cannot walk across in a day. The air does not echo. It should, but it doesn't. Sound here behaves as though the space were smaller than it is. You call out and the voice returns thin, compressed, as if the chamber has folded in on itself acoustically. The vastness is visual, spatial, but not audible. The dark is too full to carry sound properly. There is too much *in* it.
+
+---
+
+Because it is full. That is the thing you understand last and then cannot stop understanding.
+
+The floor of the great chamber — and every chamber, every passage at sufficient depth — is carpeted. Not with sediment. Not with guano or organic debris. With bodies. They are low, flat, ovoid things, the size of a man's spread hand, the color of the stone they rest on, which makes them nearly invisible until you crouch and let the lantern light rake across the surface at a low angle. Then the texture reveals itself: thousands upon thousands of them, layered two and three deep in places, each one pressed flat against the stone or against the one below it, so still they might be geological. Might be concretions. Might be nodules formed in the rock matrix and later exposed by the slow retreat of softer stone.
+
+They are not.
+
+Touch one and it is warm — the same thirty-four degrees, body temperature, though calling it *body* temperature presumes a body in the sense you understand. The shell, if it is a shell, is mineral: a chitinous-calcite composite, dull, the color of sandstone. There is no visible mouth. There is no visible eye. There is a seam along one edge, a hairline fracture in the mineral surface, and if you hold the thing long enough — five minutes, ten — the seam widens by a fraction of a millimeter and something inside moves. Not emergent. Not escaping. Just *adjusting*. Acknowledging the change in temperature, the change in pressure, the presence of a new object in its environment, and recalibrating.
+
+They are everywhere. In the passages, in the chambers, on the walls and ceiling — the ceiling-dwellers are smaller, paler, and they hang by a single fine tether of the same waxy translucent material that fills the cracks between shattered stone. On the terraced steps, they are piled in drifts where they have accumulated in the low corners. They do not move. The system is in equilibrium. They have been here, in these positions, in these numbers, for a length of time that makes the word "patient" meaningless because patience implies the expectation of change.
+
+---
+
+There are structures.
+
+Not many. Not enough to constitute a settlement, a civilization, a culture. But here and there, in the larger chambers, in the wider passages where the impression-walls give way to rougher natural stone, someone has built. The construction is crude — dry-stone walls, waist-high, built from flat shards of the shattered intersection-rock, fitted without mortar. They do not enclose. They do not appear to defend. They *arrange*. A wall here, curving for six meters, then stopping. Another there, parallel, creating a corridor that opens onto nothing. A low platform of fitted stone, two meters square, in the exact center of a chamber whose floor is otherwise covered in the flat oval bodies.
+
+The toolwork — where marks can be found — is consistent with stone implements. Not flaked stone; *ground* stone. Someone has taken river cobbles (there are no rivers here; the cobbles must have been brought from elsewhere, from a world with water, from above) and ground them against the local stone to shape it. The grinding is patient, methodical, and very old. The walls are the same warm color as the surrounding rock, which means they have been here long enough for the faint mineral exhalation of the stone — the slow precipitation of sulfates and oxides from the warm, still air — to coat them in a layer identical to the native surface. They have been here for geological time.
+
+No one is here now. The builders are gone, or the builders are the oval things on the floor, or the builders are something else entirely that has not been recognized. The structures remain because nothing changes here. Nothing erodes. Nothing grows over. The air is too dry, too still, too chemically inert to weather stone. A wall built here will stand until the stone itself recrystallizes at a depth of the planet's thermal gradient that this place will never reach.
+
+---
+
+The fauna — if that is what they are — do not only consist of the flat oval bodies.
+
+In the deeper chambers, where the terraced descent bottoms out onto a broad, gently undulating plain of stone dust — fine, dry, the consistency of flour, warm to the touch — there are other forms. They move. Slowly. So slowly that you must watch for a full minute to confirm it. Things like centipedes, but mineral: their segments are the same chitinous-calcite as the oval shells, their legs are crystalline spines that click faintly against the stone beneath the dust. They are the only source of sound besides the observer: a faint ticking, like a clock running slow, each click separated by seconds. They do not respond to light. They do not respond to vibration. They move in straight lines, ten or twenty meters, then stop, then redirect by a few degrees and move again. They are grazing. The dust is their pasture. What they extract from it — mineral, chemical, some element of the stone's deep warmth — is invisible, unmeasurable by any sense available to a surface-born organism.
+
+Larger forms exist in the deeper dark beyond the lantern's reach. You know this because the floor changes: the dust gives way to broad tracks, polished smooth, wide enough for a human to lie across. The tracks are old — the same mineral coating covers them — but they are *used*. The polish is maintained. Something heavy and smooth-bottomed has passed this way, and passes this way still, on a schedule so infrequent that the odds of witnessing it are vanishingly small.
+
+The system is in equilibrium. Nothing is being built. Nothing is being consumed in any way that diminishes the supply. Nothing is being born in any way that increases the population. The mineral centipedes click across the dust. The flat oval bodies lie in their millions on the chamber floors. The larger forms move in the deep dark on tracks that are kept polished by their passage. The warmth holds. The air drifts. The stone remembers the shapes of things that left.
+
+---
+
+If you stay long enough — and the builders must have stayed long enough — you begin to notice the patterns.
+
+The oval bodies are not randomly distributed. In the great terraced chamber, they are densest along the edges of each step, thinning toward the center. On the walls and ceiling, they cluster near the intersections of the fluting, where two cylindrical impressions meet. In the passages, they line the floor in rows that follow the gentle downward slope, always oriented with the seam-edge pointing downslope. They are arranged the way iron filings arrange in a magnetic field — not by choice, not by instinct, but by the shape of the forces that move through this place. The warmth is not merely warm. It is *structured*. It has directions. It has concentrations and rarefactions. The bodies have found their positions in the field and they hold those positions the way a stone holds its position in a streambed — not because they choose to, but because the forces that placed them there have not changed and will not change and the equilibrium is so deep and so complete that the concept of *change* belongs to a different world, a world with water and light and seasons, a world above and irrelevant and far.
+
+This is not a dead place. It is not a dormant place. It is a place where the distinction between living and mineral has been dissolved by time, where biology has retreated so far into the stone that the stone has become the biology, and the warmth is the metabolism, and the dark is the light, and the silence is the sound of a system so perfectly balanced that it has no need of event.
+
+The builders knew this. Their walls are not homes. They are *marks*. The way a person touches a wall to confirm they were in a room. Someone came down here from a world of water and air and growth, and they saw this, and they understood it, and they built a few walls — not to live in, not to shelter, but to say: *we were here, in the warm dark, among the mineral bodies, in the deep equilibrium, and we did not understand it but we recognized it, and we leave these stones to show that we passed through, and we are going back up now, back to the changing world, and we will not return.*
+
+And they didn't. And the walls remain. And the bodies lie in their field-positions. And the centipedes click. And the warmth holds.

@@ -1,0 +1,17 @@
+The world unveils beneath the heavy, crashing weight of relentless waves. The atmosphere is an undulating wall of water, both submerged and suspended in chaos, moving with the impulse of an endless deluge yet diffuse and not fully yielding to containment. Despite the omnipresent aquatic nature, this is not a serene underwater world but a realm drowned in a perpetual half-breath, as if living in the aftermath of an eternal flood. The deluge pulses and roars, each oscillation a mini-apocalypse that rearranges the essence of this place.
+
+The temperature lingers in a warm embrace, maintained by unseen geothermal forces that pulse from the raw, freshly formed earth beneath the swells. This is a recently birthed terrain, geological youth still apparent in jagged, sharp features that spear upwards here and there—a cathedral of stone needles amid the watery chaos. Elevated, jagged peaks thrust towards the watery ceiling, offering brief, precarious refuges from drowning.
+
+Vegetation is a rare sight in this aquatic turbulence, confined to scraggly patches of tenacious seaweed clinging to whatever semi-solid grounding they can find. These sparse greenery points serve more as markers of instability, bobbing and weaving in the currents, rather than thriving ecosystems. 
+
+Light attempts to break through the thick, roiling waters but is largely defeated, rendering the entire landscape bathed in dim, diffuse glows that grapple with shadows. Gleaming patches of bioluminescent algae intermittently punctuate the gloom, casting eerie, ethereal illuminations that dance in rhythm with the tumultuous flow, giving a sense of spatial disorientation.
+
+Upon the newly revealed hills and jutting rock formations, remains of an ancient, forgotten civilization are scattered—small structures and partial artifacts dot the submerged landscape, hinting at a history swallowed by time and water. These faint marks of previous existence are shrouded in mystery, stirring curiosity amidst the chaos and offering tantalizing questions without clear answers.
+
+The fauna, adapted to such a realm of extremes, are sparse and elusive. Ghostly shapes glide in the deeper, more stable pockets of water, their alien forms flickering in and out of perception, as if reality itself is barely able to hold them. Some are translucent, amorphous beings that seem to swim through existence, others are remnants of a primordial past, armored and hardy but few in number.
+
+In this realm, reality bends and warps with disjunctions in perceptual continuity. The very fabric of existence seems to crumble and reconstruct in an ongoing state of flux. Gravity feels inconsistent—objects fall then rise, water ripples and then stands still, and space itself seems more a suggestion than a steadfast truth. 
+
+The soundscape is deafening, a cacophony of rushing torrents, eerie calls from unseen creatures, and the thunderous crashes of newly emerging fissures and rock formations. It’s a symphony of chaotic creation and destruction, accosting the senses and drowning thought.
+
+Everything here moves in a frenzied, chaotic dance—waves crash, peaks rise and erode, structures appear and dissolve in sporadic bouts of energy, and the entire landscape is marked by ceaseless turbulence. It feels alive in a way that defies static comprehension, presence balanced with a throbbing void, a primordial paradox of existence emerging in a storm of deafening sound and twisted reality. This is a place born from calamity and teetering perpetually on the edge of another.

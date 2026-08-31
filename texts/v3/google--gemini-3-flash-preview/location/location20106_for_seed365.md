@@ -1,0 +1,19 @@
+The elevation here is a physical weight; the air is thin, sharp, and carries the perpetual chill of a high-altitude plateau that sits just below the frost line. It is a place of jagged, adolescent stone—shale and dark basalt that has only recently, in geological terms, been thrust upward. The peaks are needles, unblunted by time, slicing through a constant, low-hanging ceiling of violet-grey clouds.
+
+Because of this raw, sharp terrain, the city does not sit on the ground.
+
+The "urban" sprawl of this place is a suspended network of bridges and woven platforms, a hamlet-scale settlement of perhaps fifty dwellings clustered in a tight, vertical gorge. The architecture is primitive but obsessive: thousands of miles of braided lichen-fiber ropes and hand-hewn planks of pale, cork-like wood. These structures are lashed directly to the cliff faces with stone pegs. There is no metal here. Every joint is a knot; every wall is a weave of stiffened grass and mud.
+
+The light is a permanent, bruised twilight. The sun is a myth told by the upper peaks; down here, in the throat of the gorge, the illumination comes from the "damp." Water does not fall as rain so much as it breathes. It condenses on the underside of the hanging huts, forming heavy, glowing droplets that cling to the moss before falling into the abyss below. This intermittent moisture is the clock of the world—the rhythmic *tink-tink-tink* of water hitting stone far beneath the bridges.
+
+The vegetation is aggressive and silent. It does not grow in fields; it drapes. Thick, succulent-like vines with leaves the size of shields hang vertically from every outcropping, shimmering with a waxy, cold phlegm. Ferns with translucent fronds emerald-dark and heavy with dew crowd the narrow walkways, forcing the inhabitants to move in single file. Despite the lushness, there is a strange emptiness to the arrangement—vast, yawning gaps of cold air exist between one hanging garden and the next, making the greenery feel like islands in a sea of shadow.
+
+The silence is the most profound rule of this world. It is not an absence of life, but a predatory hush.
+
+The fauna is overwhelming, outnumbering the sentient inhabitants a thousand to one, yet they make almost no noise. The air is thick with "Glass-Wings"—translucent, moth-like creatures the size of hawks that glide on the thermal updrafts of the canyon. They move with a terrifying, oily grace, their wings shivering silently. Thousands of them roost on the undersides of the bridges, their multifaceted eyes glowing with a faint, cold bioluminescence. 
+
+Lower down, clinging to the vertical rock, are the "Pulse-Sliders," soft-bodied mollusks that move with a rhythmic, muscular contraction, leaving trails of glowing slime that serve as the city’s only streetlights. They are everywhere—underfoot, on the walls, sliding over the roofs of the woven huts. The ecosystem is in constant, frantic motion: the moths diving for smaller insects, the sliders consuming the moss, the vines uncurling new tendrils in real-time—but all of it happens in a vacuum of sound. 
+
+The social life of the town is conducted in a complex sign language of finger-snaps and subtle posture. To speak aloud is to invite the attention of the "Sky-Mutes," the apex predators of the high peaks that hunt by vibration. 
+
+The dynamic of this place is one of beautiful, precarious tension. It is a young world, still sharp and unkind, where life has bloomed with a desperate, lush ferocity. The inhabitants live in a state of primitive grace, suspended between the jagged rock and the silent, moth-filled air, moving through their green, dripping metropolis with the careful, quiet steps of ghosts. Every day, the moss grows thicker, the ropes grow slicker, and the city sways gently in the cold wind, a masterpiece of mud and fiber hanging over a void.

@@ -1,0 +1,23 @@
+The descent begins not into a cavern, but into an immense, inverted tower of basketry. 
+
+To stand inside this space is to be swallowed by a cathedral-sized cylinder buried deep beneath the earth, though you will find no exposed dirt, no raw bedrock, no natural substrate anywhere. The boundaries of this sunken world are entirely manufactured. The walls are an unfathomably complex macro-weave of thick, steam-bent timbers, bundled rattan, and colossal hoops of interlocking terra-cotta pipes. Even the "floor" across the abyss below is a series of overlapping, trampoline-like webs spun from cured leather and braided sinew, suspended above a dark, unseen drop.
+
+Through a massive, circular wooden grate at the zenith of the chamber, a single, brilliant cylinder of daylight punches down. This shaft of normal, unfiltered sun casts a rigid geometric grid over the hazy interior. Dust, flakes of dried skin, and drifting downy feathers constantly swirl lazy patterns in the golden light.
+
+The air is thick, close, and oppressively warm. It smells of damp wood-rot, crushed insects, animal musk, and oxidized resins. The warmth is metabolic and trapped, rising from the millions of living bodies that have occupied this space for millennia. As this hot, heavy air rises to meet the cooler drafts near the zenith grate, it condenses. Droplets form along the underside of the ancient structural timbers, swelling until they fall. This creates a perpetual, intermittent indoor rain. The water spatters against taut skins, pools in the cracked clay pipes, and wicks into the fibrous hawsers, creating isolated, dark-stained patches of dampness. 
+
+Because of this steep, vertical architecture and the lack of soil, flora struggles to find a foothold. Vegetation is anemic and sparse. Pale, stringy fungi bloom from the dampest crevices, and a few ragged, broad-leafed epiphytes cling desperately to the rougher bounds of the terra-cotta rings, surviving entirely on the humid breath of the chamber.
+
+But what the space lacks in greenery, it overwhelmingly makes up for in flesh, bone, and noise.
+
+The density of the space is staggering. Between the massive structural ribs, there are thousands of hanging alcoves, swinging bridges, woven hammocks, and jutting balconies. At any given moment, the walls are crawling. This is a thriving, frenetic metropolis of primitive, non-human industry. 
+
+Flocks of heavy-beaked, hook-winged birds nest in the hollows of the clay pipes, launching themselves into the central light shaft in chaotic clouds of slate-grey feathers. Below and around them, swarming over the wicker-work like ants on a hive, are the Architects. They are small, lemur-like mammals with silken auburn fur, large forward-facing eyes, and unnervingly long, many-jointed fingers. 
+
+The air vibrates with a deafening cacophony. It is a loud, ringing space that echoes like the belly of a giant drum. Every leap from one leather membrane to another produces a low, percussive *thwump*. This base rhythm is overlaid with the shrieks of the birds, the chattering barks of the mammals, and the endless, clatter-clank of their industry. 
+
+Everywhere, multiple processes of primitive engineering are in active motion. The auburn climbers do not merely inhabit the architecture; they maintain it. They wield crude, heavy tools: hand-axes knapped from scavenged flint, needles carved from bird bone, and mallets of polished hardwood. In one corner, a cluster of them rhythmically hammer soaked reeds into splintered gaps to patch a wall. In another, hunters leap through the air to snatch large, fleshy beetles from flight, cracking their carapaces against the beams to feed on the protein. Water-gatherers use hollowed-out gourds lowered on braided string to catch the condensation dripping from the upper pipes, drinking and sharing it among their tightly-knit colonies. 
+
+The erosion of the space speaks to an unimaginable age. This is an environment completely balanced in its own antiquity. The timbers that make up the primary walls sag heavily under their own load, warped into permanent bows. Yet, they do not break. The surfaces of the wood and the clay conduits have been polished to a slick, high-gloss sheen by the passing of millions of oily paws and calloused feet over countless centuries. Grooves have been worn inches deep into the hardest ironwood beams where generations of climbers have placed their footing. The architecture is a living record of their touch. 
+
+It is an unusual, mesmerizing ecosystem, trapped in a pocket under the earth. A world without dirt or stone, built entirely by claw and crude bone tool, sustained by falling dew and captured sunlight. It breathes, it screams, it rots, and it is endlessly, obsessively rewoven.

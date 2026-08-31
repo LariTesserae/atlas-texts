@@ -1,0 +1,87 @@
+The plateau is higher than clouds have any right to be.
+
+It rises in a long, exhausted swell above a world you never see—only hinted at by a dim horizon far below, intercepting storm stacks and slow thunderheads. Up here the air is warm and heavy, but not bright-hot; it feels as if the day has been held at a permanent late afternoon. Light comes clean, diffuse, washed through kilometers of atmosphere. No shadows are ever razor-edged. Everything has a slight softness, a long-distance blur.
+
+There is water everywhere, but almost never as open pools.
+
+It beads on every surface, condenses on ceilings, seeps from seams and joints, runs in thin, persistent films along channels worn into metal and stone. The plateau’s material—if you chip into it—isn't soil but a layered composite of weathered rock and something once-manufactured: pale, load-bearing frameworks that crunch like ceramic glass, pipes and conduit runnels so eroded they resemble hollow bones, and large plates of some alloy gone matte under eons of breath and fog.
+
+Rain falls, but it comes as events measured in centuries, as entire epochs of dripping and clarifying rather than storms. More common than rain are silent condensations: invisible shifts in equilibrium that suddenly silver every surface, that make the air itself feel like a wet cloth.
+
+The elevation is immense, yet the world does not feel exposed. The sky doesn’t seem far above. The reason is the city.
+
+It is less a city built upon the plateau than a city that *is* the plateau—a continuous, dense crust of construction that has slumped and settled and been worn down until it behaves like geology. Towers long ago collapsed and spread into terraces; transit spines became ridges; reservoirs slumped into hanging basins. Blocks subsided in slow avalanches and, over such time that no one remembers the transition, hardened into new cliff faces. Wind and water have erased sharp edges, curving everything into rounded profiles: no straight lines remain untaken by drip, by mineral bloom, by the patient chewing of a million tiny lives.
+
+What remains is a continent-wide highland of ruins-so-integrated-they’re-not-ruins, with density everywhere you look. No open fields, no bare rock. Every span of space is crowded with constructed forms: overlapping platforms, stacked verandas, suspended ducts turned into bridges turned into buttresses. It is easy to forget that any of it was ever “designed”—it looks, now, like something that grew.
+
+There is almost no plant life.
+
+Nothing leaves green. No leaves, no grasses, no moss in the terrestrial sense. What comes closest are thin pellicles and veils that grow across damp surfaces: translucent, rubbery films that ripple when disturbed, or brittle paper-layers that fracture into fractal shards when touched. These are not plants; they do not drink light. They are chemical eaters, mineral reorganizers, feeding slowly on rust and dissolved alloys and trace heat. When the light hits them at the low angle particular to this plateau, they gleam with oily interference colors—bands of violet, teal, and copper—not quite iridescence, more like the sheen of old hydrocarbons.
+
+On vertical walls and undersides of overhangs, other forms protrude: shelves and brackets of solidified drip, shaped less like mushrooms and more like glass stalactites that stopped mid-fall and forked. You can see their growth rings as parallel bands, minute laminations that tell you they’ve been accreting for ages. They are warm to the touch, faintly, from slow exothermic rearrangements inside them; not life as you know it, but something that keeps track, that responds.
+
+Still, the primary saturation does not come from such almost-life. It comes from animals.
+
+Fauna fill this world the way vegetation fills a rainforest: as background, as architecture, as constant assumption. The plateau city is occupied at every scale.
+
+On the largest scale, in the diffuse light, you notice shadows moving across the middle distance—not cloud shadows, but slow shapes: great jointed things moving along the softened skeletons of overbridges and arcologies, whose original purpose no one remembers. They look from afar like moving sections of the city itself deciding to relocate. They step carefully, testing every surface, because much of the old superstructure is hollow now. Their bodies are sheathed in overlapping plates grown from scavenged alloys and the calcified secretions of the fungal-mineral films. In their passing, draped condensation rolls off them in sheets; you could almost take them for walking cliffs shedding waterfalls.
+
+Closer, the density of life becomes overwhelming. The air has a constant living sound: the low collective breathing of millions of small bodies, the high clatter of hard limbs on hard surfaces, occasional long-distance thunderings when something large negotiates a failing span and the bones of the city shift.
+
+The fauna evolved (or were made and then left) for a world without leaves.
+
+Many are filtrators of water, grazers of mineral films, or scavengers of the constant organic thinness: the fallen bodies of their own kind, the sparse bacterial mats that form where water lingers longest, the rare intrusions of something from beyond the plateau's rim. Their colors tend toward matte whites, rust-browns, wet charcoal, and faint luminous gres—hues that, when wet, become subdued and reflective, disguising individual forms in the generalized sparkle of the environment.
+
+On a hand-sized scale, you see creatures like many-legged brackets that cling flush to walls, pulsing slowly as they scrape and absorb the films beneath them; their hardened outer surfaces show etch-marks identical to the erosion patterns, as if they’ve decided mimicry isn’t worth separate evolution but simply *become* another layer of weathering. Other things dart and skitter in every gap: glossy-bodied crawlers with translucent shells showing muttering organs within, long thread-limbs jointed in too many places—each limb tipped not with claws but with cilia-like brushes for combing nutrients from wet metal.
+
+There are flyers, too, but wings here are heavy, designed more for controlled falling than agile soaring. The air is dense and damp; it resists. You see broad gliders that throw themselves from cornice to broken balcony, membranes stretched between riblike spars, rising occasionally on slow thermal plumes that leak from deeper in the structure. They emit low hoots and thrums, sounds that vibrate in the metal of the old city and travel farther through walls than through air. Sound here is not only communication; it is a tool to map hollows, to test load-bearing spans, to sense new cavities opening somewhere in the depth.
+
+The loudness of this world is not a single roar but a layered, shifting collage.
+
+From far below, so attenuated by distance that it’s more sensation than sound, comes the slow, bass groaning of the plateau adjusting under its own weight. Think of glaciers moving, but slower, quieter, and made of construction instead of ice. Closer at hand is the continuous patter and rattle of life in motion: millions of footfalls, scraping mouthparts, the ticking of shell against pipe, drip after drip after drip of water shifting position in this artificial geology.
+
+Then there are the industrial organs.
+
+The plateau is not entirely dead in its machinery. Somewhere in its deep strata, engines still turn. They no longer serve an obvious purpose—if they ever truly did one you could name—but they have settled into the background like another climate system, predictable in their slow cycles.
+
+You hear them as distant turbines, cycling with the regularity of tides. Somewhere in the inner volumes, water is being pumped—always uphill, against gravity, from the lower world to the high plateau. It spills then in cooled steam along buried vents, condenses again on the gigantic roof of the city, and rains inward in trickles and falls. The warm temperature is in part their doing: heat from inefficiencies, from friction in ancient bearings, from currents never allowed to rest.
+
+Now and then you notice long, horizontal exhalations from slits in the ruin’s skin—warm, moist air rushing outward, carrying a thunder of embedded clanks and knocks. The fauna know these rhythms. Colonies have grown thick around the exhaust mouths, timed their reproductive cycles to the pulses of warmth and vapor that come like seasons, except the season here might be one outbreath every few days, every few months, every dozen years.
+
+The technology still humming here is not openly visible as neatly functioning factories. Instead, you see decay frozen at the halfway point between collapse and repurposing. A column meant as structural support has been hollowed, ring by ring, into a vertical habitat, its interior lined with shell-shedding chambers and brood pockets. Yet, deep at its core, you hear a muffled shudder: something still pumping through it, some fluid or current that the creatures neither understand nor contest. They simply incorporate it as weather.
+
+On some terraces, you might encounter vast, motionless arrangements of old machinery—ranks of turbines and pistons, lattices of rail and cable and conduit. They no longer move, but life has swollen through them like tissue through bone: nests inside the volutes of fans, elaborate layered hives packed into flywheels, the machines’ forms now just another topography. Yet if you listen carefully, beneath the busy clamor of the present dwellers, there remains a very faint hum: residual currents, ghost voltages still searching for circuits that no longer quite exist.
+
+The rules of this world are slow.
+
+Nothing here happens suddenly, except at the brittle scale of individual fates—a fall from a corroded ledge, a predator’s strike from a hidden alcove. On the scale of the landscape and the city-plateau itself, change is a matter of centuries, of millennia. A failing structural span will telegraph its coming collapse long in advance through groans and micro-fractures detected vibrationally by the fauna; over generations they adjust their routes, avoid the area, hollow it further or brace it with mineral secretions, until what could have been an abrupt failure instead becomes another gentle subsidence, another new valley added to the maze.
+
+Weather, too, moves slowly. Moisture seeps and migrates rather than falls in storms. A thickening of the mist over one quarter of the plateau is an event of decades. As air currents shift more permanently, habitats drift: corridors that were once dry become forever damp; galleries once full of hissing, shell-drying heat become cooler; some gullies turn into standing runs of near-constant tricklewater, birthing whole ecosystems of delicate, translucent grazers that will never venture beyond their narrow domain.
+
+Light has its rituals. There is a normal day-night cycle, but at this altitude and amid this constant haze, dawns and dusks are long and drawn-out. Night doesn’t bring cold sharpness—only a gentle lowering of energy, a slight thickening of fog. Many creatures are indifferent to the clock of the sky; they live instead by deeper pulses: by the beat of some immense pump far underfoot, by long-term oscillations in water pressure through the guts of the plateau, by the trickle-shifts of chemistry in the mineral films they graze.
+
+From time to time—because not everything is entirely balanced—sections of the plateau *do* fail catastrophically. A whole quarter of an old zone might, one day, at last, decide to let go, shearing away in slow-motion landslides of towers and decks, descending in ponderous, rumbling curtains toward the unseen lowlands far below. From the perspective of the plateau’s clocks, even these collapses are just another pulse, another fall in a sequence of falls that began before the memory of any current life-form. Creatures, attuned to tiny precursors you could never sense, evacuate in advance, streaming across skybridges and down subducted ramps until the losing section becomes a massive, crumbling shelf, its energies now feeding life in the depths.
+
+The scarcity of recognizable vegetation has shaped behavior. Many animals maintain symbioses with the mineral films and fungal-like skins.
+
+You see, now and then, a large slow crawler—half again as long as a tram-car—whose back is covered in a lumpy, multicolored crust. This is not armor alone but a deliberately cultivated garden of films: each patch specialized for processing a different sort of runoff, for extracting traces of metals, for excreting nutritional slurries that the host then licks from its own carapace with flexible, forked tongues. The creature moves from condensation vein to condensation vein, presenting its back to drip-lines, parking under weeping ceilings for months at a time, then lumbering on when its garden is sated.
+
+Predators, lacking cover in the usual sense, instead use architecture and sound. Some have bodies that mimic dangling cables or reinforcing rods, hanging perfectly still against real cables until some unsuspecting smaller creature uses them as a travel line. Others are resonance hunters: they emit narrow-frequency clicks and pulses into floor-plates and columns, listening for the particular internal echoes of soft bodies moving within hollow spaces. To prey they may seem like the city itself awakening—sudden clangs and thrums underfoot—right before a concealed panel gives way and jaws emerge from the wall.
+
+Weirdness, here, is measurable but not flamboyant. The laws of physics remain recognizably your own. Gravity is gravity, water is water, metal corrodes, heat flows from hot to cold. What feels unusual is the way everything has had time to reach mutually reinforcing balances.
+
+For instance: in certain cavernous interiors, you find hazes of slowness. Air seems thicker, swirls persist longer than they should, droplets hang a little too long before falling. You learn that these are not illusions but swarms so dense and so tiny that they behave almost like another state of matter: microscopic creatures, perhaps, or self-organizing filaments, that physically impede motion on minute scales, turning the very air into a kind of living gel. Large creatures move through them with patient effort; small, darting ones avoid such zones entirely. They have carved, over ages, circulation pathways in the atmosphere itself.
+
+Rules of inheritance and memory are likewise slow and infrastructural. There are no books, no obvious terminals, but some of the still-functioning tunnels and shafts act as long-distance communication vectors. Vibrations injected into certain columns will surface, generations later, as tremors in another part of the plateau, encoded as modulations over the base hum of the engines. Some animal groups have learned to exploit this: to stamp or drum in patterned ways on resonance points, sending out migration cues or simple signals about the persistence of certain hazards. On human timescales these messages would feel absurdly delayed—arriving decades or centuries after they are sent—but for the plateau’s cycles, they are timely.
+
+At the scale of feeling, the place is overwhelming but not frantic.
+
+You are never out of earshot of multiple kinds of motion, of breathing, of machinery. Every surface is already claimed; every ledge and hollow has layers of occupancy. The density is such that true emptiness feels shocking, unsettling—you rarely find a corridor without at least some tiny movement, a drip with no mouth waiting beneath it. Yet, because everything important happens over long spans, there is almost no chase, no rush. Creatures wait, graze, adjust. They share the same limited vertical bands and horizontal flows, weaving around one another with the practiced timing of traffic in a city that has grown used to congestion over aeons.
+
+Step out to the edge of a high cantilever—one that has not yet, but will someday, fail—and you can see an almost featureless gray-brown undulation fading into mist. Only slowly do your eyes resolve it into stacked terraces, circular holes, arcs of collapsed superstructures, all of it overgrown not with forests but with patterns: the glimmer of films, the sprawl of shell-hives, the rhythmic flicker of signaling soft-lights some creatures use to coordinate in the gloom.
+
+Far down the vertical face, threads of water fall—barely more than constant drizzles, but continuous for such long periods that they excavate narrow grooves of brightness. They vanish into the lower murk where, perhaps, this whole high plateau feeds some other forgotten world.
+
+The atmosphere up here tastes faintly metallic and faintly alive. You breathe in not pollen but aerosolized dust of shell and film, moist and warm, flavored with slow chemistry. Inhale, and you can feel—not think, feel—that this is a place that has reached an equilibrium so deeply that it’s no longer sure where the boundary between city, geology, machine, and organism lies.
+
+It all simply is: a vast, high, weathered, saturated plateau, draped in water, thick with non-plant life, its buried machines clicking and humming at the speed of continents, its multitudes moving within it like blood through the bones of some ancient, slumbering titan that will never truly wake and never quite die.

@@ -1,0 +1,13 @@
+Deep within the crust, in a hollow no larger than a cathedral’s crypt, exists a city carved entirely from porous, mineral-slicked basalt. It is a place of perpetual humidity, where the "water" is not rain, but a rhythmic, heavy condensation that beads on every surface, tracing ancient, weathered veins in the stone like a slow, mineral sweat.
+
+There is no sky here, only the low-slung, vaulted ceiling of the cavern, which glows with a faint, bioluminescent lichen—not a plant, but a pulsing, primitive microbial colony that clings to the darkest crevices, providing a dim, bruised-purple light.
+
+The city is a dense, claustrophobic marvel of simple, hand-hewn architecture. Thousands of tiny, honeycomb-like dwellings are packed into the walls, separated by narrow, vertiginous stairways and slick, moss-free bridges made of volcanic glass. Nothing grows. There is no wood, no leaf, no soil; the world is entirely tectonic and calcified. It is a landscape of "established" erosion; the structures look as though they were melted into existence by the steady, unyielding drip of mineral-rich water over eons, creating a harmony of rounded edges and hollowed-out chambers that feel more grown than built.
+
+The air is thick, saturated with moisture and the metallic tang of cooling magmatic rock.
+
+The sound is the true master of this pocket-world. It is thunderous. Because the architecture is so dense and the hard stone surfaces provide no absorption, the constant, rhythmic *drip-clack* of water falling from the ceiling onto the hollowed, tiered basins below echoes with the intensity of a forge. It is a cacophony of liquid percussion—a steady, unceasing beat that has played for millennia. Because the environment is in a state of "frozen equilibrium," the rhythm never falters; it is the heartbeat of a world that does not intend to change.
+
+Fauna is rare, but exists. Small, translucent, centipede-like creatures with no eyes scuttle along the damp walls, their chitinous plates clicking against the wet basalt. They move with manual, intentional grace, navigating the tiny, sophisticated infrastructure of the city. They seem to be the primary maintainers, using primitive hooked tools to scrape mineral deposits away from the drainage channels, ensuring the water keeps moving, keeps falling, and keeps the sound—the sacred noise of the crypt—perfectly, deafeningly constant.
+
+Time feels heavy here. It is a place where you do not look up or out, but inward, trapped in the wet, dark, and clamorous embrace of a city that was finished long before the surface world turned its eyes to the sun. It is a machine made of rock and water, humming its singular, loud, and wet song in the dark of the earth.

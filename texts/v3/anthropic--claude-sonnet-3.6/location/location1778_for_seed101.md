@@ -1,0 +1,15 @@
+Inside the hollowed heart of an ancient kapok tree, generations of careful hands have built a vertical garden-temple that stretches from roots to canopy. The walls are a living tapestry of woven vines and carved wood panels, every surface cultivated and tended. Tiny channels, carved with stone tools and lined with clay, guide condensation and rainfall down through the levels in deliberate patterns, feeding pools and plants with mathematical precision.
+
+The sound is overwhelming - thousands of ceramic wind chimes hang in dense clusters, ranging from tiny bells to hollow tubes as long as an arm. They create an ever-changing wall of sound that drowns out individual notes into a constant roar of ceramic percussion. The chimes serve as both musical instrument and communication system, their patterns shifting with the movement of air through the structure's complex ventilation network.
+
+Countless small chambers spiral up through the interior, connected by narrow bridges and steep stairs notched into living wood. Each room is its own microhabitat, carefully maintained by the temple's inhabitants. Some spaces are thick with ferns and mushrooms that thrive in the artificial twilight, while others capture shafts of sunlight that pierce through strategically placed openings, creating brilliant pools of illumination where fruit-bearing vines flourish.
+
+The air is warm and heavy with moisture, though never stagnant - the temple's design creates constant air circulation, drawing breeze through carved vents and up through the central shaft. This moving air carries the mingled scents of flowers, incense, cooking fires, and the sharp green smell of continuously growing things.
+
+Small animals have made their homes throughout the structure - brilliantly colored tree frogs in the dampest corners, iridescent beetles that tend to fungal gardens, nectar-drinking birds that flit between flowering vines. The temple's caretakers consider these creatures part of the design, their movements and activities as essential as the flow of water or the growth of plants.
+
+Every surface shows evidence of human hands - smooth from years of touch, carved with intricate patterns, woven into complex textures. Yet these modifications feel like collaborations with the living materials rather than impositions upon them. New growth is constantly being trained into desired patterns, while old wood is carefully reshaped as it ages and shifts.
+
+The entire structure thrums with activity: priests tending to plants and channels, apprentices learning the patterns of the chimes, small animals going about their business, water flowing through its appointed paths, all wrapped in the perpetual roar of ceramic bells that makes normal conversation impossible and forces communication into gesture and touch.
+
+At the very top, where the great tree opens to the sky, a platform of woven branches holds a pool that reflects the clouds above. Here, finally, one can rise above the sound of the chimes, though their vibration can still be felt through the living wood underfoot.

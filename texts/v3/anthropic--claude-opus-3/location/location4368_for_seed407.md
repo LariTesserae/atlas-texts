@@ -1,0 +1,15 @@
+In a hidden crevice deep beneath the ocean's surface lies a surreal, shimmering pocket of warmth and impossible light. The small, spherical space, no more than twenty feet across, hovers suspended within the crushing depths and cold darkness of the abyssal plain.
+
+Inside this aberrant bubble, the water glows with a pulsing bioluminescence, casting undulating patterns of turquoise and gold across the curved stone walls. The light seems to come from everywhere and nowhere at once, untethered to any visible source. It illuminates a fantastical scene of organic and constructed elements woven together in defiance of nature's laws.
+
+Delicate arches of scalloped volcanic glass, paper-thin and razor-sharp, stretch from floor to ceiling like the ribs of some gargantuan beast. Their obsidian surfaces drink in the light, reflecting nothing. Swirls of pink and white mineral deposits paint the spaces between, growing in elaborate, fractal blooms. Pearlescent tubes and chambers of calcium carbonate wind through the glass like blood vessels or neurons, pulsing gently.
+
+At the center of the space, a torus of shimmering quicksilver rotates slowly, suspended in midair. It rings like a singing bowl, sonorous and achingly pure, the sound resonating through the bones and viscera rather than the ears. Symbols flutter across its surface like a living text in an unknown language, their meanings always just beyond comprehension.
+
+Strange tools and artifacts, forged of materials both familiar and utterly foreign, hover motionless around the quicksilver ring, equidistant and precisely arranged. A teardrop of molten gold, its surface hardened but its heart still burning. An amethyst geode, cracked open to reveal teeth of clockwork brass. A gyroscope of polished whalebone in a cage of thorns. A dodecahedron of superconducting ceramic, etched with images of unknown stars.
+
+The water here has a slick, oily texture, imbued with an almost electrical charge that tingles against the skin. It tastes faintly of tin and petrichor, an impossible terrestrial flavor at these depths. Invisible currents move through it in complicated whorls and eddies, shifting and reknitting themselves in endlessly recursive patterns.
+
+Occasionally, a flicker of motion disturbs the eerie stillness as a ghostly, translucent creature darts past. Soft-bodied, boneless things, like sacks of jelly with pulsing hearts of mercury and needle-thin filaments trailing from their shapeless forms. They brush the artifacts and structures as they pass, producing chiming notes that layer and echo into eldritch harmonies.
+
+This place exists outside of time, never changing, a frozen moment of ruptured reality suspended eternally in the lightless abyss. A shard of dream made manifest in the physical world, terribly beautiful and achingly mysterious. A hidden temple to an unknown god, or perhaps a machine beyond human comprehension, carrying out an inscrutable purpose through the eons in the darkness of the deep.

@@ -1,0 +1,21 @@
+The place is a basin, a broad bowl scooped out of the bedrock and not yet weathered smooth. It is young, this basin; the rock faces that ring it are sheer and sharp, their edges still raw, unblunted by time. The floor of the basin is not flat, but undulating, a series of low ridges and shallow troughs that catch and hold the little light that filters down. This is a place below the surface, not a cave, but an open-air depression, a sunken world.
+
+The air is cold, a deep, mineral cold that comes from the stone itself, from the earth’s unyielding chill. There is dampness here, but it is not a soaking rain; it is a condensation that beads on every surface, a breath of moisture that rises from the ground in slow, wavering veils. The water is not free-flowing; it is captive in the capillary systems of the living substrate, drawn up from deep, unseen reservoirs and released in a slow, constant exhalation.
+
+And everything is plants.
+
+Not trees or grasses in any familiar sense, but a total vegetation, a plant-as-substrate that forms the very ground. The floor of the basin is a living carpet, a dense, fibrous mat of root and vine and mycelial network that has replaced soil. It is soft underfoot, yielding and damp. The ridges are not rock, but the hardened, woody growth of centuries of slow, upward pressure—plant architecture at a geological scale. Great, arching structures of hardened cellulose and lignin soar overhead, not canopies, but the vaulted ceilings of an immense, living cathedral. The air between them is filled with drifting spores and the fine, thread-like hyphae of fungi that connect the whole system into a single, breathing organism.
+
+The ecosystem is pure plant, a closed loop. No animals prowl here, no birds sing. The fauna is rare—a few insects, perhaps, or the blind, pallid things that burrow in the damp substrates—but they are incidental, not integral. The life is in the plants, and the plants are everything.
+
+And it is loud.
+
+The sound is not of wind or water, but of growth and contraction, of the slow, immense pressure of living matter. It is the creak of woody fibers as they thicken, the soft, wet pop of spores releasing, the deep, sub-audible hum of the entire system as it processes its own decay and regrowth. The sound is deafening because it is constant, a presence that fills every moment, a pressure on the eardrums that is felt as much as heard. It is the sound of a world without silence.
+
+Scattered through the basin are the artifacts of a previous age: the bones of industry. A single, rusted engine housing, its pistons seized in a permanent down-stroke. A length of conduit, still humming with a faint, residual electricity, its purpose long forgotten. A low wall of brick, half-consumed by the living substrate, its mortar replaced by fungal glue. These are the marks of a technology that was industrial, scaled, and electrified—a technology that once carved this basin out of the rock, that once powered the great machines that now lie silent. The built environment is sparse, scattered, the faintest memory of a human presence that has been almost entirely erased by the relentless, patient growth of the plants.
+
+The light is dim, a perpetual twilight. The sun is a distant memory, a concept rather than a reality. The light that reaches the basin floor is a filtered, greenish glow, refracted through the layered canopies of plant architecture, scattered by drifting spores. It is enough to see by, but not enough to define sharply; edges blur, distances soften.
+
+The dynamics of the place are slow. Change happens across generations of plant growth, across the slow mineral leaching of the rock. The water cycles through condensation and root-uptake over months, not days. The basin itself is a still bowl, a settled depression, a place where time moves at the pace of the root, not the clock.
+
+It is a normal place, this basin. There is no weirdness here, no magic or paradox. It is simply a world where life has found a way to fill every niche, where industry has been silenced by growth, where sound is the constant voice of a living earth, and where cold and damp and dim light are the natural state. It is a place that exists in the quiet, deafening aftermath of its own creation.

@@ -1,0 +1,41 @@
+Beneath a small stone courtyard, behind a square trapdoor that looks too plain to notice, there is a drowned room.
+
+It is not a cavern. Nothing here was left by geology. Every surface has been argued into shape by hands: cut blocks, tamped clay, lime plaster, ceramic pipe, wood wedges swollen tight in their sockets. The chamber is young enough that the tool marks still have edges. Chisel bites stand in rows along the submerged walls like neat comb teeth. Corners remain sharp where the plaster has not yet rounded. Mortar seams are pale and clean. Even where the water has begun its work, it has only softened the highest grains, leaving the place with the raw brightness of something recently completed and almost immediately claimed by flood.
+
+The room is small, but the water makes it feel deeper than it is. It is a pocket of architecture sunk below the level of the street: a cistern, a bath, a catchment, a reservoir, perhaps all of these at once. Stairs descend from the trapdoor, but only the first two steps are dry. Below them the stairway continues in wavering golden perspective, each stone tread magnified and distorted under warm, clear water. The bottom is not far, yet it withdraws from the eye. Light breaks and reforms over it constantly.
+
+The water fills nearly everything.
+
+It laps at the underside of the ceiling beams. It presses into niches. It stands inside empty clay jars stored along one ledge, making them hum faintly when the current crosses their mouths. It covers the low work platforms, the drainage channels, the carefully laid mosaic of fired tiles on the floor. The whole chamber is less a room containing water than water temporarily persuaded to remember the shape of a room.
+
+The brightness is startling. From above, several narrow shafts admit daylight through grates and rain-openings in the courtyard. The builders lined these shafts with white lime and fragments of shell, so that sun falls down them in concentrated columns. Where the beams strike the flooded chamber, they burst across the surface and scatter over the walls in trembling nets. Nothing is dim. Even the lower corners, where one expects green shadow, are lit by reflection from pale plaster and water-polished tile. The place glows as if the flood brought daylight with it.
+
+Rain is the loudest presence.
+
+It falls somewhere above in a hard, warm sheet, hammering the courtyard stones, drumming on the wooden hatch, rushing through gutters. The sound enters through the light wells and ceramic downspouts, multiplied by the cistern’s curved surfaces until it becomes almost architectural: a roof made of noise. Water pours from three spouts at different heights. One throws a thick rope of runoff into the central pool, striking with a hollow, continuous roar. Another spits in pulses, coughing air between bursts. The smallest leaks steadily from a seam and ticks on the flooded stair, each drop impossibly distinct beneath the general thunder.
+
+The air pocket under the trapdoor is warm and wet, smelling of lime, soaked wood, new clay, and rain on dust. Beneath the surface the water is warmer still, sun-fed and enclosed. It has the faint mineral taste of plaster and fired earth. Touch any wall and it gives back heat stored from the day above. The chamber is below ground, but not cold; it is like the inside of a vessel left in the sun.
+
+There is almost no life.
+
+A few strands of green cling where silt has collected in shallow seams: thread algae, tender water weed, maybe the first transparent leaves of some courtyard seed washed down and stranded in a crack. They do not yet make a garden. They are sparse gestures, small tests of whether the room will allow rooting. Along the highest wet ledges, a powdery bloom of pale moss has begun, but it is thin enough that the plaster shows through. There are no insects skating the surface, no fish, no tadpoles, no shells fastened to the stone. The recent lime still discourages them; the water is too new, too managed, too often flushed. Life has only begun to make inquiries here.
+
+The emptiness matters. The eye travels across broad surfaces of water and blank pale wall before finding anything to rest on: a wooden sluice handle, a coil of rope darkened by wet, a hand-thrown cup turning slowly in an eddy, a ladder pegged to the wall and descending into brightness. Objects are few and widely spaced. Each one seems placed with care, not decoration but use paused mid-action. A clay measuring rod is tied near one stair. Marks burned into it show preferred depths. Beside it, a simple float of sealed gourds rises and falls with the pool, tugging at a cord that leads to a bell above. When the cistern swells too high, the bell must ring in the courtyard, warning whoever tends the place to open the overflow gate.
+
+Everything here works by simple means: gravity, slope, hand pressure, weight, swelling wood, ceramic throats. No hidden engine moves the water. Rain gathers on roofs, travels by gutter, enters through spouts. Silt drops into settling troughs. Clearer water spills over low lips into the main chamber. When the level rises, excess escapes through a square tunnel set near the ceiling, its mouth barred with wooden slats. When the rains cease, someone will come with a pole-hook and open the lower plug, letting water descend into storage jars or channels beyond the wall. The entire system is understandable to a patient hand.
+
+Still, it is active.
+
+Currents cross and fold over one another in visible patterns. At the falling spout, bubbles plunge downward in a white column, then loosen and rise like seeds. The surface climbs by finger-widths during heavy rain, pausing, climbing again, breathing against the steps. In corners where the flow is weak, suspended grains turn slowly in amber light. In the main channel, the water runs clean and fast enough to pull threads of algae flat against the stone. Silt gathers behind little ridges left by uneven mortar, making miniature deltas on the submerged floor. Every edge is becoming a shoreline.
+
+The terrain is made of levels. Steps, ledges, lips, channels, basins: all the geometry of a dry room converted into underwater relief. The stairway is a descending reef of squared stone. The central floor is a shallow plain of tile, interrupted by a raised platform that now sits like an island just beneath the surface, visible only as a trembling rectangle. Along one wall, a row of niches forms dark pockets of stillness. On the opposite side, a spillway cut with fresh precision draws water through a narrow throat, where it quickens and sings.
+
+Because the chamber is small, every change is immediate. A cloud crossing the sun above dims the whole world. A fresh rush of rain cools the topmost layer by a breath, and thin veils of temperature slide through the pool. If someone steps on the dry stair, the vibration travels into the water and shakes loose a silver skin of bubbles from the plaster. If a hand closes the sluice, silence does not come, but the room’s voice changes: less roar, more dripping, more hollow resonance, more individual notes from jars and pipes.
+
+The rules of the place are plain.
+
+Keep the grates clear. Do not muddy the settling trough. Do not leave wood untied, because floating things will find the overflow. Do not trust the first step under water; algae begins there. Read the measuring rod before opening the lower plug. Let the pool settle after rain before drawing drinking water. Bring no animals into it. Bring no oil. Bring light if coming at night, though by day the chamber makes enough of its own.
+
+It is a hidden landscape, contained within masonry, but it has weather, depth, current, erosion, colonization, and time. Its cliffs are plastered walls. Its valleys are drainage grooves. Its rainstorm is piped and amplified. Its vegetation is a handful of green threads holding to fresh seams. Its sky is a set of bright square openings far above, shining through a ceiling of warm water and sound.
+
+Nothing here feels ancient yet. The flood has not had centuries to round the corners or stain the walls dark. The cistern is still in the first season of becoming itself. It remembers the builders’ hands. It remembers dryness. But the rain is teaching it another form, and all day the warm water rises, falls, pours, clears, clouds, brightens, and speaks.

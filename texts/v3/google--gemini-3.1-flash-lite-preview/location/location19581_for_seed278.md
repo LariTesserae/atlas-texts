@@ -1,0 +1,15 @@
+The geography is an iron spine, a continental range of jagged, frozen basalt that stretches toward the horizon until the curvature of the world swallows the peaks. Here, the air holds a permanent, metallic chill—a thin, brittle cold that tastes of ozone and ancient crust.
+
+There is no wind, or rather, the wind moves with such glacial patience that it is felt only as a shifting in the pressure of the eardrums. The landscape is dominated by the erosion of eons: the cliffs are worn into smooth, charcoal-colored curves, polished by unseen forces until the stone looks like oil-slicked glass. It is a vast, grey silence, punctuated by the occasional drip-hiss of condensation gathering in deep, light-starved crevices.
+
+And yet, despite the bone-crushing emptiness of the terrain, the world is crowded.
+
+Hidden within the deep shadow of the mountain folds, and buried within the seams of the basalt, are the engines. They are not built by hands, nor placed by any known industry. They are a geologic anomaly, a form of crustal technology that hums with the slow, rhythmic cadence of a tectonic heart. Great brass-toned pistons, thick as redwood trunks, push sluggishly against the canyon walls, grinding minerals into a fine, nutrient-rich dust. Massive, rusted copper conduits protrude from the permafrost, leaking a warm, amber-colored fluid that sustains the only life here: a sparse, creeping lichen—a strange, pale-blue moss that thrives on the vibrations of the machines.
+
+This is a place of overwhelming biological density, but it is not a world of sunlight or flourish. The fauna here consists of millions of spindly, arachnid-like creatures made of translucent chitin, no larger than a thumb. They do not hunt or communicate in any way audible to a human ear. They simply *exist* in a state of hyper-saturation, carpet-layering the basalt in vast, shivering mosaics. When they move, they do so with a synchronized, slow-motion crawl, their thousands of legs creating a sound like the rustling of heavy velvet curtains. 
+
+There is a terrifying, indifferent mechanical rhythm to the ecosystem. Every few years, a section of the mountain range will pivot on its base, gears of obsidian rotating silently against gears of schist, reconfiguring the landscape to better catch the dim, ambient luminescence that filters through the heavy cloud cover. 
+
+The water here is not liquid in the traditional sense; it exists as a heavy, clinging mist that clings to the moss and condenses on the cold metal of the rhythmic pistons. It is a world operating on a scale that ignores biology. The machines do not care about the creatures, and the creatures are simply the static electricity of the machines' slow-motion grinding. 
+
+In the hollows, where the moss grows thickest, the air is thick with the scent of wet iron and petrichor. There is no decay, for the cold prevents it, and the machines ensure a constant, grinding renewal. It is a silent, continental engine—a sprawling, unbuilt factory of stone and chitin, turning aimlessly and perfectly in the dark, waiting for a purpose that was likely forgotten centuries before the mountains learned to grind.

@@ -1,0 +1,13 @@
+In the hollow heart of a partially-collapsed thermal dome, a pocket of impossible water hangs suspended in the humid air—not quite rain, not quite ocean, but something between states that physics hasn't named yet. The water exists as a living membrane, a translucent wall that curves around this small cathedral space, maybe thirty meters across at its widest point. Through its shimmering surface, shapes move like thoughts half-remembered.
+
+The dome's floor is young basalt, still sharp-edged from recent formation, scattered with hexagonal cooling patterns that click softly underfoot. Steam vents pepper the dark rock, each one crowned with a small jungle of heat-loving ferns and mosses that glow faintly bioluminescent in the dim amber light filtering through the water-wall. The vegetation grows in isolated clusters—a spray of crimson orchids here, a spiral of kelp-like fronds there, each plant community separated by stretches of bare, warm stone that radiate gentle heat.
+
+The air thrums with a constant, low harmonics—part whale song, part industrial hum—emanating from the water itself. Sometimes the sound peaks into something almost musical, as if the membrane is trying to speak. The temperature hovers just at the edge of comfortable, making everything feel fever-bright and slightly unreal.
+
+Through the water-wall's surface, creatures move in slow procession: things with too many fins, beings that might be jellyfish if jellyfish had geometric patterns that hurt to look at directly, schools of fish that occasionally form into symbols before dissolving again. They cast shifting shadows on the basalt floor, shadows that sometimes linger longer than their makers.
+
+Near the dome's apex, where the curvature is tightest, a single piece of technology rests on a natural stone shelf—a device like a crystalline sea urchin, its thousand faceted spines occasionally pulsing with light that seems to bend space around itself. It's clearly artificial, but following design principles that make engineers weep with incomprehension. When it pulses, the water-wall responds, its surface rippling in patterns that suggest it's not just containing this space but actively maintaining it.
+
+The whole chamber breathes slowly, the water-membrane expanding and contracting in cycles that take nearly an hour to complete. During expansion, new plants unfurl from hidden spores. During contraction, some of the swimming shadows grow more solid, pressing against the barrier as if testing its strength. 
+
+Time moves strangely here—minutes stretch like honey while hours collapse into moments. The boundary between inside and outside, between water and air, between now and then, grows softer the longer you remain.

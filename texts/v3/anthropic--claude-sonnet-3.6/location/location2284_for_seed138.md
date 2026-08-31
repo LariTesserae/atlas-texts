@@ -1,0 +1,17 @@
+Deep within the sprawling megastructure of Habitat Ring Seven, there's a place the maintenance crews call the Howling Garden. It's a roughly spherical chamber, perhaps thirty meters across, though it's hard to measure precisely because every surface undulates with dense, engineered vegetation.
+
+The plants here aren't quite plants as we'd recognize them. They're bio-synthetic constructs, part of the habitat's life support and atmospheric processing systems. Their "leaves" are arrays of nano-scale collectors and processors, gleaming with an oily iridescence under the ambient light that seems to come from everywhere and nowhere. The entire chamber throbs with their working – literally throbs, as the engineered flora pushes processed air through microscopic channels with a thunderous, rhythmic pulsing that makes the deck plates vibrate.
+
+The heat is oppressive, not just ambient temperature but the metabolic waste of billions of tiny machines working in concert. Condensation beads constantly on every surface, running in rivulets down the twisting vines and collecting in shallow pools before being reabsorbed into the system. The air is thick with humidity and the sharp, electric smell of ozone.
+
+What appears at first glance to be random organic growth reveals itself, on closer inspection, to be intricately organized. The "plants" form helical patterns that optimize air flow, their structures following mathematical principles that extend from macro to micro scales. The entire chamber is a single integrated machine, every part connected to every other part.
+
+The noise is overwhelming – not just the thrumming of the air processors, but the high-pitched whine of molecular assemblers, the deep bass resonance of pump systems, and a constant sussuration of liquid moving through countless tiny channels. The sounds combine into a wall of white noise so intense it seems to have physical presence, pressing against your skin.
+
+Movement is everywhere, though none of it is animal life. The plants twist and flex continuously, responding to internal pressures and the needs of the system. Tendrils extend and retract, panels fold and unfold, and waves of motion pass through the growth like wind through wheat, though there is no wind here – only the precisely engineered flow of processed atmosphere.
+
+The chamber has been operating continuously for decades, possibly centuries. The original sharp edges of its construction have been softened by layers of growth, every surface adapted and optimized by generations of self-modifying bio-machinery. It's an intimate space that feels simultaneously claustrophobic and vast – vast in the complexity and density of its systems, in the sheer amount of activity packed into this relatively small volume.
+
+Maintenance access requires special protective gear – not just for the heat and noise, but because the bio-synthetic organisms are perfectly capable of incorporating new materials into their systems. More than one careless tech has lost tools to the hungry growth, watching them be slowly dissolved and absorbed into the endless cycles of the garden's metabolism.
+
+It's beautiful, in its way – terrible and fascinating and utterly alien, yet serving a fundamentally human purpose: the processing of air, the maintenance of life. A pocket-sized industrial revolution, wrapped in gleaming pseudo-flesh and humming its endless, deafening song.

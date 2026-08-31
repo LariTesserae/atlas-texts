@@ -1,0 +1,11 @@
+The landscape unfolds as a vast industrial membrane, a continental-scale surface that is simultaneously emerging and dissolving. It's less a place than a process—a warm, loud, active membrane of proto-geological becoming.
+
+Imagine a terrain of metallic sedimentations, where industrial infrastructure grows like crystalline growths from a nearly-empty substrate. Massive mechanical structures rise and sink, not quite buildings, not quite geological formations. They pulse with electromagnetic rhythms, generating their own weather—condensation clouds forming around hot mechanical cores, momentary rivulets of metallic liquid tracing temporary rivers across surfaces that are simultaneously constructing and eroding themselves.
+
+The scale is planetary, but not in any traditional sense. This is a world-surface that feels more like a living circuit board, with rare mechanical fauna moving like electrical impulses through its infrastructure. These entities are part machine, part energy pattern—flickering between solid and wave-state, generating loud resonances that sound like industrial music played through massive speakers.
+
+Moisture exists not as water, but as condensation events: momentary liquid bridges between mechanical structures, quick phase transitions that map complex thermodynamic interactions. The surface doesn't have traditional erosion, but constant reformatting—structures dissolving into new configurations, mechanical strata constantly reorganizing.
+
+The light is normal, but strange—it seems to emerge from the infrastructure itself, a kind of bioluminescent industrial glow that pulses with the system's internal dynamics. Temperature radiates from massive engine-like cores, creating localized climate zones that shift and merge.
+
+This is a landscape at the edge of recognition: part machine, part geological event, part energy pattern. It's not alive in any biological sense, but it moves, breathes, transforms—a vast urban-industrial membrane constantly rewriting its own parameters.

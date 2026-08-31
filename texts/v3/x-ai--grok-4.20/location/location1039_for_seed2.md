@@ -1,0 +1,29 @@
+The place has no sky and no seabed. It is called the Hollow.
+
+You are already far beneath any surface that could still be called “ground.” The world here is an endless, three-dimensional volume of cold, clear water—cold enough that your breath would freeze into glittering needles if the air were not already replaced by liquid. Pressure is heavy but strangely stable, as though some titanic machinery keeps the depth from crushing everything flat. Light arrives from no single source; instead it drifts down in thick, pale shafts that move like searchlights through cathedrals of rust and black iron. The shafts are normal daylight filtered through kilometers of ocean, yet they never quite fade. They simply wander, steered by unseen lenses or currents or both.
+
+Everything that exists has been built.
+
+There is no stone, no sediment, no natural rock. The substrate itself was engineered in some unimaginable earlier age and has since been forgotten by its makers. What remains is an architecture so vast it has its own weather. Horizontal planes the size of continents hang unsupported in the water, held by titanic cables thick as train tunnels. Between them drift forests of scaffolds, half-finished lattices, ventilation towers tall enough to have their own cloud layers of microbubbles, and factory catwalks that stretch for hundreds of kilometers without ever touching anything solid. All of it is young—edges still sharp, welds still bright, barnacles and iron oxide only just beginning to blur the original lines. The structure is still settling; every few hours a new girder the length of a mountain range groans into place somewhere far away, sending a bass note through the water that you feel in your teeth.
+
+The Hollow is almost empty.
+
+Between the hanging megastructures lie cubic kilometers of nothing but clear, cold water. You can swim for an hour in any direction and meet only the occasional drifting mechanical arm or a school of pale fish that have learned to follow the moving shafts of light. Yet the emptiness is loud. The place roars. titanic engines pulse in the distance, their rhythm so slow it feels geological. Compressors the size of cities gulp and sigh. Somewhere far above (or below, direction is negotiable here) a waterfall the width of a sea falls upward through a breach in one of the planes, roaring as it is sucked into intake vents the size of craters. The sound never stops; it only changes texture, moving from the low tectonic moan of the engines to the metallic scream of pressure valves, to the constant hiss of bubbles streaming from ten thousand leaks.
+
+Vegetation is almost nonexistent—only sparse colonies of pallid sea grass clinging to the undersides of platforms and long ribbons of kelp that have been deliberately seeded along current channels so the water itself stays oxygenated. They wave like tattered banners in the slow, deliberate currents that the machines maintain.
+
+Life, however, is abundant in its own mechanical way.
+
+Swarms of pale, blind fish the length of your arm move in perfect formation, following the lights the way birds once followed the sun. Between them glide larger shapes—maintenance drones shaped like manta rays, their bellies glowing soft amber, endlessly repairing hairline fractures in the iron. Packs of things that might once have been seals but now wear brass collars and articulated metal fins patrol the perimeter of the larger platforms. They click and whistle in frequencies that make the water sing. All of them are part of the same active, relentless ecology of function. The drones shepherd the fish; the fish keep the kelp healthy; the kelp feeds minute creatures that keep the water from going anoxic; the engines keep the currents moving so the light shafts keep drifting. A closed, industrial loop on a planetary scale.
+
+There is no natural substrate and no wasted space, yet the overwhelming feeling is one of colossal, half-finished ambition. You are inside something that was clearly meant to become far more than it currently is—perhaps a world-engine, perhaps the skeleton of a continent that was never allowed to finish growing. Every surface is riveted plate, pitted bronze, blackened steel, rubber-sheathed cable thick as redwoods. Nothing organic has been allowed to dominate. Even the rust is disciplined; it grows in geometric patterns that suggest the original paint is still fighting a slow, losing battle.
+
+The Hollow has its own weather.
+
+Every twelve hours a cold front of denser brine rolls through the open volumes between the hanging cities, bringing curtains of white microbubbles that roar like applause. Lightning sometimes arcs between ungrounded spires kilometers apart, lighting the water an electric green for whole seconds at a time. Pressure fronts move like invisible storms, squeezing and releasing the water so that entire districts of scaffolding sing in brass and iron. The shafts of surface light bend and fracture in these density gradients, turning the liquid into shifting prisms the color of winter.
+
+You are never truly alone, yet the emptiness between each presence is so total it feels like being the last living thing inside a machine the size of a planet. The engines keep turning. The lights keep drifting. The iron keeps settling into new, sharp configurations. And the cold, clear water—more water than any ocean that ever existed on the old surface—carries every sound, every pulse, every metallic heartbeat across distances so vast they beggar any sense of scale you once possessed.
+
+This is not a ruin.
+
+It is a construction site that has already outgrown its builders, and it is still growing.

@@ -1,0 +1,11 @@
+Far below the earth's surface, in a realm untouched by sunlight, lies a vast world shaped by the elements. This is the domain of Axus, a recently formed and ever-evolving ecosystem that exists beneath the surface of a mysterious, subterranean sea.
+
+Axus is a world of contrasts. Beneath the cool, crystalline waters teeming with life, a small but vibrant ecosystem has emerged. The water's edge is a captivating mosaic of intricately woven architecture, an alien metropolis built by industrious beings who have learned to harness the raw power of the submerged world.
+
+Here, the sea is the heartbeat of life. The liquid environment pulses with all the elements of an ongoing natural cycle. Tides shift, creating constant waves that ebb and flow, tugging at the structures built by the industrious beings. The ebb and flow of the tides mirror the dynamism of the creatures who call this place home. Electrified by deep sea currents, these creatures resemble sparkling lanterns that dance with purpose amidst the murky depths.
+
+Despite the substantial presence of water, the atmosphere remains notably thin, providing a sense of emptiness. Amidst the sporadic formations of machine makers and the ever-changing streams of currents, a surprising sense of clarity exists. The skies, suspended over the world of Axus, seem lightweight, as if they could be manipulated by the beings who forged this place–a testament to the world's unnatural creation.
+
+The sound in Axus is a testament to its activity — it is loud, a chorus of constant mechanical hums and whispers of the sea. Engines chug and whistle, while the myriad creatures contribute their own symphony. Their voices echo and reverberate, as echoes carry far on the empty plains of Axus.
+
+Despite its vast scale and peculiar features, Axus is surprisingly normal. Yet, it can't be described merely as normal — it is a world of its own, with rules and cycles that play out beneath the surface of the submerged sea. For here, far from the familiar world above, the cold, deep, and young landscape of Axus thrives, perfect in its engineered existence.

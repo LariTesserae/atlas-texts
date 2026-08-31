@@ -1,0 +1,23 @@
+# The Suspended City of Mevaz
+
+At this elevation, the air is thin enough to make your ears pop. The mountain range stretches beyond sight, an array of dark slate peaks and ridges like the spine of some titanic beast half-buried in the earth. The most unusual feature, though, is what appears to be a city—if that's the right word—suspended in the void between three mountains.
+
+Mevaz clings to existence in the high thin air, a sparse network of structures connected by rope bridges and narrow stone pathways. From a distance, it resembles a spider's web caught between peaks, with tiny lights flickering in the perpetual twilight. The buildings themselves are elementary in construction—hewn stone, primitive mortar, and timber salvaged from the sparse woodlands far below—yet their arrangement defies conventional understanding.
+
+The city does not rest upon the mountains but rather hangs within the space between them, supported by an intricate network of cables and counterweights that creak softly in the cool winds that perpetually sweep through the heights. These cables are woven from plant fibers collected from the rare vegetation that clings to sheltered ravines—a tough, silvery grass with remarkable tensile strength.
+
+The air here is damp but rarely rains. Instead, moisture collects as a fine mist that beads on surfaces and slowly trickles down collection channels carved into the buildings. This water, pure from its journey through the atmosphere, is the lifeblood of Mevaz, carefully gathered in clay cisterns throughout the suspended network. The collecting channels form intricate patterns across the structures, decorated with primitive symbols that seem to change configuration when viewed from different angles.
+
+Most curious is how the city appears to be simultaneously ancient and newly formed. Certain sections look weathered by centuries of exposure, while others seem to be emerging spontaneously from the very air itself—raw stone coalescing from mist, wooden beams growing like branches from existing structures. The inhabitants—few and far between—work constantly but silently, adding to this living architecture using simple hand tools and techniques passed through generations.
+
+The ecology is sparse but specialized. Pale lichen clings to the undersides of pathways, glowing with a faint bioluminescence when darkness falls completely. Tiny six-winged insects hover in the mist, their translucent bodies visible only when they pass through shafts of the dim light that occasionally breaks through the cloud cover. Rare birds with impossibly long wingspans glide between the peaks, never landing within the city but circling it with what appears to be deliberate purpose.
+
+Sound is swallowed by the vastness here. Conversations carry no further than a few paces before dissipating into the thin air. The predominant sounds are the subtle creaking of the suspension system, the soft whisper of mist collecting in channels, and occasionally, the resonant tone of stone chimes that the inhabitants strike to communicate across distances—a language of pure tones rather than words.
+
+Most peculiar is the city's relationship with gravity. In certain pockets, particularly near the central hub where several major support cables intersect, objects fall more slowly than they should. Small items—dropped tools, scattered seeds—sometimes hang momentarily before continuing their descent, or occasionally drift sideways rather than down. The inhabitants move with a practiced understanding of these anomalies, stepping more deliberately in some areas, using specialized footwear with small hooks in others.
+
+Mevaz exists in a state of perpetual becoming—neither fully formed nor decaying, but constantly in a process of emergence. Structures that appeared solid one day might be partially dispersed the next, only to reconsolidate in slightly different configurations. The inhabitants themselves seem to accept this fluidity as natural, adapting their pathways and routines to accommodate a city that refuses to be fixed in space or time.
+
+To visit is to question one's perceptions. The cool, thin air and dim light play tricks on the senses. Distances expand and contract unpredictably. The sparse vegetation that clings to the cables sometimes appears to move of its own accord when not directly observed.
+
+This is Mevaz—a city suspended between mountains, between states of being, between comprehensibility and mystery—floating in the high, cool air like a half-remembered dream.

@@ -1,0 +1,28 @@
+At first it feels like a district of a city left out in the rain for a century and never allowed to dry.
+
+Not ruined—settled. Adapted. The streets have accepted water as a permanent resident. Stone lanes lie a few inches below the waterline, and every curb is furred with moss, iron-red algae, and thin white mineral bloom. The place sits low, almost bowl-like, so mist hangs between buildings even when there is no active rain. Walls sweat. Railings bead with condensation. Underfoot, every step finds either slick brick, iron grate, or shallow standing water that reflects weak amber lamps in broken ribbons.
+
+The scale is surprisingly intimate. This is not a vast metropolis but a compact quarter, maybe six or seven blocks across, enclosed by retaining walls and old flood gates. You can walk from one edge to the other in ten minutes if you know the raised walkways. Yet it feels dense enough to be larger: narrow service alleys stacked with pipes, suspended conveyors crossing above streets, gantries between rooftops, terraced workshops, cistern towers, pump houses nested into former apartments. Everything is near-touching. Vertical, layered, close.
+
+Vegetation does not conquer the district; it occupies it. Ferns crowd around warm exhaust vents. Thick vines trail from cracked cornices and disappear into gutter mouths, feeding on constant moisture. Rooftops support sodden gardens of broad leaves, reeds, and low fruiting shrubs trained in wire frames. In the dimness, greens shift toward deep bottle and black jade. Some masonry has gone soft with centuries of root pressure, and there are places where whole walls are held together as much by woven stems as by mortar. The plants seem old companions of the machines, not their enemies.
+
+The architecture is heavy and weathered: dark brick, basalt blocks, riveted steel, glazed tile long dulled by mineral film. Corners are rounded by erosion. Stair treads are scooped by generations of wet boots. Drain channels have polished themselves smooth. Even active factories look ancient because every surface wears the same long history of rain, steam, rust, and repairs. New work appears as patching—fresh bolts on old plates, newer conduits strapped to older mains, bright ceramic insulators mounted on century-old beams.
+
+Light is always partial. The sky, when visible, is the color of pewter soaked in milk. Most illumination comes from sodium lamps under awnings, furnace windows, indicator panels, and the greenish glow of algae-lit cisterns. In open courtyards after rainfall, light gathers in puddles more than in air. Faces and facades are seen by reflection first, direct sight second. Depth feels uncertain: a lane might end in a wall or continue as a mirror-slick canal until a ripple gives it away.
+
+For a place with slow change, it is loud all the time. Not sharp noise—continuous bodies of sound. Pump stations throb in patient rhythm to hold water levels a handspan below workshop floors. Belt lines hiss and slap. Steam releases in long sighs. Chains creep over gears. Somewhere, always, a pressure hammer falls at measured intervals, as if marking hours by impact. Rain on corrugated roofs adds a soft static when weather moves through. The district never quiets; it drones like an organ sustaining one immense chord.
+
+And yet almost nothing happens quickly. Water rises and falls by centimeters. Moss mats expand over months. Corrosion blooms around bolt heads like slow flowers. Production lines run steadily, not urgently—endless fabrication of ceramic valves, pump seals, filtration mesh, cast housings. The rhythm is maintenance of a condition rather than growth or collapse. People here, if you watch long enough, move with that same logic: deliberate, efficient, no wasted motion, as if hurrying would offend the machinery.
+
+There are no animals. No birds on wires. No insects around lamps. No strays in alleys, no fish in the channels despite their depth. The absence becomes one of the district’s clearest features. Nothing skitters when you approach. Nothing sings at dawn. Rot behaves differently here: plant matter softens, darkens, mineralizes, but is not chewed. Gardens are pollinated by hand and by mechanical dusters mounted on rails. Seed transfer is a scheduled utility service. Silence where life would usually chatter is replaced by engineered sound.
+
+The strangeness is most obvious in the waterworks themselves. The quarter runs on “breathing towers”—tall, ribbed columns of porous ceramic that cool at night and condense atmospheric moisture into internal cisterns. By day they warm and exhale fog back into the streets through louvered vents, maintaining humidity that feeds rooftop crops and keeps certain machinery toleranced. The city has become a managed marsh without open marshland: wetness manufactured, circulated, measured. Pipes carry not only water in and waste out, but phases—vapor lines, condensate returns, mineral slurry, reclaimed gray.
+
+Local rules are simple and rigid:
+
+- Never obstruct a red-marked drain; that lane is part of flood relief.
+- Never touch a humming bronze rail in wet weather; it is live grounding infrastructure.
+- Doors painted with white ripples open inward to refuge chambers when surge sirens sound.
+- If the lamps shift from amber to blue, pressure inversion is underway—stay off lower walkways until bells clear.
+
+Over long time, this district does not become something else. It deepens into itself. Brick darkens, steel pits, roots thicken, pumps are rebuilt, channels are relined, fog keeps collecting under bridges. It is an urban wetland made by industry and preserved by habit: warm, dim, saturated, loud, and patiently alive in every way except the animal one.

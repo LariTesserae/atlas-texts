@@ -1,0 +1,51 @@
+The first thing you learn here is that “green” doesn’t mean “wet.”
+
+At high elevation the air is thin enough that your breath feels like a borrowed thing, and the cold is not the friendly cold of snowfields—there is no snowfield, no melt, no sheen—only a steady, desiccating chill that takes moisture from anything careless enough to have it. The ground has the look of an old plateau that has finished most of its arguments with time: broad-backed ridges, long shallow basins, mesas smoothed to dull geometry, and the occasional monolith left behind like a punctuation mark in a sentence worn nearly flat. Erosion has had eons to sand away drama. What remains is a terrain of final forms.
+
+And over all of it, the light is low. Not night, not even dusk—more like a world seen through smoked glass. The sun (or whatever luminous body rules this sky) is present as a pale pressure rather than a source. Dust hangs high, and the vegetation itself—dense in total coverage yet sparse in its presences—filters and swallows illumination. Shadows are soft-edged; distances are readable by silhouette and sound before they are readable by detail.
+
+Sound arrives first, and it arrives loud.
+
+Wind is a constant, not a weather event: high, dry flow that moves across the plateau as if it has a schedule. It combs through forests that are not forests in the terrestrial sense: not trunks and leaves, but structures—ribs, plates, lattices—plant-made architecture tuned to resonate. The air shouts through them. It produces organ notes, beating tones, sudden harmonics when gusts align with hollows. Layered beneath the wind is the urban hum: an endless, distributed vibration from infrastructure threaded through living tissue—clicking relays you can’t see, deep periodic thumps like a far-off engine, and a brittle, sparkling hiss when the plants discharge static into the air.
+
+There is no water. Not as puddle, not as river, not as fog worth naming. The world’s chemistry has been decided against it.
+
+Here the “plants” are total—everything that isn’t bare mineral is living substrate—but their life is built on dry solvents and bound volatiles: ionic gels, waxy salts, and tight molecular cages that hold just enough reactive fluid to move ions and fold proteins without ever giving in to wetness. Their tissues are matte and mineral-like, pale greens and smoky violets, coated in dust and protective films. When cut, they do not bleed; they exhale a faint, sharp scent like hot stone and crushed batteries, and their sap comes out as a stringing gel that quickly skins over into a glassy thread.
+
+The vegetation does not blanket the land as a continuous carpet. It is everywhere, yes, but with restraint: islands and bands and long, disciplined corridors, as if a mind planned the emptiness between. Open space remains—wide mineral courts, exposed ridge-lines, basins of powdered salts—and that sparseness makes each living structure feel intentional, placed.
+
+Some of these structures are low: mats that cling to rock like woven fabric, their surfaces patterned in repeating hexagons that open and close with temperature changes. Others rise as towers—living columns braided around ancient stone cores—venting faint, invisible plumes of processed air. In dim light they look like ruins until you notice the slow movement: a tower’s outer skin tightening against the wind, a seam rotating a few degrees to face a subtle thermal gradient, a field of plates shivering in coordinated ripples as if the ground has exhaled.
+
+The city is not set *on* the vegetation. The city is entangled with it.
+
+From a distance you see the urban pattern as a set of luminous veins—not bright, but steady: faint lines of embedded conductors and photonic channels running through the plant-substrate, stitching districts together. Buildings rise where the living lattice thickens: mid-height blocks and terraced halls grown around scaffolds older than memory. Some walls are clearly constructed—stone-like composites, metal-black ribs—but they are stitched into living membranes that seal and flex. Doors are not hinged; they dilate. Bridges do not span so much as *braid*—three or four living cables twisting into a walkway that hums underfoot with current and sap-flow.
+
+Beyond-modern technology here does not sit apart from ecology; it is one of the ecology’s organs. The plants are engineered—perhaps they always were—to act as sensors, power lines, filters, computation. Their leaves (if you can call them leaves) are thin panels studded with microstructures that drink dim light and, more importantly, harvest wind: piezoelectric tissues that turn constant vibration into charge. The city’s energy is a distributed thing, collected everywhere in small amounts, stored in salt-gel capacitors grown inside roots that are not roots so much as buried networks.
+
+The rules of the world are written into this: **free water is a contaminant.** It’s treated like a wild solvent that corrodes the carefully balanced chemistry. In some districts you can find warning sigils not about fire, but about moisture. Dehumidifiers are not appliances; they are civic monuments: tall intake spires that sing as they pull the last stray molecules from the air. When a rare meteor brings hydrated minerals, teams come out in sealed suits to quarantine and vitrify it. Children are taught to spit into filters. Tears are collected.
+
+Yet life is abundant.
+
+Fauna move through the plant-architecture with the ease of long coevolution. There are grazers that scrape waxy biofilms off plates, leaving clean arcs like careful mowing. There are hopper-creatures with chitin like ceramic, built to minimize vapor loss, that nest inside warm vents where infrastructure leaks a little heat. You hear them before you see them: clattering in groups across hard surfaces, calling in bursts of percussive clicks that ricochet through the resonant lattice.
+
+Above, in the dim air, things glide rather than fly—sail-bodied organisms that use the plateau’s constant wind and the city’s thermal plumes. Their wings are thin membranes stretched over fiber spars, and when they bank they produce a low, foghorn moan that makes your chest feel tuned with them. Pollinators exist too, but “pollen” is not a powder: it’s packets of information and material—spores in desiccated capsules, sometimes carried in the mouthparts of insectlike beings whose bodies are half insulation, half antenna.
+
+Predation has found its own shapes. Some hunters are quiet—camouflaged against stone, waiting at the edge of open salt courts where movement is easy to track. Others are loud on purpose, using the world’s acoustics: they call, and the plant-lattice answers, relaying vibrations across kilometers. A scream in one quarter can be a map in another. The ecology here is not only food-web but signal-web.
+
+The loudness of the place is not just wind and animals. The vegetation itself makes noise.
+
+At intervals—hourly, perhaps, or tied to pressure changes you can’t feel—whole tracts of plant-architecture will *shift*. Plates fold. Vents yawn and seal. Cables tighten with an audible twang. It’s like listening to a city made of ship-rigging adjusting for a storm that never ends. When the cold deepens, you hear crackling as salt-gels contract; when the wind spikes, the towers sing higher. In certain streets the ground emits a rhythmic, almost musical thrum: sap-pumps driving ions through conductive tissue, infrastructure synchronizing to stabilize the grid.
+
+All of this activity happens over terrain that looks ancient and nearly finished. That contrast is part of the strangeness: the stone is old enough to feel indifferent, but the life on it is restless, engineered, alert.
+
+If you walk out beyond the urban districts, the scale opens. The city doesn’t stop abruptly; it thins into outposts: a lone relay spire grown from a ridge crest, a cluster of habitation pods nested in a hollow where the plant-mat is thickest, a roadway that is less pavement than a cleared, hardened strip of living tissue that repairs its own cracks. Beyond that, the plateau extends in great quiet swells of mineral, punctuated by vegetation that seems placed for function—wind-harvest arrays, dust filters, silent gardens of low mats that trap static and keep the air charged.
+
+In the far distance, you can make out older shapes half-buried in the living substrate: arcs of some prior construction, too large to be mere buildings, too deliberate to be geology. The vegetation has incorporated them, grown over them, used them as bones. In places, the living skin has thinned enough that you can see faint lights moving inside—slow, purposeful, like thoughts traveling through an ancient brain.
+
+And always the dryness asserts itself. Lips crack. Exposed skin tightens. Anything porous becomes brittle. Yet the plants do not wilt. They thrive on scarcity so total it becomes a stable element of the world, like gravity.
+
+The atmosphere is not friendly, but it is consistent. Weather here is not rain; it is dust, pressure, charge. Storms come as walls of abrasive powder that turn the dim light even dimmer, and the city answers by closing. Vents seal with heavy sighs. Streets dim. The plant-architecture locks into a storm posture, surfaces aligning to shed grit, resonant cavities shifting their pitch until the wind’s loudness becomes a controlled, lower roar.
+
+Afterward, when the dust settles into basins like pale flour, the vegetation slowly reopens. Grazers come out to lick mineral films. Gliders return to ride the restored thermals. The whole place begins humming again—not as recovery, but as routine.
+
+It’s a high, old land that has been made—by evolution, by design, or by something that has blurred the difference—into a city-sized organism. Dry as a bone, crowded with life, dim with dust-filtered light, and always, always loud: a plateau that sings because it must, because in a world without water, sound and wind and current are what carry everything that needs to move.

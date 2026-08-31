@@ -1,0 +1,13 @@
+The landscape before me is an extraordinary convergence of water, technology, and darkness. At an elevation of 2.1/3, it occupies a high vantage point, perhaps atop an undersea mountain range where the pressure is extreme and the only light is that produced by the place itself.
+
+The water level is at 2.9/3, a deep, dark ocean where only the hardiest of hydrothermal vent creatures can survive. The seafloor stretches out in every direction, an endless, featureless plain of black basalt and gabbro. Here, there's a sprawling, underwater metropolis — perversely gorgeous, dense, and alive with technology despite the conventions of environment.
+
+The structures of the city twist and curl like gothic spires, covered in anemones and glowing jellyfish. Their outsides are slick with the mucus of symbiotic sea slugs, while their interiors hum and whir with the soft whine of advanced artificial intelligence and the click-snap of safety catches on submersible drones. Tendrils of fiber-optic cable stretch between towers, lighting the dark with a soft, ethereal glow that might pass for daylight in this desolate place.
+
+As I wander the narrow, winding streets of the city, I see life in flashes of bioluminescence. Anglerfish dart through side alleys, their lights flashing as they communicate in Morse code. The occasional, larger creature — octopus, squid, giant isopod — looms in the darkness, its eyes glowing red as it watches me.
+
+Throughout the city, I see artifacts of an earlier era. Crumbling stone statues stand atop pedestals, covered in coral and anemones. Devices that look like early scuba tanks or sonar buoys hang in shopwindows, dusty and still, telling stories of a time when humans must have come here, and explored, and eventually settled. But the only humans I see are representations — statues, holograms, fragments of digital video on loop in empty store windows.
+
+The air inside the city's pressurized spaces is cool and dry, maintained at a comfortable temperature for the strange, evolved creatures that inhabit this alien world. Water trickles over the insides of domes, a soothing background noise that might be the only sound in the city if not for the occasional rumble of subterranean volcanic activity or the scream of a divinely angry seagull.
+
+This place is a mystery, a relic of a science and a society I don't recognize. But here in its dark, water-filled streets, I feel something like peace, something I might call "home", if I could only find a way to describe it.

@@ -1,0 +1,11 @@
+Under the dense, gray canopy, the air is thick and muggy, rising in visible waves from the soggy ground. Residual puddles form tricky stepping stones between the twisted, limestone pillars that loom, dripping from the low overhead. A forsaken industrial site, overgrown and gritted, where ancient brick and concrete are collapsing into a thick layer of leafmold.
+
+Water is present in every sense. Percolating through cracks, steaming from chugging valves, condensing on the underside of rusted catwalks and tubes. Triangular ducts belch a languid mist of boiling fog, while deep underfoot, geothermal liquids circulate, adding to the cloying humidity.
+
+A few straggly ferns and vines have found purchase in the rough unworked stone, and soon will pull it all down into the sink. But this is not so much a lush, vibrant veneer of vegetation as an initial gossamer of life starting to drapes over the waste cistern. The great lichehens are huge and thick set, as if toelemented to erode an entire world from the skin in.
+
+Skittering through the Debris are the fauna, enormous, scuttling, and more mechanical than natural. Upsized beetles, indifferent spiders, and crouched serpents, all compounded from natural feathers, fur, shell and scales with layered girders, pistcts and servos. Each is as large as a steamer trunk, and adapted to emerge from their warrens and scan and exploit the space. In the air, huge dragonflies flick their buzzing wings, haloed with Saint Elmos fire.
+
+Towering over All, derelict spires of pitted rivetted steel, these are the ruins of a vast factory, collapsed heavy into the earth, where blind windows look out over the cistern. From its ancionales bellows airbladders and impellers rumble on, vetriculating in laborious cycles to output great gouts of steam into the underthrums, then sigh themselves still.
+
+Soon the leafmold will reclaim the site and perhaps in time a moist, waulooded cathedral will rise from the place, fathomed in muck. But for now, it is a constitutional hibernal limma; dererict and deviant, caught between puruals in rebound, exhaling and exhutureing, dying and being reborn.

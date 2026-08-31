@@ -1,0 +1,27 @@
+The first thing that strikes you is the noise. It is not merely loud; it is a physical pressure, a solid, deafening wall of sound that vibrates in the hollows of your chest and rattles your teeth. It does not echo, because there is no empty space for it to bounce through. The air itself is choked with it. 
+
+This is a lowland basin, a vast, sunken geographical bowl trapped beneath a permanent, bruised-gray overcast. The light is dim and shadowless, filtered through a thick, warm mist that hangs heavy in the air. The temperature is deeply, muggily warm, the kind of humid heat that settles into the lungs and makes every breath feel like drinking from a warm bath. 
+
+There is no green here. Not a single blade of grass, no creeping vines, no moss, no ferns. The world is entirely mineral and animal. 
+
+Rising from the saturated floor of the basin is a city. It is a sprawling, regional metropolis of staggering density, built entirely by hand from raw, unweathered stone. The architecture is primitive but monolithic in its scale. There is no mortar, no smooth concrete, no fired brick. Instead, millions of tons of dark basalt, pale limestone, and gray shale have been knapped, fractured, and stacked by early, simple tools. The structures are tightly packed, layered upon one another in a claustrophobic, urban honeycomb. Ziggurats of rough-hewn rock press against towering, narrow dwellings; bridges of flat stone slabs span deep, shadowed clefts; and endless terraces step up and over one another in a chaotic but deliberate geometry.
+
+Because the stone is entirely un-eroded, the city looks as though it was finished only moments ago. Every edge is razor-sharp. Every fracture line is crisp and raw. There are no smoothed corners, no wind-blown curves, no softening of the geology. It is a landscape of aggressive, jagged angles and raw, embryonic geology, frozen in the exact second of its creation. 
+
+Yet, it is weeping. Water is everywhere, though it never falls as rain. The warm, dense atmosphere constantly condenses against the cooler, raw stone. Every sharp edge, every flat wall, every stacked megalith slicks with moisture. Water weeps from the ceilings of narrow alleys, drips from the jutting eaves of stone roofs, and runs in thousands of tiny, glittering rivulets down the vertical faces of the buildings. The ground is a saturated mash of wet mineral dust and shallow, warm pools that reflect the dim, gray sky. 
+
+And upon this wet, sharp, plantless stone, life is absolutely rampant. 
+
+The fauna is overwhelming, a hyper-dense biomass that coats every available surface. Without plants to form the base of the food web, the ecosystem relies on the thick, slippery biofilms of algae and pale, fleshy fungi that thrive in the perpetual damp. Grazing upon this are uncountable swarms of pale, blind insects—cave-crickets, clicking beetles, and pale centipedes that carpet the walkways in a shifting, chitinous rug. 
+
+Above them, the stone walls are plastered with slick-skinned amphibians. Toads and salamanders the size of hounds cling to the vertical cliffs of the buildings, their throats pulsing as they add to the din. Flocks of dark, oily-feathered birds nest in the high, sharp eaves of the ziggurats, diving through the mist to snatch insects from the air. Crustaceans and pale, eyeless crabs scuttle through the shallow puddles, their shells clattering against the submerged rocks. The density of life is so high that the stone itself seems to breathe and writhe. 
+
+This brings you back to the sound. The deafening roar is the collective voice of this staggering abundance. It is the stridulation of a billion insect wings, the wet, rhythmic slapping of amphibian tongues, the clatter of millions of crab claws on wet shale, the booming, resonant croaks of the toads, and the endless, high-pitched shrieking of the birds. Beneath it all is the relentless, percussive hiss of condensation dripping onto stone and water. 
+
+But the most unsettling aspect of this place is its absolute, unyielding stasis. 
+
+Despite the overwhelming noise, the swarming life, and the weeping water, nothing here ever changes. The volume of the cacophony never peaks and never drops; it is locked in a perfect, time-invariant acoustic equilibrium. The water drips at a constant, unvarying rate. The sharp, un-eroded edges of the stone never dull, never chip, never weather away. The city is caught in a frozen equilibrium, a permanent snapshot of a bustling, deafening, wet metropolis. 
+
+There are no seasons. The temperature never fluctuates. The dim light never brightens into day or darkens into night. The creatures are born, eat, and die in a perfectly balanced cycle that leaves no lasting mark on the environment. The raw, emerging geology of the hand-stacked city will remain sharp and pristine for eternity, unbothered by wind or time. 
+
+It is a world of intense, overwhelming presence—dense, loud, wet, and crowded—yet it is entirely devoid of progression. You could stand in the shadow of a jagged, weeping basalt tower for a thousand years, surrounded by the deafening roar of a million clicking, croaking, scurrying things, and the landscape would not have altered by a single millimeter. It is a monument to a singular, endless moment, a loud and crowded stasis at the bottom of a warm, gray world.

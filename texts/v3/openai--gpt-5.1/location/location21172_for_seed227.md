@@ -1,0 +1,92 @@
+The place is mostly sound.
+
+Before anything else resolves, there is the roar: a continuous, body-filling thunder that has no clear source because it is the source. It presses into the bones, into the teeth, into the hollows of the skull, a low, grinding tumult overlaid with a perpetual hiss. It is too loud to be weather, too steady to be storm. It has been like this for a very long time.
+
+You are in darkness, or very near it. Not a flat, absolute black, but the kind where shapes are only suggestions: heavy masses that hint at their presence through the way they swallow the faintest glimmers, edges that appear only when something moves, when a stray bit of luminescence catches and runs along a surface before vanishing again.
+
+The air is cold and wet. The kind of cold that condenses on skin and fabric as a fine, clammy film; that gathers on stone and metal and leaf as droplets that never quite get the chance to evaporate. You can taste mineral in it, iron and lime and something faintly bitter. You can smell rock, old and ground and wet, and the sour organic tang of slow, unseen growth.
+
+The space is low in the world but tall in itself. Not a mountain peak, not a suspended height. Instead, this is a hollow beneath or within — a cavern or a great culvert, some carved gullet of the ground. Its ceiling is too high to see clearly, though its curve is implied by the way the sound behaves: the roar folding back on itself, echo slapping and smearing into continuous thunder. Somewhere far overhead there are fractures or engineered vents that let in hints of the outside: gusts of still-colder air, the occasional falling thread of water, a distant, muted blue-gray suggestion when the world above is bright enough. But the geometry up there is abstract. Down here is what matters.
+
+Here is the river.
+
+It does not glide. It does not humor the idea of pastoral flow. It is a dense, muscled volume racing through a constricted channel of stone, a long, chained series of cataracts and drop-offs. The whole floor of the space is taken up by this water except for narrow, irregular shelves along the sides: ledges eroded into the cavern wall, slick with perpetual spray, sometimes no wider than a hand, sometimes swelling into small terraces where debris and life can accumulate.
+
+The river is why the sound is deafening. It hurls itself across ledges, plunges into chutes, smashes into ribs of stone that have held their positions for thousands of years. Long troughs of froth mark where it is shredding itself on submerged ridges. Wherever it drops, it does so in curtains and diaphragms, water peeling away from overhangs and pounding into plunge pools hidden in deeper dark. The continuous violence is weirdly static: this has been going on so long that every edge has rounded, every boulder has found its settled place. The whole thing feels finished and ongoing at once.
+
+Despite the violence, there is no feeling of chaos. The erosion is old, balanced. The stone has yielded to exactly the forms the water wants. Long, sinuous surfaces curve in undercut swoops where former flood-levels once planed against rock. Narrow flutes run vertically where slender leaks persisted for centuries. In some stretches, the water has polished entire walls to a glassy, dark sheen that glimmers faintly when the scant light strikes low and oblique; in others, the rock is rough and pitted, a grip for whatever seeds can cling.
+
+The rock itself is layered: bands of paler stone with darker ones, some strata softer and scooped away into chambers, others harder and resisting, thrusting as shelves and lips above the flow. In cross-section, where worn terraces cut into the walls, you can see the thin, uneven lines of ancient sediments, each a season or a century of some different world. The river has been working at these for so long that it knows them intimately by the language of collapse and smoothing.
+
+On the ledges where the force of the water’s breath slackens even slightly, vegetation appears. Not much at a glance, but if you stay long enough for your eyes to adapt and your mind to scale down, it is lush, in miniature.
+
+Mosses are the first thing you notice: thick, velvety pads clinging to the rock like dark, sleeping animals. They drink from the constant mist and condensation, forming cushions that absorb sound slightly, so that narrow alcoves behind them feel subtly muffled beneath the thunder. Their surfaces glisten with beads of water; every droplet holds a tiny, inverted image of the roaring world.
+
+From these moss-beds rise slender stalks of fungi. They are pallid and delicate, some with caps like tiny white parasols, others like folded, translucent ears. Closer to the river, they are more rubbery, designed to take endless spray and never quite dissolve. In sheltered cracks, you find fans of shelf-fungus, layered like decrepit pages, each with a bruised, damp texture, pale at the edges, darker where they meet the stone.
+
+Further back from the immediate spray, where the constant saturation softens into reliable dampness, larger plants take hold. Ferns with arching fronds arise from pockets of accumulated sediment—fine silt and powdered rock caught in slight depressions, mixed with the decayed remnants of generations of moss and fungus. Their leaves are dark green, nearly black in this light, and each frond is beaded with glistening droplets, some large enough to tremble under the river’s muted vibration in the rock.
+
+Climbing plants, blind vines with no need of sun, wander across the walls, feeling their way along moisture gradients and the faint, scattered glow of chemical light. Some leak their own: a barely perceptible bioluminescent smear at the tips, a ghostly suggestion of outline more sensed than seen. The glow is so faint that it does not compete with the darkness, it only informs it—a reminder that life is working quietly in these edges.
+
+Everything vegetative is scaled to this pocket-world: no trees, no tall trunks, nothing that assumes an open sky. Lushness here means density of small things: overlapping mats of growth in limited places, each taking what it can from the steady supply of water and minerals, from the meager, filtered ghosts of nutrients that the river might bring from outside.
+
+Animals appear rarely, and mostly as fleeting intrusions into your awareness.
+
+Once, on the far ledge, a long, jointed shape scuttles across a wet rock: some large crustacean or insect—pale, colorless, its carapace reflecting the faintest glint. It moves with calm confidence, feeling its way with antennae more than with sight, vanishing into a fissure no wider than a single finger’s breadth. You see the ripple of its movement more than the animal itself.
+
+In the water itself something white and blind, like a fish sculpted from wax, holds to a quieter eddy where an underground spring enters. It turns its head—not with eyes, but with the subtle reading of currents and dissolved scents. Its gills flare, pinkish in whatever minimal light reaches. When a piece of organic matter spins near—a softened leaf carried from an upper chamber—it snaps sideways with a whip of its tail and the leaf is gone.
+
+Bats use this place, but not heavily. You feel them more than you see them: a sudden flutter of air, a softer, higher-patterned whisper of sound threading above the roar. Once in a while one hangs from some unseen seam in the ceiling, its body just a denser patch of black among blacks, drip-beaded fur slowly absorbing moisture from the air. When it detaches and leaves, it is like a fist of shadow unmaking itself.
+
+Every so often, in the lull between your own heartbeats, you register another presence: a small amphibian pressed into a crack, its skin glistening, patterned to match rock and moss so perfectly that only the blink gives it away. Or a faint, repeated knocking beneath the dominant roar that, on long listening, reveals itself as some crustacean’s claws tapping along the underside of a submersed stone.
+
+Nothing in this place moves fast for long, except the water. The life that endures here is built for a patient, almost glacial tempo. Populations rise and decline over decades, niches opening and closing with slow shifts in drip patterns, in the minute repositioning of boulders, in the gentle thickening of sediment. Everything is in balance—the kind of balance that doesn’t mean stillness, but change too slow for a single brief observer to see.
+
+Hidden among rock and fungus and dripping ferns are signs that someone, once or occasionally, has tried to live with or within this roar.
+
+On one of the broader ledges, the stone has been carved back deliberately: a shallow recess, just deep enough to provide a sliver of shelter from the direct blast of spray. Its edges are too regular to be natural, and the flatness of its floor stands out in this world of smooth curves. In that recess lie the remnants of tools: a stone flake shaped into a scraper, its working edge dulled and blunted by time; the crumbled, moss-soft outlines of what might have been a low stool or frame, once made from wood now turned to dark, fibrous mulch.
+
+Further along, the wall bears shallow grooves and cup-marks, pecked into the rock by hand. They cluster at a height reached by someone standing on that narrow ledge, and they are arranged in no obvious pattern—a cluster here, a line there. Some hold small, polished pebbles, each of a different color or texture from the host rock: pale quartz, a sliver of iron-stained red stone, a dark river-worn oval. Offering? Decoration? A ledger of water levels, encoded by a mind that measured time not in days but in the rising and falling of this eternally moving thing?
+
+Near these marks lies a lattice of woven fibers, preserved by the cold damp. It is a net, simple and hand-knotted, its plant-based cords stiffened with some long-gone resin. Stones were knotted into its lower edge for weighting. It has been abandoned long enough that moss grows through its links, binding it back to the rock. Once, it would have been cast into one of the rare calm back-eddies, left to harvest whatever blind creatures drifted in.
+
+On another terrace, a circle of stones protrudes slightly from the slick floor. Within the ring, the rock is blackened, and among the soot-darkened gravel are the faint ghosts of charcoal. The idea of fire in this deafening damp feels improbable, but the recess’s overhang would have shielded a small flame, perhaps fed by resinous wood hauled from far drier places above. The smoke would have been torn apart by the drafts, smeared into the general mineral reek. Whoever sat here by that improbable flame would have had to lean close to hear anyone else speak. Their words would have been few and costly.
+
+There are traces farther up as well, reached by narrow stairways chipped directly into the rock. The steps are shallow and uneven; each foothold has been scooped into the wall by repeated blows of stone on stone, then smoothed by bare feet, generations of ascent and descent. They lead to a higher gallery, a long, sheltered balcony eroded by some ancient side-channel of the river. Here, the ceiling bends low, compressing the sound; the roar is still immense, but somehow more distant, filtered. It is a place where one could sleep without feeling the water’s vibration in every bone.
+
+In hollows along this upper wall stand the remains of simple constructions: frames of once-wood that have collapsed into lattices of fungus and rot, their original form suggested only by regularity—parallel lines, square corners, the unnatural straightness of supports that mimic what trees might have been elsewhere. Maybe platforms for resting, racks for drying something gleaned from deeper chambers, or just attempts to claim structure against the overwhelming formlessness of water and stone.
+
+Everything built here is small, fragile, and easily erased by time. The world of rock and water does not feel hostile, exactly, but it is utterly indifferent. Human presence—if it belonged to humans—has left scratches more than monuments. The built things blend easily into the landscape; to find them at all, you have to look with the assumption that intention might hide in any regularity, any pattern that does not serve the river directly.
+
+Light, when it comes, is thin and timid. From some high shaft, a distant sky spills a diluted gray into the upper volume of the cavern. It never seems to be full day here: even when the sun is bright outside, what reaches this place is like the memory of light, not the thing itself. Dust and spray make a constant floating medium for that weak glow; beams become visible for a moment when an upstream surge throws more mist into the air, then vanish again into a general, grainy gloom.
+
+There may be phosphorescent organisms embedded in the walls, or cultures left by long-standing trickles—thin films that emit a faint smeared murmur of blue-green when disturbed. You notice them only when something moves close: the brush of an animal, your own hand. The glow persists briefly behind the disturbance, like the fading trace of a finger drawn through ashes, then dims. This is not a landscape of obvious luminescence. It is a darkness grained with tiny, patient lights that never amount to a dawn.
+
+Sound structures everything here. The roar is not uniform; it folds and layers, creating pockets where it is fractionally less overwhelming. In one niche behind a curtain of stalactite-like drips, it drops just enough that your own breath becomes audible again, that the faint drip-tick of water becomes distinct. In others, it intensifies, clamors, as multiple cascades combine into a single wall of impact.
+
+Close to the river’s surface, if you could lean safely over, you would feel the sound as physical buffeting: micro-shocks of pressure on your face, the breath knocked out of each inhalation by the sheer volume of air movement. Even on the higher ledges, the stone under your feet hums with the continuous mass of water sliding, striking, rebounding.
+
+Over long periods, the water’s behavior changes but slowly. While floods may come—periods when the roar becomes a more chaotic bellow and the water climbs higher on the walls—the dominant impression is that of an old conversation, never interrupted, only modulated. Sedges or strange cave-adapted reeds might take brief advantage of calmer years along certain sheltered shelves, pushing slender leaves into the gloom, then quietly retreating as the cycle shifts and their anchorage is scoured away.
+
+Time here is written in polished surfaces, in the thickness of moss pads, in the extent of staining on the rock. Dark vertical streaks show former positions of seeps that have since dried or shifted. Lines of lighter, dustier stone mark past resting-places of boulders now moved. The place seems unchanging in a human span, but the walls carry a script of slow change that a different sensibility might read.
+
+Despite its intimacy—this is a pocket world, a single chamber in a larger system—there is a strange vastness to it. The darkness expands the space beyond its actual dimensions. The empty air between ledges, between floor and ceiling, feels immense because so little occupies it. There is almost nothing here per volume: a few strands of plant, a scattering of fungal sprigs, a shifting skin of spray, and then long reaches of nothing but air and cold and sound.
+
+The emptiness is not only physical. It is also a kind of social emptiness. Whoever built those steps and carved those cup-marks is gone now, or comes here so rarely that their presence feels like a rumor. The animals that move through do so singly: a fish alone in its eddy, a bat crossing the void, a single, pale arthropod disappearing into a crack. No flocks, no herds, no hives spilling across the rock. This is a place of solitary crossings, not gatherings.
+
+If there are “rules” of this world, they are simple and uncompromising:
+
+Water always wins, but slowly.
+Stone resists, then yields, then forgets its previous shape completely.
+Life grows where it can hold on, not where it would be most comfortable.
+Sound is not an accessory but a substance — a presence as thick as mist, as inescapable as gravity.
+
+Here, to exist is to make yourself small, to find a niche just outside the main vector of the river’s will, to use its constancy rather than fight it. Tools are of stone and fiber, nothing that can outlast the rock’s attention. Technology is in the skill of reading flow patterns, in knowing which eddy will remain stable for a season, in judging from faint discolorations how the water has moved here for centuries.
+
+Standing somewhere on a narrow, slick ledge, with your back to the cold wall and the roaring void before you, you are aware of how much of this place is absence. The air between you and the opposite wall could hold forests, cities, swarms of birds. Instead it holds noise, vapor, and the slow drifting of rare spores. The darkness overhead could conceal vaults of glittering mineral, or nothing but raw, unremarkable stone.
+
+The intimacy comes not from a sense of crowding, but from how close every surface is to its own history. Every rock face within reach has been touched, stroked, reshaped by the same water that roars in your ears now. Every plant, every scrap of fungus is the direct, immediate child of this exact pattern of dripping and misting. The net sunk in moss, the smoothed steps, the faint, half-erased charcoal smudge in the hearth-circle—these are thin overlays on something that does not need them, but will incorporate them in time as sediment and stain.
+
+Outside, somewhere far above, the world may be bright and complex and busy. Here, beneath, the world has been simplified to elements: stone, water, life in thin but persistent films, the remnants of hands that once came to witness or harvest, and the ever-present, form-defining roar.
+
+The landscape is not grand, in the sense of sweeping vistas; its grandeur is compressed into a single, narrowly bounded throat of the earth. Yet as you listen and feel, as your eyes adjust and your mind tunes to the details, it becomes inexhaustible, deep in verticality, deep in time, deep in the endless negotiation between what moves and what endures.

@@ -1,0 +1,13 @@
+The cavern stretches, a dense, barely-lit expanse of warm stone, deeper than any natural formation could allow. Its scale is alien, a subterranean continent carved from some denser, darker substance than the rock we know. Heat rises in currents from the floor, thick with the mineral tang of sulfur and something else, something organic and sickly sweet.
+
+There is no water here, not in the conventional sense. Instead, a sheen of viscous oil coats every surface, reflecting the faint, bioluminescent lights that cling to the cavern walls. These are not fungi, nor are they plants. They are… lamps. Living bulbs, pulsating with a faint, internal rhythm, powered by the unseen energies that pulse through the rock.
+
+The cavern is young, geologically speaking. Or perhaps it is constantly renewed, its sharp edges and unnatural geometries maintained by forces beyond comprehension. It is as if some colossal sculptor carved this space mere moments ago, leaving behind only the faintest traces of their passage. Here and there jut the crude platforms that may have been its scaffolding.
+
+Life thrives here, but it is life twisted and reshaped. The oil is alive, a teeming soup of microscopic organisms that feed upon the rock and excrete the luminescent compounds that illuminate the cavern. Larger creatures move within this oily sea: pale, eyeless worms that writhe and burrow, their bodies segmented in a way that seems too precise, too deliberate. They are abundant.
+
+The silence is almost absolute, broken only by the soft squelch of the oil and the faint susurrus of the worms. The air hangs heavy and still, trapped by the density of the rock and the sheer size of the cavern. There are no winds, no weather, only the constant, unchanging hum of existence.
+
+Scattered across the cavern floor are the remnants of a civilization, crude tools of sharpened stone and worked bone litter the floor. Simple platforms, and the occasional pit. These are not dwellings, nor monuments, but what? What tools or traps would these fauna need, in a never-changing and sunless world? Perhaps the artifacts are merely food caches and temporary resting places.
+
+And the source of the cavern itself? It is too geometrically perfect to be natural, too large to have been constructed by any living thing. Is this merely the result of an experiment carried out by some lost civilization? Or something else...? Because in the deepest shadows, something vast stirs, a silent, unseen presence that dwarfs even the cavern itself. Its faint movements cause the oil to ripple, and the bioluminescent lamps to dim, as if in acknowledgement of some ancient, unknowable master.

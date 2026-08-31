@@ -1,0 +1,13 @@
+The Needle Peaks rise like bone-white daggers from a landscape of rust and salt-crusted stone. These are not mountains in any traditional sense, but razor-sharp protrusions of mineral that slice upward through a terrain of compressed, brittle sediments. The peaks are young geological formations - sharp-edged and angular, as if they've just erupted and frozen mid-thrust, their surfaces still raw and unweathered.
+
+Water does not flow here so much as condense. Thin layers of moisture form briefly on stone surfaces in the extreme heat, creating momentary silver-white sheens that vanish almost instantly. Rare moisture gathers in tiny basins between stone spines - tiny reservoirs no larger than a cupped hand, where microscopic ecosystems bloom and evaporate within hours.
+
+Vegetation is not absent, but strategic. Lichen-like organisms in deep burgundy and pale grey cling to stone surfaces, their thin tendrils capturing what minimal moisture exists. Some are so tightly integrated with the stone that they seem almost mineral themselves - a blurred boundary between living organism and geological substrate.
+
+The soundscape is surprisingly loud - not from creature or wind, but from the stones themselves. As temperatures fluctuate between scorching day and marginally cooler night, the needle peaks emit high, almost musical tones of stress and thermal expansion. These sounds are not rhythmic, but sporadic - like distant, atonal bells.
+
+Scattered throughout this compressed environment are remnant structures. Not buildings, exactly, but artifact-like formations that suggest previous inhabitation: a curved stone wall here, a deliberately arranged series of rocks there. They feel archaeological, hinting at something that existed before but is no longer present.
+
+The fauna is rare but intense. Small, armored creatures move with extreme efficiency - segmented beings that look part insect, part mineral, blending so perfectly with the rust-and-bone landscape that they're nearly invisible until they move. They do not so much hunt as negotiate this environment, trading minimal energy for survival.
+
+This is a landscape of edges and thresholds. Nothing is stable, everything is in a state of becoming. The needle peaks continue their slow emergence, the moisture continues its brief coalescence, the burgundy lichens continue their patient mineral negotiations. A place of extreme conditions, compressed scale, and perpetual transformation.

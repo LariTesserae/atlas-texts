@@ -1,0 +1,19 @@
+A subterranean cavern, eroded by a subterranean river that gurgles and tumbles over slick rock outcrops. The air is thick and heavy with moisture, many tendrils of vine and thick moss clinging to the damp walls. Shafts of light pierce through from hidden fissures above.
+
+Bioluminescent fungi and bacteria paint the walls in glowing streaks of blue and green. The total effect is an eerie, iridescent gloom. Shimmering patterns of living light dance over the cavern's surface.
+
+Hollows in the rocky overhangs contain rows of strange stone pedestals covered in a tangle of fine wires, pulsing with a twitching, eldritch energy. Arcane sigils are etched into the surfaces in an alien script that seems to shift if looked at too long. The artifacts throb with ancient, malevolent power.
+
+Broad stalactites hang in arches, studded with hard-shelled eggs of some unknown creature, three feet long and purple-black, oozing a viscous fluid. They undulate and shudder. Eldritch forms move inside the leathery surfaces. An unholy trilling sound ripples from the still pools in the cavern floor as the eggs stir.
+
+In the shadows, a rustling can be heard, but nothing emerges. Rabbits skulls, stripped of meat and grinning, stare with empty sockets. In the corners, a gelatinous mass heaves, pulsing with a sickly phosphorescence. Fungal caps the size of umbrellas extrude long, phallic extensions that drip sticky spores. The smell of decaying flesh permeates all.
+
+Bands of oily, prismatic iridescence, like oil on water, lap at the edges of the pools. Alien, tentacled entities skitter out from the edges on translucent legs, maw-gaping. The water sloshes between colors that do not exist.
+
+From the viscous pools, writhing tendrils of slime twine around an undulating, gelatinous mass with a shape like a Kandinsky painting made flesh, all swirling and chaotic.  Eyeless, it undulates, smears into new forms, unplanned, alien and eldritch. The swirling colors leave afterimages in the mind. It speaks in rippling clouds of acrid vapor. The sounds of mad insects skittering out of its flesh set teeth on edge.
+
+An orb of glitching, fizzling energy registers as a spectrum of colors that can't quantum decay between pure hue. It questions up meaningless questions from realms beyond thinking. Its presence forces entities into its voice. The questions are unmeant for any minds within a myriad eons of forming the concepts to hear them.
+
+In the alcove of the cavern, organic lump-flesh oozes in an indistinct blob, as if a human body had settled into total flaccidity, then melted. Extremities molder into a disgustingly acentric mass. Matted clumps of fibrous dung pass before and behind, if it can be called before and behind by any stretch. Symmetry is abandoned as the body cavity ruptures infinitely inwards in gylines. Flaccid eye sockets slowly melt below the surface of the mass. The eye buds out again at the top of the lump as if an afterthought...
+
+In the heavy air, you feel the overwhelmingly lunatic sense that this was once an inhabited place of science and industry before the unholy invasion - the pedestals and eldritch artifacts still enervating the permeated mass give hints of what it once was, unrecognizable now. The eerie bioluminescence and gut-scraping elder madness of the sights force the mind to bend itself into colours that don't exist in the human mental spectrum, conceiving patterns no earth animal could dream, simply to comprehend this unnameable place, impossible for any sane creature to mould its mind around without ascending vedically into concepts past a myriad monkey-furthest earth-concepts. To be elliptical.

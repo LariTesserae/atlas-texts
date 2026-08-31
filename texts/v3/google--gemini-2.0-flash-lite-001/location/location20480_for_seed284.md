@@ -1,0 +1,17 @@
+This is a place of whispering stone, a city built into the heart of a mountain. Not a mountain as we know them, but a colossal, single crystal formation, its facets gleaming with a light that is both reflected and generated from within. There is no sun, no sky. Above is a ceiling of interwoven, self-repairing structures, the remnants of a forgotten civilization whose purpose is not entirely lost but difficult to grasp.
+
+The air is cool, carrying a faint metallic scent and the ghosts of vibrations that seem to shape the very rock around you. Where the facets meet, the stone is still rough, untouched by time and the strange, unseen forces that carve and grind the heart of the crystal. Evidence of this geological process is everywhere. Shards of glittering material – not glass, not metal, but something… between – shatter and reform with slow, silent explosions that shift the landscape.
+
+Water, as we know it, is absent. But the rock oozes with an oily, opalescent substance that seems to bleed out of the stone itself. It pools in the valleys of this crystalline city, forming shimmering puddles. The geology is young, the landscape raw. Sharp peaks and deep canyons are constantly being reshaped by the forces that churn within the crystal.
+
+No plants exist, yet the city is alive. The "fauna" here is constructed, a riot of mechanical insects and insectoid machines, a near-constant hum underlining the soundscape. These creatures, though built of cold steel and flickering lights, move with a purpose that is both familiar and disturbing. They swarm, they gather, they work, their functions both necessary and mysterious. Their collective presence is the city’s lifeblood.
+
+The light is dim, emanating from the crystal itself and from the tireless machinery that flickers in every chamber and passage. Artificial illumination punctuates the darkness, in the form of crystalline lanterns, pulsating with energy, and the eyes of the many machines, both active and dormant.
+
+The city is built. Great girders and supporting pillars reach from the crystalline base, supporting a complex network of walkways, platforms, and chambers. The architecture is dense, layered, with no seeming wasted space. The industrial touch is clear; mechanisms of unknown purpose and scale are integrated into the architecture itself. Gears spin in open view, pipes crisscross with a maddening density, and energy conduits pulse with a silent light.
+
+This is a place of constant change. The landscape shifts subtly, imperceptibly at times, but powerfully and cataclysmically at others. The constant grinding and regrowth of the crystal, combined with the activities of the mechanical fauna, bring about a form of slow-motion tumult.
+
+The sound is mostly quiet, yet filled with a constant, low-frequency pressure, and overlaid with occasional rhythmic, mechanical clicks and grinding. The city whispers, a low hum resonating through the stone. When the rock spasms, or a crystalline shard explodes, a wave of noise and vibration washes over the inhabitants.
+
+It is a pocket universe, contained within the massive crystal, but the scale itself feels almost absurd. The features are intimate, accessible, but the constant motion makes observation difficult. Everything is moving, forming, and shifting. This place is deeply unsettling and immensely compelling. Here, within the crystal heart, life, technology, and geology have become one.

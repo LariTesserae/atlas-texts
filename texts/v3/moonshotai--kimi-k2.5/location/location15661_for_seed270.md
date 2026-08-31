@@ -1,0 +1,27 @@
+You find the hatch at the bottom of a scree slope, where the ancient industrial tailings have weathered to a consistency like coarse black sugar. The elevation is low—barely above the floodplain, if such a concept still holds meaning here—but the opening is small, a half-moon cavity eroded into a slag-wall the size of a cottage. The slope itself is old, worn to a gentle curve by epochs of wind chemical action, settled into its final geological posture. Scattered artifacts betray the origin: a rib of rusted rebar fingered smooth as glass, a ceramic insulator the color of bone, a single brass gear half-sunk in the vitreous matrix like a fossil in amber.
+
+The hatch is not locked. It opens inward on hinges that have become, over centuries, mineral accretions of their former selves.
+
+Inside: a room the size of a wardrobe. Perhaps two meters deep, one meter wide, one meter high. A pocket. A bubble trapped in the cooled froth of the Anthropocene. The air that exits is cool—perhaps twelve degrees—and shockingly dry, carrying the scent of copper and heated dust. The walls are glazed, lava-like, eroded by long-vanished vapors into a finish like eggshell porcelain, swirled with bands of green and rust where minerals have leached and redeposited over millennia.
+
+There is light. Not bioluminescence, not torchlight, but the steady, uncomfortable normality of incandescent bulbs—industrial, electrified, still drawing current from some deep, indifferent grid. Two fixtures, one at each end, buzz with a sixty-cycle hum that you feel in your fillings. The light is yellow-white, revealing everything with the clarity of a clinical examination.
+
+And under that light: the density.
+
+You cannot see the floor. You cannot see the walls. What you perceive is **movement**, a continuous, granular roiling. The room is filled, corner to corner, to a depth that suggests geological strata, with **life**. Not plants—there is no green here, no chlorophyll, no stems or leaves. The vegetation parameter has bottomed out at 0.1, manifesting only as a thin, oily sheen on the upper walls: chemolithotrophic bacteria feeding on sulfur compounds in the slag, a film too thin to see individually, merely a discoloration, a stain. 
+
+But the fauna—
+
+The fauna is **overwhelming**. 
+
+It is a kingdom of springtails, of mites, of obscure hexapods and pale, eyeless micro-crustaceans that have never known open sky. Billions of them. The air itself is thick with them; motes that resolve, when they land on your sleeve, into creatures with jointed legs and clicking mouthparts. The floor is a carpet thirty centimeters deep, not of dust, but of **bodies**, writhing in constant turnover. Predatory mites the size of sand grains hunt through herds of smaller grazers that feed on the bacterial film and on the detritus of their own dead. Pseudoscorpions the size of rice grains grapple in the crevices. Silverfish, ancient and unchanged, thread through the mass like sharks through krill.
+
+The sound is loud. Not a roar, but a **rain-like static**, a ceaseless patter of chitin on chitin, of microscopic limbs against glassy stone. It is the sound of digestion, of molting, of millions of exoskeletons hardening under electric light. When the larger individuals—things that might once have been booklice, now swollen and pale from generations in this sealed nutrient soup—shift their position, the rustle rises to a crackle like burning twigs.
+
+The rules here are simple and severe. This is a closed system, a caloric trap. Energy enters not as sunlight, not as water (there is none; moisture exists only as bound vapor, as metabolic product), but as **heat and chemistry**. The slag still leaches residual warmth and reactive minerals. The bacteria harvest oxidation energy. The grazers harvest bacteria. The predators harvest grazers. And when predators die, they are consumed by the scavenger guilds before rigor mortis can set in. Nothing leaves. Nothing enters, save the trickle of gas exchange through hairline cracks in the slag, sufficient to maintain the oxygen levels for this slow, cold combustion of life.
+
+It is dynamic, active, an ecosystem in full motion despite its imprisonment. Generations turn over in weeks. The population pulses in waves—boom and crash—visible as darkening and lightening of the floor’s texture. You can see, if you watch for ten minutes, the tide of a predator species advancing across the chamber, triggering a panic ripple through the prey, a sound like a gust of wind through dry leaves.
+
+The weirdness is subtle, a matter of degree rather than kind. The creatures are not alien; they are Earthly, recognizable to any entomologist. But their density is obscene. Their pallor is absolute—translucent, bluish, the color of cave fish and deep ice. They have lost their pigments because light here is not a threat or a signal, but simply an incidental condition, a byproduct of the ancient machinery that still runs this forgotten corner of the world. They have no fear. When you reach out, they swarm your hand, not as attackers, but as terrain, as warmth, as potential chemistry.
+
+You are in the **Hum**. A cathedral of the microscale. An industrial organ pipe that has become intestines. Here, the end of geology meets the beginning of biology, not with a green explosion, but with a dry, cool, electrical whisper of a billion mandibles, wearing the rock down to dust, and the dust down to life, in a sealed room that will outlast the continents above.

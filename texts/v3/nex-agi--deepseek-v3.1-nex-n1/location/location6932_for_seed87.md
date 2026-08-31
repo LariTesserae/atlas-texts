@@ -1,0 +1,1 @@
+I'm not seeing the environmental parameters you're referring to. Could you share the parameter values or seed so I can describe the landscape based on those characteristics?

@@ -1,0 +1,26 @@
+The landscape is the floor of a vast, low-lying basin, a place dominated by the slow, relentless work of dissolved minerals and the heavy breath of a distant, unseen engine.
+
+**Terrain and Materials:**
+The ground here is not earth, but *calcine*. It is a colossal sheet of compacted, fine-grained sulfates and silicates, deposited over epochs. It forms a hardpan, almost glassy in places where the warmth has driven off interstitial moisture, but across the broad, open plain, it holds a persistent, subtle dampness. This moisture—the **water (1.3/3)**—doesn't pool or rush; it manifests as a pervasive, clinging humidity that coats surfaces with a thin, invisible sheen, occasionally resolving into slow, bead-like coalescences that track downward in near-imperceptible rivulets. It is the residue of a geological process, perhaps, or the constant condensation from the dense, warm air settling into this hollow.
+
+The relief is minimal, a very **low elevation (0.7/3)** stretching out until it meets the rising walls of the basin miles away, walls obscured by the general haze. The **erosion (2.3/3)** here is not caused by wind or water cutting *away*, but by pressure and chemical saturation compacting *inward*. Features are settled, ancient, exhibiting the smooth, almost liquid contours of material that has reached a chemical equilibrium over deep time. There are vast, shallow depressions, like the wrinkles on a slowly cooling hide, but nothing sharp.
+
+**Vegetation and Ecology:**
+There is absolutely **no vegetation (0.3/3)**. The surface of the calcine remains starkly mineral. Where moisture persists, it often interacts with fine airborne dust—perhaps metallic oxide fallout—creating slow-moving, monochromatic streaks of ochre or pale violet that look like stains that have permanently soaked into the floor.
+
+Fauna is **rare (1.0/3)**, the ecosystem entirely too sterile for complex life, yet too warm and damp for complete desiccation. Any life present would be chemosynthetic, invisible, or perhaps simply mechanical in nature.
+
+**Atmosphere and Light:**
+The **light (1.9/3)** is honest, unfiltered daylight, bright but diffused by the ambient warmth and humidity, giving everything a slightly washed-out, high-key appearance. It's a **warm (1.7/3)** environment, oppressive without being scorching; the kind of heat that permeates the bone rather than just sitting on the skin.
+
+The most defining characteristic is the **sound (1.7/3)**. It is overwhelmingly **loud**, yet monotonous. It is not the sound of wind or water, but a deep, sub-audible *thrum* layered with the higher-pitched, metallic whine of industry. This noise emanates from the hazy distance, suggesting activities far beyond the visible horizon, yet it carries perfectly across the flat, low ground, lending the entire expanse an unnatural vibrato.
+
+**Rules of the World and Industry:**
+This landscape is characterized by **industrial (2.0/3)** remnants that are not *built* upon the land, but are somehow intrinsic to its function. There are no towers, no pipes, no obvious scrap. Instead, scattered across the plain are massive, dark geometries—perhaps kilometers apart—that resemble the bases of cyclopean cooling towers or the anchor points for unseen conduits. These geometric stains are where the **scale (1.7/3)** of the place becomes apparent; it is **open (1.7/3)** enough to allow these features to command an entire sector of vision without competition.
+
+The **dynamic (0.1/3)** is deceptively stable. While the air is humid and the minerals shift chemically, the *pattern* of the place is locked. The great thrumming sound is unchanging, the levels of dampness fluctuate only within a narrow, repeating cycle. This is a basin of managed equilibrium, perhaps a vast filtration system or a stabilization zone far removed from where the *real* work is being done.
+
+**The Weirdness (1.0/3):**
+The unusual element here is the persistent, low-frequency vibration coupled with the high-density static charge. Sometimes, when the atmospheric humidity peaks slightly—when the intermittent moisture briefly becomes a faint drizzle—the surface of the calcine floor will briefly *illuminate*. Not with reflected light, but with an internal, brief flare of cyan luminescence that travels along the invisible lines of old electrical pathways just beneath the surface. It’s a ghost of power, a momentary surge showing the infrastructure that underpins this silent, vast mineral desert, a stark contrast to the fact that nothing appears *built* or maintained here. This is the residue of massive, automated power generation or transport, something operating on a scale that dwarfs recognizable civilization, leaving this enormous, damp, echoing plain as its necessary buffer zone.
+
+The air smells faintly of ozone and wet metal, though no metal is visible, only the dense, enduring mineral dust settling slowly through the warmth. It is a world where the only noise is the hum of the machine that needs nothing growing upon its floor.

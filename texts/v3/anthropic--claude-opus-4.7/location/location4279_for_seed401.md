@@ -1,0 +1,37 @@
+# The Lacquer Ward
+
+You find it by accident, or you don't find it at all. A service door behind the canal locks, a loose grate in the embankment, a hairline seam in what looked like a retaining wall — and then you are inside, and the city you thought you were in is gone, and another city is underneath it, or beside it, or folded into the place where its reflection should be.
+
+The Ward is small. That is the first strange thing. You can walk its longest axis in maybe four minutes if nothing stops you, and everything stops you. It is a pocket, a single held breath of town, perhaps a hundred meters across and roofed in something that is not quite sky — a low, condensing vault of pale grey vapor that sweats and re-sweats and drips continuously onto everything below. The vault is perhaps forty meters up at its highest. You cannot see past it. There may be nothing past it.
+
+Rain does not fall here so much as *arrive*. The air is already water; it simply decides, from time to time, to be more honest about it. The cobbles are black and glossed. The gutters run constantly. Moss has colonized the north faces of everything and is working on the south faces with the patience of something that knows it will win.
+
+And yet — built, built, built. The Ward is dense with construction and sparse with people, a ratio that gives it its particular unease. Brick foundries no larger than a coachhouse. A four-story mill whose waterwheel is fed by a spring that erupts directly from a cleft in the wall of the vault — the rock there is raw, pale, barely weathered, the quartz veins still sharp-edged as if the stone had been broken open last week and never had time to round. Everything here is young. The Ward has the geology of a place that surfaced recently and is still deciding what shape to be.
+
+The mill grinds something. I cannot tell what. The smell is of wet cedar and hot brass and a third thing, vegetal and slightly sweet, like crushed fern stems.
+
+Pipes run everywhere. Copper, lead, a black ceramic I don't recognize. They climb the outsides of buildings in bundles, cross the narrow streets on little trestles, plunge into the canal and re-emerge on the far bank. Steam escapes from their joints in small apologetic puffs. Somewhere, constantly, a boiler is working — you feel it through the soles of your feet more than you hear it, a low reciprocating thump that the whole pocket pulses to, like the Ward is breathing against your ribs.
+
+Over that bass, the noise: hammering from three directions, the shriek of a belt-driven lathe, water everywhere falling on metal and making the metal ring, a choir of frogs in the canal (yes, frogs, a dense population of small pale frogs with too many fingers), the chitter of the pipe-martens who live in the warm spaces between the steam lines and emerge in twos and threes to watch you with wet black eyes, the whistle of the pressure-relief valves letting go in sequence like a badly tuned organ, and — underneath — always — the soft continuous percussion of condensate hitting cobblestone.
+
+It should be crowded. It isn't. Maybe thirty people live here, or work here, or whatever they do. You see them in ones. A woman in an oilskin apron feeding something into the mouth of a furnace whose chimney vanishes up into the vault without reaching it — the smoke simply joins the low sky and becomes part of the permanent weather. A man on a ladder replacing a gasket, unhurried, humming. Two children sitting on the canal edge dangling bare feet and dropping pebbles to watch the frogs scatter. They do not seem surprised by you. They do not seem interested either.
+
+The light is the color of the inside of an oyster. It comes from no sun. There are gas-mantles on brackets at the street corners and in the windows of the workshops, and a few arc-lamps hissing over the larger yards, and these provide nearly all of the illumination, but the vault itself has a dim inherent glow, an even milkiness, so that there are no hard shadows anywhere. Everything is softly lit from everywhere at once. Nothing throws a shadow sharp enough to hide in.
+
+Now, the turbulence.
+
+The Ward does not hold still. I think this is the thing you most need to understand. Buildings migrate. Not quickly — you cannot watch a foundry walk — but if you stand at the canal for ten minutes and then turn around, the alley behind you has a different throat to it, and the pipe-bundle that was crossing at head-height is now at your ankles, and a building that was brick is being brick in a slightly different place. The pipe-martens know the pattern and travel accordingly. The residents know the pattern and wait out the reshuffles in doorways, unbothered, the way one waits out a tram.
+
+The water contributes. A new spring will open in a wall and run for an hour and seal itself up. The canal reverses direction twice a day for reasons no one has bothered to explain to me. A particular gutter on the east side occasionally runs upward. There is a pool near the mill where, if you drop a coin in, a frog surfaces holding a different coin, older, of a currency you don't recognize, and offers it to you. This is not a legend. I watched it happen. The woman in the oilskin apron saw me watching and shrugged in the specific way that means *yes, that's one of the ones we have.*
+
+The rules, as best I can reconstruct them:
+
+Water is the medium and the message. Everything here is wet, everything here is becoming. The young stone at the vault's edges is still actively forming — you can see fresh quartz growing on the underside of an overhang like slow frost. The vegetation takes advantage: mosses, liverworts, a fern with translucent fronds that grows only where condensate drips steadily, small pale orchids on the north faces of the chimneys. Ecology is rich but thin-spread. Much is empty. Between one mossy wall and the next there may be ten meters of wet cobble and nothing.
+
+The industry is real. Something is being made here and shipped out — I saw crates stacked on a barge at the canal's end, the barge aimed at a low arch in the vault that it would not, by any geometry I understand, fit through. It fit through. The bargeman waved.
+
+The fauna is indifferent and numerous. Frogs, martens, a kind of long-bodied shrimp in the canal that clicks loudly enough to be heard over the boilers, moths with damp wings that cluster on the gas-mantles without burning, and one larger thing that I only heard, moving in the vault-glow above the rooftops, making a sound like wet canvas being folded.
+
+The people are few and busy and at peace with all of this.
+
+I do not know if the Ward is hidden from the city above or if the city above is hidden from the Ward. I suspect both are true and that neither side finds the question pressing. I stayed perhaps two hours. When I left — through a different door than the one I came in by, because the one I came in by was no longer where I had left it — I emerged into an ordinary street in an ordinary evening, and behind me was an ordinary wall, and my coat was soaked through, and my pockets were full of small pale frogs, which I released into the nearest gutter, where they regarded me for a moment with their too-many fingers spread against the wet stone, and then were gone.

@@ -1,0 +1,9 @@
+Welcome to an otherworldly wasteland, a dune ocean on the scale of continents, bereft of life but eerie with mechanical rhythm. This high-altitude desert stretches endlessly, meeting the horizon with nary a single disturbance, its endless dunes sculpted like molten waves by unceasing winds. The air is not merely hushed; it feels almost as if it doesn't exist, yielding nothing to breathe, a paradoxical void within the boundless expanse of sandy grooves and crests.
+
+Ironically, buried just beneath the sand's surface runs a latticework of mechanized pipelines and conduits, humming with life in stark contrast to the inert stone above. These mysterious tubes pulse with a mechanical life of their own, never seen but profoundly felt by the perpetual gentle thrum through the soles of one's boots.
+ 
+Scattered about are a day's march between them, massive "thirsty trees," sleek iron structures several stories high with heat sinks shaped like wings, drinking in the meager moisture from what passes for an atmosphere. They are a site of considerable awe and some trepidation.
+
+The world's sky is an uncomfortably brilliant hue of cobalt shot through with streaks of amber like a concoction of paint left too long in the sun, nonorganic but beautiful nonetheless. The undimming hours of sunlight each day mean a definition of day and night just enough to keep thought fuddled despite fatigue and hunger. Your engine and you both, in time, succumb to this as natural as a flower opening before its rains, narcohypnosis.
+ 
+As you pass via dangerous cycloaddition-reaction pathways crystalline metal perpetually flips locales entwined katabatic-wind-swept from the planet's more southerly lobes.

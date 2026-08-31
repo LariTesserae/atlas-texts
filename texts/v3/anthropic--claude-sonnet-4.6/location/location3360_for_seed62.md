@@ -1,0 +1,61 @@
+# The Plateau of Accumulated Greens
+
+---
+
+The light arrives before anything else. It comes from directly overhead, near-vertical, the kind of brightness that bleaches shadows into thin lines directly beneath objects, so the whole plateau seems to exist without depth, flattened under a sun that has positioned itself as a kind of authority. The sky is pale — not white, not blue, something between, a washed-out ceramic color that suggests altitude and thin air and the particular loneliness of places that receive weather rather than create it.
+
+You are high. Not dramatically so — not the vertiginous heights of knife-ridges and exposed rock — but high in the way that makes your chest work slightly harder, that makes distant things visible from here that were hidden at lower elevation, that gives the land a quality of being observed from slightly above even as you stand in it. A plateau, or something like a plateau: a broad upland that has been here long enough to be covered in everything, but not long enough for the edges to have softened. The perimeter of this place, wherever you can see it — which is far, because the scale extends outward in every direction until it blurs — drops away in fresh faces of rock, recently fractured, the breaks still exhibiting that characteristic pale interior color that stone has before weather and lichen find it. The edges are sharp where they're visible, like something was recently cut here with a tool operating at geologic scale.
+
+But the interior. The interior is dense beyond easy accounting.
+
+---
+
+The vegetation has claimed everything that isn't actively falling away. It grows in a compression that suggests immense patience and immense hunger simultaneously — as though the plants have been waiting for exactly this: a high, bright, cool place with occasional moisture, and having found it, they have distributed themselves into every available cubic unit of air. The dominant impression is green, but green is insufficient. There is the deep bottle-green of certain waxy broad-leafed plants that have made themselves into ground cover, their leaves large and flat and angled to catch the overhead light, overlapping like scales, like hands placed palm-down in prayer. Above these, ferns — not garden ferns, but ferns in their massed, prehistoric self-assurance, growing chest-high in some places, their fronds making a second canopy just above walking height, filtering light into a pleasant lime-colored dimness at mid-level even while everything above that level is saturated in full brightness.
+
+Then the shrubs. Dense-wooded, with small leaves and a structural stubbornness, they push into every gap between what might generously be called trees — though the trees themselves are not large. This is cool-climate vegetation, compressed by altitude and temperature into a shorter stature than the same exuberance would achieve at sea level. The trees are perhaps six, eight, ten meters at their tallest, their trunks close together, their canopies interlocking where they can but leaving gaps where the rock breaks through or where the angle of the slope forces a thinning. Through those gaps, the vertical light pours down in defined columns, bright and almost solid-looking, landing on the ferns and the ground-cover like spotlights.
+
+The density is not impenetrable — you could move through it — but you would have to negotiate. You would have to choose your path actively, pressing branches aside, stepping over root systems that have organized themselves into crude staircases across the rock. The plants are not hostile. They simply have not left much room for you.
+
+---
+
+Moisture is present but irregular. This is the defining quality of water here: it is intermittent, conditional, present in pockets and absences rather than continuous flow. There is no running water audible. There are no streams of any consequence crossing the interior, though in the lowest channels between rock formations you can find dark wet soil that holds the print of a boot long after the boot is gone, and in certain sheltered basins where the rock curves inward, condensation has been accumulating along the undersides of leaves since before you arrived. It drips. Very slowly. A drop every thirty seconds, maybe. The leaves below are permanently darkened by this, not wet exactly, but never fully dry.
+
+There was rain not long ago — maybe two days, maybe a week. You can infer this from the way the soil at depth, revealed where a root has lifted a plate of turf, holds a darker color than the surface. The surface has begun to dry. The atmosphere retains a coolness that is only partly altitude — it is also the coolness of recent moisture, the landscape still exhaling what it absorbed.
+
+In several places across the plateau, the rock has fractured in ways that created small basins, knee-deep or waist-deep depressions where water has collected and remained. These pockets are not ponds — too small, and their edges too steep — but they hold several inches of clear, cold water and have become very specific microecologies. The plants around their edges are darker-green, larger-leaved, more confident. These basins are distributed without pattern, as though the landscape dropped them there carelessly. Each one is slightly different. Each one has the quality of a secret that isn't particularly well kept.
+
+---
+
+The industrial presence, when you find it, is strange precisely because it belongs here as much as anything else. This is the particular weirdness of the plateau: the machines are not ruins, exactly, and they are not obviously in use, but they are operating — or something about them is operating — and they have been absorbed into the vegetation with a thoroughness that suggests a long negotiation. A long, slow negotiation.
+
+The first indication is a sound, and it is barely a sound. More an occasional subsonic resonance that you feel in the sternum when the wind drops — which is often, because there is almost no wind up here, just a faint circulation that amounts to the plateau breathing. This resonance comes from structures you can't fully see until you're near them: low buildings, built from materials that were once industrial but have since been colonized. Corrugated metal, painted originally in dark green or gray, now supporting colonies of pale lichen and the creeping vines that seem here to treat metal as simply another substrate. The structures are low and wide, their rooflines nearly hidden by the ferns that have grown to their height on all sides. Some have lost sections of roof. Through those openings, light falls directly inside.
+
+Inside one — accessible through a door that stands open and has stood open long enough that the door frame has a carpet of moss on its north-facing edge — there are machines. They are large. They were designed for production of some kind. Boilers, or pressure vessels, or electrical generation equipment — the categories begin to blur because the machines have been modified, repeatedly, and modified again, in ways that suggest a practical ingenuity unconcerned with legibility. Pipes run between them. Some pipes have been routed outside, and you can follow those pipes across the plateau surface, sometimes above ground, sometimes vanishing into rock, emerging somewhere else. The pipes are warm. Not hot — you can rest a hand on them comfortably — but warm. Whatever passes through them is moving, very slowly, driven by something you cannot see the source of.
+
+There are electrical cables. Heavy-gauge, industrial, strung on ceramic insulators mounted on wooden posts — the posts half-hidden now by the vegetation — connecting the low structures to each other and to small junction boxes mounted on the rock faces in several locations. The junction boxes hum, almost inaudibly. One of them has a small LED indicator of some kind, green, steady, visible only because you noticed it in the shadow of an overhang where the light didn't quite reach. It looks very recent. Everything else looks old.
+
+There is no one here. There are signs that someone comes: a path pressed into the ground cover between two of the structures, worn smooth by repeated use. A pair of rubber boots standing just inside a doorway, their tops beginning to collect a fine gray-green film of airborne spores. A clipboard hanging from a nail, with a sheet of paper on it, but you are not close enough to read it and going closer feels like a decision you're not ready to make.
+
+---
+
+The fauna is almost entirely absent in the immediate, visible sense. This is the quality that takes longest to notice, because the vegetation is so present, so insistently alive, that the absence of animal movement takes a while to register as absence rather than simply as stillness. There are no birds visible, though once, at the edge of hearing, there was something that might have been a call — very distant, horizontal, coming from beyond the plateau's edge and therefore from a lower elevation. It did not repeat.
+
+There are insects, but they are operating at a scale that makes them easy to miss: small flies moving in slow spiraling patterns in the columns of light, too small and too aimless to produce sound. Something has made burrows in the darker soil around the water basins — the entrance holes are there, clean-edged, recently used — but whatever made them is inside, or elsewhere. A few of the plant stems show evidence of feeding, irregular notches at the margins of leaves, but the feeding has been gentle and distributed, not the work of anything large.
+
+The rarity of fauna creates a particular quality of attention. The landscape does not feel uninhabited in the way a desert does, where the emptiness is a kind of declaration. Here the emptiness is a waiting. The vegetation is so thick with the potential for concealment that you simply cannot rule out what might be watching without revealing itself. This is not threatening — it is just that the ratio of observable to unobservable life feels skewed in an unusual direction.
+
+---
+
+By afternoon — and the light confirms afternoon, not by diminishing but by shifting its angle perhaps fifteen degrees — the plateau has settled into its most characteristic condition. Bright. Cool. Dense with green presence. The distant edges sharp and pale where the rock breaks. The machines in their slow, warm operation. The condensation continuing to gather and drop from the leaves of the plants in the basins.
+
+The dynamic here is so slow it is almost the absence of dynamic. Things are growing. The pipes are conducting whatever they conduct. The lichen is extending across the metal at a rate measurable only across seasons. The rock at the plateau's edges is new but it is already beginning to accept its first colonists, the pioneer species — the single-celled arrivals, the most elementary practitioners of the enterprise that will, slowly, cover everything here the way it has covered everything already.
+
+The plateau is not finished. It is early, geologically. The process is underway. And the machines are part of the process, somehow — not fighting it, not interrupting it, but running alongside it at their own tempo, which happens to be similarly gradual, similarly patient. As though whatever the machines are doing, they are doing on the same schedule as the lichen. As though they were set here to keep pace with something growing, and they are succeeding.
+
+---
+
+You could stand here for an hour and the light would not change much. The plateau would continue in its bright, dense, quiet self. The resonance would come and go below the threshold of hearing. A drop of condensation would fall from one leaf to another every half minute. The boots would stand in the doorway. The green light on the junction box would hold steady.
+
+Somewhere past the edge — past the fresh-broken rock faces, at a lower elevation where the air is thicker and the day's full temperature has reached — something is moving. You can infer this but not confirm it. Up here the inference is enough. Up here the world is mostly inference, assembled from the evidence of things that were recently present, or will eventually arrive, or are operating too slowly or too quietly to be directly observed.
+
+This is a place that is thoroughly, densely, quietly itself.

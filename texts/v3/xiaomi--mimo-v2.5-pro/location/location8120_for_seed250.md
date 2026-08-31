@@ -1,0 +1,53 @@
+# The Drowned Sky
+
+---
+
+You stand on a ridge that has no right to exist yet. The rock beneath your boots is raw — not weathered, not rounded, not taught by millennia of rain and freeze and patience how to hold itself together. It is *fresh*. Sheared and thrust upward by forces that happened yesterday, or perhaps are still happening. The stone is dark, almost black, streaked with veins of unoxidized mineral that catch the light with a dull metallic sheen, and it is warm to the touch despite the cool air — residual heat from its own violent birth. The ridge is narrow, a blade of basalt pointing at nothing, and on either side the land falls away into gorges so new they look like wounds. No soil has had time to settle in the crevices. No lichen has begun its slow claiming. The mountain is an argument that hasn't finished being made.
+
+Above you — and this is the thing that stops you, that has perhaps stopped everything that has ever tried to live here — is the ocean.
+
+---
+
+Not above in the way that clouds are above, or weather, or sky. Above in the way a ceiling is above a room. The water begins perhaps two hundred meters overhead, and it does not end. It fills the upper atmosphere like a second geology, a liquid continent suspended in defiance of everything you have been taught about how mass should behave. The underside of it is not flat. It churns and heaves in slow, continent-scale undulations — swells the size of mountain ranges moving with the ponderous inevitability of tectonic plates. Where the light catches these swells, they glow a deep blue-green, almost bioluminescent, though nothing alive makes that color. It is the color of water compressed to a density it was never meant to hold, lit from within by pressures that convert light into something slightly other than light.
+
+The surface of the underside is not a clean boundary. It *feathers*. Tendrils and filaments of water extend downward like the roots of an inverted forest, some of them reaching within fifty meters of the ridge where you stand before they break apart into mist, before the mist recombines into droplets, before the droplets are pulled back up by whatever force holds the ocean in the sky. The air between you and the water is thick with this cycle — a perpetual rainfall that falls upward, a drizzle of impossible meteorology. The mist is cool on your face and tastes of salt and something else, something mineral and faintly electric, like the air before a lightning strike but without the ozone. Just the voltage. Just the potential.
+
+---
+
+The sound.
+
+The sound is *enormous*. It comes from everywhere. The suspended ocean groans — a low, tectonic bass note that you feel in your sternum more than hear with your ears, the sound of billions of tons of water trying to remember how to fall and being perpetually refused. Above that groan is a roar: the white-noise roar of turbulence where the water's underside meets the air, a boundary layer of constant violence where evaporation and condensation and some third thing that is neither — some process that has no name because it was invented here, in this place, by whatever holds the water up — all churn together. The sound is loud enough to distort your perception of distance. Things that are far away sound close. Things that are close are drowned in the general volume. You find yourself shouting to hear yourself think, and then you stop bothering to shout, and then you realize that thinking itself has become a kind of shouting, an effortful act performed against resistance.
+
+And beneath the roar, beneath the groan, a hum. The hum is not mechanical. Or if it is mechanical, it is mechanical in the way that a star is mechanical — operating on principles that reduce to engineering only if you are willing to extend the definition of engineering past the point of usefulness. The hum comes from the water itself. Or from the space between the water and the land. Or from the laws that govern this place, which are not quite the laws you arrived with. It is the sound of whatever technology keeps the ocean aloft, and it is beautiful in the way that very large, very indifferent things are beautiful. It does not know you are here. It would not change its frequency if it did.
+
+---
+
+The world is vast. Not vast the way a valley is vast, or even a continent — vast the way a *concept* is vast. The ridgeline you stand on extends in both directions until it fades into mist and distance, and beyond the mist are more ridges, more gorges, more raw uplifted stone, all of it newly minted, all of it under the same impossible ceiling of water. You cannot see to the edge of this place because there is no edge. The scale is planetary, or perhaps larger than planetary — perhaps this is a world being *made*, and you are standing inside the act of its making, and the reason the rock is uneroded and the water is unsuspended and the laws are untested is that they have only just been written.
+
+There is no soil. There is no forest. There are no animals — not a single one, not an insect, not a worm, not a microbe that you can see, though perhaps the faint greenish stain you notice on the north faces of some of the taller ridges is the very first suggestion of something biological, the barest whisper of a colony of extremophilic algae that has found purchase in the mineral moisture that gathers where the upward rain condenses against the stone. The stain is faint. You could be imagining it. But it is the only color in this landscape that is not rock or water or the strange silver-gold of the light filtering through the suspended ocean, and so your eye keeps returning to it, and you begin to think of it as an omen. The first word of a language that hasn't been spoken yet.
+
+---
+
+The light is diffuse and strange. The sun — or whatever passes for a sun here — is above the water, and its light passes through hundreds of meters of liquid before it reaches you, arriving softened, refracted, scattered into a quality of illumination that has no shadows, only *gradients*. Everything is lit from above at every angle. The rock gleams. The mist gleams. The underside of the ocean gleams. There is a perpetual quality of deep twilight even at what should be noon, a blue-green cast to everything, as though you are standing at the bottom of a very large aquarium and the aquarium is the sky.
+
+When the swells above move — and they are always moving — the light shifts. Bands of brighter and dimmer illumination sweep across the landscape like the shadows of clouds, except they are not shadows, they are *lenses*, the curved water above bending light into focused and unfocused zones that migrate across the terrain. Standing on the ridge, you watch a band of brighter light approach from the east, sweeping across the gorge below you, illuminating the raw walls of the canyon in sudden vivid detail — every fracture, every mineral vein, every tiny pocket where water has gathered in a cup of stone — before it passes over you and moves on, and you are back in the diffuse half-light, and the gorge returns to suggestion.
+
+---
+
+The air is cool and wet and moves constantly. Not wind in the traditional sense — there are no prevailing currents, no trade winds, no system. The air moves because the water above moves, and the water above moves because it is *alive* with instability, with the constant negotiation between gravity and whatever force opposes it. Every shift in the ocean's underside sends pressure waves downward, and the air responds with gusts that come from no consistent direction, sudden downdrafts that hit the ridge and scatter the mist into brief moments of clarity before the mist re-forms. The temperature fluctuates: cool, then cooler, then briefly warm where a downdraft pulls air from the thermal boundary layer between water and land. You notice that the wind and the sound and the light all pulse together, all driven by the same slow, massive rhythms of the water above, and you begin to feel that the entire landscape is the interior of a single enormous lung, breathing.
+
+---
+
+There is no sign of who or what built this. There are no structures, no artifacts, no marks of intention on the land. The rock is geological. The water is chemical. The air is atmospheric. And yet the technology that holds the ocean in the sky is *present* — you can feel it in the hum, you can see its effects in the physics that shouldn't work, you can almost taste it in the electric quality of the mist. It is technology so far beyond what you understand that it has become environment. It is not *on* the landscape. It *is* the landscape, or at least the part of the landscape that makes the rest of it possible. You cannot find it because you are inside it. You cannot study it because it is the medium through which study would have to occur.
+
+Perhaps this is what it looks like when a world is engineered at the scale of its own physics. Perhaps someone — something — has rewritten the rules of how water and gravity and light interact, and this is the result: a planet-sized laboratory of raw geology and suspended ocean and nothing else, still settling, still finding its form, still too new for life to have arrived. The erosion score is near zero because there has been no time for erosion. The density is near zero because the space is too new to have filled. The built environment is near zero because whoever made this did not build *on* it — they built *it*, the whole thing, from the laws up.
+
+---
+
+You stand on the ridge and listen. The groan. The roar. The hum. The upward rain falling around you like applause from a very distant, very large audience that is not watching you but watching *this* — this place, this moment, this world in its first minutes of existence, raw and loud and empty and vast and held together by something you will never understand, and you feel, despite the absence of any other living thing, despite the emptiness and the noise and the impossible water hanging over you like a held breath — you feel that you are standing somewhere *sacred*. Not sacred in the way that temples are sacred. Sacred in the way that the first second after an explosion is sacred. Sacred in the way that a blank page is sacred, if the page were the size of a world and the pen were the size of a god and the ink were still falling.
+
+The green stain on the north-facing rock catches the light as a swell passes overhead, and for a moment it glows, and then the light moves on, and it is just a stain again, just the faintest beginning of the first sentence of the first word of a story that has not yet decided what it wants to be about.
+
+The water groans. The rock hums. The rain falls up.
+
+You wait.

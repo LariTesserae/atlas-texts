@@ -1,0 +1,33 @@
+Begin underground, but do not imagine a cave.
+
+Imagine instead a single organism that has grown so large it has become a country, and you are standing inside it. The walls are not rock. They are vegetable — a dense, cold, pale wood, the color of peeled apple, that goes on past the horizon. The floor is the same living wood, and the ceiling, which is so far overhead that it holds its own slow clouds. This is the inside of the plant. There is no outside that anyone here remembers.
+
+The light is the first surprise. You are below the surface and yet everything blazes. The wood itself is luminous, a cold and even brightness that comes from the cells rather than from any sun, the way certain deep fish carry their own lamps. It does not flicker. It floods. There are no shadows here except the ones you make with your body, and even those are faint, lit from too many directions to commit. The brightness is total and it is colorless and after a while it stops feeling like light and starts feeling like the simple fact of being seen. You squint for the first hour and then your eyes give up resisting and you accept it: this place does not sleep, and neither, here, will you.
+
+Cold. A clean, mineral cold that settles into the joints. Not the cold of wind — there is little wind in most of the chambers — but the cold of something vast that has never been warm, a temperature held so steady for so long it has become a property of the place rather than a weather. Your breath fogs. The fog drifts a long way before it disperses, because the air here is enormous and almost empty, and small things travel far before they meet anything.
+
+Now the water. It is not abundant. It arrives as condensation: the cold wood sweats, and along the high vaulted galleries the moisture gathers into beads that swell and fall as a slow, intermittent rain, each drop tracking down through the bright air for a long time before it lands. In some chambers there are thin rivers, threads of meltwater following grooves worn into the living floor, and where they pool the wood has gone soft and dark and grown a fur of cresses. But mostly it is damp, not wet. A film. A held breath of moisture on everything. You could go a day walking and meet only the sound of one drip, somewhere, far off, ringing in the hollow.
+
+Because it is hollow. This is the strangeness that takes longest to absorb: a place made entirely of life, packed with vegetation to the point where vegetation *is* the architecture — and yet almost wholly empty of things. The plant has built cathedrals and left them vacant. You walk for hours across a floor and the ceiling withdraws into bright haze and there is nothing — no creature, no structure, no rise or fall — only the pale luminous wood and the cold and the distance. The vegetation here is not a forest you move through. It is the room. The substrate. The all. And it has hollowed itself into vast vacant volumes the way bone hollows itself, for lightness, for reasons of its own scale that have nothing to do with you.
+
+The features are young. That is the other thing — for all its size, this is not an ancient, worn place. The wood has sharp edges. The galleries are freshly split, their grain still bright and raw where the plant has only lately wrenched itself open to make new room. There are no smoothed surfaces, no patina of long use. Everything looks recently born and recently broken, ridged and angular, splinters the size of houses leaning where they fell. The organism is still growing. You are inside something that is happening *now*, not something finished long ago.
+
+And it is restless. This is where the quiet becomes a lie you only half believe. Most of the time the silence is total — the held, padded silence of a sealed enormous space — but the silence is the silence between events, and the events are violent. The plant moves. Not slowly. Periodically, without warning, a whole gallery convulses: the living walls flex, the floor heaves, a new chamber tears itself open with a crack like a continent splitting, and a wind comes from nowhere as the volumes redistribute. Whole structures collapse and others bud. Watercourses that ran one way yesterday now run another, or have dried, or have become falls. The place is in a state of constant turbulent self-revision — building, demolishing, building — and the long quiet is only the pause in which it gathers itself for the next spasm. You learn to listen to the floor through your feet. You learn that stillness is temporary.
+
+Of animals, almost none. Now and then something — a pale soft thing the size of a cat, eyeless, feeling the wood with feathered limbs; a translucent swarm that drifts through one chamber and is gone by the next; a single large slow grazer, far off, cropping cress at a river's edge and lifting its head when the world shudders. Rare. You can walk a week and meet three living things and remember each of them like a meeting with a person.
+
+And people — yes, there have been people. The built things are scattered and small and old against the freshness of the wood. A circle of stones, carried from no one knows where, since there is no stone here. A platform of lashed splinters with a roof of dried cress, a shelter someone made against the rain-that-falls-from-the-ceiling. Tools: scrapers worked from the hard knots of the wood, a needle of bone, the char of a fire that someone risked lighting inside a thing that is itself alive. Marks scratched into a wall — counting, or naming, or warning. Hand-craft, all of it. Nothing forged, nothing wheeled. The people here, whoever they are or were, live by the knife and the cord and the careful reading of the floor's tremor, and they are very few, and the place does not notice them.
+
+The rules, then, as you'll come to know them:
+
+There is no night. Sleep when you are tired and let the brightness watch you.
+
+There is no rock and no metal; everything you make, you make from the body of the thing you live in, and it does not love you for it.
+
+The quiet is not peace. It is the inhale. Sleep near a wall you can feel.
+
+Water comes from above, slowly, and pools where the wood has died. Drink from the dark soft places, not the bright hard ones.
+
+And the great unanswered thing, the one the stone-carriers must have asked: what is on the *outside* of the plant? Is there an outside? The chambers only ever open into more chambers, more bright cold hollow vegetable rooms, world without edge — and the only direction that has ever felt like *out* is the one the new galleries tear toward when the place convulses, deeper, further in, into more of itself.
+
+You go that way. There is nothing else to go toward.

@@ -1,0 +1,9 @@
+This vast, mineral world stretches out before you, bathed in a bright and warm glow. Scattered across its surface are the remnants of an industrial civilization, rusted factories and abandoned machinery lying half-buried in the dust and rubble. The air is mostly still and quiet, save for the occasional whisper of a breeze carrying the faint metallic tang of oxidation.
+
+Underfoot, the ground is hard and unyielding, a mosaic of volcanic glass and ancient lava flows. No plant life struggles to take root here, but in the distance, you can make out the shimmering outline of what appears to be a vast inland sea or lake. Rivulets of moisture seem to pulse through the cracks and fissures in the earth, briefly collecting in shallow pools before evaporating away.
+
+Despite the overall aridity, pockets of life teem in this strange ecosystem. Bizarre, multi-limbed creatures scuttle across the glassy planes, their translucent carapaces refracting the bright rays of the sun. Diminutive, serpentine forms slither through fields of shimmering spore clouds, leaving winding trails in their wake. High above, massive, winged behemoths glide effortlessly on thermal updrafts, their haunting cries echoing across the desolate expanse.
+
+The cycles of this realm play out on an alien scale, both in space and time. Towering plumes of vapor periodically burst forth from hidden vents, temporarily shrouding the landscape in misty veils. Elsewhere, slow waves of crystalline growth advance across the pancake-flat plains with imperceptible patience, engulfing and fossilizing anything in their path.
+
+In the far distance, the curved horizon betrays the planet's true enormity, hinting at unseen weather systems and geographical features on a continental scale. This is a world shaped by the inexorable forces of geology and thermodynamics, where life has found strange and unexpected Purchase in the most inhospitable of environments.

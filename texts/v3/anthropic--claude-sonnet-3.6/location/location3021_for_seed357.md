@@ -1,0 +1,17 @@
+The vast underground caverns stretch beyond any meaningful measure, their scale defying terrestrial logic. Here, darkness is the primary medium, broken only by the soft bioluminescent pulse of the forest-like structures that fill the space. These aren't trees in any conventional sense, but rather towering columns of engineered fungal matter - part organic, part mechanical - their surfaces covered in intricate patterns of light that seem to carry information in their slow, rhythmic changes.
+
+The air is cool and heavy with moisture that never quite becomes rain. Instead, it condenses in precise geometric patterns across the fungal towers, collecting in channels that spiral downward, feeding both the organic and mechanical components of this hybrid ecosystem. The water carries trace elements of rare metals, essential nutrients for the cybernetic mycelia that form the foundation of this world.
+
+The ground, where it can be discerned, is a relatively young formation - sharp-edged crystalline structures that seem to be growing upward from some deeper source, their facets occasionally catching and reflecting the bioluminescent pulses above. These crystals incorporate the water-borne metals into their structure as they grow, creating new compounds that exist nowhere else in nature.
+
+The space between the fungal towers is dense with smaller growths - curtains of fibrous material that might be circuitry or might be mycelium or might be both, pulsing with the same slow rhythm as the towers. These interstitial spaces are nearly impossible to navigate, the pathways between them constantly shifting as the growths respond to unseen stimuli.
+
+Sound here is minimal - occasional crystalline pings as new formations break through the surface, the subtle hiss of water moving through the fungal systems, and sometimes a deep, subsonic vibration that seems to come from everywhere at once, as if the entire cavern system is some vast mechanical-organic processor, running calculations too profound for human comprehension.
+
+The technology here is not built or placed - it has grown, evolved, or perhaps been cultivated by some intelligence that understood how to blend the organic and the mechanical at a fundamental level. There are no clear divisions between what is machine and what is alive; everything exists in a state of hybrid functionality.
+
+The air carries complex molecules that might be spores or might be nanobots or might be both - they drift in visible clouds when caught in the occasional bioluminescent pulse, following air currents that seem too regular to be natural but too organic to be engineered.
+
+This place operates on its own timescale - processes that might take centuries elsewhere occur in moments here, while other changes are so slow they appear frozen. The entire system is in constant motion, though much of it is too subtle or too vast to perceive directly. It's an ecosystem that has evolved beyond the need for animal life, operating instead on the border between computing and metabolism, between growth and manufacture.
+
+Weather patterns form in the vast spaces between the tower tops - not clouds of water vapor, but clouds of information density, precipitating new growth where they gather and leaving quiet spaces in their wake. The whole environment feels like a glimpse into some post-biological future, or perhaps an alternate path of evolution where the distinctions between natural and artificial never developed at all.

@@ -1,0 +1,13 @@
+The landscape unfolds as a vertical labyrinth of moss-laden stone terraces and hanging gardens, suspended high in a misty mountain realm. Water is everywhere, but not as rivers or lakes—instead, it permeates the environment in a constant state of transformation. Thick lichen-covered rocks weep continuous rivulets, and the very air seems to condense and breathe moisture. Tiny cascades thread between tight stone passages, creating a soft percussive sound that barely rises above a whisper.
+
+This is a dense vertical city, but not a human city—more like a living ecosystem that has constructed itself with the deliberation of architecture. Compact dwellings are carved directly into the stonework, their edges softened by prolific vegetation. Mosses and tiny flowering plants crowd every potential surface, creating a tapestry of green and deep blue-greys. Ferns unfurl from impossible crevices, their delicate fronds catching droplets that glint like tiny prisms.
+
+The temperature hovers just above freezing, which gives the landscape a preserved, almost crystalline quality. Breath would emerge as delicate clouds, and surfaces carry a perpetual dampness that speaks of constant condensation. Small creatures—rodents, insects, amphibians—navigate this intricate three-dimensional space with remarkable efficiency, their movements creating subtle rhythms within the larger ecological pulse.
+
+Fauna is abundant but compact: not large creatures, but a dense network of smaller life forms. Tiny luminescent fungi provide ambient light in darker recesses. Moss-backed lizards that seem more like living stones than animals bask in the rare moments of direct illumination. Insects with translucent wings navigate the moisture-laden air, their movements creating subtle wind currents that interact with the hanging vegetation.
+
+The entire landscape feels like a single organism—breathing, shifting, maintaining its own delicate equilibrium. Water is its lifeblood, vegetation its skin, stone its skeleton. Each element is so tightly integrated that separation seems impossible.
+
+Sound is a subtle symphony: water droplets, the microscopic movements of insects, occasional bird calls that echo like distant flutes. The environment speaks in whispers and gentle transitions, never loud, always nuanced.
+
+This is not a landscape to be conquered or even fully understood, but to be carefully observed—a microcosm of incredible complexity, balanced on the knife-edge between stasis and constant transformation.

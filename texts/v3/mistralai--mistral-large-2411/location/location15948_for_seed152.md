@@ -1,0 +1,29 @@
+In the quiet, dim light of perpetual dawn, a place called the **Verdant Niche** is tucked away, hidden from the wider world. It is a pocket of vibrant life in a largely dormant landscape, a secret oasis that is warm and damp, fed by intermittent rains and mists that appear to come from nowhere and dissipate just as mysteriously. Let us come closer and explore.
+
+The **Terrain** is relatively flat, low to the ground, with gentle undulations that hint at the potential for future valleys and hills. It's as if the world is still taking its first breath, and the landscape is just beginning to form. There are no sharp edges or stark cliffs, only soft curves and smooth surfaces.
+
+The **Materials** here are raw, primitive. The ground is a mix of damp soil, crumbling rock, and patches of clay. Large boulders, still untouched by the wind and rain of time, seem to have been placed arbitrarily by some unseen hand. They are scattered sparsely, creating small micro-climates and ecosystems around them.
+
+The **Atmosphere** is dense, humid, like breath on a glass held close to the body. The fog gives the air an almost trembling quality, like the world could be remade at any moment. It's warm, but not stifling, like a hothouse in early spring. Colour seems muted, diluted by the lack of direct sunlight.
+
+The **Sounds**, or rather the lack of them, are what is striking about this place. There is a sense of quiet, a feeling of the sound being just out of reach, or about to begin. It feels as if the word itself is holding a note it's yet to sing. When the silence breaks, the rustle of leaves, the soft scamper of creatures, and the gentle grumble of distant rain is what pierces the silence. If ever a sound loud enough for echos emerges, a gentle tapping and murmur echoes off the boulders and dissipates quickly.
+
+This world is **Damp**, the ground soft underfoot. Small pools fed by rainwater and underground seepage serve as oases for the land. Creeks and brooks originate here, with their headwaters cradled in shallow but broad dells. Ground water of the Verdant Niche seems to be trying to cover as much of the ground as possible, with more springs and trickles appearing over time.
+
+The **Vegetation** is lush, especially considering the relative isolation and unique conditions of the Verdant Niche. The shrubs and grasses are the first to appear, carpets of green with large, splayed leaves, basking in the subdued light. The canopy is fitful, made by a mix of mature trees and younger ones, all arrayed like an assortment of umbrellas thanks to their need to gather every bit of light and water.
+
+Due to the emergent nature of the landscape, there are no towering, ancient trees, and there is always room for new ones. Mosses, lichens, and ferns thrive among the rocks and trees exploiting peninsulas of water to push roots deeper. There are no old growths to contend with, no fossils, no ghosts of the past. As such, it's a young, energetic flora, still trying to find the most effective ways to harmonize with this nascent world.
+
+The **Ecology** is abundant and dynamic, a web of interactions that is continually being spun and woven. Like the plant life, the animals are primarily small and medium-sized, with no giant beasts or ancient predators. The relative isolation has led to some unusual traits emerging in the local fauna, particularly in their mating songs and seismic rhythm patterns. Moss eagles, near-silent creatures with stark white streaks across milky, green feathers, manage to catch wind under the forest-not-yet canopy. Pale olm snakes with only enough pigment to convert light, crawl knee-nipped through the underbrush.
+
+The established creatures had to adjust to the world—the Albaterris, a small flightless bird, lays eggs with specialised furrows to allow for moisture to seep through to the embryo while travest thee mitrids, light sensitive insects, use their waxy carapaces to store water as both built-in water-reserves and makeshift lenses to enhance their photosensitivity.
+
+Of course, there are **Rules** to this world. Chief amongst them is a pervasive urge towards growth. Evolution seems quicker here, with generational adaptation shepherding the footsteps of progress. With mere decades, a puddle can become a pond.
+
+However, unlike the outside world, resources here are not won through brute force, but cultivated through careful cooperation. The Verdant Niche doesn't lend itself to aggression. Time is stretched, and the pace is slow, as if the weight of the mist settles chronology. Humanity has yet to discover the Niche, so strange, sure-footed, and considerate ungulates forage food across the still-forming ground.
+
+Despite its isolation, the Verdant Niche is **Active**. Geological shifts are subtle but constant, with new pools forming and old ones draining away in search of new rests. Blossoms open in the luminous dimness, arranged like intricate victory wreaths for some soon-to-form valley.
+
+In the stillness of the Niche, it seems as though the environment itself is willed by a collective consciousness of beasts and green growing things. Was it just a moment ago that a path, unmarred by stones or plants allowing a gentle walk had won its way over, like sweetmeats rolled out for the taking?
+
+Prior there were only hills, and now the good earth is open. The land continued shifting to be easy underfoot. The creatures move in gentle formation, their passings a love note to the place. They wander and know, and so they know, the land wanders beneath. A warm welcome to this place we've found. A wonder before us for the traveler's eye and sturdy, loyal hearts to be heartbound to such soil.

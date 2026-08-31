@@ -1,0 +1,9 @@
+A colossal, towering landscape of sheer-sided rocky mountains blanketed in thick, dark mist. The atmosphere is bone-chillingly cold, with tendrils of fog perpetually snaking between the jagged peaks. Water seeps constantly from the beds of dark grey slate and shale, running in rivulets down the nearly-vertical faces to amass in narrow gorges far below. Those deep, serpentine valleys are filled with utterly clear, frigid water that trickles and pools between tumbled boulders and fragments of fractured stone.
+
+Sparse, tough vegetation clings tenuously to the farthest reaches of the mountainsides - stunted trees drenched in dew and spherical lichens that shine wetly in the pall of mist. The overcast sky seems to dim and fade into the highest peaks without transition.
+
+Scattered along the valleys are the dark shapes of buildings - wide-angled structures of industrial metals and thick, multi-paned windows all covered in rivulets of condensation. Steam drifts skyward from unseen vents to mingle with the pervasive mist. The buildings are immense, with yards filled with electro-mechanical equipment, heaps of mass-produced metal parts, and strange machines of bolted pipes and copper wiring that hum and shudder.
+
+A strange quiet heaviness permeates, empty but for the steady low whisper of fog and rivers, and occasional metallic groans of buildings compressing with the deep chill. The very air seems oppressive and stable, so still that it could scream if it moved at all. No sound of animal life, only water, steam and machine.
+
+It's a place of cold permanence, rejecting change, where human making has found an odd stability in the stabilized quiet of the ice-chilled, mist-blanked world. A frozen landscape of stone, metal, and stalled motion.

@@ -1,0 +1,43 @@
+# The Grown City of Aulm
+
+There is a valley here, wide enough that you cannot see across it without the haze taking the far rim, and the whole of it is a city, and the whole of the city is a single plant.
+
+Not a forest. A city. The distinction matters.
+
+Begin with the substrate, because there is no substrate. There is no rock under Aulm, or if there is, no one has touched it in the long arithmetic of the place's growing. What you stand on, when you stand, is a floor of woven root — rope-thick, palm-thick, thigh-thick, braided into causeways and plazas and the floors of rooms. The roots have grown to be floors. They are flat on top because flatness is what they are for. Beneath them: more root, and more, and somewhere down in the dark, water. The water is always near. You can hear it through the floor if you kneel — a slow gulping, the suck and release of a vast slow throat drinking.
+
+The walls are trunk. The trunks have grown to be walls. They are not trees that happen to make a wall — they are walls that happen to be alive, fluted vertically with grain, sometimes leaking a slow clear sap from a seam where two trunks have fused. The sap beads, hangs, falls. It is everywhere. The whole valley weeps a little, all the time, not from sorrow but from pressure: there is so much water moving up through the green columns that some of it has to escape, and it escapes as a steady fine drip from ten million small seams. The floors are slick. The air is heavy. Breathe in and your lungs feel filled before you finish.
+
+The ceilings, where there are ceilings, are leaf — but leaf the size of sailcloth, broad pale plates laid edge to edge like roofing tiles, veined in a darker green. Light comes through them filtered to a steady underwater green-gold. Above the leaf-roofs, more storeys: Aulm is layered, four or five or seven floors high in places, all grown from the same root-stock, all one organism by the testimony of anyone who has tried to cut it and watched the whole quarter shudder.
+
+The rooms are sparse. This is the strange thing — that something so total in its construction should hold so much emptiness. A grown chamber might be twenty paces across and contain nothing: no furniture (furniture would have to be made, and nothing here is made by hand), no occupants, just the slow drip from the seam-walls and the green light and a single low shelf where the wood has bulged outward in a way that suggests sitting. You walk through hall after hall and meet no one. You walk through a plaza the size of a marketplace and see one bird — long-legged, the color of wet bark — drinking from a puddle in a depression of the floor-root, and then it is gone, and you walk on and meet nothing else for an hour.
+
+The fauna is rare and shy and probably necessary in ways no one quite knows: something pollinates the high flowers that open once and never close, something eats the fallen sap-beads before they sour, something hollows out the disused chambers so the plant can repurpose them. You see signs more than animals. A track in soft root-bark. A tuft of fur caught on a splinter. A high call, twice, from somewhere up in the leaf-canopy, and then nothing.
+
+The sound, though. The sound is constant and loud. This is the contradiction at the heart of Aulm: a place so still in its forms, so unchanging — and so loud. It is the water that does it. The valley is full of the noise of water moving inside wood. A continuous high hiss from the capillary rise in ten thousand trunk-walls. A low percussive knocking from somewhere deep, regular as a slow heart, which the few visitors who came back called *the valve* and could not explain. The drip-drip-drip of sap from every seam, multiplied by the millions of seams, becomes not a sound of drips but a sound like rain falling steadily on a leaf-roof — except there is no rain, only the plant's own internal weather expressing itself outward. And over all of this, when wind moves through the upper canopy, the leaf-plates clap softly against each other in a sound like distant applause that never crescendos and never stops.
+
+You cannot have a quiet thought in Aulm. The plant thinks too loudly.
+
+It is warm. Warm the way the inside of a mouth is warm — humid, body-temperature, slightly higher in the deeper chambers where the roots are working hardest. The elevation is real; this is a high valley, somewhere ridged in mountains, and the air outside the valley would be thin and cold. But inside Aulm the plant has made its own climate, exhaling moisture and metabolic heat until the basin holds a permanent warm fog at its lower levels and a clearer warm air above. You climb a grown stair from a misted floor-plaza up into clarity and back down again into mist, and the temperature barely shifts.
+
+Nothing here is eroding because nothing here is finished. The whole place reads as *emerging* — embryonic, just-arrived-at-itself, a geology still being decided. Where in another landscape you would expect a worn step or a weathered corner, here you find instead a surface that is still growing, a join that is still thickening, a chamber whose ceiling has not yet quite closed and lets through a vertical shaft of unfiltered light that falls on the floor like a held breath. Aulm is not old in the way ruins are old. Aulm is old in the way an embryo is old: it has been becoming for a very long time, and it is still becoming, and it has not begun to come apart because it has not yet finished coming together.
+
+And yet — and this is the deepest strangeness — it does not change. Watch a wall for a day and it has not grown. Watch it for a week. A month. The growth is happening on a timescale that human attention cannot catch: the place is in equilibrium with itself, every cell replaced by another cell of identical shape, every drip replaced by another drip in the same spot, every clap of leaf against leaf answered by a clap from the same two leaves in the next breeze. Aulm is dynamic only in the sense that a flame is dynamic — endlessly moving, endlessly the same. The valley a thousand years ago looked exactly like this. The valley a thousand years from now will look exactly like this. The slow valve knocks. The seams weep. The bird drinks from its puddle, which is the same puddle, refilled by the same slow seep, beside the same shelf-bulge where no one ever sits.
+
+There are rules here, though no one set them.
+
+One: do not cut. A cut anywhere is felt everywhere. The whole valley flinches, and the flinch is audible — a hush passing through the leaf-canopy like wind through wheat — and then the cut closes over within a day, leaving a paler ring of new growth that will match the surrounding tissue within a year and be indistinguishable within ten.
+
+Two: do not stay too long in one chamber. The plant does not seem to mind visitors, but it inventories them. A chamber occupied for many days begins, slowly, to grow shelves where the occupant has stood, depressions where they have slept, a slight inward curving of the walls as if the room were learning their shape. People who stayed have been found, eventually, fitted into the wood like a hand into a glove — alive, usually, and not unhappy, but no longer leaving.
+
+Three: the water is drinkable. It tastes faintly of green tea and copper. It is, as far as anyone has tested, the cleanest water in the world. The plant filters it through itself before letting it weep out.
+
+There are no devices in Aulm because the plant is the device. It is a city that needs nothing made because it has grown everything it needs and nothing it doesn't. There are no tools because there is nothing to repair. There is no fire because the air is too wet to burn and the wood would refuse the flame anyway — try to light a fallen leaf-plate and it merely steams.
+
+From the high rim of the valley, if you climb out of Aulm and look back, you see this: a bowl of impossibly even green, fluted with the vertical shadows of trunk-walls visible through gaps in the canopy, breathing a slow white mist from its lower folds, audible from a mile away as a steady wet hush like a held river. A bird, sometimes, crossing it. Almost never a bird. The leaf-claps from up here sound like a vast slow conversation in a language of soft consonants only.
+
+And the question that visitors take away, and that no visitor has answered:
+
+Did anyone plant it? Or did it plant itself, in the shape of a city, because the shape of a city was the shape it wanted?
+
+The valley does not say. The valley is busy weeping, and drinking, and knocking its slow valve, and clapping its leaves, and being, exactly and forever, itself.

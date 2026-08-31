@@ -1,0 +1,29 @@
+# The Whispering Hollow
+
+In a depression so slight it might be a breath pressed into the earth, the ground has worked itself into a riddle. Rock faces and root-wrapped stones emerge from wet soil, their surfaces dark with long moisture, slicked and gleaming where water has run and dried and run again. The hollow is small enough to walk across in minutes, yet the sound it produces takes longer to understand.
+
+---
+
+The water does not show itself here as a river would, or even a stream. It moves beneath—tunnels carved through limestone softened by centuries of patience, routing runoff from higher ground that never quite arrives. What surfaces instead are wet patches that bloom through the soil like bruises, black loam that drinks and drinks. Grasses crowd thick around these dark places, their blades stiff with cold, and low-growing mosses cling to stone with the desperation of things that need only moisture and shadow to live. Ferns uncurl in sheltered corners where stone has fallen into configurations that hold warmth, or what passes for warmth here: never quite freezing, never quite warming, hovering in the cold that is this place's constant breath.
+
+The vegetation is lush in the way that darkness permits—not abundant in sunlight-fed fullness, but dense where moisture gathers, layered in greens that trend toward black and silver. Here and there, the pale ghost of a leaf presses up through dead companions, or root-bulbs swell half-visible at the soil's surface, patient accumulations. The cold keeps decay slow, so fallen matter builds in shelves and drifts across the hollow, feeding the slow chemistry of rot that feeds the slow chemistry of growth.
+
+---
+
+The sound is the first thing, the only thing that cannot be escaped.
+
+It comes from below and from everywhere, a deep percussion that the hollow's shape amplifies and multiplies. Beneath the wet soil, water moves through stone in pulses—each one a low groan pressed through limestone chambers, building to a resonant hum that vibrates in the chest, in the teeth, in the small bones of the inner ear. The hollow catches this sound and holds it, stones becoming the walls of an instrument too vast to see. Wind contributes its own frequencies, threading through the dead grass and around the scattered stones with a sound like breathing, or like something pressed against the other side of the world. When the wind pauses, the underground groaning seems louder by contrast, a pressure against silence.
+
+The hollow is otherwise empty. No animals emerge from the wet soil. No birds call from the dark trees that ring the depression's edge, though their shapes are visible in silhouette, patient and still. Once there were structures here—shallow depressions that might have been shelters, a stone arrangement that reads as deliberate under the erosion that has blurred its purpose—but they sit abandoned in the vast space between the few presences the hollow contains. Scattered remains: the suggestion of walls, a post-hole darkened by rot, pottery sherds half-swallowed by moss. The people who built here are long gone, their tools lost or buried, their reasons unreadable in what time has left.
+
+---
+
+The darkness is not complete but it is constant—cloud cover, or the hollow's depth relative to its width, or simply the density of the wet air that holds shadow like a medium. Light exists here as a rumor: gray on gray, the suggestion of brightness from beyond the hollow's rim that never quite penetrates. What illumination remains gathers around the wet patches and the stones slicked with moisture, reflecting what little comes in forms that suggest rather than reveal. To stand here is to stand in a place that has forgotten what clarity means.
+
+Cold presses down, not dramatically, not painfully, but with the insistence of weather that has always been this way. The soil never quite thaws. Frost heaves stones slowly upward over years uncounted. Ice crystals form and reform in the wet patches, expanding and contracting, pushing earth aside grain by grain. The erosion here is not violence but patience—water finding stone, stone yielding to water, the long negotiation that has carved the hollow and carved the passages beneath and will continue, slowly, whether or not anyone remains to witness.
+
+What lives here lives quietly. Rare birds, perhaps, their presence felt more than seen—a flicker of motion at the hollow's edge, a sound that might be a call but arrives in fragments, broken by the stones' resonance before it can be understood. Insects in the warm seasons, their buzzing a thin line drawn through the deeper hum. Perhaps something denned in the deeper passages below, something that stirs and breathes and makes the darkness move.
+
+---
+
+To enter the hollow is to enter an instrument. Every footstep rings against stone. Every breath seems to push against the hum beneath. The buildings that once stood here, whatever they were, seem less like shelters than like attempts to build something into the sound—to place something solid where the resonance could not reach. That they failed, or that they were left, or that they simply could not outlast the patient erosion, reads as the only possible outcome. The hollow was here first. It will be here after. The rain that falls intermittently—enough to keep the soil dark, the moss flourishing, the wet places spreading—brings with it another register of sound, each drop a small bell struck in an arena of larger bells. Then it passes, and the hum returns, and the hollow remains what it has always been: a pocket of sound in a world that has made itself into a throat, singing without words, without audience, without end.

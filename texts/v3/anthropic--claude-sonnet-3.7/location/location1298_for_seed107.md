@@ -1,0 +1,25 @@
+# The City of Wax
+
+The woven streets of the City of Wax stretch across the basin in patterns both deliberate and accidental, like the work of some giant organism that built with purpose but without planning. Every surface, every structure, every pathway is made of wax—not beeswax, though it shares that warm amber-gold hue, but something more substantial, something that holds form yet slowly, imperceptibly shifts.
+
+In the warm air, the city should melt, but it doesn't—not quickly, at least. The wax has been mixed with resins, clay, and other materials by generations of builders who understood its properties intimately. Instead of collapsing, the city erodes with glacial patience. Corners round themselves over decades. Straight edges bow and curve over centuries. Sharp details soften into suggestion.
+
+The dense neighborhood called the Comb rises in the center, where thousands of hexagonal chambers stack atop one another in a crowded jumble. People live in these cells, behind translucent walls that glow when lit from within. From a distance, in the evening, the Comb appears as a constellation of amber stars, each light marking a home, a workshop, a temple. The chambers vary in size—some barely large enough for a single person to sleep, others expanding into community halls where dozens gather.
+
+Water is precious here. The shallow channels that run along the streets collect morning dew and the occasional light rain. These runnels lead to cisterns buried beneath small plazas where the wax has been mixed with harder substances to resist the water's touch. Women with clay pots gather at these cisterns in the cool hours of dawn, their conversations barely above whispers, respecting the quiet that blankets the city most hours.
+
+Vegetation is sparse but deliberate. In recessed niches along the wider avenues, drought-resistant plants grow from pots made of the same wax as everything else. Their leaves are silver-gray, their forms compact, and their blooms, when they appear, bring rare splashes of purple and deep red to the monochrome landscape. Some are medicinal, others culinary, all are tended with care.
+
+The artisans of the city work with simple tools—wooden spatulas, bone picks, reed brushes, copper wire heated in small braziers. They scrape, carve, and mold the wax that is both their building material and their canvas. Some specialize in repair, patching and reinforcing structures weakened by time and the occasional heavier rain. Others are artists, creating texture and relief on walls and doors. The most revered are the Shapers who can alter entire buildings, slowly coaxing the wax to flow in new directions without compromising structural integrity.
+
+Animals are few. Small lizards bask on sun-warmed wax parapets. Occasionally, a desert fox might venture in from the surrounding plains, drawn by the scent of the city's stores. Birds are rare visitors, seeming almost confused by this amber anomaly in the landscape. More common are the moth-like insects that appear at dusk, drawn to the soft light filtering through wax windows.
+
+The outskirts of the city fade gradually into the basin floor. Here, the wax structures are lower, more spread out, and show the greatest evidence of erosion. Some have partially collapsed into rounded, organic forms that resemble melted candles or the drip castles children build from wet sand. These areas are not abandoned, though—they're home to those who prefer solitude or who work with materials that require space or ventilation.
+
+Sound behaves strangely in the City of Wax. The material absorbs and dampens noise, creating an atmosphere of perpetual hush. Conversations seem to travel only short distances before fading. Music, when played, feels intimate even in larger spaces. The loudest regular sound is that of tools on wax—scraping, carving, smoothing—a textured quietness that forms the city's heartbeat.
+
+The people themselves move with unhurried purpose. They understand that in a city that changes by the season and year, there is little value in rushing. Their clothing is loose-woven linen dyed in the same warm tones as their surroundings. Many go barefoot within the city limits, connecting directly with the wax beneath them.
+
+At the city's edge stands the Hall of Memory, where the history of the place is recorded not in writing but in sculpture. Here, the most skilled artisans create detailed tableaux of important events, figures, and discoveries. The oldest scenes have lost their definition, becoming abstract suggestions of their original forms. The newest are crisp and detailed. Together, they tell a story that, like the city itself, is slowly transforming even as it endures.
+
+Time in the City of Wax is measured not by clocks but by the slow dance of light and shadow across textured surfaces, by the gradual shift of structures, and by the patient accumulation of new layers atop the old. It is a place that exists both in the present moment and across centuries, where change is constant but almost imperceptible, where human design and natural processes have reached an understanding.

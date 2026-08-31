@@ -1,0 +1,11 @@
+Beneath the crushing weight of an endless, primordial sea, a landscape of ancient, fluid forms stretches out in all directions. The water here is not the clear, buoyant expanse of the surface world, but a dense, viscous medium that clings to every surface, permeating every crevice and pore.
+
+The terrain is a mosaic of undulating ridges and valleys, sculpted over eons by the relentless currents that flow through this submerged realm. Towering seamounts rise like majestic, weathered mountains, their slopes draped in a lush, verdant tapestry of alien vegetation. Delicate, branching structures of coral and sponge grow in intricate patterns, creating a dense, labyrinthine canopy that filters the ambient light into a muted, otherworldly glow.
+
+The sounds that pervade this world are both deafening and strangely muted – the deep, rumbling groans of shifting tectonic plates, the ceaseless rush of currents, and the eerie, resonant calls of rare and enigmatic creatures that drift through the water, their forms barely discernible in the hazy, aquatic light.
+
+The pace of change here is glacial, with processes unfolding over millennia rather than lifetimes. Sediment and minerals accumulate slowly, building up layer upon layer, while tectonic forces gradually reshape the seafloor, sculpting vast, undulating landscapes that seem to exist in a state of eternal, unhurried transition.
+
+Yet, despite the sense of timeless, primordial stability, there is an underlying current of strangeness and unfamiliarity that permeates this place. The forms of life that have evolved here are often bizarrely asymmetrical or seemingly impossible, defying the familiar patterns of the surface world. The very laws of physics and chemistry appear to be subtly, but profoundly, different – as if this deep-sea realm operates under a set of rules all its own.
+
+It is a world of ancient, unseen majesty – a place where the passage of time is measured in the slow, relentless flow of water, and where the boundaries between the living and the inanimate, the known and the unknown, seem to dissolve into a seamless, fluid continuum.

@@ -1,0 +1,47 @@
+This is a continent that has just been born.
+
+You are high, very high — not on a peak but on a table of the world. A plateau so large you can't see it as a plateau at all until you are above the weather and realize the weather lives *on* it. The air is thin and cold, a clean, high cold that makes normal sunlight feel sharp and surgical. It is not polar-night cold, not killing cold. It is a working cold. The kind that makes stone contract and breath steam.
+
+The rock here is young.
+
+That is the first thing you feel under your boots. This isn't old, tired, weathered land. There are no soft hills, no deep soil, no river valleys worn smooth over eons. The basalt and granite have been shoved up recently — geologically last week — and they haven't learned how to erode yet. The edges are still broken, still crisp. Great block-faults run for hundreds of kilometers like the seams of poured concrete, sheer-faced and un-scree'd. Mesa edges stand like quarry walls, black and gray and still showing the chatter marks of the uplift. Between them, the plains are not flat but rumpled, embryonic: shallow basins where water has only just begun to figure out where it wants to go, low ridges of fractured rock that haven't been sanded down.
+
+Water is everywhere, but not as lakes or oceans. The plateau caught itself. Cold air moving up the continental flanks hits the high table and condenses all at once. So the sky is often low and bright, a normal white sun diffused through a thin, high overcast that never really rains and never really clears. It weeps.
+
+Water beads on every exposed face. It seeps out of the fresh rock itself, darkening the stone in long vertical tears. It collects in the unfinished basins as wide, skinny marshes and mirror-sheets only a few inches deep, reflecting the sky perfectly until a wind touches them. It never dries. The ground where it isn't stone is a cold sponge — lichen-black, frost-crumbled gravel saturated to the surface. You leave a footprint and it fills slowly. Small, new streams have started to chew at the fault edges, waterfalls dropping not into gorges but right off the raw lip of the plateau, still loud, still clumsy, still carving their first notch.
+
+And because this is a young and wet and cold place, there are not many plants. Not in the way lower lands are green. Vegetation is sparse and stubborn and adheres.
+
+Low mats of rust-red and olive lichen cement themselves to the weeping rock. In the marsh pans, sedges and hard grasses grow in sparse tufts, widely spaced like hair, each surrounded by its own little island of damp peat. Where the wind has scraped gravel into shallow soil, you get isolated stands of dwarf blackroot — a conifer that gave up on being a tree and decided to be a bush, knee-high, needles tight and waxy, spreading sideways instead of up to avoid the wind. From a distance the plateau looks almost barren, stone-colored. Up close you see it's spotted, speckled, stippled with life that knows exactly how much it can ask for and no more.
+
+But the animals did not get the memo about scarcity.
+
+They are abundant to the point of being the main presence here. This is their steppe, their Serengeti in the sky. The sparse plant cover is enough because the scale is so vast and the animals have adapted to move thinly and constantly.
+
+Herds of shag-plate herbivores — something between muskox and elk, but taller, stilt-legged for wading the marsh sheets — drift in lines that can be a kilometer long and still look like a dotted line from far away. Their coats are heavy, gray-white, shedding water. They graze with a slow, continuous motion, heads down, breathing steam that hangs in the cold air. Between them stalk smaller predators, lean and foxlike but with wide, snowshoe paws, trotting the lines. Above, the air is full.
+
+Because at this elevation, with this thin air, you would expect emptiness. Instead the sky is working. Flocks of white and slate-gray gliders — wide-winged, high-altitude filter feeders — ride the plateau wind in vast, slow wheels, dipping to skim insects off the marsh mirrors. Smaller darters flicker low over the sedge. At night you can hear the far, echoing calls of high cranes, though you rarely see the birds themselves. Even on the rock faces, things scuttle: thick-furred pikas and rock hares in numbers that make the scree seem to twitch.
+
+Life here is sparse in plant, dense in animal, and always moving. You can stand still and watch three different migrations cross each other without intersecting — ground herds, low insect swarms, high gliders — each with its own tempo.
+
+And interwoven with all of this, without crowding it, is the city.
+
+It's not a city the way a lowland city is. It doesn't sprawl to fill its basin. Think of it as an urbanism that learned to be sparse on purpose, because the plateau is so large and so empty that density would be absurd.
+
+Instead of one dense core, there are hundreds of nodes strung across the table over a distance that would cover a country elsewhere. From where you stand you might see four or five of them, far apart, their spacing making the emptiness between them feel intentional. Each node is a vertical settlement — not a skyscraper but a pillar, or a stack, or a terraced tower cut into a fault scarp — three to four hundred meters tall, broad at the base, narrowing as it goes. They are made of things that don't look quite like building materials: matte black and pearlescent gray surfaces that seem to absorb sound, sheets of structural haze that hold their shape without visible support, grown stone that matches the basalt but is seamless.
+
+The tech is beyond cladding. You notice it in how the nodes relate to the cold and wet. No smoke, no obvious heating, but the air immediately around each pillar is a few degrees warmer, and the marsh at its feet never freezes. Thin, nearly invisible filaments — like heat-shimmers made solid — stretch between pillars across kilometers of empty grazing land, humming so faintly you feel it in your teeth more than hear it. They carry power, transit, information, but they also carry heat, shunting geothermal warmth up from deep below the young rock and bleeding it carefully into the sky to keep the plateau from icing over entirely. On storm days you can see the filaments do something to the condensing clouds, parting the weep into clear lanes of dry air between nodes, so that each little town has its own cylinder of paler sky.
+
+Where the pillars meet the raw ground, the work is most visible. The land is embryonic and the city is helping it be born without breaking it. Anchors deeper than foundations — gravity lattices, if you had to name them — pin the fresh fault blocks so they don't slip. Canals not yet rivers have been given a first course by low, precise walls of poured geology that will be gone in ten thousand years when real erosion takes over, but for now gently teach the water where to go. The city doesn't sit on the landscape; it scaffolds it.
+
+Between nodes, infrastructure is thin and fast. Vehicles don't roll so much as skim — low, quiet discs and needles that follow the filaments without touching the saturated ground, startling the herds only briefly. The herds have learned they are not predators. The gliders perch on the warm edges of the pillars by the thousands, indifferent.
+
+For something so large — so continental, so weather-making, so full of movement, predation, migration, construction — it is astonishingly quiet.
+
+The thin air and the wide spaces swallow sound. There is no forest to rustle, no dense street to echo. Wind moves low over the marsh mirrors with a soft hush. Water trickles constantly from rock but at a seep-scale, not a roar. The herbivores make almost no noise; the predators pad. Even the city is muted, its machines operating at frequencies that feel like pressure rather than noise. The loudest things are the distant, unaccustomed roars of the new waterfalls cutting their first canyons, far away, and the occasional high, clear cry of a glider flock turning together. Mostly you hear your own breathing, the crunch of frost-gravel underfoot, and the faint tick of condensation dripping from a cold stone face.
+
+The light is normal, and that is what makes it strange. This is not an alien sun, not a perpetual dusk. It is a plain, temperate daylight, made sharper by altitude, made kinder by diffusion through that condensing sky. Shadows are short and crisp on clear hours, long and soft when the weep-cloud settles down to the ground and you walk in bright fog with the tops of the pillars gone and the marsh reflecting nothing. Dawn and dusk are long because the plateau sees so far; the sun rises over a horizon that is simply more plateau, receding into blue-gray distance.
+
+If there is a rule to this place, it is: *be unfinished well.*
+
+Nothing here is trying to be permanent. The rock is still settling. The water is still deciding its rivers. The grasses haven't yet filled in. The city — for all its impossible engineering, its quiet levitations and weather-combs — doesn't act like it owns anything. It holds the cold at bay, holds the faults steady, holds a network of warm, dry, lit interiors open for anyone who needs them, human or not, and otherwise leaves the vastness alone to do its slow, active, animal-busy work of becoming a world.

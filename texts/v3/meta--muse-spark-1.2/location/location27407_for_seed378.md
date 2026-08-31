@@ -1,0 +1,37 @@
+This place is high and white.
+
+You notice the light first, before the heat hits you. It is not the thin, blue light of mountains as you expect it to be. This is a high place — a plateau that lifts itself a mile and more above the lowlands, a broad table of stone — but the light here is heavy, direct, and total. The sun at this elevation is unfiltered and frank, bleaching the sky to a pale, hot parchment. There is no shade to hide in, because there is nothing that casts shade the way a tree does. Everything throws a hard, short shadow straight down against the stone, black as ink.
+
+Then the heat arrives. Not a dry, desert heat. A wet heat. A heat that has weight.
+
+The plateau breathes.
+
+All of it is water. You are standing on a stone that weeps. The entire tableland is saturated, a vast mineral sponge held at just-below boiling. From every joint and pore in the rock, water is coming out. Not in rivers — in seeps and sweats and sudden cold springs that turn to steam before they can run ten feet. The air itself cannot hold what the ground is giving off, so it condenses again immediately. Low clouds form a few feet above your head and dissolve. Veils of steam rise off every dark surface and are torn to nothing by the bright light. The stone is always wet. Your footprints fill with water the moment you lift your boot.
+
+The stone is the whole world here. Vegetation never took hold, or was burned away long ago, or was never invited. There is not a leaf, not a blade, not a green smear anywhere. The slopes and terraces are bare in a way that feels deliberate, swept clean. What grows here is not plant at all — it's mineral. 
+
+The plateau is limestone and travertine and precipitated salt, laid down in warm, endless sheets by the water itself. For a long time — long enough that all violence has been worn out of it — water has been dissolving and depositing, dissolving and depositing, until the land has settled into its final, comfortable shape. This is established terrain. Broad, shallow basins stair-step down for miles, each lip crusted with smooth, creamy dams a foot high, a thousand years in the making. Behind each dam, a mirror of scalding water, perfectly still, perfectly clear down to its pale bottom. Between basins, smooth chutes where water has polished the rock to a soft gleam, like worn marble. The gullies are not jagged. They are rounded, maternal. The rock has learned how to carry water and does it without argument.
+
+Scattered across this wet, bright, stepped plain is a city, but not a city as you picture one.
+
+It is sparse. It does not crowd. Structures stand a long way apart from each other, as if each one needs its own breathing room, its own watershed. Low, wide buildings of the same pale stone, and taller, narrow towers of riveted iron and weathered steel that have gone the color of rust and bone. They are not ruins. They are inhabited, maintained, working — but they are spaced out across a valley-sized openness so that you can see the steam rise between any two of them for half a mile. You can stand in the middle of a boulevard that is really just a causeway between pools, and see the whole settlement at once, its edges fading into heat haze. It feels less like a dense town and more like a single industrial organism spread thin to match the water.
+
+Because everything here is an engine for water.
+
+The technology is everywhere and it is quiet — that is the strangest thing. Pipes as thick as houses run along the ground on stilted arches, sweating condensation. Great wheels turn slowly in the chutes, driven by the endless downhill creep of hot water, turning generators behind louvered walls. Condenser fields — acres of black, finned panels tilted to the sky — drip constantly into cisterns. Boilers and settling tanks exhale slow, silent plumes. There is no smoke, no roar, no clanging. The industrial work here is thermal and hydraulic, not explosive. The machines hum at a frequency just below hearing, or they don't hum at all. You hear the *tick* of cooling metal, the *plink* of a droplet falling from a pipe joint into a pool, thirty feet away, impossibly loud in the hush.
+
+That hush is a physical law here. The hot, wet air is dense and deadening. Sound does not carry. Even the water, for all its abundance, makes almost no noise. It sheets and spills without splashing, as if the steam cushions it. You have to learn to listen differently.
+
+Which you must, because this place is not empty. It is crawling.
+
+Without a single plant to eat, the animals have found another way. The pools are alive. The dams, the sheets, the steaming shallows — all of them shiver with life that does not need green. Pale, translucent shrimp the length of your finger comb bacterial felt from the mineral crust. Flat, disc-shaped grazers like living lids slide over the travertine, leaving clean trails where they've licked the biofilm away. Above them, on stilt legs, the waders — elegant, jointed things of white chitin and glass, as tall as dogs, picking their way with absurd delicacy from pool to pool. They are silent. Everything is silent. 
+
+And then there are the fliers. At noon, when the light is most vertical and the condensations are thickest, they rise. Thousands of them. They look at first like ash flakes, then like dragonflies made of mica, wings so thin they refract the bright light into brief rainbows as they beat. They do not buzz. They sail on the rising columns of steam, gathering and dispersing in slow, coordinated clouds that shadow the pale rock for a moment and are gone. They drink from the air itself, or from the films on the water. They land on the hot pipes of the city to warm themselves and on the stone towers to lay eggs in the damp cracks. The machines do not bother them and they do not bother the machines.
+
+At dusk, if you can call it dusk under this merciless brightness — the light never really dims, it just goes from white to a deeper, hotter gold — you see the other half of the ecology. Along the edges of every pool, the mineral itself seems to grow faint, hair-like filaments: not fungus, not plant, but colonies of silica-precipitating bacteria that build tiny, branching white forests an inch high. The grazers come to harvest them. The waders come to harvest the grazers. The fliers descend to drink. The condensers of the city *thunk* softly and release a fresh sheet of distilled water down a chute, and the cycle starts again. 
+
+The rule of this place is simple and absolute: water moves, mineral stays, heat remains. Water comes up from the deep rock hot and heavy with dissolved stone, spreads, cools by a degree, lays down its burden as new terrace, new dam, new film, and then slips over the lip to the next basin, and the next, eventually spilling off the edge of the plateau in a hundred silent waterfalls that never hit bottom — they turn to mist long before they do. Nothing is allowed to stagnate. Anything that stands still is quickly coated, smoothed, incorporated.
+
+You walk here and your skin is always damp, not with sweat but with air. Your lips taste of salt and iron. The city works around you without shouting. The animals watch you with eyestalks and faceted eyes and make no sound. The stone continues to build itself, millimeter by millimeter, under a sun that feels close enough to touch.
+
+It is a busy place, an active place — water cycling, creatures feeding, engines turning, terraces growing — and yet you have never heard a place so quiet.

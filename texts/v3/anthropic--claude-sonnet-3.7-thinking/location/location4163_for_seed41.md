@@ -1,0 +1,19 @@
+# The Hollow
+
+Descending through a narrow fissure in the limestone, the air grows increasingly warm against your skin. The passage twists downward, constricting until you must crawl on hands and knees through a tunnel barely wider than your shoulders. Then, suddenly, the space opens.
+
+You find yourself in what appears to be a cathedral-sized cavity beneath the earth. The ceiling arches perhaps thirty feet overhead at its highest point, punctuated by three small natural skylights that allow thin columns of dusty light to penetrate the darkness. These shafts of illumination reveal a world unto itself.
+
+The heat is the first thing that strikes you—a close, pressing warmth that makes your clothing cling to your skin. It emanates from several small thermal pools scattered across the uneven floor, their surfaces releasing gentle wisps of steam that hang in the still air. The water doesn't boil but maintains a constant, unsettling warmth. Around these pools, the limestone has been stained in concentric rings of rust-red, sulfurous yellow, and mineral white—geological growth rings marking centuries of steady seepage.
+
+Despite the limited light, vegetation thrives in this underground sanctuary. Thick carpets of moss in impossible emerald hues spread across most surfaces, glowing with a faint bioluminescence that provides a ghostly secondary illumination. Pale, translucent ferns with elongated fronds grow in dense clusters near the thermal pools, their tissues nearly transparent, revealing the circulation of fluids within. Fungal formations—some resembling shelf brackets, others like delicate coral or antlers—protrude from the walls in overlapping colonies. Many appear to pulse slowly, though whether this is an illusion caused by the shifting light or an actual biological process remains unclear.
+
+The cavity teems with life. Insects with iridescent carapaces move in coordinated swarms between vegetation patches. Eyeless salamanders, their skin nearly translucent, bask on warm rocks near the pools. In darker recesses, colonies of pale crustaceans scuttle over one another in dense, living mats. Small lizards with elongated digits and specialized toe pads navigate the vertical surfaces with unnatural grace. Most curious are the blind cave fish that patrol the thermal pools—their scales have developed a luminous quality that makes them appear as moving streaks of blue-white light beneath the water's surface.
+
+The soundscape is subtle yet present—a background of soft drips echoing from unseen corners, the occasional whisper of steam, and the almost imperceptible rustling of countless tiny creatures moving through their miniature territories. Sometimes, a peculiar resonant tone seems to emanate from deeper passages beyond this chamber, like someone blowing across the mouth of a massive bottle.
+
+Against the far wall stand the remnants of what might once have been an altar—stacked stones arranged too deliberately to be natural, yet too weathered to determine their original purpose. Nearby, crude pictographs depict spirals and handprints in pigment that still clings to the rock after what must be millennia. A semicircle of smooth depressions in the floor suggests ancient seating or gathering spaces, now serving as basins for small ecosystems of specialized plants.
+
+The air carries complex notes—minerals, warmth, the green smell of vegetation, and an underlying animal musk from the countless creatures that have made this place their home. Occasionally, a draft passes through the chamber from unseen connections to the surface world, causing the thin films of moisture on the walls to shiver and the hanging strands of pale, rootlike structures to sway gently.
+
+This place feels ancient, established—an ecosystem that has found its balance over immeasurable time. The outside world has been forgotten here, in this hot, dim hollow beneath the earth where life has written its own peculiar rules.

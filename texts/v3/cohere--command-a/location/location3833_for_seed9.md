@@ -1,0 +1,6 @@
+**The Nanoforge at Dawn’s Hollow**  
+
+The place is a paradox of emergence and artifice, a womb of industry cradled in the humid breathe of a mountain’s crown. Here, the *Hollow* is no mere cave but a cathedral-scaled carapace, a bubble of translucent, resinous material extruded by some forgotten fabrication process. Its surface weeps with condensation, mimicking the slow drip of stalactites, though no stone underlies it—every curve, every rib, is engineered. Water beads and slides in rivulets, pooling in shallow basins where the floor puckers like a scarred tongue. The air is thick, warm, and *alive* with the tang of ozone and the faint metallic sting of nanites in suspension.  
+
+**Terrain & Materiality:**  
+The landscape is a fractal dance of high-elevation fragility. The Hollow’s ceiling—a mosaic of hexagonal panels veined with bioluminescent filaments—glows with the soft light of dawn trapped in glass. Beneath it, the ground is a patchwork of emergent ecosystems: mosses fur soft and neon-green push through seams in the resin, their tendrils grasping at the ever-present

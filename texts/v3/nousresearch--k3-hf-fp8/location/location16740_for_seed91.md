@@ -1,0 +1,35 @@
+Rooted in darkness, the Rootworks hums. Not with warmth, but with the deep-throated bass of engines turned to stone and forgetting. You are below; even the sky is a memory buried under kilometers of living mass and layered sediment.
+
+The first sign: moisture condensing into droplets on your suit’s outer layer, despite the bone-drilling cold. Each dew-bead forms slowly, then rolls, then falls—joining a drip that falls again, and again, forever. Water exists only as punctuation in this place: a trailing comma of condensation, a question mark of stalactite sweat, the exclamation of a sudden leak from a root-thick pipe that no one remembers installing. Everything drinks the drip, but nothing pools.
+
+Then light—if you can call it that. A violet-grey phosphorescence seeps from the root-walls themselves, a bioluminescence gone industrial. The plant is illumination now, or mold on illumination’s forgotten circuitry. It grows in flat sheets like frostbitten metal, in corrugated coils like frozen conveyor belts. Some patches flicker arrhythmically, as if trying to remember the flicker-rate of ancient fluorescent tubes. The further you walk, the further the tiles of radiance recede and reconfigure. The aesthetic has been described as post-industrial cathedral, but only by those who have never prayed in the presence of maintenance drones fossilized mid-repair.
+
+Sound is the architect here, not stone. A deafening, crawling roar—too low for ears alone, felt in the marrow and the teeth—permeates every root-fiber, every hollowed-out lumen. It is not movement, exactly. It is the sound of something massive trying to stop moving and never quite succeeding. Gears graze against each other with the patience of continental drift, hard teeth squealing one molecule at a time through centuries of rust. Somewhere beneath the floor-roots there is a heartbeat of pistons, but the heartbeat of a thing that has forgotten its name exists only in the present participle: beating, beating, beating, never beat.
+
+Space opens unexpectedly. A chamber the size of drowned townhouses, supported by pillars that are trees in only the thinnest sense—more like fused scaffolds that once held up airship docks. Their bark is braided wire wound with carbon-tubing vines. Each pillar drips a different tempo, a conversation of leaks. Between them: emptiness sculpted by absence, negative volumes where machines should have lived. You walk across a surface that is neither wood nor concrete but a mycelial felt grown over broken factory tiles. The floor remembers footsteps it has outlasted; it gives slightly under your boot, then slowly exhales back to form.
+
+Vegetation, yes—but never quiet, never still. The Rootworks does not merely occupy space, it is space, and space is continually renegotiated. Roots branch into ductwork and become ductwork; ducts split into capillaries and flower into microphones that never recorded anything because speech died too quickly here. Vines snake upward in spiral-staircase forms, each tread edged with teeth of obsidian polymer harvested from a failed defense line. Leaves unfurl as blind gaskets, sealing openings that were once windows, then openings that were once eyes. Bulbous pods hang like decommissioned streetlamps, still flickering with a static charge that sort-of glows. Everything alive is trying to grow into something that once was alive; the result is a syntax error of architecture.
+
+Above (though above has become meaningless), suspended root-cables clatter against each other like frozen bells in a wind too slow to hear. When one breaks—every century or so—its fallen length takes decades to coil fully into its new resting place. The crash, when it arrives, is measured on seismographs no one reads. You will be dust long before the echo ends.
+
+Movement is sparse but deliberate. A single tracked drone, hull plated with scales of peeled bark, drifts past on an errand it cannot complete. Its sensors blink a forgotten warning code the Rootworks no longer understands but still respects. It will circle this loop for another millennium, looking for a door that turned into a root in 2739. You leave it to its orbit.
+
+Fauna: yes, technically. At the edges of hearing, maybe. A vibration that could be a swarm of clockwork mosquitoes breeding in sump-oil nectar; a scrape that could be a bone-white rat filing its teeth on a vein of pure copper. Sightings unconfirmed. Preserved specimens in the root-ledger are classified as Probable Metaphors.
+
+The temperature is absolute absence pretending to be a number. Cold is the memory of warmth projected onto your suit’s failing heaters. Exhaled breath crystallizes into snowflakes of frost before it leaves your visor, forming a slow-growing beard of ice across the chinplate. But the Rootworks is polite: it does not steal heat violently. It simply waits until you forget you ever carried any, then welcomes you back into the steady-state void.
+
+Built things—scattered like punctuation marks in a dead language: a fragmentary intake manifold fused atop a root that once tried to imitate a cathedral spire. A control console, its keys now flowering mushrooms that click silently when touched by drip. A wall mural, paint replaced layer by layer with pigment-producing lichen, still depicting a safety protocol for a hazard that evolved into a root branch three epochs ago. Each artifact is the center of a slow accretion disk of cargo-cult repair, roots growing around them in faithful imitation of wires that once supplied current to machines that dreamed of sunlight.
+
+And time—time here is measured not in years but in the thickness of bark on an industrial revolution. Processes begun at the speed of gunfire now creep toward completion at the pace of peat forming. A factory whistle engraved into the wood still tries to blow every 7:00 a.m.; the sonic event has stretched so thin across centuries that it arrives as a faint shudder in your left ankle every third decade.
+
+Walk further. The density decreases by imperceptible degrees. Roots grow apart like old colleagues who no longer remember their shared project. Alone now in a hall so vast you cannot see the curve of it, you realize the roar has become a word. The word is MAINTAIN. It has been speaking since before your ancestors learned to bury their dead. It will echo on after your descendants forget how to pronounce it.
+
+Stand still long enough, and the Rootworks begins to quality-check you for compatibility. A root-tip lifts to taste the air at your visor seam. A patch of bark peels back to expose a glowing socket shaped almost like a missing piece of you. Resist or accept—both are inputs logged in the slow error-correction of this place.
+
+Eventually, you will continue. Or you will stop. The distinction has grown—like everything else—gradually meaningless.
+
+This place does not end. Instead, it becomes background noise in bones that have never known silence. The Rootworks maintains.
+
+MAINTAIN.
+
+*maintain.*

@@ -1,0 +1,17 @@
+The Singing Hollow
+
+Deep beneath the surface, where the earth's bones are still soft and the world hasn't quite decided what it wants to become, lies a vast bowl-shaped depression that thrums with perpetual, deafening song. The sound begins as soon as you descend—a layered crescendo of stone grinding against stone, water finding new channels, and something deeper, more resonant, like the earth itself learning to breathe.
+
+The hollow stretches for miles in every direction, its boundaries lost in a dim, pearl-gray twilight that seems to emanate from the very walls. No sun has ever touched this place; instead, a phosphorescent moisture weeps continuously from the limestone ceiling high above, each droplet catching what little light exists and scattering it into brief, silver sparks before joining the complex waterways below.
+
+The ground shifts constantly—not with violence, but with the patient urgency of creation. Mineral terraces build themselves grain by grain along the hollow's edges, while in the center, hot springs bubble up through networks of calcified channels that reform daily. The water moves everywhere: trickling down newly-formed flowstone cascades, pooling in depressions that didn't exist yesterday, carving fresh passages through rock that yields like clay to its touch. Steam rises in lazy spirals, condensing against the cool air and falling again as mist that makes everything perpetually damp.
+
+Sparse clusters of pale, thread-like fungi emerge from the wet stone—the only vegetation that can survive here. They grow in dense patches where they appear at all, their ghostly filaments creating curtains that sway without wind, adding their own subtle rustle to the hollow's overwhelming symphony. Some varieties glow faintly, pulsing in slow rhythms that seem almost synchronized with the water's flow.
+
+The architecture, if it can be called that, consists of simple stone windchimes and hollow reed pipes embedded in the walls—primitive instruments left by some long-departed visitors who understood that this place wanted to sing. The water flowing through these crude devices creates haunting harmonics that blend with the natural percussion of dripping, the bass notes of settling stone, and the high keening of steam escaping through fissures. The sound is so omnipresent, so layered and complex, that it becomes almost tangible—you feel it in your chest, your bones, the spaces between your thoughts.
+
+Occasionally, a pale salamander or translucent spider skitters across the wet stone, but fauna is scarce here. This is a place for geological forces, not biological ones. What life exists has learned to move quickly, to avoid the areas where new formations surge upward or old ones dissolve back into the restless earth.
+
+The air itself seems thick with possibility and change. Mineral-rich vapors create brief, impossible colors in the dim light—flashes of copper-green and sulfur-yellow that appear and vanish like visual echoes of the endless music. Time moves differently here, measured not in sun and shadow but in the slow accumulation of stone, the patient reshaping of water's path, the gradual evolution of the hollow's song as new instruments form and old ones crumble away.
+
+This is a world in the process of becoming, where the boundary between liquid and solid remains negotiable, where the earth itself composes an eternal, thunderous symphony in the patient darkness below.

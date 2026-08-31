@@ -1,0 +1,21 @@
+At this altitude, the mountain is mostly knife and glare—fresh black stone, pale sulfur streaks, fracture lines that still look *new*.  
+But tucked inside one split in the ridge is a place the size of a single room, maybe a little larger: a hidden throat in the rock where heat and water are constantly negotiating.
+
+You enter by crouching through a narrow seam, and the air changes immediately. Outside is thin wind. Inside is dense, wet breath. Not fog exactly—more like warm condensation that hangs close to surfaces, collecting on the undersides of overhangs and falling in slow, regular drops. The walls are steep and young, not rounded by age: obsidian-like planes, razor ridges, blistered mineral crust, fresh breaks that glitter as if they were cut this morning. Water appears everywhere but never as a river. It beads, sweats, drips, pools in shallow saucers, then vanishes into hairline cracks that hiss.
+
+There is almost no plant life, no green, no leaves, no rooted softness. The color palette stays mineral: charcoal, rust, ivory salts, oil-slick iridescence where hot films spread over stone. If anything lives in sheets, it is closer to skin than moss—thin chemo-films that shine and retract from sudden heat. The ecosystem here does not begin with sunlight and stems. It begins with hot rock, dissolved metals, and moisture.
+
+And life is *everywhere*.
+
+At first you think the chamber is still. Then the floor shivers. Every ledge has bodies layered over bodies: translucent arthropod things with glassy limbs, eel-thin crawlers that swim through millimeters of water, blind mouth-rings opening and closing on mineral vents, soft shelled grazers scraping chemical crust with rasping plates. Predators move through them in near silence—long-jointed hunters that pause so perfectly they resemble broken crystal until they strike. Nothing calls loudly. Nothing roars. The chamber is full of motion but hushed: a papery skitter, a wet click, the tick of cooling stone, the patient metronome of drops.
+
+Despite the crowding, there are rules—strange, local rules.
+
+Heat maps territory more than distance does. A ledge ten centimeters away can be another climate: lethal on one side, nursery-warm on the other. Water sometimes climbs instead of falls, drawn in thin threads toward hotter vents before flashing into vapor. Reflections in the mineral pools are unreliable; creatures sometimes lunge *into* a reflection and emerge from a different pool across the chamber, as if the water surfaces briefly agree to be one surface. The inhabitants treat this as ordinary. They hunt through it, flee through it, and even cache food by pushing it into “wrong” reflections, retrieving it later when the geometry folds back.
+
+There are hints of primitive technology, but no building. No walls, no nests with architecture, no woven forms. Instead: use. A crab-like species carries matched pebble pairs and cracks mineral nodules with practiced strikes. A six-limbed scavenger wedges a shard under a rival’s shell seam like a lever. Some of the blind grazers drag heat-retaining stones to keep egg clusters warm between vent pulses. Tools are held, borrowed, lost, stolen—never turned into permanent structures. Nothing here is made to last long enough.
+
+The whole pocket cycles in quick rhythms. Every hour or so, deep pressure rises. Warm vapor jets from a slit in the rear wall, raising the chamber temperature until the upper fauna retreat to cooler seams. Condensation thickens; the floor pools deepen; hunters change routes. Then the pulse eases, droplets slow, and a different wave of creatures descends. The place is always becoming itself again.
+
+So the landscape is not a broad panorama. It is an intimate extremity: a high-altitude geothermal cavity, freshly formed, wet and hot, crowded with non-plant life, quiet but never still, obeying physical laws that are mostly reliable and occasionally negotiable.  
+A small chamber in the mountain where reality is thin, and everything living has learned to move gently through it.

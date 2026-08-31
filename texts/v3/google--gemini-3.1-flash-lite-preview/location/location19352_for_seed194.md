@@ -1,0 +1,17 @@
+This place is not a world in the planetary sense; it is a gargantuan, ancient organism, and you are a breath trapped within one of its pores. 
+
+There is no water here. The medium is a dry, fibrous chitinous dust that coats everything—a fine, calcified powder that tastes of iron and old wood. Because the vegetation is absolute—it is the floor, the walls, the ceiling, and the interstitial architecture—there is no *outdoors*. You exist within a series of vast, hollowed-out chambers stitched together by a living, sclerotized flora that has long since ceased to sprout leaves. Instead, it has hardened into ivory-colored conduits and rib-like support struts.
+
+Temperature-wise, the environment is aggressively cool, a stagnant, bone-chilling air that feels as though it has been held in a tomb for an epoch. The light is zero. There is no sun, no bioluminescence, no glowing spores; the deep dark is total, absolute, and tactile.
+
+Yet, despite the darkness and the profound lack of water or animal life, the place is incredibly loud. 
+
+This is the most disorienting feature: the sound of *age*. Because the vegetation is so primordial and deeply eroded, the entire structure is in a state of terminal, microscopic settling. It is a slow, grinding friction. All around you, the walls of the "city"—the layered, interlocking plant-strata—are rubbing against one another as they sag under the weight of eons. It sounds like the scraping of a thousand dull knives against dry parchment, a rhythmic, deep-bellied groan that emanates from the foundations. It is constant, abrasive, and inescapable.
+
+The "urban" quality of the place is built by a primitive, root-bound intelligence. The corridors are carved into rigid, woody tissue that has been braced with manual, hand-wrought tension-cables made from cured, dead stalks. There are no doors, only diaphragms of taut membrane that you must push through. These membranes are thin and brittle, and they give way with a wet, tearing sound (the only "wet" noise in the entire landscape), revealing another gallery of hollowed-out vessels.
+
+Because the density is so low—the "presences" are so vastly spaced—you might walk through miles of these dark, groaning tunnels without finding a change in the architecture. It is a recursive, stagnant labyrinth. The "city" is not inhabited by people, yet it is organized like a city; there are wide, arterial passages reserved for the shifting of tectonic weight, and narrower, cramped cells where the plant-tissue has calcified into something resembling furniture or storage racks.
+
+There is no growth here. The plants are dead-yet-stable, a final, fossilized expression of botany. The structure is finished. You are wandering through the architectural remains of an ecosystem that reached its limit, dried out, and solidified millennia ago. Every motion you make feels like a violation of the silence, yet your own movements are drowned out by the thunderous, sub-sonic grind of the walls shifting by the width of a hair over the course of a day.
+
+It is a pocket of existence—a tiny, deep, dark knot in the fabric—where the only history is the sound of friction, and the only geography is the architecture of a plant that forgot how to bloom, choosing to become a tomb instead.

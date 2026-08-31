@@ -1,0 +1,17 @@
+The landscape unfolds itself almost grudgingly, resisting easy definition. It is not a surface landscape, but rather, it lies beneath the surface — a vast, networked subterra, outcomes of rigorous excavation and industry. The climate is almost perpetually cold, with temperature rarely crawling above freezing. There is an omnipresent moisture hanging heavy in the air, a humidity born of the realm's close relationship with water which lies near every surface.
+
+This is not a natural cavernous system. It is a deliberate human creation, chiseled and dug using giant, mechanized drills, steam-powered shovels, and a toiling army of artists in engineering. The result is expansive and sparse, an underworld city that extends beyond immediate vision, blending the borders of natural and built environment.
+
+There is a youthful energy that permeates the landscape. Newly created paths lead to recently illuminated chambers. The marks of picks and drills still show fresh on the rock faces, as if they were a fragment of a dreamless sleep suddenly woken. There are few erosion signs as evidenced by the sharp ingredient of stalactites and stalagmites, and the smooth uninterrupted flows of underground streams and pools.
+
+Despite the magnitude of this beneath-surface city, there is a considerable lack of greenery. Sparse vegetation clings desperately to crevices and niches — lithe tendrils of moss, grappling ferns, a diet of phosphorescent fungi — life-forms that have adapted to the low light conditions and an existence sustained on humidity.
+
+Life, as we know it, is precious rare here. There's nothing like the twittering and rustling of wildlife and little more than the occasional sight of determined troglodytes — blind salamanders that skim translucently across the water, and colonies of bats webbing the ceilings with their transient residences.
+
+You would expect such a place cloaked in darkness, but it is, in fact, a dimly lit world. The source of lightning is an intricate system of electricity, flicking bulbs casting an eerie light over the landscape, gently shaded and ethereal. 
+
+However, silence eludes this place. The echos of man-made industry reverberate through the vast emptiness — the distant hum of electric generators, the deafening clank and clatter of misplaced tools, the haunting echo of grinding machinery from the depths. In moments of relative quiet, the sporadic drip-drip of condensed water upon limestone forms the rhythm of the underworld.
+
+This place's strangeness is the resulting dance of the organic and the inorganic, the willful intervention on the natural to create a world entirely unfamiliar. The bold splits and swerves in cavernous alleys, near vertical ascents and descents, orchestrated waterfalls, and giant pillars carved in a blend of the whimsical and the practical, are creations that blur reality.
+
+A sense of ceaseless motion pervades this landscape. Fresh tunnels are dug even as older ones are reinforced, light routes change as per needs, water bodies are redirected, morphing the map of the subterra into a living, breathing creature. Despite the constant change, the one constant seems the Arctic cold embraced and maintained, a silent tribute to the corporal sacrifice of turning fantasy into a living reality.  Irony drips from this ever-evolving, yet static scene.

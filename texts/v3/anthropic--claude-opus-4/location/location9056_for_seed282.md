@@ -1,0 +1,23 @@
+The salt flats stretch endlessly beneath a bone-white sky, their crystalline surface broken by a sprawling city of coral.
+
+Not coral from any sea—these are constructions, grown rather than built, their calcium carbonate lattices rising in elaborate spirals and branching towers. The city spreads for miles across the mineral plain, its pale structures sparse and scattered, each building cluster separated by vast expanses of gleaming salt crust. Water seeps up through hairline fractures in the ground, pooling in shallow depressions that mirror the bright sky. The air tastes of brine.
+
+The creatures came first, before the city. They move on hundreds of tiny legs, their bodies low and flat like living carpets, dragging specialized appendages that secrete the coral-like material in careful patterns. You can hear them everywhere—a constant scratching, clicking, grinding as they work. They build without tools, without technology, following some biological imperative that drives them to create these elaborate structures they will never inhabit.
+
+The city is young, still growing. In some districts, you can see the skeleton frameworks of new towers, their surfaces rough and unfinished, beaded with moisture from the humid air. The creatures cluster thickest here, their bodies overlapping as they deposit layer after layer of mineral substrate. The sounds they make crescendo into an industrial roar—chitin against stone, the fizz of chemical reactions, the crack of expanding coral.
+
+Between the buildings, wide boulevards of pure salt stretch empty and gleaming. The water table sits just inches below, and after the frequent rains, these spaces become shallow lakes that perfectly reflect the towers. The creatures avoid these flooded zones, waiting on the edges until the water seeps back down, leaving behind fresh deposits of salt that they immediately begin to incorporate into their constructions.
+
+The towers themselves are hollow, pierced by thousands of holes that channel the wind into haunting harmonics. Each structure sings differently—some low and mournful, others high and crystalline. During storms, the entire city becomes an orchestra, the sound carrying for miles across the flats. Inside, the spaces are empty except for the play of light through the perforated walls, creating patterns that shift throughout the day.
+
+The creatures show no interest in these interior spaces. They build compulsively, adding terraces and bridges, growing new spires from existing ones, creating a urban landscape of increasing complexity. Some of the older structures at the city's heart have begun to merge, their walls flowing together into massive consolidated forms. The creatures maintain these too, constantly adding fresh layers, polishing surfaces, repairing weather damage.
+
+At the city's edges, you can find the quarries—deep pits where the creatures mine the raw materials for their constructions. They've learned to trigger controlled precipitation from the mineral-rich groundwater, creating deposits they then harvest and transport in specialized pouches along their undersides. The quarry floors are always wet, stepped in terraces that descend toward the water table.
+
+The landscape feels embryonic, unfinished. This is a world in the process of becoming something else. The city grows daily, its boundaries pushing outward across the salt flats. The creatures work with mechanical persistence, their numbers vast but spread thin across the expanding construction zone. They communicate through vibrations in the ground, coordinating their efforts across great distances.
+
+Sometimes, in the early morning when mist rises from the wet salt, the entire city seems to float—a pale dream of towers suspended between earth and sky. The creatures slow their work then, gathering in small groups to engage in behaviors that might be rest, or might be something else entirely. They stroke each other with their building appendages, creating soft sounds like brushes on canvas.
+
+There are no plants here, no familiar markers of life. Just the endless salt, the seeping water, the coral city, and its tireless builders. The bright sun bleaches everything to shades of white and grey, except where water pools and creates mirrors of startling blue. The air smells of calcium and brine, and underneath it, something organic—the scent of the creatures themselves, like wet limestone and electricity.
+
+This is architecture as biology, urbanization as instinct. A city without citizens, infrastructure without purpose—at least none that we can recognize. The creatures build because they must, following patterns encoded deeper than thought. And the city grows, strange and beautiful and empty, a monument to some future that hasn't yet arrived.

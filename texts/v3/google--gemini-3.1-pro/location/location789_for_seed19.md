@@ -1,0 +1,23 @@
+You have reached the summit, but there is no peak. 
+
+Over eons, time and a merciless, grinding wind have scoured the top of the world perfectly flat. This regional plateau sits at an extreme elevation, jutting so far into the thin upper atmosphere that the sky has lost its blue, settling into a crisp, bruised violet. The light is perfectly normal—a clear, stark, unblinking daytime illumination—yet it casts a terrible clarity over a landscape that has forgotten the concept of change.
+
+The ground is an unbroken expanse of hyper-eroded bedrock, buffed to a dull, dry sheen. There is no water here. No snow, no ice, no humidity to soften the bite of the profound, static cold. It is a desiccated high-altitude desert, smelling faintly of ozone and pulverized quartz. Here and there, sparse, brittle tufts of wire-brush vegetation cling to the stone, their pale stalks bleached of color. They do not sway, because there is no wind. The atmosphere has achieved absolute equilibrium. Everything is utterly, terrifyingly still.
+
+And yet, the plateau is impossibly, overwhelmingly crowded.
+
+A vast ocean of beasts stretches from the edge of the escarpment all the way to the curved, distant horizon. It is a migration of inconceivable scale, billions of bodies packed shoulder to shoulder, flank to flank, occupying the entirety of the open plain. There are towering, mammoth-like quadrupeds with sweeping, calcified tusks; lean, canine shapes suspended mid-stride; great flightless birds with rudimentary wings outspread; and bizarre, multi-limbed things that belong to a biology completely alien to the lands below.
+
+They do not move. Not a millimeter. There is no breath frosting in the cold air, no heartbeat to vibrate the flat stone. But they are not statues, and they are not dead. 
+
+As you step into the herd, the reality breakdown becomes profoundly apparent. The density of the fauna defies physical law. They are overlapping. You see a pale, elk-like creature standing in the exact same spatial coordinates as a giant, armored pangolin, their anatomies passing flawlessly through one another without displacing blood or bone. You see flocks of birds suspended within the ribcages of massive grazers, their wings intersecting with lungs and spines in a perfect, three-dimensional palimpsest of life.
+
+The world here has run out of space, or perhaps time has collapsed, stacking every era of migration, every creature that has ever crossed this high plain, into a single, jammed moment. They exist in physical superposition. The visual field is saturated with fur, scale, feather, and chitin, layered in dizzying, glitching arrays of normal daylight. 
+
+The silence is absolute. It is a heavy, quiet 0.5 on the scale of sound—down here in the herd, the only noise is the faint, dry crunch of your own boots on the bedrock, and the soft, electrical *crackle* that occurs in the back of your skull when you push your hand through the ghost-flesh of a hovering predator. Touching them feels like passing your fingers through cold, dry sawdust and static electricity.
+
+Scattered amidst this bewildering, frozen menagerie are the faint marks of those who came before. Small, knee-high rings of piled stones—windbreaks from a time when the wind still blew—sit beneath the intersecting legs of phantom beasts. You find primitive artifacts hanging in the arrested air: a chipped flint knife suspended three feet off the ground, having fallen from a hand that is no longer there; an obsidian-tipped spear passing harmlessly through the neck of an unmoving herd-beast; a crude necklace of knapped bone floating in the empty space between two merging creatures. These are the scattered remains of early shamans or pilgrims who climbed to this asymptote of reality, bringing their simple hand-tools to a place where cause and effect had died. 
+
+The weirdness deepens the longer you look at the overlapping boundaries of the animals. At the edges where a suspended wolf intersects with a suspended stag, the fabric of the visual world pixelates into jagged, prismatic fractures. The dry, primitive grass underneath them doesn't just grow; it stutters, repeating its geometric shape like a broken reflection in a shattered mirror.
+
+This is a landscape of permanent exhaustion. The erosion has worn away the mountain, and then it wore away the flow of time. It is a frozen equilibrium, a deeply aged, final-state museum of breath and bone. The stark, normal light beats down on the silent, infinite herd, and nothing will ever shift, decay, or take a single step forward, from now until the end of the world.

@@ -1,0 +1,11 @@
+Beneath the crushing weight of an endless, pitch-black ocean, a strange and alien world unfolds. The water here is not mere liquid, but a dense, viscous medium that envelops and permeates every inch of the environment. Lush, otherworldly vegetation clings to the seabed, its tendrils and fronds undulating gently in the currents.
+
+This high-pressure, warm abyss is a realm of established, weathered forms — the result of a prolonged, delicate balance maintained over eons. Stalactites and stalagmites of mineral deposits stretch up from the seafloor, their surfaces etched and pitted by the relentless flow of water. Massive, columnar structures rise up like the ruins of some long-forgotten civilization, their origins and purpose shrouded in mystery.
+
+The scale of this submerged landscape is difficult to fully comprehend. It extends far beyond the reach of sight, a vast, packed and saturated world where no natural substrate remains visible. Every surface is coated in a profusion of strange, primitive life forms — bizarre, tentacled creatures, bioluminescent flora, and calcified, slow-moving behemoths that drift through the murk.
+
+The soundscape is dominated by a constant, low-frequency rumble — the distant echo of tectonic movements, the grinding of geological forces deep beneath the seabed. Punctuating this ambient drone are the calls and cries of the rare, enigmatic fauna that inhabit this alien realm, their voices muffled and distorted by the crushing weight of the water.
+
+An aura of weirdness and strangeness permeates this environment, a sense that the normal rules of the world no longer apply. The very nature of matter and energy seems to be subtly warped, as if the fabric of reality itself has been stretched and folded in ways that defy human understanding. Yet, despite this, there is an eerie beauty to the scene — a delicate, almost serene quality that belies the immense power and hostility of the surrounding ocean.
+
+This is a world unto itself, a self-contained ecosystem that has evolved in isolation for untold eons. It is a place of wonder and mystery, a submerged realm of the imagination where the impossible has become reality.

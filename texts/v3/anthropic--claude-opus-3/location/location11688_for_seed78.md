@@ -1,0 +1,11 @@
+Vast and cold, this world is dominated by towering plant-forms that stretch for thousands of miles across its surface. Though technically classified as vegetation, these lifeforms defy conventional categories - they are the landscape, the architecture, the very ground beneath one's feet. 
+
+Rising high into the thin, chilly air, the plant-structures form massive trunks and spires, their surfaces coated in rime and frost. Pockets of liquid water can be found sheltered deep within crevices and inner hollows, but much of the moisture is locked in ice or hangs as a pervasive, clinging mist. 
+
+The sheer scale renders the spaces between the mighty plant-pillars as great gulfs and abysses. Frigid winds howl through these gaps, their eerie cries and groans echoing for miles. Bioluminescent species cling to the plant surfaces, casting a faint, ghostly glow - the only light in a world of eternal twilight beneath the dense canopy far above.
+
+Smaller fauna move through the mists and along the trunks and vines in great numbers, well adapted to this vertical, arboreal ecosystem. Insect-like creatures flit and buzz while birdlike and monkeylike animals call and chitter. Occasional larger cries hint at more massive beasts dwelling in the heights or depths.
+
+Yet scattered remnants of long-lost civilizations can be found here and there amidst the endless forest. Stone ruins jut from the sides of vast trunks, fused with the plants. Vine-encrusted spires contain strange, twisting tunnels and chambers within. Broken tools and inscrutable artifacts litter the spongy forest floor, hinting at past peoples who once carved a life in this strange place.
+
+The slow but ceaseless growth of the plants creates an environment of constant change. Trunks groan and crack as they sway. New bridges form as vines snake across open spaces. Hollows seal over time while others open as if swallowing the air itself. The cycle of life and death, building and decay plays out on a majestic scale as the great forest-world ever renews and reinvents itself through the passage of long eons.

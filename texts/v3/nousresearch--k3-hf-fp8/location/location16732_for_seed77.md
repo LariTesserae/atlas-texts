@@ -1,0 +1,15 @@
+A vast, unfinished factory floor stretches in all directions, built. The ceiling is too high to see through the haze of hot, still air. Steel columns as wide as city blocks rise irregularly from the floor, their bases still wrapped in scaffolding. The floor itself is poured concrete, scored with fresh tool marks, damp in places where coolant has leaked from overhead pipes. No walls are visible—only columns receding into heat shimmer.
+
+Between the columns hang construction cranes motionless in mid-operation, cables taut but unmoved for centuries. Welding arcs flash intermittently in the far distance, quick as lightning but without sound. The light is industrial fluorescent, uniform overhead panels spaced too far apart, creating pools of normal illumination between acres of shadow. Somewhere water drips steadily onto metal, echoing louder than it should.
+
+The machinery is still being built. Presses half-assembled, conveyor belts ending in empty space, stamping dies missing their halves. Everything is at least thirty stories tall but scaled for products too large to imagine. No signs, no labels—only part numbers stamped directly onto the steel. A forklift rests permanently frozen in the act of lifting a single bolt the size of a house. 
+
+Vegetation has begun anyway. Thin tendrils of corrosion climb some columns, spreading like ivy. In the damp spots, green-black mold grows in perfect circles, each exactly three meters across. Where condensation pools in the uneven floor, something like rust-colored algae spreads in deliberate fractals overnight. None of it grows higher than ankle height—some safety protocol halts organic material at 15 centimeters.
+
+The air tastes of ozone and coolant. The only movement is the slow migration of shadows as the sunless overhead lights cycle through patterns too subtle to follow. Occasionally a distant hammer strikes once, then silence again. The factory is active but empty, building itself eternally in the moment before first shift.
+
+The scale is impossible—walking for hours toward any landmark only reveals it receding at the same rate. The laws of perspective function differently here, calibrated for eyes that haven't evolved yet. The horizon line slides upward as you walk, always keeping the ceiling just out of sight.
+
+Nothing living has ever entered this place. Nothing living ever will. The doors, if they exist, are built into dimensions that haven't been installed yet. The factory waits, perfectly clean except for the slow spread of permitted corrosion, massively efficient in its idling, hotter than any natural world could sustain. It is the blueprints themselves, unfolded into three dimensions and left running overnight.
+
+In the absolute quiet, you can hear the hum of potential energy waiting for instructions that were never programmed. The factory is ready. The factory has always been ready. The factory will be ready forever.

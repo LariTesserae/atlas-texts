@@ -1,0 +1,63 @@
+The place is not deep by the measures of oceans, but it is below all ordinary surfaces. It lies under a warm inland sea that has filled an old industrial quarter to its roofline and then kept filling, patiently, for generations. Above it there is only a wavering pewter brightness: the underside of rain-thick water, clouded by suspended silt, oil-sheen, pollen, and the yellow dust of decaying brick. The actual sky is a rumor. Light arrives as if strained through wet wool.
+
+The district is small enough to know by memory. A few streets, a square, a canal yard, three factory halls, a row of narrow houses with balconies, a chapel-like pumping station, and the ribs of a market arcade. Yet everything is packed so densely that it feels larger than it is. No space has remained empty. Water occupies the rooms, corridors, chimneys, lift shafts, stairwells, switch cabinets, boiler bellies, and the hollow places inside walls. Plants occupy what water does not. Machines occupy what plants have not yet pried open. The settlement is not abandoned so much as converted.
+
+The streets are underwater lanes between brick facades furred green and brown. Window frames, softened by long immersion, hold squares of darkness where rooms continue inward. Curtains drift inside them, mineral-stiff and translucent, moving so slowly that their motion can be mistaken for thought. Rusted fire escapes cross overhead like the lattice of a mangrove canopy. Pipes run everywhere: bundled along walls, bridging alleys, vanishing into flooded basements, emerging again through mats of weed. Some still carry heat. Some still tremble.
+
+The water is warm, almost bodily. It has the thickness of a place that has been steeping for a long time. It smells, where smell is possible, of iron, wet cement, bruised leaves, engine grease, and the faint sweetness of rot. Touching a wall releases a slow bronze cloud. Touching a vine releases bubbles, each one rising with ceremonial care until it disappears against the low, dim ceiling of the flood.
+
+Vegetation has become lush but not wild in an open, forested way. It is lush by compression. It grows in cables, curtains, shelves, plugs, nests. Long strands of water ivy descend from balconies and awnings, their leaves broad and dark, their roots threaded into mortar. Moss grows in felted pads over tiled floors, then continues up table legs and chair backs. Pale fungal fans open from doorframes like listening ears. Boiler stacks wear collars of fern. The factories have green throats. Through broken roofs, where a little more light sifts down, submerged reeds mass in vertical bundles, their stems knocking softly against the rafters.
+
+There are rooms so full of plants that the water seems secondary, merely the medium through which the green crowd breathes. Workshops have become thickets of valve-stems and vine-stems indistinguishable from one another. Control panels sprout beads of algae from every switch. The old indicator bulbs glow behind films of living slime, red and amber and exhausted blue, as if the building still has moods.
+
+The industrial systems have not stopped. They have slowed into a kind of civic metabolism.
+
+In the pumping station at the center of the district, three enormous flywheels turn behind iron grilles. They turn too slowly to serve any former function: one revolution in the time it takes a film of sediment to settle on a windowsill. Their belts are patched with plant fiber and mineral accretion. The pistons rise and fall with a muted, submerged patience. They do not pump the water out. They circulate it through the district, drawing warmer currents from underground vents, sending them through pipes, cisterns, tanks, and public fountains that now bloom with algae. The town maintains its own drowning.
+
+The rules are simple and old.
+
+Nothing dries.
+
+Nothing burns.
+
+Weight is negotiable, but pressure is law.
+
+Sound does not travel far unless carried by metal.
+
+Growth prefers edges, seams, cracks, and neglected intentions.
+
+Machines may continue if they are given a rhythm slow enough to resemble geology.
+
+The streets have names still, though no one speaks them loudly. Nameplates remain at corners, enamel chipped, letters blurred by lime. There is Foundry Lane, which is now a canyon of pipework and red weed; Mill Square, now a dim basin under the broken glass roof of the market; Reservoir Steps, which descend from nowhere into nowhere; Bell Court, where the chapel bell hangs submerged in its tower, green with verdigris and rung only by currents strong enough to move it once or twice a year.
+
+The soundscape is almost silence. Not absence, but a pressed-down quiet. A faint ticking comes from cooling metal. A belt whispers against a pulley. Bubbles detach from unseen vents and stipple the undersides of beams. Plants scrape softly on brick. Somewhere a relay clicks, waits, clicks again. In long corridors, the listener may hear the slow settling of the city: a grain-fall of mortar, the delicate collapse of rust, the muffled complaint of timber accepting water into its last dry cells.
+
+Large noises are rare and therefore sacred. Once in a while, a whole pane of glass loosens from a factory skylight and turns through the water like a falling leaf. Once in a while, a pipe gives way and exhales a century of trapped air. Once in a while, the bell in Bell Court sounds: not a ringing, but a dark circular pressure felt in the ribs.
+
+Fauna is present, but sparingly. The district does not teem with fish. It is too enclosed, too mineral, too involved with its own processes. A few blind silver eels live in the pipework, emerging only at warm outflows. Tiny translucent shrimp cling to the moss over the old tram rails. Flat snails graze the algae on tiled station walls. In the deeper basements, where the water is black and slightly hotter, there are pale crabs that move like broken tools. They are seldom seen. Their tracks appear in silt on desks, across ledgers, over the faces of clocks.
+
+The clocks are everywhere, because the district once measured labor. Factory clocks, station clocks, household clocks, punch clocks. Most have stopped. A few continue, though none agree. Their hands move in the dimness at warped speeds: one minute per day, one hour per season, one full circle whenever the pumps complete their underground cycle. Time here is not absent; it is thickly layered. Industrial time, plant time, flood time, rust time. All of them share the same rooms without resolving into one another.
+
+The buildings have adjusted to submersion with the dignity of old institutions. Brick swells but remains. Iron corrodes but holds its shape in orange crusts. Concrete grows pale stalactites. Tiles are the best survivors: green, white, black, cream, arranged in civic patterns along tunnels and halls, still glossy under the films that cover them. In the workers’ bathhouse, rows of porcelain basins float with mats of duckweed. In the machine hall, catwalks cross above turbines like the upper galleries of a chapel. In the houses, plates remain in cupboards, books have become rectangular loam, and staircases lead upward to pockets of darker water trapped beneath ceilings.
+
+There is no true horizon. The place is bounded by walls, roofs, gates, sluices, and the pressure gradient of the enclosing flood. At its edges, streets end in grates clogged with roots. Beyond them, larger water presses in: the open drowned plain, the cold outer basin, the ruins too deep or too scattered to keep a civic shape. This quarter survives because it is compact, because its machinery still circulates warmth, because its plants have knitted the buildings together, because no current strong enough to scour it clean has entered in a long time.
+
+Dimness gives everything an inward color. Greens are nearly black. Rust is dark red, then brown, then purple where oil has touched it. Brass glows faintly when disturbed. The occasional electric light is not bright enough to illuminate so much as to declare itself: a small bead at the end of a corridor, a trembling line inside a submerged sign, a low sodium halo around a generator shrine. There are cables still alive in ceramic conduits. Their insulation has been overgrown by white rootlets that pulse faintly when current passes.
+
+Some of the old infrastructure has been repurposed by no obvious hand. Tram lines now guide slow maintenance sleds, unmanned and moss-covered, that creep through the flooded streets collecting debris in their front grilles. They move so quietly that they are first noticed by the bending of plants ahead of them. At intervals they dock beneath the market arcade, where articulated arms sort what they have gathered: brick fragments, leaves, bone, wire, shells, fragments of painted signage. Nothing is thrown away. The district is too dense for waste. Every object is either structural, nutritive, archival, or waiting.
+
+There are vents under the foundry. Warm water issues from them in steady columns, carrying minerals that coat nearby surfaces in pale terraces. Around these vents the vegetation is most extravagant. Red filament algae stream like hair from railings. Yellow-green pads overlap on the floor. Pipe mouths wear thick lips of mineral and root. The warmth is strongest there, and the rare animals come cautiously to feed. The eels twist through the columns with the solemnity of priests.
+
+The weirdness of the place is not theatrical. It does not announce itself with impossible geometries or violent transformations. It is stranger than that: everything almost makes sense. A town should not be underwater and functioning, yet this one functions. Factories should either produce or decay, yet these do both together. Streets should lead somewhere, but here they circulate, returning water, heat, silt, memory. Plants should overtake machinery, machinery should resist plants; instead they have negotiated. Roots open valves. Pistons stir seed clouds. Condensation feeds moss that insulates electrical cabinets. Corrosion creates niches for spores. The flood did not end the city. It changed the terms of citizenship.
+
+In the old administrative building, file rooms are packed floor to ceiling with swollen records. The paper has fused into pale slabs, and from those slabs grow thin, script-like fungi, tracing the shapes of vanished handwriting. When disturbed, they release dark spores that hang in the water like ink. It is said — if such a place can be said to have sayings — that the district remembers through these growths. Not facts, but procedures. How to open a sluice. When to warm the pipes. Which walls may fail without consequence. Which stairwells must be reinforced by root.
+
+The slowest cycle belongs to the rain above. During heavy seasons, the ceiling-water darkens and the pressure deepens. The district receives the change as a soft compression. Plants bow. Curtains flatten. Loose objects settle. The pumps turn with slightly greater force. Then, over weeks, the pressure relaxes. Fine sediment rises from the streets in lazy ghosts. The bell may move. The eels may leave the pipes. Somewhere, in an upper room, trapped air may shift from one corner to another with a sound like a sigh.
+
+No wind enters. No sunbeam reaches intact. There are no sharp shadows, only gradients of obscurity. To navigate is to know textures: the cold velvet of algae on brick, the pitted rasp of iron rail, the slick swell of cable insulation, the brittle lace of mineral crust, the living tug of roots in current. Distance is measured by turns, by temperature changes, by the presence or absence of machine-hum in the bones.
+
+The place feels inhabited even where nothing moves. A chair angled toward a window, a row of boots under a workbench, a tram stop sign half-hidden by weed, a lunch pail sealed shut by rust: all seem less abandoned than paused. The town has lowered its voice until only its maintenance remains audible. It is not waiting to be rescued. It is not exactly ruined. It has become a small, warm, drowned engine-garden, packed to its limits, dim and patient beneath the surface, continuing in the manner available to it.
+
+If one stayed long enough, the changes would become visible. A fern would uncurl from the mouth of a pressure gauge. A wall would shed one tile and accept a new colony of moss. A maintenance sled would complete its circuit. The hand of a factory clock would move a little. Silt would soften a threshold until the room beyond became part of the street. An eel would enter a pipe and not emerge for months.
+
+The landscape’s motion is not event but accumulation. It does not happen; it deepens.

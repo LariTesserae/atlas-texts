@@ -1,0 +1,45 @@
+It doesn't begin as a forest. It begins as a mountain that decided to be a forest instead.
+
+High. So high the air forgets what it was supposed to do.
+
+You are on a continent that was pushed up yesterday, geologically speaking. The rock is young. It hasn't learned to be smooth. Everything is sharp - fresh fault scarps like black glass steps, basalt teeth, ridges that haven't been rounded by rain, scree that still has the dust of its breaking on it. From orbit it would look like a wound. Up close, you understand it is a scaffolding.
+
+Because nothing here is ground in the way ground is supposed to be ground.
+
+The vegetation took the invitation of all that new surface and did not *cover* it. It *replaced* it.
+
+There is stone underneath, yes, down far. But you will not touch it for days of walking. What you walk on is plant. A living mass dozens, hundreds of meters thick - not soil with plants in it, but plant as soil, as bedrock, as architecture. In the cold, in the dark, it grows slow and dense and absolute.
+
+At ankle level it is a tight, springy felt of frost-moss and liverwort the size of dinner plates, black-green and rust-red, saturated with cold so deep it squeaks under your boots like old snow even though it isn't snow. It gives a little and rebounds. Water beads on it and doesn't soak - condensation from your breath freezes and then sublimates right off it. Every few steps your foot sinks and you hear the faint sigh of air escaping from chambers below.
+
+At knee to chest level, the felt erupts into the trunks. Or what you would call trunks if you needed a word. They are not trees as lowland people mean trees. They are columns, pillars, organ-pipes of living fiber, as wide as houses and spaced impossibly far apart. That's the first rule of this place that your mind has to relearn: **total and empty at the same time.**
+
+The forest is total - there is no outside of it, no clearing, no meadow, no bare rock that isn't already being stitched over by the felt. And yet it is empty - a hollow vastness. Between one pillar and the next there might be half a kilometer of open, cold air. You can stand in that emptiness and shout and hear nothing come back for a long time. The canopy is not a roof over your head. It is a roof a half-kilometer above your head, where the pillars finally splay and tangle into each other, a continent-wide ceiling of interlocked black needles and broad, waxy leaves the size of sails, all turned slightly down to catch what little light there is. From below, in the dark, you see it as a false sky - a second ground inverted.
+
+Light never really arrives here. This is a high-latitude, high-altitude night that lasts most of the year. Not absolute black -  at noon in summer the sun is a cold, bruised smear behind perpetual high cloud, and at night the stars are needle-sharp because the air is so thin and clean. The leaves themselves give off a faint, foxfire pallor at their edges where frost bacteria live - not enough to see by, but enough to make the snow-moss glow faintly when you cup your hands. You navigate by sound and by memory and by the texture of the felt underfoot. You wear a lamp not to see far, but to see your hands.
+
+And it is damp. Not wet. This is not a swamp or an ocean. The world is dry in the way high, cold worlds are dry - your lips crack, your nostrils bleed. But dampness lives here in pockets, in secrets. Because the great canopy breathes.
+
+During the day - if you can call it day - the canopy exhales. Warm air from the void below rises, hits the cold leaves, and condenses. It gathers and falls not as rain but as a slow, endless drizzle of heavy drops that form on every needle tip and fall straight down through the empty air for hundreds of meters before they strike the felt with a soft *thup*. In the dark you hear it everywhere, a spattering that never quite becomes a storm. The drops gather in the felt, run along hidden fiber-channels, pool in basins where the felt sags between pillars. Small black tarns, cold enough to burn, perfectly still, perfectly clear, reflecting the pillar forest like mirrors. Some are only a footprint wide. Some are lakes you could lose a house in, hidden under a skin of thin ice that sings when it cracks.
+
+Where a young scarp has cut the felt, you see the cross-section: layers and layers of compressed moss, root, and dead leaf, banded like peat, with rivers running *inside* the plant-mass itself, in tunnels lined with white root-hair. The water never reaches the stone. It lives its entire life inside the plant.
+
+Cold does not sit here. It *moves*. At 3,000, 4,000 meters, the air is thin and fast. Weather makes itself on the scale of the canopy. Wind comes down the empty avenues between pillars like water through a canyon, accelerating until it howls, until the pillars themselves creak and groan on their fibers - a deep wooden moaning that vibrates up through your soles. The leaves above clatter like a million dry hands. And then, because the scale is so vast, the wind will spawn its own snow - not falling from clouds, but condensing right out of the air between pillars in sudden, silent flurries that glitter in your lamp and are gone.
+
+It is loud. Impossibly loud for a place so empty. The wind, the drip, the creak, the crack of ice tarns at night like gunshots rolling for kilometers, and underneath it all the animals.
+
+You expect a cold, dark, empty place to be silent and still. It isn't. It is abundant. It is active.
+
+Things live here because the plant is the world. Moths the size of your palm, white and furred against the cold, move in clouds between condensation drops, drinking them mid-air. Things that look like six-legged deer but with bark-colored pelts pick their way across the felt, their hooves splayed wide as snowshoes, cracking the thin ice of tarns to drink. In the pillars themselves live colonies of something between squirrel and lemur, with membrane wings, that glide the half-kilometer emptiness from trunk to trunk, screaming to each other the whole way - a sharp, metallic *kee-kee-kee* that echoes and overlaps until you can't tell which direction it came from. And predators follow. You hear them at night - a low, coughing hoot that makes the gliders go silent all at once. You find their prints in the morning, pressed deep into the moss: pawed, clawed, too large.
+
+The weirdness is not that any one thing is impossible. It's that the proportions are wrong. The felt rebounds too slowly, as if gravity were lighter up here. Seeds drift for minutes before landing. A fallen leaf the size of a door will hang in the air on an updraft for an hour, turning slowly. When you cut the felt with a knife - and the people here cut it often - it bleeds not sap but warm, clear water that steams for a few seconds before freezing. The pillars, if you press your ear to them on a still night, have a pulse. Not metaphorical. A slow hydraulic throb every twenty seconds as they pull water up from the tarns below to the canopy above. The whole forest is one pump.
+
+The people. There are not many. There cannot be many where everything is plant and cold and dark and vast. Density is a kindness here; you could walk for three days between smoke plumes.
+
+They build scattered - not villages, not cities. A single hut, a leaning tower of woven living fiber and cut felt-bricks, its roof a living piece of canopy leaf pulled down and staked. A line of cairns made of piled stone - the only stone you see, brought up deliberately through the felt - marking a safe path between tarns. A shrine where someone has bent the moss into a hollow dome and left carved bone hooks. Their tech is hand-work: knives of chipped basalt and boiled bone, needles of thorn, rope braided from the aerial roots that dangle from the canopy like cables. They wear the white moth-fur. They carry lamps of rendered fat that burn with a low, smoky light that doesn't reach far, which is fine - far is not for seeing.
+
+You know where they've been not by roads - the felt heals over a footprint in a week - but by sound. A faint, regular tapping in the distance during the day: someone harvesting fiber, beating it soft. A hut's wind-chime of bone and ice. At night, a single voice singing to keep the gliders away from the food stores, the song flattened and carried strange by the cold air between pillars.
+
+If you stay still long enough, the place reveals its rule: nothing here is separate. The mountain made a table for the plant. The plant made a continent for the water. The water made a sky out of leaves. The animals made paths of sound through the emptiness. The humans made small, warm, primitive knots in the weave and then let the weave close gently around them again.
+
+And above it all, the young rock waits underneath, sharp and patient, holding up a dark, damp, roaring, living cathedral whose ceiling is weather and whose floor breathes.

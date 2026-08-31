@@ -1,0 +1,19 @@
+The place you find yourself in is a vast, submerged world where water dominates the environment—a realm akin to a deep ocean or a sub-aquatic post-flood utopia. The water is almost omnipresent, and its surface ripples gently over what might otherwise be valleys and peaks of some otherworldly terrain. This is a land without plants, dominated instead by mineral formations and fungal matter. The absence of vegetation gives the underwater expanse an other-worldly, almost Martian ambiance.
+
+Nestled within this aquatic domain are enormous, slow-moving fungal entities that drift lazily like sunken battleships, their strange, bioluminescent tendrils swaying softly. These bioluminescent fungi are the only source of light, casting an eerie, pale glow across the scene—bathed perpetually in a surreal darkness that is intermittently broken by their ghostly luminescence. These fungi aren’t merely flora; they seem to be a life force unto themselves—somewhere between organic and mechanical.
+
+Temperature-wise, the water feels neither cold nor hot but has a warm, almost bath-like quality that invites you to drift within it. The terrain itself is elevated, almost mountainous in scale, yet given the slow, gradual cycles of this world, it feels ancient, worn smooth by the perpetual wash of water over millennia. These water-eroded peaks rise to great heights, their contours smoothed into enigmatic patterns that hint at forgotten stories.
+
+The elevation here creates a strange juxtaposition with the water—it’s as though these peaks emerged from the depths to pierce through the aqueous blanket covering everything. Their surfaces are pockmarked and layered in intricate patterns—the result of endless erosion. The water itself seems to have molded these mountains in an eternal dance of creation and dissolution.
+
+The structures—if one can call them that—inhabit this world. They are a testament to the "total-built" parameter, suggesting a fully-constructed, perhaps even fabricated environment. The architecture here borders on the bizarre yet beautiful, resembling something halfway between organic growth and engineered marvels. There are towers that rise like stalactites, while sprawling 'cities' are embedded into the slopes of these ancient peaks, composed of intertwined mineral veins and bio-luminescent fungal matter.
+
+Despite the grand scale of these constructions, the overall density feels almost intimate. It's as if the many presences—fungi, mineral growths, and engineered marvels—are packed tightly into this small, groove-like realm.
+
+There are no signs of advanced machinery or technology; instead, the entire world feels primitive, almost hand-crafted. Here, everything seems to have been built with a combination of patience and ancient wisdom, using simple tools and even simpler materials.
+
+The atmosphere in this submerged, bioluminescent world is one of almost absolute silence—punctuated occasionally by the quiet sounds of water swirling around the fungal tendrils or the subtle, almost imperceptible groan of the mineral matter as it shifts. It’s a world that speaks in whispers, if it speaks at all.
+
+Life, particularly fauna, is abundant here. Strange, multi-limbed creatures move languidly through the water—their forms adapting perfectly to the slow, deep-aquatic cycles of this world. Some resemble ancient, shell-covered mollusks, while others appear to be fungal-animal hybrids, drifting in the currents with a graceful indifference.
+
+In sum, this is a world of strange beauty and eerie calm—a place where water reigns supreme, where fungi glow with an inner light, and where a fully-constructed, almost organic landscape holds sway. It's a world not bound by our laws of nature but governed by its own ancient, slow-moving rhythms.

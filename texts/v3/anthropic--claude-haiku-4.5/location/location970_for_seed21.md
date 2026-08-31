@@ -1,0 +1,29 @@
+# The Breathing Plateau
+
+The first thing you notice is the air itself—it has weight, texture. Not quite humidity, though moisture beads on every surface. It's as if the atmosphere here exists in a state of perpetual condensation, catching light before it can fully arrive. Everything is slightly luminous and slightly obscured at once.
+
+The plateau itself is small—perhaps two kilometers across at its widest—and it sits at roughly 2,800 meters elevation. But "sits" is misleading. The edge where you stand now shows the bones of recent emergence: stone faces no more than three thousand years old, their fracture planes still sharp enough to draw blood. The rock here is dark, almost metallic in certain lights, and it sweats constantly. Water seeps from clean breaks in the stone, creating vertical gardens of fern and moss that haven't yet learned how to grow horizontally.
+
+The plateau's surface is a contradiction. In some places, the ground is a firm, compressed clay-soil the color of old rust. In others—and these patches shift slowly, you realize after watching for a few minutes—it's waterlogged, almost bog-like. Rivulets run nowhere obvious; water appears and vanishes according to rules you can't quite see. There are no streams, exactly, but the whole top layer of earth seems to be slowly migrating, finding its level through some process that hasn't finished calculating itself.
+
+The vegetation is strange in its sparseness and vigor. What grows here grows *deliberately*. There are stands of what might be pine, though the needles have a faint iridescence, and they're spaced as if following a grid you can almost perceive but never quite confirm. Between them: low, silvery-green plants with leaves that seem to track something in the sky. Patches of what could be grasses, but they move together even when there's no wind, a synchronized pulse every thirty seconds or so. Some of this growth looks normal. Some of it looks like it's still learning how to be plant matter.
+
+The heat here is *dense*. It doesn't feel like sun-baked rock heat; it feels like the ground itself is warm, generating rather than absorbing. You can feel it through boot soles. In the early morning, before the condensation lifts, mist rises from the vegetation—not from water evaporating, but from the plants themselves, exhaling in a coordinated rhythm.
+
+There is almost no animal sound. No birds. Once, you might see something move at the edge of vision—a thing with too many joints, or a shape that seemed to be made of the space around it rather than occupying space—but these sightings are rare, and they leave no tracks. There are insects, you assume, because there is pollination happening, but you never actually see them. Just the evidence: flowers opening and closing on schedules that don't match any solar rhythm you can measure.
+
+The structures—and there are structures—are scattered and half-absorbed into the landscape. There's a platform of some kind, about thirty meters across, built from material that's neither stone nor metal but something optically between. It's warm to the touch and humming just below the threshold of hearing, a vibration you feel in your teeth. The platform extends slightly below the surface of the bog-patches, as if it's sinking, but it's been sinking for a very long time and hasn't sunk further in the past hundred years. Beside it: what might be a monitoring station, or a shrine, or a failed architectural ambition—a structure that seems to exist in more dimensions than the ground around it can properly accommodate. It casts shadows that don't match its own shape.
+
+The light here never quite becomes harsh. Even at midday, there's a diffusion that feels deliberate. The humidity? The altitude? Something else? The sky when visible is a blue-grey, thick enough to lean against. When the condensation lifts slightly, you can see evidence of artificial climate management in the cloud patterns—deliberate loops and breaks, too geometric to be weather.
+
+Time moves strangely here. You'll lose track of it for what feels like minutes and find that hours have passed. Or the reverse: an hour-long observation of a single patch of ground reveals itself to have taken only twenty minutes. Your instruments (if you have them) won't help. They give conflicting readings, as if the laws governing causality here are still in draft form.
+
+The plateau is warm enough that the rock-seeping water never freezes, yet the mornings are cool enough that frost can form on certain plants. This shouldn't be possible at this elevation. But here it happens. The vegetation seems to expect it, to welcome it.
+
+There are no birds, but sometimes there are sounds almost like birdsong—repeated, tonal patterns that stop abruptly, as if whoever was making them remembered they shouldn't. The silence that follows feels intentional, a held breath.
+
+The whole place has the quality of something *waking up*. Or something in the process of being *decided upon*—as if the plateau hasn't yet fully committed to what it's going to be, and continues to try out different configurations. The condensation thickens and clears on cycles you can almost predict but never quite anticipate. The vegetation rearranges itself microscopically, daily. The water finds new paths. The heat fluctuates within a narrow band, but it fluctuates.
+
+You could stay here for days and still have the feeling you've only been here a few hours. You could study every square meter and still not know what the rules are. But you won't want to leave. Something about the place is actively, quietly calling to the part of your brain that recognizes home, even if home was never supposed to exist.
+
+The plateau breathes. It breathes, and waits for something to breathe back.

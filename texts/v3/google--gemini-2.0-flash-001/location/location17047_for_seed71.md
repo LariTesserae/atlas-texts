@@ -1,0 +1,25 @@
+The Sky-Cities of the Great Spine are not so much built upon the mountains as…grown out of them.
+
+Erosion, patient and implacable across geological aeons, has worn the mountains down to forms of an almost unbelievable smoothness. Not sharp peaks and jagged crags, but rolling, rounded forms like the knuckles of some buried god. The rock itself is a strange, cold iron-grey, shot through with veins of quartz that glitter faintly even under the dim light that filters through the perpetual mists.
+
+The mountains are *old*. Old beyond any reckoning, worn down to near-nothingness by a wind that howls eternally, even on days when the air seems still. This wind carries a peculiar kind of frost, not the delicate crystals of water-ice, but something denser, heavier, that clings to the stone and seeps into the marrow of things. The kind of cold that never truly leaves you once you’ve felt it.
+
+It's not entirely dry, up there. The wind itself carries moisture. Mist hangs thick in the valleys between the knuckles of stone, and sometimes, a light, icy rain falls, just enough to keep the mosses and lichens hydrated. These are the vanguard of the Sky-Cities' vegetation. They cling to the rock in emerald and silver carpets, softening the harsh grey, providing a foothold – literally – for the strange, cold-loving flora that follows.
+
+The "lushness" is deceptive. It isn't a riot of color, or a tangle of competing species. It is an austere, almost minimalist beauty. The dominant form is a species of fungus or...something similar. They grow in fractal patterns, like living frost spreading across the landscape. These formations, which locals call "stone-blooms," are the foundation of the Sky-Cities.
+
+The stone-blooms secrete a substance not unlike mortar as they grow, integrating themselves with the native rock. Over immeasurable time, these formations have created vast, hollow structures within the mountains, chambers and corridors formed by biological processes and stabilized by time, pressure, and the peculiar properties of the stone-bloom. These natural architectures are the bones of the Sky-Cities.
+
+Then comes the *building* proper. The people of the Great Spine are primitive in a way that belies their sophistication. They use no metal, understanding that the mountain itself holds all they need. They harvest the stone-bloom's secretions, mixing them with pulverized rock and a kind of fibrous lichen to create a surprisingly durable building material. They are masters of creating arched structures – their tech is simple, but their understanding of load bearing across the stone is impeccable..
+
+Their cities twist and wind through the stone-bloom structures, conforming to the organic shapes. Buildings cluster around natural springs and vents of geothermal warmth. Bridges of woven lichen span chasms filled with swirling mist. The craftsmanship is exquisite, but the aesthetic is…alien. Angular and harsh. There is a lot of grey, white, pale green with the natural hues of the landscape.
+
+The vastness here manifests in a strange way. The individual mountains are enormous, but not exceptionally tall. The "planet-scale" quality comes from the sheer number of them, each Sky-City perched atop its own peak, separated by hundreds of kilometers of mist-shrouded valleys…and something else. Something that prevents easy travel.
+
+The "something else" is the reality-break, the "weirdness." In the valleys, the wind howls not just with air, but with whispers. Distorted images flicker in the corners of your vision. Time flows differently in different places. Paths wander back on themselves, looping endlessly. The mountain-folk rarely descend, even to visit other Sky-Cities. The valleys are *wrong*.
+
+Sound, up here, is a strange thing. The wind dominates. The stone-blooms have a very slight clicking sound as they grow. The people tend to speak quietly. In the "wrong places" down below, there are other sounds, just on the edge of hearing--the groaning of vast shapes and what-sounds-like children singing in a high, thin tone.
+
+The active dynamic is centered on the weather and the gradual expansion of the Sky-Cities. It’s a slow, inevitable process that seems more geological than biological. The Stone-Blooms are essentially terraforming the landscape, and the people are simply hitching a ride. The process of harvesting and building, the continual cycle of decay and construction, the wind and the rain, all contribute to a sense of constant, slow-motion change.
+
+The complete absence of fauna is part of the key to the weirdness. It underscores the sense that this is a place that should not be habitable. It's as though the mountains themselves are sentient, slowly constructing their own civilization out of stone and mist, using the Sky-City people as…what? Gardeners? Symbionts? Or something else entirely, something that hasn't yet been revealed in the slow, relentless unfolding of this strange and ancient place.

@@ -1,0 +1,25 @@
+The earth here does not have a crust; it has a spine of broken teeth. 
+
+They are the Needle-Spires, and they are ancient beyond the memory of stone. Millions of years of wind and wet have eaten them from the inside out, dissolving their interiors until they are no longer solid rock but gargantuan, vertical skeletons of porous limestone. They rise out of an abyss of churning cloud, towering thousands of feet into a warm, high-altitude atmosphere. They are immense—miles apart from one another, separated by vast gulfs of empty air—yet they are so tall that they dominate the horizon like a line of petrified titans.
+
+Between them is a hollow world. Nothing occupied this space but the wind, the clouds, and the roar.
+
+The sound is the first thing that claim’s a traveler's mind, and it never relinquishes its grip. It is a deafening, multi-toned bellow that vibrates through the marrow of one’s bones. Because the spires are riddled with millions of smooth, wind-carved tunnels, blowholes, and fluted chambers, they act as the pipes of an incomprehensibly vast organ. The wind—which is constant, violent, and chaotic—does not merely blow past these peaks; it plays them. The result is a roaring, shrieking drone, a chord composed of deep, earth-shaking sub-bass notes that rumble in the soles of the feet, layered over with high, glassy whistles that sound like a thousand hunting birds screaming in unison. It is a sonic tide that never goes out.
+
+The air is warm and heavy with moisture, but it is not a wetness of lakes or rivers. Instead, water exists as a restless, suspended medium. Huge, fat-dropletted mists boil up from the unseen depths below, driven by thermal updrafts. They collide with the warm rock faces of the spires, condensing instantly into a greasy, shimmering film. This moisture feeds an impossibly lush vertical jungle. 
+
+Clinging to the honeycombed walls of the spires are thick, hanging tapestries of jade-green moss, weeping bladder-ferns, and long, rubbery creepers that dangle down into the empty air like green rigging. These plants do not grow quietly; they lash and shiver in the gale. Many of them have evolved hollow, bulbous leaves that trap water and act as tiny resonators, whistling in key with the rock. Occasionally, a localized cloud pocket will collapse into a sudden, brief downpour, washing the vegetation clean before the wind shreds the storm to pieces three minutes later, leaving the sun to bake the wet stone once more.
+
+The weather is in a state of hyperactive, turbulent creation. Clouds do not drift; they boil. They rise in fast, boiling columns, are torn apart by cross-winds, turn purple with static charge, and vanish into blue sky within the span of a mile. Shadows and blinding, raw sunshafts race across the green-cloaked pillars like searchlights. 
+
+In this vast, roaring void, there is almost no life of the flesh. 
+
+The fauna is extraordinarily rare, specialized only for this vertical tempest. Once in a long while, one might glimpse a *skystrider*—a creature that is little more than a vast, sail-like membrane of leathery skin stretched across light, hollow bones. It has no legs, only triple-pronged hooks at the wing-tips. It does not fly so much as it allows itself to be thrown about by the chaotic updrafts, navigating the turbulent thermal rivers with twitching, micro-fine adjustments of its sails. It has no eyes; it navigates entirely by the shifting frequencies of the spires' deafening choir, seeking the quietest pockets of air to press itself flat against the wet moss and sleep.
+
+Humanity, or whatever came before, is nothing but a collection of faint, fragile scars on this immense landscape. 
+
+There are no cities, no roads, no kingdoms. Inside the hollow bases of some of the dry-scoop caves high up on the pillars, one can find the remnants of primordial shelter. These are small, dry-stone windbreaks, piled up without mortar by hand, designed to create small chambers of silence amidst the howling exterior. On the sheer vertical cliffs, one might find a sequence of handholds—not cut into the stone, but made of fire-hardened wooden pegs driven into natural crevices, long since rotted and slick with green mold. 
+
+In some forgotten cleft, a suspension bridge made of braided mountain grass might still cling to its anchors on one side of a chasm, its other end severed by some ancient storm, dangling miles down into the cloud-shrouded void like a spider's thread. The tools left behind in these high sanctuaries are primitive: heavy basalt hand-axes used to notch the wood, bone scrapers used to peel the moss, and small, sun-dried clay cups meant to catch the condensation that drips eternally from the tips of the bladder-ferns.
+
+To stand on a narrow ledge of one of these spires is to feel utterly small, suspended in a warm, green, screaming eternity. The eye travels across miles of empty blue air to find the next pillar, a vertical island of shaking emerald ferns and white spray, while below, the clouds roll and hiss like an ocean that never finds a shore.

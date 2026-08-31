@@ -1,0 +1,19 @@
+The air here is held at a perpetual, bracing cellar-chill. It is not the cold of winter, but the mechanical coolness of a stone lung.
+
+This is a city carved into the interior of a singular, colossal organism. We are inside a world-root, a vegetable cathedral that has established itself within a low basin of weathered basin-rock. The terrain is not soil or stone, but a compressed, fibrous lignin that feels as hard as mahogany underfoot. Every surface is alive, yet the scale of the flora is so massive that it functions as static geology.
+
+The water here is a subtle, haunting presence. It does not flow in rivers, but exhales from the walls. Intermittent pulses of condensation bead upon the overhead vaulted arches—translucent ribs of pale wood—and fall in rhythmic, heavy drops. These "drip-clocks" are the primary source of moisture, feeding small, moss-lined cisterns carved into the urban floor. The atmosphere is damp enough to keep the lungs heavy but dry enough that the industrial metalwork does not immediately succumb to rust.
+
+The city itself is an industrial hamlet tucked into the interstices of the great roots. It is a place of "settled erosion," where the architecture and the organism have reached a long-term truce. The buildings are not separate from the environment; they are brass and iron housings bolted directly into the living wood. Walkways of serrated steel grating span the gaps between root-buttresses, suspended by heavy-gauge chains that hum with a low, mechanical vibration.
+
+Despite the urban designation, the density is sparse. There is a vastness to the emptiness here. Each workshop or habitation pod is separated by long stretches of cavernous, vegetable silence. You might walk for several minutes across a bridge of polished amber-wood before reaching the next cluster of spinning turbines.
+
+The technology is tactile and clattering. Large, copper-bound pistons are driven by the slow, hydraulic pressure of the world-root’s own sap. These "sap-engines" hiss and wheeze, providing a rhythmic, mechanical baseline to the environment. Vertical shafts of brass pipe-work climb the walls like vines, carrying pressurized steam or nutrient-rich fluids to the higher galleries. It is an industrial ecosystem that mimics the biology it inhabits—engines that breathe, pipes that pulse.
+
+Light is provided by "burning lanterns"—containment jars filled with bioluminescent fungi, boosted by electric filaments. The light is steady and amber, casting long, soft shadows of the swaying cables and the slow-turning gears.
+
+The ecology is strange in its singularity. There are almost no animals; the occasional "scripter" insect—a brassy, many-legged thing that cleans the soot off the light-jars—is the only sign of fauna. Instead, the "dynamic" nature of the place comes from the vegetation itself. The world-root is in constant, glacial motion. A wall that was straight fifty years ago may now have a gentle, elegant curve; a staircase might be slowly swallowed by a thickening burl over the course of a generation. The city is a living sculpture, constantly being reshaped by the biological pace of its host.
+
+The sounds are specialized: the distant, metallic *clack-thud* of a sap-piston, the occasional splash of a condensation drop hitting a copper basin, and the faint, low-frequency groan of wood under immense structural tension. It is a quiet place, a cathedral of industry where the work is done with a solemn, rhythmic patience.
+
+The rules of this world are dictated by the health of the host. To mine is to wound; to build is to graft. The citizens are not conquerors of nature, but meticulously busy parasites, tending to the massive, cool-blooded entity that provides their floor, their ceiling, and their power. They live in the "damp-cool," moving between pools of amber light, small figures in a vast, wooden city that is slowly, surely, breathing around them.

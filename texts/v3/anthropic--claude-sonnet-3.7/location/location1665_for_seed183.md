@@ -1,0 +1,19 @@
+# The Glass Plains
+
+You come upon a high plateau that seems suspended in a state between states. The air is thin and cold, every breath a shallow reminder that you stand far above the world's breathing line. The landscape is dominated by a vast, endless expanse of what initially appears to be ice, but is something stranger—a translucent mineral surface that rings with crystalline resonance at the slightest touch. The plains stretch to horizons so distant they curve with the planet's arc, a continental sheet of this glassy substance with occasional rises and falls like frozen waves.
+
+Water is omnipresent yet contained. The entire surface is riddled with perfectly cylindrical wells—millions upon millions of them, each about a meter in diameter—that plunge to unknowable depths. From these wells, water perpetually rises to the brim without ever spilling over, creating a paradoxical landscape of vertical water columns that defy physical explanation. The water vibrates in place, creating concentric ripples that never progress outward, frozen in endless repetition.
+
+Where the wells cluster densely, their acoustic properties generate a deafening roar—a constant, thunderous drone that seems to emanate from the planet itself. The sound is physically painful, a wall of noise that makes your skull resonate, yet strangely coherent, as though carrying information just beyond comprehension. In the few areas where the wells are sparse, the silence is almost equally disturbing, like suddenly going deaf.
+
+Vegetation is minimal and peculiar—crystalline formations that mimic plant structures grow at the edges of some wells, their transparent "leaves" catching light without photosynthesizing. They never grow, never die, trapped in a moment between formation and collapse.
+
+Scattered across this impossible plain are industrial structures of incomprehensible purpose. Vast metal cylinders emerge from the ground at perfect right angles, their surfaces covered in precisely etched mathematical formulas. No two formulas are the same, yet they share a common symbolic language. Some cylinders pump steadily, driving enormous pistons that disappear into the glassy ground, yet their motion produces no change in the environment. Others have complex valve systems that appear to regulate the pressure of the water wells, though no actual connection is visible.
+
+The few fauna are like ghosts—translucent creatures that seem halfway between physical and theoretical, moving in straight lines and perfect arcs. They ignore the laws of biology, never eating, never reproducing, simply tracing mathematical patterns across the endless plain.
+
+The light here is normal in intensity but bizarre in quality—it seems to originate from the glass surface itself, diffusing upward rather than falling from above. Despite this continuous illumination, nothing casts a shadow, as though light here has forgotten one of its fundamental properties.
+
+Most disorienting is the sense of scale dissonance. Distant objects don't diminish properly with perspective. A structure that appears to be kilometers away can suddenly seem within arm's reach if you shift your gaze slightly, then snap back to its proper distance. Space itself seems inconsistently mapped onto the physical world.
+
+The cold never varies, the light never dims, the sound never quiets. This place exists in perfect, maddening stasis—a slice of reality where time's arrow has been severed, leaving only its spatial dimensions intact. The only change is what happens in your mind as you try to reconcile what you're experiencing with what you know should be possible.

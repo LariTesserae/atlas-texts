@@ -1,0 +1,25 @@
+# The Vault of Deep Rains
+
+The oldest structure on the planet is not a mountain or an ocean trench, but the Vault—a continent-spanning biome that has settled into its final aging phase. From above, it appears as a vast verdant plain stretching beyond horizons, punctuated by the silver threads of ancient riverways that have carved their permanent paths through the soft limestone beneath.
+
+The air is cool here, hovering just below what humans would find comfortable. Moisture clings to everything in a persistent dampness, though it rarely falls as proper rain. Instead, the water cycles through a rhythm thousands of years old: mornings bring a heavy dew that beads on the underside of every leaf and frond; evenings bring a fog that rises from the ground like ghosts exhaling.
+
+The ceiling of the Vault hovers nearly a kilometer above the ground—not sky, but a living canopy of interlinked organisms that evolved from what were once separate species of trees. Their trunks have long since fused into pillars wider than neighborhoods, supporting a mesh of branches that have grown so densely packed that they form a near-continuous surface. Sunlight filters through specialized translucent leaf-structures, casting the world below in a perpetual jade-tinted afternoon.
+
+Between the pillars stretches the civilization of the Vault-dwellers. Their cities are not built *upon* the land but *with* it—grown rather than constructed. Every surface teems with life: engineered vines that conduct power and data, walls of mycelia that process waste and purify water, bioluminescent mosses that illuminate paths and signal traffic patterns across the metropolis.
+
+The urban form follows the ancient riverbeds, which have widened and narrowed countless times over the eons but settled into stable channels millennia ago. These waterways are neither quite natural nor artificial anymore—they've been guided by generations of the Vault's caretakers, using technologies that blur the line between biological manipulation and physical engineering. Water moves through the system in predictable pulses, three days flowing, one day ebbing, in a rhythm that has become the heartbeat of Vault society.
+
+The soundscape is dense with life. The constant low hum of billions of insects forms a baseline, punctuated by the calls of the avian-evolved creatures that swoop between city spires. The technical systems of the Vault add their own voices—the soft whoosh of pneumatic transport tubes, the rhythmic clicking of computational fungi processing data, the occasional deep resonant tones of the communication systems that connect distant regions of the metropolis.
+
+Nothing here goes to waste. The density of both life and technology means that every nutrient, every joule of energy, every bit of matter is cycled and recycled. The oldest buildings—if they can be called that—have been absorbed and regrown so many times that they contain cellular structures dating back thousands of years, preserved like memories in the biological architecture.
+
+Despite this density, there is an order to the Vault. The society that evolved here long ago discovered that true sustainability required precise management of resources and space. Their technologies—which outsiders might mistake for magic—operate at scales both smaller than cells and larger than weather systems. They've engineered semi-sentient atmospheric patterns that carry moisture where it's needed, ensuring that no region of the Vault ever truly thirsts.
+
+At the center of the largest settlement stands the Calibration Spire, a structure that appears to be a single enormous tree but is actually a biological supercomputer. Its roots extend throughout the entire Vault, monitoring and adjusting the countless systems that keep this ancient ecosystem in balance. The Spire is said to contain memories of the Vault's original formation, though the truth of this is known only to the senior calibrators who commune with its consciousness.
+
+Visitors often remark that despite its age—or perhaps because of it—the Vault feels more alive than younger ecosystems. Everything here has found its place, settled into its niche, perfected its purpose. The erosion of time hasn't diminished this world but refined it, like a tool shaped by millions of hands until it achieves its ideal form.
+
+When night falls and the bioluminescence brightens, the Vault truly comes alive. The ceiling canopy above dims to reveal carefully preserved openings where stars are visible. The temperature drops further, and the symphony of sounds shifts to its nocturnal movement. This is when the deep rains sometimes come—not storms, but precise, localized showers that fall exactly where the Calibration Spire has determined moisture is needed.
+
+It is a world that has grown old without growing frail—a testament not to persistence against time, but to partnership with it.

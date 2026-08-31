@@ -1,0 +1,25 @@
+# The Weeping Bassalt
+
+The land is not so much a place as a process—a vast, steaming basin where the world is still learning how to be solid. The ground is a patchwork of glossy black and rust-red: basalt that never quite cooled, forever sweating mineral-rich water that leaves iridescent films on every surface. It is low, a plain that shivers slightly underfoot, the entire landscape a shallow bowl where the horizon melts into a haze of perpetual condensation.
+
+**Terrain & Materials:**  
+There are no mountains, no cliffs—only gentle, bulging swells of igneous rock, smooth as whale-skin, and sudden, raw fissures where the crust has split open like lips. From these cracks, not lava, but superheated water gushes forth in constant, sighing geysers, feeding a labyrinth of shallow, steaming streams that lace the plain. The rock itself is alive with mineral seepage: cobalt blues, sickly yellows, and arterial reds bleed from every pore, painting the ground in abstract, feverish patterns. In places, the rock has cooled just enough to form brittle, glassy shelves that ring like chimes underfoot, shattering into shards that never seem to diminish.
+
+**Atmosphere & Light:**  
+The air is thick, wet, and hot—a blanket you wear. It hangs at a dim, perpetual twilight, the sun a diffuse copper glow behind a sky of low, clinging mist. The moisture is not rain; it is the landscape itself exhaling. Every surface is slick with condensation, and the air tastes of iron, sulfur, and the sweet rot of accelerated growth. Visibility is short; distant features soften into glowing silhouettes in the steam, making the world feel intimate and boundless at once.
+
+**Sound:**  
+The basin is never quiet. It is a symphony of wet noises: the constant, sibilant rush of water through rock channels, the deep *gloop* of gas escaping from submerged vents, the percussive crash of fragile rock-shelves giving way under their own weight. Overlaid is the overwhelming wall of sound from the fauna—a shrieking, chittering, booming chorus that seems to come from every direction, amplified and distorted by the humid air and echoing stone. There is a low, subsonic hum as well, felt in the bones more than heard: the vibration of the world still settling.
+
+**Ecology & Fauna:**  
+Life here is extravagant, urgent, and loud. Vegetation is not just lush; it is desperate. Great, translucent leaves unfurl in minutes, capturing the dim light; vines with pneumatic stems inch across the glassy rock, anchoring in fissures; forests of giant, pale fungi pump water through their fibrous trunks, their caps trembling with spore-release. Every surface that isn’t actively bleeding water is crusted with spongy, moss-like growth that comes in shocking neons.
+
+The fauna is overwhelming in its density and strangeness. There are no large mammals, no birds. The niches are filled with things that scuttle, ooze, and vibrate. Armored, beetle-like creatures with bioluminescent carapaces swarm the mineral seeps, their shells clicking in unison. Gelatinous, filter-feeding blobs the size of boulders sit in the streams, pulsing softly. In the air, clouds of tiny, six-winged insects create shimmering, shifting patterns, their collective wingbeats adding a high-pitched whine to the soundscape. Everything is wet, armored, or luminous. Nothing is silent. The predator-prey dynamic is fast, violent, and omnipresent—a constant, noisy drama played out on the glistening stage.
+
+**Rules of the World:**  
+Time here feels both frantic and frozen. Growth and decay happen at a blistering pace—a fallen organism is consumed and incorporated into the landscape within hours—yet the landscape itself changes imperceptibly. The fissures do not widen. The geysers flow at the same rate. The temperature never wavers. It is a dynamic equilibrium, a roaring, chaotic stasis. The world is new, and its laws are biological, not mechanical. There is no tool use, no artifice. Evolution has favored sound, light, and rapid chemical exchange as the primary languages of being.
+
+**Emergent Weirdness:**  
+The strangeness is subtle, baked into the physics. The water sometimes flows uphill in thin sheets, adhering to the convex rock. Shadows move independently of their objects, pooling in wrong places for minutes before snapping back. The noise occasionally synchronizes into a single, resonant chord that vibrates the very rock, before fracturing back into chaos. The landscape remembers impressions—footprints in the soft mineral crust glow faintly for days, creating a temporary, glowing record of passage.
+
+This is the Weeping Basalt: a planet’s raw, newborn skin, feverish and fertile, locked in a perfect, screaming moment of becoming. It does not change, yet nothing within it is ever still. It is a place that is, in its entirety, a single, loud, wet, and living breath.

@@ -1,0 +1,15 @@
+The air hangs thick and cold, a constant, bone-chilling dampness that clings to everything. It’s hard to tell if it’s the breath of something vast and subterranean, or a perpetual, low-lying fog. The light is dim, a perpetual twilight, filtered through a canopy of interwoven, metallic-looking plant matter.
+
+This is a place of deep, silent industry, but the factories and engine rooms are not the brutalist monuments of our world. Here, the plants are the machines. Enormous, arborescent structures of a dull, gunmetal grey, twist and bend towards a sky that cannot be seen. Their surfaces are slick with condensation, the only source of water in this below-surface world. Veins of glowing, violet fluid pulse beneath the metal-plant exteriors, the lifeblood of this strange ecosystem.
+
+The terrain is a sprawling network of canyons and terraces, carved into a dark, stony substance that yields slowly to the elements. This is a young world, bearing the scars of recent formation. Sharp edges and angular formations define the landscape. Erosion is present, but it's a slow, patient process. The canyons are not worn smooth by time, but are rather etched by the steady work of the metal-plants, their roots and tendrils slowly, inexorably, shaping the subterranean world.
+
+The dominant sound is deafening, a low, throbbing hum that permeates every atom of existence. It’s the sound of the metal-plants at work, the relentless thrum of their internal machinery. It doesn’t fluctuate much; a constant pulse throughout the canyons. It is punctuated by the occasional *chkk* or *whirr* of some internal process.
+
+Vegetation is total; everything is plant. The ground itself is composed of compressed plant matter, a dark, rocky substance from which the metal-plants take root. Every surface is covered, from the canyon walls to any built structures. There are other plants, too - delicate, crystalline growths that cling to the metal-plants in certain regions, feeding off the light and energy. They have an ethereal quality, glowing faintly in the dimness.
+
+The few built structures are scattered— isolated, abandoned workshops, their metal skeletons partially consumed by the creeping plant life. They bear the marks of an industrial past, remnants of a technological civilization that harnessed the power of the metal-plants. The tech level is industrial, but it’s a form of industry we don’t recognize. The factories are grown, not built. The engines are living, not mechanical.
+
+Fauna is rare. There aren't many creatures able to survive in this environment. But, in the depths of the canyons, glimpses can be seen. Shadowy, chitinous forms flit through the metal-plant forests, perhaps scavenging or perhaps the product of whatever organic processes the industry produces. They make no sound.
+
+This world operates on long timescales. Everything moves slowly, at the pace of the metal-plants. Change is gradual, a patient unfolding. The canyons deepen, the structures crumble, and the humming grows a little louder each passing century. This is a place of constant creation. It appears in the light of the violet-glowing interior of a machine heart.

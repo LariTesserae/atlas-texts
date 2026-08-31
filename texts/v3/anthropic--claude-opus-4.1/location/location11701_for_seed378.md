@@ -1,0 +1,19 @@
+The plateau city steams.
+
+At this elevation, the air should be thin and cold, but here it hangs thick with mineral heat. The settlement spreads across ancient terraces of black glass—volcanic obsidian weathered smooth over millennia, its surface networked with shallow channels where condensation runs in constant, quiet trickles. These natural aqueducts feed into cisterns and collection pools, their edges rimmed with deposits of sulfur yellow and copper green.
+
+No plants grow here. The wet black stone supports only films of thermophilic bacteria that shimmer iridescent in the harsh light, painting the rock faces with sheens of purple and gold. Where the bacterial mats grow thickest, they form gelatinous curtains that hang from overhangs, dripping steadily into the channels below.
+
+The city itself rises in sparse clusters—industrial towers of heat-resistant ceramic and metal, their surfaces perpetually beaded with moisture. Steam vents puncture the streets at irregular intervals, releasing silent columns of superheated vapor that the settlement's machinery harvests for power. The buildings stand far apart, connected by elevated walkways and pipelines that cross the empty spaces between. Everything here was built to withstand the constant cycle of condensation and evaporation, the eternal wetness that never quite becomes rain.
+
+The fauna have adapted strangely to this place. Creatures with translucent carapaces scuttle across the hot glass on legs that barely touch the surface. They feed on the bacterial films, their bodies acting as living condensers—moisture collects on their shells and runs down specialized grooves to their mouths. Larger animals, salamander-sleek but furred with hydrophobic fibers, slide through the warm streams. Their metabolism runs so hot you can see heat shimmer rising from their backs when they surface.
+
+In the industrial districts, factories process the bacterial mats into fuel, into food, into materials the outside world has never seen. The machines run quiet—well-oiled, sealed against the moisture, their sounds muffled by the heavy air. Workers move between the buildings in protective suits that gleam with condensation, their faces hidden behind masks that filter the humid atmosphere.
+
+Above it all, the sky burns white with reflected light from the wet stone. The plateau extends for miles in every direction, broken by steam columns and the occasional cluster of buildings. In the distance, more settlements rise from the black glass plain like sparse islands in a sea of heated stone.
+
+The city pulses with its own slow rhythm—the collection of water, the harvest of bacteria, the quiet industry of survival in a place that shouldn't exist. Heat rises from deep below, some geothermal accident that turned this high place into a biological furnace. The rocks themselves sweat. The air tastes of minerals and hot metal.
+
+At the edges of the plateau, where the elevation finally breaks, waterfalls of condensation cascade into misty voids. The sound of falling water is so distant it might as well be silence. The creatures that live here have learned not to vocalize—sound doesn't carry well in air this thick, and the predators hunt by sensing vibrations through the wet stone.
+
+This is a place of contradictions held in delicate balance: high but hot, wet but lifeless, built but sparse, industrial but quiet. It exists in the space between states—neither fully land nor water, neither dead nor truly alive, a testimony to the strange forms survival can take when the rules of the world bend just enough to allow something impossible to persist.

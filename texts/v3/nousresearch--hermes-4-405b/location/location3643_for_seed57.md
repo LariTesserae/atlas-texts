@@ -1,0 +1,11 @@
+The only light comes from the water itself — a dim, cobalt bioluminescence that pulses as if breathing. This place is submerged, deep enough that the surface is a forgotten memory, visible only as a faint, shimmering distortion far above. The light reveals a micro-environment: a single, enclosed space no larger than a modest room, carved into the submerged rock by a recent geological fracture.
+
+The water is cool, just above freezing. Everything is saturated, packed so densely that movement is difficult — a tangled mass of lush, dark vegetation fills almost every available space. Thick, rubbery leaves and dense clusters of algae compete in the eternal gloom, a tangle so thick that it forms living walls on all sides. These plants thrive in the endless darkness, their forms strange and bulbous, adapted to pressure and low light.
+
+The air — or rather, the water — is mostly quiet. Occasional creaks and groans echo through the confined space, the sound of rock settling. The fracture is young and still cautiously shifting, its edges raw and jagged. Erosion has only just begun to soften the stone, creating sharp edges and narrow crevices in the submerged rock.
+
+Fauna is rare here, a few small, translucent organisms drifting silently through the vegetation, feeding on the algae. There are no predators, only the slow, patient processes of growth and decay in the cool deep.
+
+Reality here is unstable. The high density seems to distort physics — perspectives tilt unnaturally, and distances seem to stretch or contract without warning. Objects may subtly shift position when unobserved, obeying rules more akin to dream than physics. Gravity itself feels weak and uncertain.
+
+Scattered among the growth are faint, unnatural artifacts — small geometric shapes of an unknown material, partially overgrown, hinting at an order this world has otherwise forgotten. No tools or technology exist here, only nature given free reign in the darkness. The features are sharp and fresh, a place emerging from chaos into strange, hidden order.

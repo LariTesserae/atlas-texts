@@ -1,0 +1,15 @@
+The world is an ocean, but not in the way you might imagine. Forget the sun-dappled surface, the crashing waves, the teeming life. This ocean is ancient, cold, and dark, existing in a state of perpetual, turbulent change. It’s a deep-sea realm, but the sea is not merely a body of water; it *is* the world.
+
+The water itself is a heavy, viscous fluid, almost like liquid stone. Its movement is slow, ponderous, a relentless grinding of currents that have been in motion for eons. Erosion has done its work. Mountains are smoothed away, cliffs are eroded to sand, everything settles into a state of the primordial. The seabed, though not *flat*, is close. Gentle swells and valleys undulate across the immense expanse. The scale is vast, regional, stretching beyond any single horizon, forever out of reach.
+
+Vegetation is sparse, almost nonexistent. There are no forests of kelp, no submerged meadows. Instead, there are rare, stubborn patches of something like crystalline lichen, clinging to the few raised surfaces. Its a weirdly reflective quality, casting a faint, silvery light in the otherwise utter darkness.
+
+The cold is absolute. The darkness is total, punctuated only by the bioluminescence of the rare fauna, a fragile, fleeting display of light and shadow. The light itself is deeply affected by the currents, a constant dance of refraction that adds to the visual chaos.
+
+The density is extreme. The seabed may look bare, but it is packed with *something*. The bedrock is a matrix of minerals, pressed together by unimaginable pressure over countless years. Above the bedrock there is a layer of silt, a graveyard of everything that has ever lived in this ocean. Life is rare, but the very scarcity is a kind of abundance. Small, bioluminescent creatures drift across this bleak canvas, their brief appearances the only source of movement.
+
+There are no constructed structures, nothing built. The few traces of ‘built’ environments must have been made by the creatures that are no longer here. The primitive technology is perhaps the most intriguing aspect. Simple stone tools, perhaps even early implements made of bone or the hardened carapaces of unknown creatures, may litter the seabed. Evidence of their makers is incredibly scarce, but is there. The technology itself is simple; the makers perhaps learned, adapted, fought, and lived in harsh environments and with what little resources they had.
+
+The sounds are barely there, swallowed by the dense water, the slow grinding currents. Perhaps the faintest of clicks and groans, the echoes of unseen things shifting in the eternal darkness. 
+
+The most striking aspect of this world is its dynamism, its constant state of flux. Nothing is at rest. The currents grind and shift, sculpt and erode. Mountains once towered, now are gentle undulations. The few creatures that dwell here must adapt to the relentless change. This world isn't about stillness or perfection; it’s about enduring the eternal and chaotic dance of matter and energy.

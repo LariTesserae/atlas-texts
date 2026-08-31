@@ -1,0 +1,25 @@
+# The Lowlands of Myrna
+
+The dim tunnels open to a place that has no name save what the ancients gave it, breathing the name *Myrna* through lips now lost to time. Here, a vast underground realm stretches beneath what might be mountains, might be plains—no one living has seen the surface in generations.
+
+The ceiling of this world arches high above, perhaps eighty feet at its apex, where luminescent fungi cling in spiraling patterns. Their faint blue-green glow provides just enough light to navigate by, casting everything in perpetual twilight. The light pulses almost imperceptibly, cycling with a rhythm so slow it might take weeks to complete a single brightening and dimming.
+
+Water defines Myrna. Not in rushing torrents but in persistent wetness that seeps from the walls, collects in shallow basins worn into the stone floor over millennia, and gathers in channels that wind between the dwellings. The sound of water is a constant whisper—drops falling from stalactites with the patience of eternity, small streams trickling between settlements, the gentle lap against the edges of the deeper pools where strange pale fish move in languid circles.
+
+The settlements themselves appear as if they grew from the cavern floor rather than were built upon it. Dwellings carved directly from the softer stone deposits, their entrances framed with intricately carved wooden supports harvested from the fungal forests that thrive in the vast open spaces between settlements. These structures follow the natural contours of the cavern, creating neighborhoods that spiral outward from central gathering spaces where communal fires burn with slow, blue flames fed by oils extracted from the cavern's depths.
+
+Bridges of woven vine and ancient rope span the deeper channels, swinging almost imperceptibly in air currents too subtle to feel. Paths worn smooth by countless generations of bare feet connect the scattered communities—none too close to another, each maintaining the ancient boundaries established when the first peoples descended.
+
+The vegetation that blankets much of Myrna defies surface-world classification. Moss-like growths carpet the ground in vibrant turquoise and deep purple patches. Fern-analogues unfurl in spirals that may take a decade to fully extend. Fungal structures rise like buildings themselves—some towering twenty feet high with broad caps that shed luminescent spores in seasonal patterns so slow that children grow to adulthood between cycles.
+
+But it is the fauna that truly dominates Myrna. The air itself seems alive with translucent insects whose wings catch the faint light like prisms. Massive blind salamanders, some the size of crocodiles, bask in the thermal pools where heated water rises from deeper chambers. Colonies of bat-like creatures cling to the ceiling in such numbers they appear as living stalactites, occasionally shifting in great synchronized waves that send whispered echoes through the caverns.
+
+Most remarkable are the Processions—endless columns of iridescent arthropods that wind through the caverns in unbroken chains that may stretch for miles. These processions move so slowly they appear stationary to casual observation, yet they never cease their journey, following routes carved into collective memory before human settlement. The elders say some processions have been circling the same path since before the first humans descended.
+
+The people of Myrna move with similar deliberation. Their technology is simple but refined through countless generations—bone needles of extraordinary delicacy, stone tools polished to mirror smoothness, wooden bowls treated with resins that preserve them for centuries. Metal is rare and precious, salvaged from deeper chambers where ancient ruins hint at civilizations even older than the current settlements.
+
+Communication happens in whispers and slow gestures, for sound carries strangely in Myrna, sometimes vanishing altogether or returning hours later from unexpected directions. Children are taught to listen to the silence between sounds, where the true voice of Myrna speaks.
+
+Time itself feels different here—elongated, stretched like honey dripping from a spoon. The oldest inhabitants claim the slowness of Myrna preserves them, pointing to elders whose ages would seem impossible in the world above. Perhaps it is true, for everything in Myrna exists in a state of suspended animation, changing so gradually that transformation can only be marked across generations.
+
+And yet, for all its stillness, Myrna is never truly static. The water slowly reshapes the stone, the processions gradually alter their routes by fractions of inches per decade, the settlements slowly expand or contract as chambers collapse or new passages are discovered. It is a world defined by patience, where the true nature of permanence—that nothing is permanent, merely changing at a pace beyond immediate perception—reveals itself to those who learn to observe with the eyes of ancients.

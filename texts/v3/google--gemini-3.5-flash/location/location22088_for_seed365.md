@@ -1,0 +1,25 @@
+The place is a vertical wound in the shoulder of a young, high-altitude massif. 
+
+Here, the mountains have not yet been smoothed by the long grind of geologic time. The walls of the fissure are sharp, black basalt and clean-fractured shale, their edges so keen they could split leather. It is a small place—a single deep cleft, no wider than a cathedral’s nave and perhaps three hundred yards long—isolated from the broader peak by sheer drops and impossible angles. 
+
+Up here, at the roof of the breathing world, the air is cold and thin, biting the throat with a clean, metallic chill. 
+
+Water does not fall here as rain. Instead, it arrives as a slow, drifting breath of mountain mist that enters the mouth of the rift and clings to everything it touches. The moisture is sparse but persistent; it forms fat, perfect globes on the undersides of stone ledges. Because of some strange atmospheric tension within the narrow gorge, these water beads do not always fall. Instead, they swell until they are the size of plums, shivering in the breeze, sometimes breaking free to float sideways or upward in the cold air currents before bursting against the stone.
+
+The canyon is mostly empty space—a vast, dark chimney of air—but where life finds a anchor, it does so with frantic, concentrated energy. Thick cushions of violet-hued velvet moss, six inches deep, wrap around the sharp stone spurs like heavy winter coats. From these cushions grow hand-shaped ferns with pale, translucent fronds that gently flare and close, pumping the misty air through their ribs to extract nutrients. These botanical patches are hyper-dense, wet, and ancient, yet they are separated by wide, stark expanses of bare, gleaming black rock, creating a landscape of intense isolation surrounded by nothingness.
+
+Clinging to one sheer wall of the rift is a miniature metropolis. 
+
+It is a hand-carved, highly organized vertical hamlet, built using the simplest of tools but with astonishing architectural density. Dozens of small, circular huts are stacked like cells in a hive, built from thin shingles of split slate and sealed with a thick grey paste made of crushed volcanic ash and plant-sap. There are no streets, only a dizzying web of suspension bridges made from braided moss-fiber and fire-hardened wooden pegs driven into the basalt. The inhabitants have used stone wedges and bone humerus-picks to hollow out small storage niches and water-cisterns in the solid rock. The town is tiny—one could throw a pebble from its topmost dwelling to its lowest—but its verticality is complex, a primitive, tiered civilization suspended over the drop.
+
+Though there is a settlement here, human voices are rarely heard, and for good reason: the silence of the rift is absolute, almost sacred. There is no wind-howl, only a faint, rhythmic sighing as the air rises through the stone chimney. And yet, this silence is packed with an overwhelming, almost suffocating quantity of animal life.
+
+Millions of silent creatures possess this crevice. 
+
+The air is thick with "cloud-moths"—soft, finger-length insects with four wings of white down that make no sound as they beat. They drift through the rift in swirling, pale rivers, so dense at times they look like flurries of snow that never touch the ground. Along the damp basalt walls, beneath the violet moss, crawl thousands of translucent, flat-bodied lizards. They have no voice; they communicate through the rhythmic pulsing of their bioluminescent throat-sacs, casting silent, stuttering cold-blue signals across the chasm. 
+
+In the gaps between the stone huts, tiny, puff-furred mammals with oversized, dark eyes leap from bridge to bridge. Their feet are padded with soft, hair-like cilia that muffle every landing. They hunt the cloud-moths in mid-air, snapping them up in absolute, ghostly silence, their movements so fast they are mere blur-lines in the dim lavender light.
+
+The entire environment is in constant, quiet motion. The ecosystem functions like a clockwork machine with damp, velvet gears. The very architecture of the town is dynamic: the huts are suspended by living "muscle-vines"—thick, fibrous creepers that contract when the mountain cold deepens, pulling the dwellings close to the warmth of the geothermal vents in the basalt, and relaxing during the peak of the day to let the huts swing out into the damp air currents to collect water in their slate gutters. 
+
+Above, the sky is never seen as more than a thin, pale thread of bruised purple, wedged between the towering black gates of the canyon rim. The light is a perpetual dawn, soft and shadowless, filtering down through the layers of drifting white moths and floating water-globes. It is a world lived in the whisper of a breath, high above the earth, where the stone is young and sharp, and life is a dense, silent swarm clinging to the edge of the void.

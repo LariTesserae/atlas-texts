@@ -1,0 +1,15 @@
+The vast, flat landscape stretches to the horizon in all directions, a seemingly endless expanse of reddish-brown mud interrupted by twisted, arthritic black tree trunks -- the only remnants of the sparse vegetation long since dead and petrified into a kind of organic stone. 
+
+The sky overhead is a deep crimson, the air thick with humidity and miniscule particles that catch the weak light and paint everything in a diffuse, rust-colored haze. Wisps of steam or mist curl up from cracks and fissures in the crumbly ground.
+
+Pools of water glimmer darkly between rises in the terrain -- tainted, brackish and oily, their surface sheens reflecting too many colors not quite of this world. Some are motionless mirror-pools, others roil with eddies and whirlpools, as if something churns in their depths. A few bubbles of irridescent gas well up from the center of the most agitated pools.
+
+The overall impression is of a terrain collapsed in on itself, compressed and compressed and compressed until no space remains between the twisted things that make it up. The petrified trunks are overgrown with strange fungal growths in purples and purples, squashed together and bulging. Fantastical mushrooms with caps four feet across stud the ground, their edges curling as if melting. Thropy runner-vines and root-like tendrils wind from trunk to trunk, forming a visible network under the gummy mud.
+
+Here and there, ghostly stumps of stone and mortar rise, ruined and overgrown, a few still bearing the suggestion of architecture in eroded blocks and arches. But it's impossible to reconstruct what they once were. Fissures split their sides, oozing the dyed mud. Miasma of green-black moss and furry fungus coats them. Strange pipering vocals seem to come from the utter crumbling stones themselves.
+
+The air is thick with sounds: the ceaseless bubbling and gurgling of the water; the creaking of dead leaves on stumps of rock and branch; bassy hooting and piping calls in the vegetable depths. And a kind of undifferentiated roar, like distant machinery or lava flow, that seems to come from everything at once -- the entire outflowing landscape groaning, braying and squalling. The sounds catch and stick in the heavy mist for long seconds before fading.
+
+The scale is so flat and long that there is no Depth everywhere; not just the immediate terrain that subtends a 30 degree waist-to-eyeline arc before busy proliferating contents block further view, but the sky too seems to fall off at the same distance, the plane of heaven oddly co-terminus with the mushy horizon. The eye feels it doesn't work right, trying to focus into the crimson bleakness.
+
+The size gets to be numbing, the perspective messing-up necesseity of sense. Standing there is like cornering vision between the trapped attention points of a red terrain and a red sky and a red horizon. Nothing moves because no thing can orientation itself on other thing. It is all one thing, obsidian-eyed, organ-beat of red.

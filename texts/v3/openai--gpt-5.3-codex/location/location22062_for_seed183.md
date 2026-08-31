@@ -1,0 +1,23 @@
+At first it looks like a mountain basin, just very high and very wet: a pale, open bowl cut into the spine of a range, bright under a hard sky, clouds moving below you instead of above. Then the eye adjusts and the basin stops being one thing.
+
+It is made of terraces of stone and glassy sediment, all weathered into soft, old shapes, but crowded with vertical forms: fins, chimneys, tilted slabs, hollow spires. Nothing grows on them. No moss, no grass, no lichen, no nests, no tracks. The only textures are mineral—salt bloom, iron stains, mica glitter, long black varnish where water has run for centuries. The place feels established, not raw: every edge has been negotiated by wind and wet and freeze and thaw until it has a stable profile, a kind of agreement with the weather.
+
+Water is everywhere but rarely in broad lakes. It beads on rock faces, wells from seams, threads through shallow channels, stands in mirror-thin pans, gathers in blind sinkholes, drips from overhangs in steady pulses. In some ravines it hangs as vapor so dense it makes curtains. In others it flashes into sudden rills when mist condenses and runs, then is gone again. The ground is often saturated just under a skin of crust; step wrong and the crust cracks into cold mineral slurry.
+
+Despite the brightness, the temperature stays cool. The sun is strong at this elevation, but the stone holds night. You can stand with your face warm and your hands numb. Every shaded crevice exhales chill. Ice survives in narrow cuts all year, not as sheets but as clear organs wedged into cracks, humming when the wind crosses them.
+
+And the wind is one of the loud things here. It doesn’t just blow—it plays the terrain. Hollow pillars boom. Fractured shelves rattle. Long channels whistle at different pitches depending on how much water is in them. Drip-fields make percussion over stone bowls. Far across the basin, slabs calve from cliff faces and the impacts echo for minutes in the mist. Even silence has pressure.
+
+There are signs of making, but scattered and old in attitude rather than in age: stacked-stone waymarks sealed with clay, low walls built to divert runoff into cistern pits, rope-polished grooves where ladders once hung, little shelters tucked under leaning slabs. Primitive craft, hand logic. You find bone-free tool middens of chipped stone and hammered soft metal, corroded into turquoise freckles in the mud. No grand architecture; just points where intelligence interrupted weather for a while and then stepped away.
+
+As you move farther in, the weirdness stops being rumor and becomes local physics.
+
+Distances fold unpredictably in bright air. A ridge that looks half a kilometer away takes three hours to reach, while a spire on the horizon arrives after ten minutes of walking. Echoes return before their source sounds finish. Water sometimes chooses two directions at once at a fork, each stream equally full, then reunites downstream without obvious loss. Shadows detach from their objects during certain cloud passes and collect in depressions like dark liquid. You can throw a stone through one and hear a splash though there is no visible pool.
+
+The oldest channels show this has been true for a long time: erosion lines split, rejoin, and cross themselves in impossible sequence, as if different versions of rain carved in turn and all were preserved. Whole walls are scalloped by droplets that must have fallen upward from the basin floor. Yet nothing feels chaotic. The landscape has equilibrated around its own broken rules. It is active, yes—condensing, draining, freezing, cracking, resettling—but active the way a heart is active: patterned, recurrent, self-maintaining.
+
+There is no animal movement, no birds in the updrafts, no insects skating the water skins. If there is life, it is not in forms you can name quickly. Sometimes on damp stone, geometric films appear overnight: iridescent lattices that slowly rotate, then dissolve at noon. They leave no residue except a change in how water beads there afterward.
+
+By late day the entire basin glows, not golden but white-silver, almost clinical in brightness. The mist columns become luminous pillars. Every droplet catches light. Every sound sharpens. You stand in an open place that is paradoxically dense—dense with surfaces, with wetness, with echoes, with simultaneous versions of direction and time.
+
+It feels like standing inside an instrument built by weather on the roof of the world, still being tuned.

@@ -1,0 +1,43 @@
+The stone is cool beneath the palm, not with the damp chill of depth, but with the dry, settled cold of altitude and age. It has been worn to a glassy smoothness, not by water or ice, but by epochs of wind that no longer blows. The plateau stretches in vast, open tiers, each level a continent-sized step descending into pale distance. The air is thin, crisp, utterly desiccated. There is no moisture here. Not a trace. Breath leaves the lips and vanishes without fogging. The sky holds a steady, unblinking light that falls at a familiar angle, casting long, sharp shadows that do not lengthen, do not shorten, do not move.
+
+This is a place that has finished eroding.
+
+The rock itself bears the memory of grinding: flowing contours frozen mid-sweep, shallow basins polished to a dull sheen, ridges tapered to knife-edges that have somehow never fractured. Everything has reached its final form. No grain loosens. No crack widens. The mountain, or what remains of it, has settled into absolute equilibrium. Time has not stopped so much as it has bottomed out.
+
+And yet the space is thick.
+
+You notice it first as a pressure against the eyes, a sense that the air is occupied. Then the layers resolve. They are everywhere. Perched on the glassy stone, clinging to the tapering ridges, hanging in the still air in stratified veils: creatures. Overwhelming in number, dense enough that you could extend your arms and brush chitin, membrane, and jointed filament without turning. They cover every surface, cluster in the negative space between rock formations, drift in suspended clouds that do not swirl or settle. They are not birds, not insects, not anything with a clear terrestrial lineage. Some resemble articulated kites of pale horn, ribs laced with dry translucence. Others are clusters of interlocking plates that rest like folded hands. Some are mere threads, taut and vibrating at frequencies too low to hear, strung between stone and stone like a loom left mid-weave.
+
+None of them make sound.
+
+The silence here is not absence. It is a property of the place. The air absorbs rather than carries. A boot heel meeting stone produces a soft impact that dies before it can echo. A shifted weight, a drawn breath, the brush of cloth against rock—all of it is swallowed instantly. The creatures do not chirp, do not rustle, do not beat wings. Those that move do so with a frictionless, glacial slowness, sliding along invisible gradients, repositioning themselves over hours or days in patterns too vast to track. Most are simply still. Not waiting. Not resting. Existing in a state so complete that motion would be redundant.
+
+The density does not claustrophobe. The scale remains open. You can see for tens of miles across the tiered plateau, past shallow depressions and low, wind-sculpted domes, to where the land steps down again into pale haze. The creatures occupy volume, not vista. They layer the immediate space, stack themselves in the air like leaves in a suspended fall, yet the horizon remains clean, distant, unbroken. It is as if the world has been filled to saturation without losing its breadth.
+
+Reality here has cracked, and then calcified.
+
+Look too long at a ridge and it appears both near and impossibly far, the distance folding over itself like creased paper. Shadows do not agree with one another: a stone cairn throws one shadow northwest, another faintly southeast, both equally sharp, both equally real. The sun hangs steady, but a ghost of it lingers three hand-widths to the left, not as an afterimage but as a second source that casts no heat. Step forward and the ground does not tilt, yet your weight distributes as though walking a slope. Reach out to touch a creature hanging at arm's length and your fingers meet empty air; it is perched in a layer of space that overlaps yours but does not intersect it. The geometry is wrong, profoundly so, but it does not shift. The paradoxes are locked in place. Reality has broken and then settled into its final arrangement, like shattered glass fused back together with all the fractures still visible.
+
+Scattered across the plateau are marks of hands.
+
+Low cairns of fitted stone, stacked without mortar, each rock chosen for its curve and set with patient precision. Shelters woven from pale, dry fibers, lashed with something like sinew or root, their frames leaning at angles that should collapse but do not. Shallow bowls pecked into the glassy rock, holding not water but fine metallic dust that catches the light like ground mica. Bone tools lie where they were set down: scrapers with edges still keen, awls wrapped in frayed cord, flat stones stained with dry pigment. Faint spirals and notch-marks are carved into the stone, worn smooth by time but never erased. The technology is simple, tactile, born of fingers and friction and careful observation. Nothing is smelted. Nothing is machined. Everything is shaped by pressure, by binding, by repetition.
+
+Whoever made them is not gone. Or perhaps they are, and it no longer matters. The structures do not decay. The fibers do not brittlе. The lashings hold. The place does not permit unraveling.
+
+Vegetation, if it can be called that, is sparse and stubborn. Pale mats of fibrous tissue cling to hairline fractures in the stone, dry as paper, rooted in nothing but the memory of grip. Crystalline fronds rise from shallow depressions, branching like frozen smoke, brittle and utterly desiccated. They do not photosynthesize. They do not draw moisture. They simply persist, catching the steady light and throwing it back in dull, mineral glints. A few resemble bundles of bleached reeds, tied by some ancient hand or by the wind's final sigh, standing upright in configurations that suggest purpose but reveal none. They do not grow. They do not wilt. They occupy their space and yield nothing.
+
+The rules of this place are quiet, absolute, and strange.
+
+Entropy has reached its floor. Nothing breaks down. Nothing accumulates. The air does not circulate. The light does not warm. The creatures do not eat, do not excrete, do not reproduce, do not die. They are not frozen in time so much as they are complete in it. The overwhelming density of life is not a population but a state of being, a saturated equilibrium where every niche is filled and no niche demands change. Movement is possible, but it does not alter the whole. You can walk. You can lift a stone. You can disturb the metallic dust in a carved bowl. But the place absorbs the action and returns to its configuration, not through force, but through the sheer weight of its own finality.
+
+Distance is subjective but fixed. You can walk toward a distant tier for hours and find it no closer, yet turn and find your starting point exactly where you left it. Sound does not travel, but vibration does: press your palm to the stone and feel the faint, layered hum of a thousand silent creatures resting, moving, existing in overlapping strata. The hum does not change pitch. It does not rise or fall. It is the acoustic signature of stillness.
+
+Light behaves honestly until it doesn't. It illuminates what is there, casts shadows that obey no single source, reveals textures with clinical clarity, and occasionally shows you the same object from two angles at once. You learn not to fight it. You learn to read the overlaps as depth, not deception.
+
+This is not a dead place. It is a finished one.
+
+The extreme elevation holds it above the reach of weather, above the pull of cycles. The ancient erosion has sanded it to its last possible contour. The dry cold preserves without freezing. The normal light reveals without scorching. The scattered structures stand as testament to hands that understood simplicity, that worked with what was given, that left marks meant to outlast meaning. The sparse vegetation clings without demanding. The overwhelming fauna saturate the air and stone without competing, without consuming, without sound. The weirdness is not a storm but a sediment: reality fractured, layered, and settled into a permanent arrangement.
+
+You stand in the cool, dry silence, surrounded by stillness that is somehow dense, by life that does not stir, by broken geometry that does not shift. The place does not ask you to understand it. It does not resist you. It does not welcome you. It simply is, completely, irrevocably, in a state so settled that even time has laid down its tools.
+
+And if you listen past the silence, past the lack of wind, past the absence of breath and wing and voice, you will feel it: the quiet weight of a world that has reached its final form, and chosen, or been chosen, to remain.

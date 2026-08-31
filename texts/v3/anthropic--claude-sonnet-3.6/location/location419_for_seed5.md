@@ -1,0 +1,15 @@
+In the hollow of an ancient glacial cirque, nestled so deep the wind never finds it, there grows a city of moss. What from above might seem a mere dampness in the stone reveals itself, at ground level, as an intricate metropolis of green towers and archways, each structure composed of countless tiny fronds reaching toward the peculiarly bright light that somehow finds its way down here.
+
+The moss-city rises from a foundation of weathered granite, every surface softened by millennia of tiny root-feet finding purchase. The structures - if one can call them that - stand shoulder to shoulder, creating narrow corridors that might serve as streets for the miniature inhabitants that surely must live here, though none have ever been seen. These passages wind and intersect in patterns that feel too deliberate to be accident, too organic to be planned.
+
+The light that illuminates this place has no clear source. It seems to emanate from the very air itself, a diffuse brightness that casts no shadows and never changes intensity. This eternal day bathes everything in a crystalline clarity that makes each tiny detail of the moss-architecture visible - the delicate capsules that might be spires or water towers, the interwoven strands that could be bridges or aqueducts.
+
+Moisture here exists in a perfect balance. Tiny droplets form continuously on the moss surfaces, rolling down the green walls to collect in infinitesimal pools that never overflow. The water moves in complete silence, as if sound itself is held at bay by some property of the place. Even the occasional falling drop lands without a splash.
+
+Between the moss-structures, other plants have found homes. Diminutive ferns curl from crevices, their fronds no larger than a fingernail. Lichens create abstract patterns on the vertical surfaces, their colors muted but distinct - pale greens, soft grays, and the occasional splash of rust-red. Tiny fungi sprout in the shadowed spaces, their caps perfectly formed though smaller than pinheads.
+
+The air is cold but not bitter, still but not stagnant. It carries the clean mineral scent of wet stone and the green smell of living things. Small insects move through this landscape - not flying, but crawling deliberately along invisible paths. There are beetles with iridescent shells, translucent springtails, and other creatures so small they're barely more than moving dots.
+
+Despite its diminutive scale, the moss-city feels ancient and established, as if it has existed in precisely this form for centuries or millennia. Nothing seems to grow or die; rather, everything appears to maintain itself in perfect, eternal equilibrium. The only movement is the endless, silent cycling of water droplets and the measured pace of the tiny fauna.
+
+It's a place that exists outside of time, a pocket universe of green life that carries on its business regardless of the world above. The complexity of it suggests intelligence, purpose, civilization - but if there is indeed a society here, it operates at a scale and pace beyond human perception, writing its history in patterns of moss and moisture too subtle for our eyes to read.

@@ -1,0 +1,17 @@
+The water stops behaving like air at about two hundred meters. Above that line there is still weather — swell, seasons, the gray rumor of a sun. Below it, temperature quits changing, light quits arriving, and the sea becomes a single material with a single mood, held at a degree or two above freezing, forever.
+
+Descend further. There is no bottom, at first, in the sense that there is nothing to see. Then the ground arrives — and the ground is wrong in exactly one respect, which is that it is *level*. Not naturally level, not graded by current and sediment into the gentle compromise shapes the seafloor usually accepts. Ruled level. Block set on block, each the size of a cart, each course running true to within a finger's width over a hundred meters, joint to joint to joint, out past the reach of any lamp.
+
+This is the first thing to understand about the place: the stone was laid. Every meter of it. There is no natural substrate anywhere beneath this sea — drill anywhere, through silt, through turf, through the packed floors of drowned halls, and you find courses. Sonar has followed the bedding lines of this pavement four hundred kilometers in a single direction without finding where the masons started or where they chose to stop. No survey has found an edge. The plain simply continues, terraced and walled and channeled, at a scale where the curvature of the world should be a consideration, and apparently, for the people who built it, was.
+
+They had no metal. No fire could live down here to forge any. What they had was sand, cordage twisted from kelp fiber, stone working stone, levers, the patient swell of dry wooden pegs driven into drilled holes and left to drink until the rock sighed apart — and time, in quantities that nations on the surface would struggle to budget. Everything they made, they made by abrasion and leverage and the accumulated labor of generations who never saw the project finish, because the project was not a project. It was the ground. Someone's grandmother leveled a shelf for a garden; her grandchildren extended the shelf; four hundred generations later the shelf is a province.
+
+Every cistern here began as a quarry. That is the elegant, terrible economy of it: they dug their foundations out of themselves, hollowing great pits for stone and then roofing the pits and calling them reservoirs. Some of those roofs have fallen. The rubble is still where it slid, two thousand years settled, and the turf has taken it so completely that the collapse reads today as a hill — one of the only hills on a plain that otherwise keeps its relief in walls.
+
+Because that is the other thing: the terrain here is entirely architectural. There is no mountain that is not a ruined structure and no valley that is not a channel. The highest points are wall-tops and the stump of a tower. The lowest are canal beds, and even the canal beds are paved.
+
+---
+
+The builders are gone. Not dead in the sense of bodies in the ground — there are no bodies, or none ever found — but gone the way a tide goes out: completely, without debris. What they left is their handwriting, and the sea has been reading it for a very long time.
+
+The steps are dished. Centuries of feet did some of that, in the era when feet existed here; falling sediment did the rest, and continues. The carvings went early — the incised lines were shallow, the stone was willing, and ten thousand years of drifting grit polishes everything the same direction, downward. What survived is what could be worn into a smoother version of itself: the great

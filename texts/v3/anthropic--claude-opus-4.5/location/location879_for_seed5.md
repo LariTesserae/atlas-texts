@@ -1,0 +1,29 @@
+# The Frozen Market Beneath the Glacier
+
+You find it by accident—a crack in the blue-white ice no wider than your shoulders, breathing out warmth that shouldn't exist. You slide through sideways, and the passage opens into a chamber the size of a modest chapel, though chapel is the wrong word for what this is. This is a market. This has always been a market.
+
+The light comes from everywhere and nowhere. The ice above is thin enough here—or veined with something luminous—that the space glows with a cold brilliance, shadowless and even. Everything is visible. Every surface. Every face.
+
+And there are so many faces.
+
+The stalls pack against each other without paths between them, just a continuous mass of rough wooden counters and stone slabs and woven reed mats, all of it pressed together like cells in a honeycomb. The merchants sit within their stalls rather than behind them, surrounded by their wares, and the buyers don't walk—they lean, they reach, they pass things hand to hand across the packed bodies of their neighbors. A woman three stalls deep receives a clay jar passed over the heads of four others. Payment travels back the same way. No one speaks above a murmur.
+
+The silence is the first wrong thing, or the first *unusual* thing. A market this dense should roar. But the sound here is hushed—the soft clink of bone tokens exchanged, the whisper of fabric shifting, breath visible in the cold air but never loud. The ice above absorbs sound, perhaps. Or the people here learned long ago that echoes in enclosed ice can bring fractures, collapses, burial. So they speak in a hush. So they have always spoken in a hush, for so long that their voices may have forgotten how to rise.
+
+The cold is profound but survivable. Frost forms on eyelashes within minutes, but the bodies packed together generate enough warmth that bare hands remain functional. Condensation beads on the ice walls and occasionally drips—this is the water here, the slow weeping of the glacier's interior, collected in clay channels carved into the floor's edge, pooling in basins that have worn smooth over centuries of use. People drink from communal ladles. The water tastes of minerals and time.
+
+The vegetation shouldn't exist, but it does—and it's everywhere. Mosses carpet the wooden stalls in thick pelts of green and silver-gray. Lichens crust the stone counters in overlapping rosettes of orange and pale blue. Somewhere in the market's history, spores found their way in and discovered paradise: constant moisture, protection from wind, and the warmth of a hundred bodies maintaining temperatures just above freezing. Now the moss grows over everything, including merchandise left too long in place. Some of the oldest stalls have disappeared entirely beneath living mounds—their merchants still sitting within, visible only as shapes beneath the green.
+
+The fauna has adapted too. Pale moths the size of thumbnails drift through the luminous air, feeding on the moss, their wings patterned with eyespots that seem to watch. Small creatures like translucent shrimp colonize the water channels, growing fat on whatever the condensation carries down from the glacier's heart. The merchants' children keep them as pets in jars of ice-melt, pressing their faces to the clay to watch the creatures' visible organs pulse. Larger things move in the moss-mats themselves—you see the vegetation ripple sometimes, something tunneling beneath, but no one seems alarmed.
+
+What do they sell? Everything that fits in a space where nothing changes and nothing new arrives. Bone tools, antler needles, sinew thread—all of it hand-worked, all of it ancient in design. Preserved meats packed in rendered fat. Woven goods in undyed wool that has yellowed to ivory over generations of handling. Clay vessels shaped without wheels, each one bearing the thumbprints of its maker. Stone blades knapped so fine they seem to hold light within them.
+
+And stranger things. Ice-cores from deeper in the glacier, sold as medicine or oracle. Pressed mosses arranged in patterns that might be writing. Moth-wings assembled into images, glued with rendered fat onto thin-scraped hide. Small figurines carved from the teeth of animals that no longer exist outside, assuming they ever did.
+
+The people themselves have become suited to this place. They are small and compact, their skin pale from generations without true sunlight, their eyes adapted to the glacier-glow in ways that make them seem too wide, too bright. They dress in layered moss-felt and wool, garments that have been mended so many times the original fabric has been entirely replaced, thread by thread, while somehow remaining the same garment. Children are born here and grow old here and their bones join the sediment beneath the ice floor, and the market continues, has always continued, will always continue.
+
+Nothing changes in the Frozen Market. The same families have held the same stalls for longer than memory. The same goods circulate, repaired and remade and sold again. The ice above shifts by fractions of inches per century, the walls growing imperceptibly inward, and perhaps in a thousand years the space will finally close—but a thousand years is not soon, and the market has already lasted for longer than anyone can count, and there is no reason to believe it will not last forever.
+
+You can stay. You can wedge yourself into a gap between stalls no wider than your body and begin to trade. You can grow moss-furred and wide-eyed and forget the concept of weather.
+
+Or you can slide back through the crack and emerge into the screaming wind above, and never be entirely sure the market was real, except for the single bone needle you find in your pocket, worn smooth by ten thousand hands before yours.

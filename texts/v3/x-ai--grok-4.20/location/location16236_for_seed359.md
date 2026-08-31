@@ -1,0 +1,25 @@
+The place is called the **Lattice of Unfinished Prayer**.
+
+It is a sealed, self-contained world no larger than a modest cathedral, yet it feels infinitely deep because every surface contradicts the next. There is no water anywhere; thirst is simply not a concept that exists here. The air is warm, thick, and motionless, like the inside of a sealed kiln that has been left heating for centuries. Gravity is gentle and slightly variable, as though the entire structure is still deciding what “down” means.
+
+Everything is built. There never was a natural substrate. The ground, the walls, the air itself appear to have been grown or extruded from the same pale, bone-white mineral-ceramic that feels warm to the touch and faintly porous, like enormous fossilized coral. Every surface is covered in deliberate, obsessive craftwork executed with stone tools, shell chisels, and hardened sinew. The craftsmanship is both exquisite and abandoned mid-gesture; half-finished friezes, incomplete geometric inlays, and sentences in an unknown script that stop suddenly as if the carvers simply forgot to keep existing.
+
+The vegetation is lush in the only way possible without water: dense, fleshy, mineral-mimetic succulents the color of oxidized copper and dried blood. They do not grow so much as accrete, layering themselves in slow, waxy platelets that click softly against one another when the temperature shifts by a fraction of a degree over decades. Their “leaves” are scaled like armor and veined with metallic salts. They press against every wall, every pillar, every hanging lattice until the architecture and the vegetation are no longer distinguishable. In places the plants have grown into the shape of tools, thrones, or faces that were never meant to be there.
+
+Fauna is abundant but secretive. Most of the creatures are hexapod or radially symmetrical, the size of a hand or smaller, and colored exactly like the bone-white ceramic so they vanish the moment they stop moving. They move with extreme slowness, as if time itself has been watered down. A many-legged thing the color of ivory may take three days to cross from one side of a pillar to the other. Their carapaces are etched with the same incomplete glyphs as the walls, as though the creatures and the architecture are still being written by the same absent hand.
+
+The light is normal in brightness but not in source. It comes from no visible place. Instead the air itself luminesces, soft and shadowless, the way light remembers being after it has passed through milk-glass. Occasionally the light forgets its direction for a few hours and everything becomes directionless and flat; during those periods even sound seems to lose confidence.
+
+And the reality here is tired.
+
+The lattice is only a few thousand years old — geologically newborn — yet it is already falling into dream. Corners of rooms do not meet at expected angles. A corridor that should lead to the western wall instead opens, after a gentle curve that takes twenty minutes to walk, back into the same chamber you left. Vertical surfaces sometimes forget they are vertical; objects left on a ledge may be found an hour later resting on the ceiling directly above where they were placed, undisturbed. Echoes arrive before the sounds that make them. If you speak a word, the carved glyphs nearest your mouth rearrange themselves into an imperfect translation, then crumble into dust that never quite reaches the floor.
+
+The dominant sound is near-silence. A low, patient creaking, like wooden ships cooling after a long voyage, underlies everything. Every few weeks a single clear note rings out — pure, bell-like, and sourceless — then the silence returns, thicker than before. The creatures pause when it sounds, legs hovering, as if listening for instructions that never come.
+
+There are no horizons. The entire enclosed space is densely packed with pillars, hanging lattices, spiraling staircases that lead nowhere, and thickets of the coppery vegetation, all layered so tightly that line of sight dies after ten or twelve paces. Yet the mind insists the place is vast. Walk long enough in any direction and you will begin to find older, cruder versions of the same structures, as though the Lattice is remembering earlier drafts of itself and has not yet decided which version should be allowed to remain.
+
+Nothing here is in a hurry. Erosion has barely begun; every edge is still sharp, every carving still raw. The world is young, overbuilt, overcrowded, and already senile. It feels like a temple constructed by a god that began the project in a fit of ecstatic inspiration and then quietly stepped out for a moment some centuries ago, leaving the doors ajar and the creatures and plants to finish the work however they could.
+
+Sometimes, in the thickest thickets where the vegetation has fused with half-carved faces, you can hear the soft, dry scraping of new chisels working somewhere just out of sight. The sound is patient. It has all the time in the world.
+
+It has never been anywhere else.

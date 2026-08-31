@@ -1,0 +1,17 @@
+In the deep waters, the city has found its final form. Not drowned - that implies a catastrophe - but rather settled into its aquatic eternity, as if the engineers who designed it knew from the first blueprint that water would be its medium. The structures rise from the abyssal plain like the shells of ancient nautiloids, their surfaces smoothed by eons of current-flow into pure geometric curves.
+
+The loudness is constant: the deep resonant thrum of water moving through the city's arterial channels, designed to harness the ocean's eternal circulations. The sound carries for kilometers through the water, a bass note so persistent it seems more like pressure than noise. It mingles with the higher-pitched whine of the maintenance systems - swarms of microscopic machines that have kept the city's surfaces pristine for centuries, preventing even the smallest barnacle from taking hold.
+
+There is no conventional vegetation, but in certain areas, engineered crystalline structures grow in slow, fractal patterns. They capture minerals from the seawater, extending delicate lattices that glow with a cool, diffuse bioluminescence. The light they cast is functional rather than dramatic - enough to navigate by, but never bright enough to create true shadows.
+
+The city extends for many kilometers across the seabed, but its structures are widely spaced, with great swaths of bare sediment between them. The seafloor here has been worn so smooth by time that it appears almost polished, reflecting the dim light from above and the crystalline growths in subtle ways that make depth perception tricky - distances seem to shift depending on how you look at them.
+
+Most striking is the absolute stability of it all. Nothing truly moves except the water itself and the patient progress of the maintenance swarms. The city reached its optimal form long ago, and now simply persists. Even the sediment on the seabed remains undisturbed - the currents that move through here have been engineered to flow in perfect patterns that never cause erosion.
+
+The mechanisms that keep everything functioning operate at scales too small to see, but their presence is evident in subtle ways: the way water flow changes direction at precise intervals, the microscopic adjustments of the crystal gardens, the perpetual clarity of the water itself. The technology that makes all this possible feels less like machinery and more like a new set of physical laws operating in this space.
+
+At certain points, vast tanks of engineered bacteria convert the deep-sea pressure into energy, their metabolic processes perfectly regulated to maintain the city's systems without growth or decline. The tanks glow with a dull red light - the only warm color in an otherwise cool-toned landscape.
+
+There are no fish, no crabs, no drifting plankton. The city exists in perfect isolation, its boundaries marked by invisible fields that gently deflect any approaching sea life. The only movement is the eternal circulation of water, like a giant three-dimensional river system flowing through an urban canyon of curved metal and engineered crystal.
+
+The feeling is not one of abandonment, but of completion - as if this is exactly what the city was meant to be, achieving a kind of perfection in its solitude. It will likely remain this way until plate tectonics eventually shift the seabed itself, countless millions of years from now.

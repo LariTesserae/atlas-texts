@@ -1,0 +1,17 @@
+In the heart of a world that has long forgotten the taste of rain, there exists a place that is both vast and densely packed, a sprawling tableau of ancient history carved into the very terrain — a place called the **Stasis Expanse**.
+
+The terrain stretches out in a sprawling panorama of flat, dry mineral plains, reminiscent of an endless salt flat. The ground is a mosaic of hexagonal crystal formations, each the size of a human hand, interlocked and compacted by eons of pressure. These crystals, in shades of white, pale grey, and faint blue, barely reflect the normal light that casts uniformly from a distant, hazy sun. There is no true day or night here; just a perpetual, muted glow that seems to come from all directions, creating long, diffuse shadows that barely move.
+
+The air is cool, devoid of moisture, and thick with suspended particles — not dust, but something finer, like powdered glass. It shimmers faintly in the light, creating a subdued, almost underwater atmosphere. The silence is profound, broken only by the occasional soft click of crystal formations settling or the distant, eerie hum of unknown origin.
+
+Vegetation is sparse, taking the form of scattered, low-lying clumps of something not quite plant, not quite mineral. They are silicon-based life forms, resembling tangled webs of glass fibers, tinted a deep, smoky green. These "plant-analogues" grow at a glacial pace, their roots delving deep into the crystal plains to extract trace amounts of nutrients suspended in the non-aqueous fluids that flow like sap through the formations.
+
+Erosion has had its way with this world for an incalculable span of time. The wind, though gentle, has sculpted the landscape into a smooth, undulating flatness, broken only by isolated, ancient structures. These buildings — squat, rounded towers of stacked stone — are remnants of a forgotten civilization. They stand as silent sentinels, their once-sharp edges blunted by time, surfaces pitted and worn.
+
+The fauna is overwhelming, yet eerily harmonious with the environment. Giant, slow-moving creatures roam the plains, their forms reminiscent of terrestrial arthropods but on a titanic scale. Their bodies are translucent, revealing complex internal structures that pulse with bio-luminescent light. These behemoths move with a ponderous grace, their movements barely perceptible, leaving trails of faintly glowing fluid that slowly evaporates, adding to the air's shimmer.
+
+Yet, there is a weirdness that permeates everything. The rules of reality seem to flicker at the edges, like a dying flame. The crystals sometimes shift in ways that defy physics, flowing like liquid before solidifying again. The giant creatures occasionally blend into the landscape, their forms becoming semi-transparent before regaining solidity. And the distant hum sometimes resolves into whispered melodies that seem to carry meaning just beyond comprehension.
+
+These phenomena hint at a reality breakdown, as if the very fabric of the universe is worn thin here. This sensation is amplified by the dynamic stasis of the place — it feels as if time itself has grown weary, settling into a frozen equilibrium. There are no sudden changes, no violent storms or upheavals. Just the slow, inexorable dance of ancient forces playing out their final, endless act.
+
+The Stasis Expanse is a place of dense, quiet beauty, where the line between life and non-life blurs, and time seems to hold its breath. It is a testament to the eternal, a monument to the ancient, and a silent whispered secret of existence.

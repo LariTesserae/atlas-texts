@@ -1,0 +1,19 @@
+The Mountain City breathes steam. Not the organized pillars of industrial smokestacks, but a more organic respiration that seeps from every crevice and joint of the terraced metropolis. The moisture comes from below - vast underground reservoirs heated by the same forces that thrust these peaks skyward mere centuries ago.
+
+The city clings to the vertical faces in layers of cut stone and steel, following the natural ledges and expanding them into graceful curves of architecture. From a distance, it resembles a pale lichen growing in the folds of the mountain's dark rock. Up close, the streets reveal themselves as narrow galleries and stairways, many covered against the frequent mists that roll up from below.
+
+The buildings are tall but narrow, pressed close to the mountain as if for warmth. Their walls are thick stone at the base, transitioning to lighter materials as they rise - first brick, then steel and glass, with occasional copper domes gone green with verdigris. Bridges span the deeper gaps, some solid stone, others spidery frameworks of steel cable and wooden slats that sway in the constant winds.
+
+The air grows thinner as you ascend, but the city has adapted. Mechanical lifts, powered by steam engines in the lower levels, carry people and goods between the major terraces. The highest reaches, where the air is truly thin, are reserved for observatories and weather stations, their delicate instruments tracking the moods of wind and cloud.
+
+Despite the harsh environment - or perhaps because of it - life thrives here. Mountain goats pick their way along precipitous ledges, unbothered by the city's presence. Hawks nest in the higher towers, diving past windows in pursuit of the countless small mammals that have made homes in the city's walls. Even the buildings themselves host life: hardy mosses grow in the perpetually damp mortar, and small flowers bloom in window boxes, carefully tended against the cold.
+
+The sound of the city is subtle but constant - the whisper of steam, the creak of expansion joints, the distant clank of machinery. These mechanical rhythms mix with natural ones: the wind's moan through stone arches, the cry of birds, the occasional rumble of settling rock. During storms, when clouds engulf the middle heights, the upper city floats like an island in a gray sea, while below, lights bloom in windows and the streets grow quiet.
+
+Water is precious here, collected in cisterns from the frequent mists and occasional rains. Every building incorporates elaborate systems of gutters and pipes, feeding both the residential needs above and the industrial processes below. In the lower levels, where warm water wells up from the depths, there are public baths and washing stations, their walls slick with condensation.
+
+The city never sleeps, but it does pulse - with the daily cycle of warming and cooling, with the weekly rhythm of industrial schedules, with the seasonal shifts that bring different levels of moisture and wind. Its population moves through these rhythms like blood through veins, adapting to the mountain's moods with the ease of long practice.
+
+At any given moment, many parts of the city are quiet, even empty - a consequence of its vertical spread and the energy required to move between levels. But this emptiness is deceptive; behind the thick walls, life continues. Workshops hum, families gather, merchants trade. The city has found its balance between the demands of civilization and the realities of its precipitous perch.
+
+In the evenings, when the work-day ends in the lower levels, lights begin to climb the city's face like stars rising. The steam-breath of the mountain thins, and for a few hours, you can see the city entire - a lacework of light and shadow, neither fully natural nor completely artificial, as much a part of the mountain as the rock itself.

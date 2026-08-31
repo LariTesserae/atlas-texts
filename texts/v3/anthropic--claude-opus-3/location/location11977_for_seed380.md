@@ -1,0 +1,11 @@
+Deep beneath the surface lies a strange, cavernous city, carved into the living rock over centuries by the slow, patient drip of water. The air is cool and damp, filled with the soft plink of droplets falling from the weeping stone into shallow, still pools.
+
+Dim, bluish light filters down from bioluminescent lichen clinging to the cavern ceilings high above, casting long shadows across the tiered architecture. Squat, angular buildings hewn from the rock itself cluster along ledges and outcroppings, linked by bridges and cable cars that span the chasms. Steam pipes and electrical conduits snake along the cavern walls, powering ancient machines that still chug and hum with a slow, echoing rhythm.
+
+The denizens of this place are as strange as the city itself - pale, eyeless creatures adapted to the eternal twilight. Chittering swarms of cave-dwelling insects and small, ghostly fish fill the shadows and pools. Larger things, too, skitter in the distant darkness, always watching with sightless gazes.
+
+Fungi and lichen are the only vegetation, forming phosphorescent gardens in sheltered grottoes. Their eerie light reflects off damp flowstone and shimmers across underground lakes. The air tastes of minerals and wet stone, and sounds echo oddly, distorting and muffling.
+
+Time moves strangely here, marked only by the slow circadian shift in the city's wan illumination and the gradual accretion of chalky limestone formations. Stalactites and stalagmites, some fused into complete columns, stand like melted wax candles. Flowstone draperies ripple across the cavern walls in petrified cascades.
+
+There is a sense of deep age, the weight of geologic time. And yet the city endures, a hidden world thriving in the sunless depths, where the only seasons are the slow dance of water and stone. Life finds a way, even here, in forms utterly alien to the surface. It is a place both wondrous and unsettling, a testament to the tenacity of life and the endless mysteries still hidden in the deep places of the world.

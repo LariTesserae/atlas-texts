@@ -1,0 +1,23 @@
+# The Reservoir
+
+You are standing on a walkway, and that is the first strange thing — that there is a walkway at all, and that it is made of riveted steel, and that it extends in both directions until it disappears into distance. Below you, beside you, above you: water. Water in all directions, vast and still, the color of deep-teal glass.
+
+This is the Reservoir.
+
+Not a lake. Not a flooded cavern. This space was built — every surface you can see was fabricated, engineered, poured and bolted and welded into place. The curved walls of what might have been an overflow channel. The hexagonal tiling on a ceiling that arches so high it creates weather of its own: updrafts where the air warms, downdrafts where it cools, a slow circulation that the industrial lights participate in, drifting particles through the columned gloom.
+
+The water is cold. You can feel it in your chest. It sits at something like seven degrees, the chill pressing through your clothing, your skin, your ribs. It was meant to be an emergency measure, once — a containment space for floodwaters from some surface crisis centuries past. But the emergency never quite came, or it came differently than predicted, and so the Reservoir filled slowly, over decades, with water that seeped in from below and condensed from the air and collected in this vast underground nowhere.
+
+The erosion is young because the space is young — if you touch the walls, the steel is still bright under its patina, the mill scale still visible, the weld seams still sharp. But the water is patient, and the condensation gathers in rivulets that trace paths down to the waterline, leaving their slow mineral signatures on every surface.
+
+There are structures in the water: towers, platforms, what might have been processing equipment or housing units, now half-submerged. The towers rise thirty, forty meters, their lower stories drowned, their upper floors dry and cluttered with the debris of abandoned occupation. Old wiring hangs from junction boxes. Stairs climb to nowhere. A light drizzle falls from some high pipe that still leaks, catching the industrial light and throwing it sideways.
+
+Fauna: abundant, but not strange. Pigeons in the upper reaches, their cooing bouncing off the vaulted ceiling. Rats in the mid-levels, quick and shy. Below, in the water itself, shapes move — carp, mostly, pale and slow, pushing through water that is clear enough to see fifteen meters down but dark enough to hide what stirs deeper. Fishermen fish here. It is not legal, probably, but they come through the old service tunnels and sit on the walkways and lower their lines into the cold, and sometimes they pull up silver fish that taste of rust and nothing else.
+
+The light comes from fixtures spaced evenly across the ceiling — industrial sodium lights, orange and steady, the kind that doesn't flicker. They were meant to illuminate this space for maintenance crews, once. Now they illuminate the emptiness, the vast hollowed-out column of manufactured air that sits beneath the earth like a cathedral no one remembers building.
+
+Sound: loud. Not deafening, but present. The drip and echo of water finding its way down. The hum of pumps in the distance, still cycling, still moving water through channels designed to handle far more than is coming in. The mechanical heartbeat of a system still running on nothing, serving a purpose no one remembers. And beneath it, the silence of the water itself — heavy, pressurized, the sound of a vast volume of liquid at rest that does not want to be here, that was never meant to be here, that fills this constructed space with the patience of geology.
+
+The walkway beneath you is slick with condensation. The railings are cold. The water below is still, and deep, and it will be here long after the pumps fail and the lights go dark and the last fisherman packs his line and heads home through the dark.
+
+You are standing in a place that was built to never be used, and now it is full of water and birds and the slow sound of things that were made for one purpose doing another. The cold gets into you. The scale gets into you. This vast constructed underworld, this engineered void, this storage space for an emergency that never came — it is not haunted. It is not strange. It is simply too large for the life it contains, too big for its britches, a cathedral of nothing running on autopilot in the dark below everything else.

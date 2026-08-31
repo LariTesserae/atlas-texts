@@ -1,0 +1,25 @@
+## The Vertical Mire
+
+The first thing that arrives is the sound—not a sound, really, but a *pressure*. A constant, multi-tonal roar, like standing inside the throat of a planet. It is the sound of water, but water in every state at once. Here, at the edge of a shattered sky, in a place that should be arid and thin, water is the undeniable monarch.
+
+**The Stone Throat**
+The landscape is a colossal, tiered caldera, not of a single volcano, but of a dozen fused, ancient cones. The elevation is extreme, the rim of this basin lost in a perpetual, steaming haze. But the air is not thin; it is thick, wet, and fiercely hot. You breathe soup. The walls of the caldera are not bare rock, but weep continuously. Water, superheated by geothermal roots deep below, seeps from every pore, every fissure, every crack in the vast, settled basalt. It doesn't trickle; it *perspires*, running in slick, mineral-black sheets that feed endless, vertical gardens.
+
+**The Lush Climb**
+Vegetation here is a force of architecture. There are no trees as such, but great, interconnected mats of mosses and fleshy, crimson-leaved vines that drape the weeping walls like wet velvet. They form living, breathing shelves and terraces. Ferns with fronds like green lace erupt from every available ledge, their roots gripping stone that is perpetually slick. From these fern mats, long, hollow tendrils descend like plumbing, channeling the constant condensation and runoff down to the basin floor. It is dense, layered, and lush, but the growth is not chaotic. It is an ancient, settled system—a biological machine for catching and guiding water. Everything is adapted to the heat, the steam, and the mineral-rich deluge. Fungi, some the size of market stalls, glow with a faint, bioluminescent pulse, adding to the normal, hazy light that filters through the permanent steam-ceiling.
+
+**The City of Stone and Vine**
+For this is urban. Not built by hands, but *grown* and *shaped* by time, water, and an intelligence that is not human. The basin floor is a network of canals, not carved, but dissolved. The hot, flowing water has eaten the basalt into a lacework of channels, arches, and soaring, natural bridges. Upon this foundation, the vegetation has constructed a metropolis. The great moss-mats form plazas and rooftops. The fern forests are districts, their hollow stems creating tunnels and passages. Towering, pillar-like agave relatives, their surfaces crystallized with silica, stand like watchtowers, constantly dripping into collection pools below.
+
+There is no metal, no tool, no device. There is only the *organization*. The water flows with intent, following paths laid down over millennia. The growth responds, creating structures that funnel the steam, that shelter the delicate inner blooms from the full, roaring blast of the sound. It is a city of pure biology, operating on rules of hydraulics and phototropism, in a state of perfect, deafening equilibrium.
+
+**The Deafening Hush**
+The sound is inescapable. It is the hydrothermal roar of a million vents, the constant *hiss* of steam meeting cooler air, the *drip-drip-drip* amplified to a thunderous clockwork, the gurgle of a thousand canals. It is so loud it becomes a kind of silence, a white noise that erases individual thought. To speak is impossible. To hear a footstep is a miracle. Communication here must be something else—a gesture, a vibration felt through the wet stone, a change in the pattern of bioluminescent glow.
+
+**The Warped Reality**
+Here, at Weirdness 2.6, the place does not obey. The dense, wet air refracts light oddly. You look down a canal that seems to stretch for miles, only to find it loops back to your feet. The sound has a weight that seems to distort distance; a nearby waterfall can look a continent away. The water itself behaves strangely—it can cling to surfaces in defiance of gravity, flowing *up* the crystalline towers in thin, shining threads before evaporating into the roaring steam. Reflections in the countless pools show not your face, but the layered, vegetative architecture of the city from impossible angles. The ecosystem is so stable, so eternal in its form, that time itself seems to have settled; the changes are too slow to perceive, creating a frozen-equilibrium. Nothing decays faster than it grows. Nothing grows faster than it is dissolved and re-absorbed. It is a perfect, screaming loop.
+
+**The Absence**
+There is no animal life. Not a single insect, not a bird, not a bat. The ecosystem is complete without them. Pollination is by water, by steam, by gravity. Propagation is by runner, by spore, by the slow, relentless advance of the moss. The only "movement" is the flow of water and the imperceptible creep of growth. It is a world of profound, vegetative stillness, masked by the deafening song of its own metabolism.
+
+You stand on a spongy mat of crimson moss, the air burning your lungs with heat and moisture, the sound shaking your bones, looking out over a city that built itself, that waters itself, that thinks in hydraulics, and that will be here, exactly like this, roaring its wet, green silence, long after the stars cool.

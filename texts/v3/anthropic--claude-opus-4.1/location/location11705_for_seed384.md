@@ -1,0 +1,17 @@
+## The Drowning Works
+
+The industrial district sleeps beneath forty meters of black water, its smokestacks reaching up like the fingers of buried giants. Ice forms in delicate sheets where the surface meets the polar air, but down here in the twilight zone, the water maintains a sluggish, near-freezing flow that preserves everything in slow-motion decay.
+
+The factories crowd together, their brick and iron facades softened by decades of submersion. Algae grows in sparse, phosphorescent patches along the walls—pale green stars against the rust-dark surfaces. The structures lean into each other, connected by catwalks and pipes that create a dense three-dimensional maze. Windows gape empty, their glass long dissolved, creating passages for the current that moves through the district like breath through a mechanical lung.
+
+Strange adaptations have emerged. The old pneumatic tube system still functions, somehow sealed and pressurized, carrying messages between buildings in brass capsules that click and hiss through the water. Steam vents, fed by geothermal breaks in the seafloor that opened during the drowning, release columns of bubbles that rise in perfect silence toward the distant surface. These warm currents have created micro-environments where peculiar kelps grow in careful gardens, tended by automated systems that still respond to their original programming—pruning, fertilizing, maintaining perfect industrial rows in the abyssal pressure.
+
+The machinery continues its work, though transformed. Turbines turn with glacial slowness, powered by the current flowing between the buildings. Assembly lines have become sorting systems for sediment, separating materials by density with mechanical precision. The old clock tower still keeps time, its hands moving through water instead of air, marking hours that no longer matter to anyone but the building itself.
+
+In the foundry district, the furnaces glow with bioluminescent colonies that have learned to mimic the temperature patterns of molten metal. They pulse in sequence, following the rhythm of production shifts that ended sixty years ago. The light barely penetrates the murky water—just enough to reveal the next building, the next passage, the next slowly-turning gear.
+
+Occasionally, something moves between the structures. Not quite fish, not quite machine—hybridized things that might have been maintenance robots once, now grown soft shells and trailing appendages. They navigate by echolocation that sounds like typing, like adding machines, like the ghost of commerce. But mostly, there is only the deep quiet: the sub-audible groaning of metal under pressure, the whisper of current through corridors, the occasional ping of contracting steel.
+
+The city center rises slightly on its original hill, though "elevation" means little here. The town hall's cupola, green with verdigris, marks the highest point—still thirty meters below the ice ceiling. Around it, the administrative buildings cluster like courtiers, their neo-classical facades draped in chains of colonial hydroids that pulse with peristaltic motion, feeding on the microscopic debris that rains constantly from above.
+
+This is a place of patient transformation. The industrial age refuses to end, merely changes state. Production continues but produces nothing recognizable. The infrastructure persists, its purpose shifted from human use to something else—a city dreaming its own existence in the cold dark, its dense machinery becoming ecosystem, its silence deeper than any absence of sound.

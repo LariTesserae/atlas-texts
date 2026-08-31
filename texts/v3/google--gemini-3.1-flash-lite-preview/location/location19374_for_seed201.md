@@ -1,0 +1,15 @@
+The horizon does not exist here. Instead, there is only the vertiginous plummet of the white, jagged rock, and the terrifying, brilliant reach of the sky above. You are standing on a needle-thin spur of slate-colored stone, part of an impossible spire that tears through the thin atmosphere like a splinter.
+
+Everything is sharp. This is a mountain range that has not yet learned how to be old; the cliffs are jagged, unfinished, and raw, shedding fine grit that clatters down into the miles-deep abyss below. The temperature is a biting, persistent freeze that stings the lungs, yet the sunlight is blinding—a relentless, shimmering glare reflecting off permanent ice-crusts tucked into the mountain’s crevices. It is a place of profound light and absolute stillness.
+
+Because the air is so thin, the environment feels hollow, as if the massive, desolate space between the peaks sucks the life out of the sound. You might hear the crisp *snap* of your own movement, or the rhythmic, sharp whistle of the wind against the rock, but there is no echo. The silence here is a physical weight, cold and pressurized.
+
+Despite the desolation, the rock is surprisingly alive. Where the mountain creates a ledge or a sheltered pocket, the cold has not prevented a strange, aggressive kind of lushness. Thick mats of violet moss bloom in the condensation-slicked cracks, and hardy, succulent-like vines—pale as bone—cling to the vertical faces, drinking the brief, swirling mists that roll through the chasms.
+
+In the center of this specific, cathedral-sized bowl of rock, sit the ruins: a small, circular enclosure constructed from stacked, unmortared mica-slate. It is a primitive hut, no larger than a room, its roof long since collapsed under the weight of an ancient, frozen blizzard. Inside, a single, hand-carved basin of obsidian sits perfectly dry, surrounded by a scatter of dried, translucent berries—the cache of some mountain-dwelling creature.
+
+This is a world of busy, rhythmic biology. Tiny, multi-winged insects, vibrant and iridescent, pulse in the light, moving in frantic, short bursts between the moss patches. High above, avian shadows flicker—creatures with wingspans far too wide for the thin air, masters of the updrafts. They don't call; they simply glide, shadows slipping over the bright, unforgiving stone like ink on glass.
+
+The dynamics are quick and harsh. Every hour, a veil of ice-fog rises from the deep valleys, turning the world into a dream of white, dampening the light into a soft, glowing pearlescence. Then, as quickly as it arrived, the fog tears away under the pressure of the mountain gale, leaving the rocks sparkling with a fresh coat of crystalline rime. 
+
+It is a place where you feel invisible, a temporary intruder in a landscape that is still busy inventing its own geology. The scale is intimate—a single room—but you are perched on the edge of a void that makes that intimacy feel like a fragile, desperate sanctuary. Nothing here stays the same for long, yet everything remains perfectly, coldly frozen in its own becoming.

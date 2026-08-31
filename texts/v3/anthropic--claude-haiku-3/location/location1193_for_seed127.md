@@ -1,0 +1,11 @@
+A vast, submerged world of boundless liquid stretches out in all directions. The water is not the crystal-clear blue of surface oceans, but a deep, murky green-gray, almost opaque, as if the very substance of the sea has thickened and grown viscous over time. Currents and eddies swirl through this primal soup, creating a constant, undulating motion that seems to pulse with a primordial heartbeat.
+
+The sparse vegetation that clings to existence here is unlike any surface flora. Long, ribbon-like fronds sway gently in the underwater currents, their translucent leaves pulsing with an eerie bioluminescence. Occasionally, a dense cluster of these alien plants will rise up from the seafloor, forming towering, tangled "forests" that loom out of the gloom.
+
+The temperature is warm, but not uncomfortably so – a steady, enveloping warmth that seeps into the bones. This is a world that has reached a state of equilibrium, where the processes of erosion and deposition have achieved a delicate balance over eons. The seafloor is smooth and undulating, sculpted by the relentless flow of water, without sharp peaks or jagged chasms.
+
+The scale of this submerged landscape is immense, stretching out far beyond the range of vision. Occasionally, the silhouette of a distant mountain or submerged plateau will loom up out of the murk, a reminder of the vastness of this sunken realm. Yet, despite this expansiveness, the overall impression is one of emptiness – the water is sparsely populated, with only occasional glimpses of life darting through the gloom.
+
+The signs of human presence are few and faint. Scattered ruins of long-abandoned structures dot the seafloor, their angular forms softened by eons of submersion. Rusting machinery and the occasional glint of metal hint at an ancient, industrial past – a civilization that once thrived here before being reclaimed by the sea.
+
+The dominant sounds are the eerie, muffled groans and creaks of the underwater environment – the slow, relentless shifting of tectonic plates, the grinding of sediment, the call of unseen creatures. Occasionally, a deep, resonant thrum will reverberate through the water, the source obscured and unfamiliar. This is a world alive with strange, alien energies, where the rules of the surface no longer apply.

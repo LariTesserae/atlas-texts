@@ -1,0 +1,29 @@
+The chasm is called the Solder-Splay, though those who live within its throat simply refer to it as the Flue. 
+
+It is a vertical split in the high, dry tablelands—an elevation so extreme that the air at the top is thin enough to make the temples throb, while the bottom of the split is lost in a cold, blue-black twilight. It is not a wide canyon; at its broadest, a strong-armed person could fling a lead sinker across to the opposite cliff. In most places, the gap is so narrow that the iron suspended-ways and cable-bridges are shorter than a carriage-lead. 
+
+Here, the world does not go left or right; it goes up into the thin, frozen sky, or down into the dense, pressurized dark.
+
+There is no water. The Solder-Splay is dry with a desiccated, chemical intensity. Instead of streams or trickling falls, the cliff faces are stained with long, frozen runnels of dark machine grease and heavy, non-aqueous mineral oils that smell faintly of bitter almonds and rancid fat. These black lubricants do not evaporate; they cling to the stone, catching the fine, grey dust that drifts down from the upper plateaus. The air is cool—not freezing, but carrying the sharp, dry chill of a cellar that has been left open to a autumn night. It tastes of iron filings, graphite, and coal-smoke.
+
+Because the rift is young, the stone has no softness. The walls are sheer, razor-sharp shears of obsidian and dark, vitreous basalt, unmarred by the softening touch of rain or river-flow. The edges of the rock shelves are as sharp as fresh-broken bottle glass. There are no trees, no weeds, nor even the simplest green moss. Instead, the stone is colonized by "rust-bloom"—a dry, crustose mineral deposit that mimics lichen, spreading in flat, orange-red rings that smell of pennies when scraped with a boot.
+
+Within this narrow, vertical pocket, an entire city is suspended.
+
+It is a settlement of frantic, layered density. Thousands of tiny, zinc-sheeted huts and iron-framed cabins are bolted directly into the basalt cliffs, stacked one atop another like the cells of a paper wasp nest. Shaftways, brass ladder-runs, and counterweighted lift-platforms fill the remaining space, weaving through an intricate maze of spinning copper lines and iron support rods. Every square inch of the gap is occupied. If you stand on one of the swaying mesh footways, you can look down through the metal grating beneath your boots and see fifty tiers of dwellings, each lit from within by the dull, orange glow of low-output vacuum tubes and grease-lanterns.
+
+The technology here is loud but muffled by the dry, heavy air. It is a world of small, busy machines: clockwork regulators that click like death-watch beetles, small pneumatic pistons that hiss as they release dry nitrogen gas, and tiny, soot-blackened boilers that run on cakes of pressed shale. There is a constant, frantic industry, but it does not roar; it hums, clicks, and wheezes. 
+
+The people who live here—small, pale-skinned, with eyes wide and dark from the constant gloom—move with a quiet, efficient speed. They do not speak loudly; the acoustics of the narrow stone slot are too sharp, and a shout might cause the suspended lanes to vibrate in dangerous harmony. Instead, they communicate in a language of hand-signs and low, whistled clicks.
+
+They are not alone in the dark. The Solder-Splay is alive with a frantic, dry-adapted ecology of crawling things. Small, blind "grease-ticks" with bodies like polished hematite swarm over the iron suspension cables, feeding on the tallow used to grease the pulleys. They move in silent, undulating sheets, their tiny claws making a sound like dry rice falling on paper. Higher up, on the shelves of sharp basalt, "wall-gliders"—leathery, grey-skinned creatures with no eyes and long, prehensile toes—cling to the rock, waiting to drop onto the wind-blown detritus that falls from the surface. They do not chirp or cry; they only hiss, a dry *shhh* that sounds like a silk skirt dragging across stone.
+
+Despite the quiet, the Flue is a place of restless, turbulent instability. 
+
+The young canyon is still settling. The earth here does not rest; every few hours, the basalt walls groan with a deep, subsonic shudder that vibrates through the iron soles of your boots. When the stone shifts, the tension on the miles of wire cable changes instantly. A cable that was slack becomes bar-tight in a second, singing with a high, dangerous whine; another cable elsewhere goes limp. 
+
+Because of this, the city must be constantly, frantically rebuilt and adjusted. There are crews of "tensioners" who spend their lives clambering over the outside of the copper conduits and zinc huts, frantically turning turnbuckles, loosening winches, and shifting the counterweights to prevent the houses from being crushed or torn off their brackets by the moving stone. 
+
+It is an unending game of mechanical cat's-cradle. A sector of twenty homes will slide six inches to the left to avoid a new bulge in the obsidian wall; a miniature coal-loading platform will be dismantled in minutes and reassembled thirty feet lower because a cable has snapped. The city behaves like a living, metallic slime-mold, constantly shape-shifting, sliding, and reorganizing itself within the crack to stay ahead of the pressure.
+
+At the lowest visible level of the Solder-Splay, where the dim orange light of the lanterns finally fails to penetrate, the darkness is absolute. There is only the distant, dry *tock-tock-tock* of a deep-well pump, sucking up the heavy mineral oils from the throat of the rift, and the endless, silent drift of grey soot falling through the iron beams, down into the drafty abyss.

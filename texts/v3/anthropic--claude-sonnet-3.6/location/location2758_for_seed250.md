@@ -1,0 +1,13 @@
+A tight hollow in the mountains, where the granite walls lean inward like cupped hands. The space is no wider than a country chapel, though the walls stretch up dizzyingly high, their tops lost in a perpetual cap of mist. Water seeps constantly from the rock faces, not in streams but in a continuous wet sheen that catches what little light filters down, making the walls glimmer like the inside of an abalone shell.
+
+The cold is absolute and unchanging. Ice forms in delicate crystalline patterns at the edges of things, but never advances or retreats - a perfect equilibrium between the seeping water and the chill air. The floor is a maze of small pools, their surfaces utterly still, reflecting the walls and mist like mirrors.
+
+What makes this place extraordinary is the birds. They pack the walls in impossible numbers, nesting in every crack and crevice, their bodies pressed together in dense, living tapestries. They are small, no larger than sparrows, with feathers in subtle variations of slate and smoke that match the wet stone. Their nests, made of mud and their own saliva, blend seamlessly into the rock face, as if they grew there naturally.
+
+The sound is overwhelming. The hollow acts like an amphitheater, amplifying and concentrating the birds' calls until they become a physical presence, a wall of sound that vibrates in the chest and echoes off the stone. The birds never sleep, never pause their crying. They have called like this since the mountain rose from the earth, and will call until it crumbles.
+
+The few plants that manage to survive here are strange, stunted things that grow sideways out of the rock face. Their leaves are nearly translucent, adapted to the dim light, and they survive by catching the water that constantly seeps from the stone. They remain exactly as they are, neither growing nor dying, locked in the same eternal moment as everything else in this place.
+
+The air is thick with condensation and the breath of thousands of birds, creating a perpetual fog that hovers at head-height, neither rising nor falling. This mist catches and holds the birds' calls, making them seem to come from everywhere and nowhere at once.
+
+There is something almost sacred about the unchanging nature of this place - as if it exists in a single, eternal moment, a pocket of time that forgot to move forward. The birds never leave, the water never stops seeping, the ice never advances, the plants never grow. It is a place of perfect, eternal stasis, filled to bursting with life that has found its exact place and refuses to shift from it.

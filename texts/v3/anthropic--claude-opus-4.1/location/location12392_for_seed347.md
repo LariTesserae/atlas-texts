@@ -1,0 +1,23 @@
+## The Sunken Gardens of Thale
+
+You descend through a rent in the earth where the limestone gave way three winters past. The collapse revealed what the miners now avoid—a vast cavern system transformed into something neither wholly natural nor entirely built, though no tools touched these formations.
+
+Water seeps everywhere. It beads on the cavern ceiling forty feet above, gathering into fat drops that fall with soft percussion onto the city below. Yes, city—though not one carved by conscious hands. The limestone dissolution created a honeycomb of chambers and galleries, each flowing into the next through arched passages that seem almost deliberate. Mineral deposits have built themselves into terraces, balconies, and what could only be called streets: raised walkways of flowstone that wind between the pools.
+
+The pools dominate everything. Thousands of them, from palm-sized basins to small lakes, fill every depression. Each one brims with water so supersaturated with minerals that stone grows from it like frost. Rim-stones build upward month by month, creating nested terraces. Some pools have grown tall enough to merge with stalactites, forming columns that divide spaces into rooms, halls, corridors. The architecture is dense, packed—you cannot walk ten feet without encountering another pool, another partition, another dripping gallery.
+
+And in this water, the garden thrives.
+
+Pale rootlets dangle from cracks in the ceiling, drawing moisture from the air itself. Where they touch the pools, they explode into underwater forests of translucent fronds. These ghost plants need no sun—they feed on minerals and the faint warmth from below. Mushrooms carpet every dry surface in stepped battalions: pearl-white brackets ascending the columns, blue-gilled cups clustering around pool edges, and tiny crimson dots that pulse faintly in the darker corners. Thick mats of cave moss hang like curtains between chambers, so dense with moisture they drip constantly, adding their whisper to the ambient sound of water finding water.
+
+The cold keeps everything slow but thriving. Your breath mists in the 45-degree air, but the vegetation grows with patient intensity. Ferns unfurl from crevices with prehistoric languidness. Pale vines twist around flowstone formations, their growth measured in years but relentless. Some have grown so thick they've become structural, supporting walking paths between levels.
+
+Life moves through this sunken world. Blind cave fish ghost through the deeper pools, their populations so dense the water seems to shimmer with them. Albino crayfish scuttle along the pool edges, their clicks and scrapes providing tiny punctuation to the water sounds. Bats—tens of thousands of them—cluster in the higher vaults during daylight hours. Cave crickets carpet certain walls so thickly they look like breathing surfaces. Salamanders, pale as milk, slide between wet stones.
+
+The space extends far beyond what any light source can reveal. Galleries open onto galleries. The sound of dripping water echoes from distances impossible to judge. Sometimes you hear larger water movements—underground streams feeding the pools, or water falling into depths that must exist below this level. The cavern system could hold a town, and in its way, it has built one: a settlement made of stone and water and patient accumulation, where every surface serves some function in the endless circulation of moisture and minerals.
+
+Light filters down through the original collapse and a few other ceiling cracks—enough to see by in the main galleries, enough for the ghost plants to photosynthesize their weak chlorophyll. But most of the garden exists in permanent twilight, a blue-green dimness where shapes emerge slowly and distance becomes uncertain.
+
+The newest formations show the system's youth. Flowstone curtains still have sharp edges. The pools still actively build their rims. Stalactites grow visibly from year to year. This place emerged recently in geological time—perhaps the limestone void existed for millennia, but the collapse that brought in water and spores and seeds happened within living memory. The ecosystem builds itself daily, each drip adding to the architecture, each spore finding its niche in the packed spaces between water and stone.
+
+You walk the raised paths between pools, following routes that seem designed but weren't. Your footsteps make almost no sound—the water swallows echoes even as it creates them. The air tastes of minerals and green growth. Sometimes a bat flickers past. Sometimes a salamander slips into a pool with the faintest splash. Otherwise, there is only the patient sound of water building a world, one drop at a time, in the cold, packed darkness below the earth.

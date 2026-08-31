@@ -1,0 +1,11 @@
+In this subterranean world, the air is thick with the scent of damp earth and the distant thrum of machinery. The walls, floor, and ceiling are all covered in a dense mat of lush, green vegetation, like a moss-covered jungle. Water seeps from the rocks, creating small, shimmering pools and streams that wind through the space.
+
+The temperature is warm and humid, with a mist that clings to every surface. The rocks have been worn smooth by the constant moisture, and the sound of dripping water echoes through the space. The vegetation is so dense that it's hard to see more than a few feet in front of you, and the dim light that filters in from somewhere above only makes the shadows seem deeper.
+
+Despite the natural setting, the space is clearly built, with the walls and floors made of rough-hewn stone blocks. The sound of machinery grows louder as you move deeper into the space, and you start to see glimpses of old, industrial equipment - pipes, gears, and pulleys - half-hidden in the vegetation.
+
+As you explore, you start to notice that the vegetation isn't just covering the walls and floor - it's also growing up the equipment, wrapping itself around pipes and gears like a slow-moving vine. The machines seem to have been abandoned for a long time, but they're still intact, and the sound of dripping water and creaking metal creates a constant, soothing background noise.
+
+Despite the feeling of age and abandonment, the space feels strangely vibrant, as if the vegetation is slowly reclaiming it, pulling it back into the natural world. The air is thick with the scent of growth and decay, and the mist that clings to everything seems to be slowly dissolving the boundaries between the built and the natural.
+
+The scale of the space is small, but it feels vast, partly because of the density of the vegetation, and partly because of the way the sound echoes off the stone walls. The whole space feels like it's been wrapped in a damp, green blanket, and it's impossible to shake the feeling that you're not alone, even though you can't see any signs of life.

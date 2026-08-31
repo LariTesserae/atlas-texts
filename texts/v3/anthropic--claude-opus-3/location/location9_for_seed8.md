@@ -1,0 +1,11 @@
+In a low-lying basin, an ancient marsh stretches out in all directions, its expanse broken only by scattered islands of hardy vegetation rising from the shallows. The landscape has a primeval feel, worn smooth by eons of erosion until only the barest undulations remain in the soft, saturated earth.
+
+Shallow, tea-colored water covers much of the ground, forming a vast, linked network of pools and channels. In places, the water runs clear enough to see through to the silty bottom, while in others, it's opaque with suspended sediment and organic matter. The water's surface is almost perfectly still, disturbed only by the occasional ripple from a falling leaf or surfacing bubble.
+
+Scattered across this wetland are hummocks of land, some barely large enough to support a single tree, others rising into modest hills crowned with clumps of vegetation. These islands host gnarled, bonsai-like trees with dense canopies, their roots spreading out into the water like tentacles. Beneath the trees, lush ferns and mosses carpet the ground, thriving in the damp, shaded conditions.
+
+The air is warm and heavy with humidity, and the scent of decay and growth intermingled. Swarms of insects dance above the water—dragonflies, damselflies, and mosquitoes—while frogs and toads sing their rhythmic choruses from hidden perches. Birds, too, are abundant, from wading birds stalking through the shallows to songbirds flitting between the trees.
+
+As the day progresses, the quality of light shifts over the wetland. Morning mist rises from the water's surface, diffusing the early light into a soft glow. As the sun climbs higher, it burns through the haze, casting hard shadows and making the water sparkle. In the evening, the low sun paints the landscape in shades of gold and copper, setting the western edges of the islands ablaze with color.
+
+Despite the abundance of life, there's a sense of timelessness and solitude here. With no sign of human influence, the ancient marsh feels like a window into the distant past, a landscape that has endured for millennia and will likely persist long into the future, changing only at the pace of geological time.

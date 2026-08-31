@@ -1,0 +1,15 @@
+The deep has grown ancient here, a watery realm that has settled into a timeless quiet beneath layers of primordial gloom. Imagine descending into a space submerged so completely it blurs the line between ocean and atmosphere. Cold currents wash over you, pushing and pulling in restless, swirling eddies. It is turbulent but strangely quiet—whispers of motion rather than roaring chaos, as if the waters speak in hushed tones, protecting a secret too old to be voiced loudly.
+
+The terrain is submerged, but not in the conventional sense. It is an endless, densely-packed bed of stone and sediment, crushed under unfathomable weight, eroded over eons until every sharp feature has surrendered into gentle contours. All that remains are hills that undulate lazily, worn smooth, their shapes telling stories of a vanished age when land still pushed proudly above the waves.
+
+Life here is sparse and tenacious. Rare patches of vegetation cling to existence, sparse kelp forests or ribbon-like algae weaving thinly through the darkness, stretching upward as though yearning for lost sunlight. Their hues, washed-out greens and muted blues, seem drained by eternal twilight. Occasionally, an ancient coral mound stands alone, faded and ghostly white, a skeletal memory of vibrant reefs now forever silent.
+
+Fauna, too, is sparse and wary. Few creatures roam openly. Shadows flicker occasionally—a solitary eel weaving patiently through the tight passages between stone, a bioluminescent shrimp blinking faintly in rhythmic solitude. Life moves gently and furtively, conserving precious energy in this cold, densely compressed place.
+
+Despite its quiet, the environment is intensely dynamic. Subtle but relentless, the water churns, eroding and rearranging grains of sand and stone with infinite patience. Occasionally, this energy manifests as sudden, localized turbulence—a brief, swirling storm in miniature, the result of unseen forces deep below or high above, the whole system bound together in a delicate, ever-shifting balance.
+
+There are no constructed signs of civilization here. No artifacts or tools beyond the simplest forms—perhaps a scattered fragment of polished shell, a single chipped stone blade lodged between rocks, left behind by an ancient visitor whose name and tribe have long faded from memory. Even these remnants are rare, a mere whisper of once-upon-a-time humanity whose presence vanished quickly, overwhelmed by the relentless weight of water and time.
+
+In the dimness, darkness reigns supreme, punctuated only occasionally by pale, faint glimmers of bioluminescence. These specks of ghostly light provide momentary glimpses into the dense tapestry of shadows. Sound, like the light, is reduced to murmurs—the gentle brushing of currents against stone, the occasional click or muted echo of movement, and perhaps the distant, rare call of something larger and older, deeper still.
+
+This is a world fully submerged, ancient yet turbulent, densely packed yet eerily quiet—a realm shaped not by creatures or constructions but by endless cycles of erosion and renewal, a solemn hymn whispered by the ocean itself.

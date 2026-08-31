@@ -1,0 +1,45 @@
+The place is a chamber beneath the earth, but not an old one.
+
+Its walls are fresh-cut and sharp, still carrying the pale, bruised colors of whatever pressure broke them open: gray stone veined with rust, black seams slick with condensation, shelves of newly exposed mineral that have not yet dulled under air and handling. The chamber is not large enough to be called a district. It is a single industrial room, perhaps the size of a railway station concourse, though its ceiling is lower and its boundaries more immediate. Every surface is occupied.
+
+Buildings have been fitted into the excavation rather than raised upon it. Narrow steel walkways cross one another at several levels. Pipes climb the walls in bundled ranks, bend around protrusions, vanish into drilled shafts, and reappear from the floor. Tanks stand shoulder to shoulder in the available recesses. Their skins are flaking with heat, painted numbers, warning bands, and mineral residue. Some are no larger than barrels; others fill whole alcoves. Between them, valves and pressure wheels form dense mechanical thickets.
+
+There is no open street, no horizon, no clear central space. Movement has been divided into channels: a stair here, a service bridge there, a crawlspace beneath a rack of conduits. The infrastructure has the compactness of a machine built inside a coffin. People might once have worked here, but no people remain. The place has continued without them.
+
+Heat rises from below, though there is nowhere for it to go. The lower floor is a dark sheet of stone broken by grates, sump mouths, and shallow channels. Water appears in brief, purposeful events. It condenses on the ceiling until droplets gather into trembling chains, then falls all at once in narrow curtains. Somewhere beneath the floor, a hidden reservoir periodically swells and pushes warm water through cracks. The flow lasts several minutes, sometimes less, then retreats, leaving wet mineral fans and shining black patches behind.
+
+The dampness is not enough to soften the heat. It makes the air close and metallic. The chamber breathes in pulses. Hot vapor leaks from seams in the machinery, briefly whitening the dimness before thinning into a greasy haze. Condensation beads on the pipes, collects dust, and runs in fine dark trails. Rust blooms wherever dissimilar metals touch. Salt-like deposits have formed around bolts and joints in delicate, brittle ridges.
+
+Light comes from the machinery itself. A few inspection lamps burn behind yellow cages, their bulbs filmed with grime. Indicator panels blink at long, uneven intervals. Some lamps have failed, leaving entire recesses occupied only by the dull red glow of heating elements and the intermittent blue flash of electrical arcs. Moisture makes halos around every source. The farthest walls are not black so much as unresolved—planes of stone and machinery that the eye can almost, but never quite, assemble.
+
+The sound is mostly low and continuous. Pumps turn behind the walls with a heavy, submerged rhythm. Fans rotate slowly, stirring hot air through vents. A relay clicks, waits, clicks again. Water ticks from an overhead flange into a metal basin, each drop separated by enough silence to become an event. Now and then a pressure line gives a short, violent shudder, and the whole room answers with a brief tremor of resonant metal.
+
+Nothing here makes an animal sound. There are no insects in the drains, no nesting birds in the beams, no unseen movement among the pipes. Even the organic growth is scarce. In a few cooler seams, thin mats of pale mineral-colored lichen cling to the stone, more like a stain than a plant. They occur in precise islands around condensation points, their growth measured not in leaves but in branching crusts. Near one exhaust duct, a small stand of translucent stalks has emerged from a crack. They are warm to the touch and leafless, with tips that open and close in response to pressure changes. They may be plants, or they may only resemble plants because the chamber has taught all things to grow like machinery.
+
+The most active life in the room belongs to processes.
+
+A new fracture advances through the ceiling by fractions of an inch whenever the deep water rises. It is not a dramatic collapse, only a spreading angular line, white at its edges where stone has recently broken. Fresh rubble lies beneath it, still too sharp to have been worn smooth. Some pieces have been collected in numbered bins, as though the formation of the chamber itself is being catalogued. Others remain where they fell, wedged between pipes or resting on the walkways.
+
+The excavation is young, and the machinery is young with it. Welds are bright and unfinished. Temporary braces have not yet been replaced by permanent supports. Survey marks and construction paint remain visible beneath soot. A whole section of the western wall has been sealed with a thin concrete facing that is already cracking from the heat. Beyond it, something presses occasionally—not with intention, but with the steady force of earth, water, and expanding stone.
+
+The industrial systems have been designed to regulate the underground environment: drain it, cool it, ventilate it, extract something from it. But the chamber is too hot, too wet, and too recently opened for control to be complete. Every system is compensating for another. Pumps remove water; their waste heat feeds the vapor. Fans clear vapor; the moving air accelerates drying and cracking. Cooling lines condense more water on the walls. Electrical panels trip in the damp and restart when the metal warms. A sequence of corrections moves endlessly through the room.
+
+There are rules here, though they are physical rather than written.
+
+Water always gathers in the same places, even when the floor appears level. Heat travels through the pipes faster than sound. Fresh stone is pale for only a short time before turning the color of old blood. Any object left unattended on the lower grates will eventually be coated in a thin white film. The lamps dim whenever the hidden reservoir fills. During those intervals, the machinery becomes almost silent—not because it stops, but because the air itself seems to thicken around the sound.
+
+At the center of the chamber stands the largest structure: a vertical extraction column encased in ribbed steel. It rises nearly to the ceiling and descends through a circular opening in the floor. Its lower half is wet, its upper half dry and feverishly hot. A narrow ladder wraps around it, disappearing into vapor. Small windows set into the casing reveal no interior, only a slow amber illumination that passes upward in waves.
+
+Around the column, the floor has been worn into a clean ring by repeated maintenance. Beyond that ring, the chamber is crowded and irregular. Cable bundles sag between junction boxes. A rail-mounted crane rests above a bank of sealed containers. The containers are marked with dates that are recent, but not consistent. Some carry frost despite the heat. Some are warm. One has been opened and resealed from the inside.
+
+The room does not feel abandoned so much as unoccupied. It has retained its purpose without retaining its users. The pumps continue to empty the chamber. The vents continue to breathe. The gauges continue to measure pressures that no one reads. Somewhere in the dense arrangement of pipes, a mechanism periodically changes configuration with a sequence of deliberate clanks, redirecting water or heat toward a region that may no longer exist.
+
+Beyond the chamber, there are no visible passages except three.
+
+One is a low maintenance tunnel, flooded ankle-deep with warm, clear water that reflects the emergency lights. It ends after a short distance at a smooth wall of newly formed stone.
+
+One is a stairwell descending through raw rock. The steps are unfinished, each one cut at a slightly different height. Heat intensifies below it. The air emerging from the stairwell smells faintly of wet iron and something mineral, almost sweet.
+
+The third leads upward through a hatch sealed with multiple layers of paint. It is the only place where the chamber’s heat does not seem to reach. Condensation gathers there in cold beads, and the metal around the hinges has begun to pale. The hatch has no handle on this side, only a recessed circular mark, as if it expects a key, a hand, or a pressure that has not yet occurred.
+
+Within its small boundary, the place is saturated: stone under machinery, machinery under vapor, water under heat, fresh fracture under every load-bearing surface. It is a settlement without inhabitants, a workshop built inside a wound in the earth. Quiet does not mean stillness here. The room is always adjusting itself—draining, cracking, condensing, warming, shedding dust, restarting—slowly constructing the conditions of its own alteration.

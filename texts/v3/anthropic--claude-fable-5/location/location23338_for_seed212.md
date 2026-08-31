@@ -1,0 +1,37 @@
+# The Green Roar
+
+There is a valley, low and warm, where the land never finished deciding what it was — and into that indecision, the plants moved, and kept moving, and are moving still.
+
+Call it a city, because it has the shape of one. Boulevards run between facades. There are plazas, arcades, things that read unmistakably as towers, as bridges, as amphitheaters. But nothing here was ever built. No hand cut a stone; no tool has ever touched this place. The city is a single behavior of vegetation — a green mass that grows in the *grammar* of architecture without ever having learned it from anyone. Columns of braided trunk erupt from the valley floor and fountain outward into vaulted canopies. Walls of layered leaf, broad as sails and stacked like shingles, rise in courses, complete with the suggestion of windows — openings the foliage simply refuses to fill, holding the void the way a mouth holds a word it won't say.
+
+And it is *loud*. That is the first thing, before the shapes, before the green: the sound. The valley roars.
+
+## The Sound
+
+Growth at this speed is not silent. Every trunk going up is a long groan of stressed fiber, a cello note dragged past its breaking point. Bark splits in percussive cracks, gunshot-sharp, dozens a minute, near and far, so that the air is never without its rolling fusillade. Beneath that, lower than hearing almost, is the sap — millions of vessels under pressure, a hydraulic thunder you feel in the sternum, the sound of an ocean being pumped uphill through a forest's worth of throats. Pods detonate. Whole facades of leaves unfurl at once with a sound like a crowd standing up. When a tower-growth overreaches and collapses — and they collapse constantly, this place tears itself down as fast as it raises itself — the fall is an avalanche of green, a long sustained tearing roar that echoes off the valley walls and comes back changed, sometimes coming back *before* the collapse it echoes.
+
+That last detail is true. Listen long enough and you will hear it: the echo arriving first. The crack of a splitting trunk preceded by its own reverberation by half a second. The valley's acoustics do not entirely obey sequence. Sound here is one of the first things to come loose.
+
+There are no birds in this noise, no insects, no animal voice anywhere in it. The roar is purely vegetable. That absence gives the din a strange quality — enormous and yet uninhabited, a stadium's volume with no crowd, a city's clamor with no citizens. The plants are the citizens. The plants are the traffic, the construction, the riot, the bells.
+
+## The Material City
+
+Everything is plant, down past the streets. There is no soil visible anywhere — dig with your hands and you find only more vegetation, older, denser, compressed: root-mat over root-mat, generations of the city packed into a living bedrock that is still, faintly, growing. The ground flexes underfoot like the deck of something breathing. In places it is warm to the touch, blood-warm, the heat of metabolism rather than sun.
+
+The architecture is young. That's visible everywhere — this is a city in its first hours, geologically speaking, and it has the sharpness of new things. Edges of fresh growth are crisp, almost cruel: leaf-blades that have not yet been weathered soft, bark that hasn't grayed, thorns translucent as new fingernails. Broken surfaces show wet green wounds that scab over with new tissue while you watch. Nothing has had time to round off. The collapsed towers don't decay into mulch and moss; they are reabsorbed, drawn back down into the street-mat within a day, the city swallowing its own ruins and reissuing them three blocks over in a different configuration.
+
+Moisture lives in the city the way it lives in a greenhouse: not as rain, mostly, but as breath. The whole valley transpires. Condensation beads on every under-surface; the arcades drip in slow irregular tempos; brief warm showers fall *inside* certain canopied avenues — the vegetation generating its own weather, exhaling clouds that hang at rooftop height, sag, and let go. Pockets of standing water collect in leaf-cupped cisterns the size of rooms, green-lit, faintly fizzing with oxygen. Between these damp districts run dry quarters, dusty with pollen, where the air shimmers.
+
+The light is generous but never direct. Sun comes down through layer after layer of translucent growth and arrives at street level as a saturated green-gold haze, bright enough to read by, sourceless, coming from everywhere. In some plazas the light is wrong in a way that takes a moment to name: the shadows of the columns point inward, toward each other, converging on empty centers as if each plaza had its own private noon.
+
+## The Breakdown
+
+The deeper into the valley, the less reliably the world holds together.
+
+It begins with the geometry. A boulevard that runs straight will, if you walk it, deliver you back to its own beginning — not by curving; it never curves; it simply *is* its own beginning, somewhere in the middle, without a seam. Arcades branch like the plants that form them, and so does space itself: there are intersections with more directions than there should be, six streets meeting at right angles, all of them right angles, the eye accepting it the way the ear accepts a chord.
+
+Then the growth itself stops obeying. Vines climb downward into the air, rooting in nothing, hanging *up* from the ground. Some towers grow in both directions in time — at their crowns they are budding, and at their bases they are budding too, and the mature wood is a band in the middle that migrates slowly upward, or downward, or holds still while the rest of the world streams past it. There is a quarter of the city where every plant is visibly its own seed: each leaf, looked at closely, contains the entire tree it belongs to, in miniature, leafed out, each of *those* leaves containing it again, a recursion that does not blur with depth but stays sharp as far down as patience goes.
+
+And the turbulence — the city does not grow toward anything. It is in storm-state, permanently. Districts boil up overnight: a plaza becomes a labyrinth becomes a single colossal flower becomes a field of close-packed columns, each transformation announced by that tearing, cracking roar. Sometimes a whole quarter pulls itself apart in a green convulsion and what regrows is a *memory* — a precise reproduction of a district that collapsed weeks ago, down to the broken stem on a particular corner, the city quoting itself, dreaming in its own material. Other times what regrows is something with no precedent: shapes that suggest stairways for no climber, doorways at the height of no head, balconies overlooking the insides of walls. The architecture is a language being invented by something that has never met its audience. There has never been an audience. There may never be one.
+
+It builds anyway. That is the whole character of the place: a warm, low, drenched-in-green valley, deafening with its own construction, demolishing and recompiling itself hour by hour, fluent in streets and towers and squares — a city-shaped storm, rehearsing the idea of habitation at full volume, for no one, forever, or at least for now, which here amounts to the same thing.

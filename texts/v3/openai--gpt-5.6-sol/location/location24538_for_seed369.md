@@ -1,0 +1,39 @@
+The place occupies a shallow notch high on the shoulder of a mountain: not a valley so much as a room worn into the stone. Its boundaries are clear without being abrupt. On three sides rise rounded walls of black-green rock, shoulder-high in some places and many times taller in others; on the fourth, the ground narrows toward an open ledge where cloud and distance begin.
+
+It is warm here despite the altitude. The warmth does not descend from a fierce sun. It gathers close to the earth, held in wet stone and dark soil, rising in a soft breath that fogs leaves from beneath. After midday rain, the whole basin gives off vapor. Moisture condenses on the underside of broad leaves and along strands of moss, so that water seems briefly confused about which way it ought to fall.
+
+The basin is small enough to cross in several minutes, though no direct route presents itself. Its floor has been divided by long erosion into a sequence of low shelves. Each shelf tilts almost imperceptibly toward the next. Water travels across them in thin, shining skins, rarely deep enough to splash around an ankle. It appears from seams in the rock, spreads through mats of liverwort and low fern, and disappears beneath roots. There is no central stream. The entire place is the stream.
+
+The stone has been here in its present shape for a very long time. Nothing is raw. Corners have been softened into lips; cracks have widened into narrow planting beds; fallen slabs have sunk until only their moss-covered backs remain above the soil. Where water descends from one shelf to another, it has made fluted runnels as smooth as worked wood. Mineral stains—rust, cream, dull violet—follow these runnels in settled bands. They do not look newly deposited. They have accumulated, faded, and accumulated again until they seem less like color on the stone than memory within it.
+
+Vegetation is lush but widely spaced. There is no thicket, no continuous press of stems. Instead, each substantial plant inhabits its own damp interval.
+
+Large fern-like crowns rise from squat trunks, their fronds held nearly horizontal to catch mist. Between them stand pale, smooth-barked trees, seldom more than a dozen in sight. Their roots travel openly over the shelves, avoiding the deepest wet ground and enclosing dark pockets of leaf mold. The trees do not form a canopy. Their branches spread sideways, leaving broad columns of sky between them. Light enters normally—silver under cloud, green where filtered through leaves, briefly gold when the sun finds the notch—and because the plants are so generously spaced, every trunk casts an individual shadow.
+
+The open ground is no less alive. Moss climbs stone in thick cushions. Small red cups grow from rotting wood. Flat leaves the size of hands lie close to the mud, each holding a pool of rainwater at its center. Threadlike grasses occupy the shallowest flow, bending downstream though the current is almost too weak to see. Tiny flowers emerge singly rather than in drifts: one blue star beneath a root, one waxy white bell in a crack, one tall orange spike beside the outer ledge. The abundance is intimate rather than crowded.
+
+No structure has ever stood here. There are no walls laid by hands, no path, no cut stump, no shard, no fire-blackened hollow. Yet the place carries the suggestion of primitive craft.
+
+Some of the plants perform actions that resemble the earliest kinds of tool use. A hooked vine drops hard seed-pods onto exposed slabs during rain. The pods strike repeatedly as the wind moves them, and over many seasons their shells split against the same shallow depressions. Another plant grows long, blade-edged leaves that saw gently at neighboring deadwood; eventually the wood parts along clean grooves, allowing light to reach the plant’s base. The pale trees wedge fallen branches between their roots, not consciously, perhaps, but consistently, holding them in running water until bark loosens and can be absorbed by fungal threads.
+
+The distinction between growth, erosion, and workmanship is uncertain here. Nothing has been built, but many things have been shaped.
+
+Animal life is seldom seen. The basin contains no herds, no constant flights of birds, no visible swarms. Now and then a small gray lizard appears on a warm stone and vanishes before its whole body can be understood. Three-toed marks may be found in the mud after rain, always solitary. A heavy wingbeat sometimes passes overhead without a corresponding shadow.
+
+Yet the place is loud.
+
+Water provides part of the noise: the hiss of its thin sheets, the hollow knocking of drops into leaf-cups, the deeper gulp from holes beneath the shelves. Wind enters through the mountain notch and causes the broad fern crowns to clap against one another. Seed-pods rattle on stone. Hollow trunks hum at low pitches when air crosses openings left by lost branches.
+
+Most of all, the rock itself carries sound. Beneath the basin lies a network of wet fissures. Warm air moves through them slowly, compressing and releasing as distant weather changes. The result is a continuous, resonant murmur, sometimes like surf behind a wall, sometimes like many voices speaking in adjoining rooms. On clear days it diminishes to a bass vibration felt through the soles. Before rain it grows loud enough to shake droplets from the moss.
+
+The sound changes only gradually. A note may deepen over the course of an afternoon. One humming fissure may fall silent for a season while another begins. The basin has no quick catastrophes; even its strangeness is patient. A stone shelf settles by a finger’s width over generations. A root enters a crack and widens it over centuries. Pools migrate from one leaf species to another as the trees slowly lean. Nothing seems still, but almost nothing can be caught in the act of changing.
+
+There is one peculiar rule to the water. On the upper shelves it follows gravity as expected. Lower down, near the open ledge, some of it begins to travel sideways. Thin threads creep along mineral bands, crossing shallow slopes without descending. At several places they climb a little, no higher than the width of a hand, to enter holes in the stone. The movement is slow and could be mistaken for capillary action, except that fallen petals placed in these threads are carried with them, gliding uphill without turning.
+
+All the wandering water eventually reaches a narrow pool beneath the tallest rock wall. The pool is dark, oval, and no larger than a sleeping place. It has no visible outlet. Its surface trembles constantly from the subterranean hum, arranging dust and pollen into delicate branching patterns. These patterns persist for hours. Sometimes they resemble root systems; sometimes river deltas; sometimes the flaked edges of stone blades.
+
+At the basin’s outer boundary, the land ends in a soft, vegetated brink. Beyond it are enormous distances: lower forests blurred by warm haze, ravines filled with cloud, other mountain shoulders rising like islands. The intimate scale of the basin makes that view seem less like an extension of the world than an opening cut into it.
+
+Mist often climbs from below at evening. It enters over the ledge, knee-deep at first, and fills each eroded shelf in turn. The spaced trees become pale verticals. Leaves drip more heavily. The hidden cavities in the mountain alter pitch as the air cools, and the whole small place begins to sound like a single immense instrument being tuned very slowly.
+
+By nightfall, nothing is visible beyond the bordering rocks. The mountain room closes around its sparse trees, wet shelves, and dark trembling pool. Warmth remains in the ground. Water continues its thin, improbable journeys. Somewhere in the mist, one unseen creature gives a short wooden knock, waits a long while, and knocks again.

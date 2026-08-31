@@ -1,0 +1,22 @@
+This is a land that has forgotten how to be young. It exists in a state of profound, geological senescence, worn down by eons until the mountains are memories and the hills are merely the softened knuckles of the earth. The elevation is relentlessly low, a vast, shallow bowl of a world where the horizon seems to pull away from you, forever just out of reach.
+
+**The Terrain and Stone**
+The ground is a ruin of time. The erosion here has reached its final, stable state—a Peneplain of absolute smoothness. There are no jagged cliffs, no craggy peaks. The bedrock, exposed in great, sweeping pavements, has been sanded by wind and water into curves that feel organic, like the flanks of sleeping giants. The stone is a pale, weathered grey, pockmarked by countless ages, smooth as river pebbles but stretching on for miles.
+
+Because the elevation is so low, the water table sits just below the surface, barely hiding. The earth does not drain; it sweats. This is the "weeping" quality of the landscape. Water does not rush here; it seeps. The porous rock is always damp, glistening with a slick sheen. In the hollows where the stone dips low, shallow pans of water have settled, so still and clear they look like lenses of glass laid upon the ground.
+
+**The Water and Atmosphere**
+The air is heavy and warm, a humid blanket that smells of wet dust and algae. The warmth (2.4/3) is not the scorch of a desert sun, but the persistent, muggy embrace of a greenhouse. Condensation is a daily ritual. As the warm day cools into the humid evening, moisture beads on every surface, dripping from the overhanging lips of rock, creating a constant, soft plinking sound that underpins the entire region. It is a landscape that feels perpetually on the verge of rain, or just recovering from it.
+
+**Vegetation**
+Life here clings to the stone in sparse, isolated tufts. The vegetation (1.2/3) is not a forest, not a meadow, but a scattering of tenacious survivors. The soil is thin, mostly just a accumulation of dust in the cracks of the pavement. You find solitary, gnarled trees with wide, buttressed roots that spread sideways over the rock, searching for pockets of moisture. Their leaves are thick and waxy to hold in the precious water. Between them, tough, spike-leaved succulents grow in tight clusters, like little fortresses of green amidst the grey. The spaces between these islands of life are vast and open, emphasizing the sparsity.
+
+**Sound and Fauna**
+Despite the emptiness of the human-made world, the place is deafeningly loud (2.0/3). The abundance of fauna (1.6/3) finds its niche in the warm wetland. Because there are no dense canopies to hide in, the wildlife is open and vocal.
+
+The air vibrates with the calls of thousands of frogs. The shallow pans of water boil with their movement, a cacophony of croaks, trills, and burps that echoes across the open stone. Insects drone in thick, invisible clouds—a low, electric hum that seems to rise from the ground itself. Large, lumbering reptiles drift through the deeper pools, displacing water with heavy splashes, while flocks of long-legged wading birds take to the sky, their cries harsh and piercing. It is a chaotic, biological noise, a reminder that while the stone is dead and slow, the life upon it is frantic and loud.
+
+**The Sense of Time**
+Everything about this place speaks to the "Slow" dynamic (0.8/3). The changes here happen on a geological timeline. The rock erodes at the rate of the dripping water. The trees grow inches per decade. The water levels rise and fall with the imperceptible shifting of seasons. There are no fast currents, no sudden storms, no rapid cycles of death and rebirth. It is a patient, brooding ecosystem that has settled into a rhythm that feels almost frozen. To stand on the weathered pavement is to feel like a fleeting ghost, a momentary blip in the lifespan of a landscape that has seen the rise and fall of ranges, and will continue to weep long after you are gone.
+
+There is no trace of the built world (0.0/3 built, 0.0/3 tech). No ruins, no paths, no broken tools. It is a pure, primal exposure of the earth's bones, softened by water and heated by the sun, filled with the noise of living things that have never known a master. It is beautiful in a severe, uncompromising way—a wet, loud, ancient emptiness.

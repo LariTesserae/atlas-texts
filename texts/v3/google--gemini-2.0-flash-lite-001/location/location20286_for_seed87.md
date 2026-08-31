@@ -1,0 +1,15 @@
+The city breathes in the dark.
+
+It is a city *within* a city, a city nested in the ruins of a submerged metropolis. The water is deep, deeper than light can reach, but somehow, here, there is a dimness, a persistent twilight clinging to the sculpted forms. The temperature is frigid, a cold that seeps into bone, but there is no ice, not in this heart of the deep. Everywhere, the city is emerging, slowly, from the seabed, a skeleton of stone and bone, the remnants of towers long collapsed, now softened by the patient, endless work of the deep water.
+
+The scale is intimate, a warren of interconnected chambers, tunnels, and plazas, all contained within the shattered shell of a single, colossal skyscraper. You move through these spaces as you would a maze, one where the walls are formed of the building's own, dissolving structure, and the floors are not solid but a shifting, slowly coalescing sediment of its own decay.
+
+Density is the defining characteristic. The city is a riot of presences. Bioluminescent fungi cling to every surface, casting an ethereal glow and illuminating a multitude of life forms never meant to see the sun. These lights are not strong; they do not banish the darkness but rather define it with their soft boundaries.
+
+The "built" component is everywhere, a legacy of a lost civilization. The architecture is grand, colossal works, now broken and re-shaped by the relentless current and the pressures of the deep. Some structures remain whole, their surfaces etched with the remnants of languages, long forgotten. Others are collapsed, twisted into impossible forms, becoming the new homes of the city’s inhabitants. The few intact buildings are like underwater temples.
+
+There is *no* technology in the traditional sense, but bio-engineering is abundant. The city’s inhabitants have adapted to their environment in the most fantastical of ways. The fauna is not just abundant, it *is* the city. Creatures of every shape and size, some familiar, others wholly alien, have bio-engineered themselves to use the ruins in their own way. Cities have "organs," great pulsing bio-structures that are the lifeblood, the heating, ventilation, and power, all in one.
+
+It’s a weird place. Every corner hums with a silent energy. Bubbles of methane rise from the sediment, forming ephemeral spheres that pop with a soft *thump* as they break the surface. There are sounds, but they are quiet, distant, the susurrus of unseen life, the creaks and groans of the crumbling structures, the faint, rhythmic thrumming of the deep sea. The city itself seems to breathe, to expand and contract with the tides, its internal structures subtly shifting, flowing. Everything is in motion, engaged in the unending dance of life and decay.
+
+The rules are simple, relentless. Survival requires a deep understanding of the city's rhythms, of the flow of the currents, of the hidden currents of life that pulse through its heart. Food is scarce, a constant struggle. But there is also an abundance: the abundance of adaptation, of persistence, of the beautiful, bizarre forms that have emerged from the deep.

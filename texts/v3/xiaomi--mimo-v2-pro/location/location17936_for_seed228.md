@@ -1,0 +1,47 @@
+# The Weeping Gallery
+
+You descend through a throat of warm stone and come out into a space that should not exist.
+
+The chamber is roughly cathedral-sized — perhaps two hundred meters across, sixty meters from floor to the lowest point of the ceiling, though the ceiling is uneven, rising and falling in slow organic swells like the underside of something breathing. The walls are old. Impossibly old. Water has been working on them for so long that the stone has forgotten being stone and has become something closer to skin — smooth, curved, striated with mineral deposits in bands of rust-red and chalk-white and a deep bruised violet that comes from some mineral you cannot name. Every surface weeps. The water does not fall so much as *emerge*, gathering in fat trembling beads along every horizontal edge, every lip and ledge, and then releasing in slow threads that catch the light and descend to the floor with a sound like sustained applause.
+
+And the light.
+
+There is no sun here. There has never been a sun here. But the chamber is bright — brighter than a cloudy noon, brighter than a white room in a hospital, bright in a way that seems to have *opinions* about where it falls. The source is the water itself. Every droplet, every film and pool and rivulet, is luminous. Not bioluminescent exactly — there is no biology involved. The water *glows* with a cold blue-white radiance that seems to originate from somewhere beneath the surface of each molecule, as though the liquid were only a membrane between this world and a brighter one pressing through. Where the water is thickest — in the deep pooled channels that cut across the floor, in the curtains that hang from certain ledges — the light is blinding, almost solid, and you have to look away. Where it thins to a mist, to a dampness on stone, the glow becomes gentle, ambient, suffusing. The entire chamber breathes with light, brightening and dimming as water accumulates and falls, accumulates and falls, in cycles that last anywhere from seconds to what feels like minutes.
+
+You cannot tell if the cycles are regular.
+
+---
+
+The floor is not flat. It is a landscape in miniature — a hamlet-sized terrain of shallow pools, low ridges of deposited mineral, smooth-worn channels where water has chosen its favorite paths over millennia. The water is warm. Not hot, not uncomfortable, but warmer than your skin by a noticeable margin, and the air above the pools shimmers with a faint haze of condensation that drifts upward and then collects again on the ceiling and descends once more. The whole chamber is a closed loop of evaporation and condensation, a weather system in a box. The humidity is absolute. Your clothes are wet within moments. Your lungs feel full of something that is not quite air.
+
+The sound is immense. It is not one sound but a composite — the hiss of ten thousand threads of water striking pooled surfaces, the deep gurgle of channels moving water somewhere downhill and out of sight, a low subsonic thrum that you feel in your sternum more than hear, and beneath all of it a sound like breathing, like the slow expansion and contraction of something vast that happens to be adjacent to this room. The noise is loud enough that you would need to raise your voice to speak to someone standing beside you, and yet it is not chaotic — it has a texture, a layered complexity, like being inside an orchestra tuning. You could learn to read it, you think, if you stayed long enough.
+
+---
+
+There is almost nothing growing here.
+
+A few pale things cling to the walls near the ceiling where the moisture is thinnest — fungal mats the color of old paper, thin as the skin on warm milk, arranged in slow radial patterns that suggest they are growing outward from a center point that may have been established centuries ago. On the floor, in the shallows of certain pools, there are structures that might be plants and might be mineral formations — branching filaments, translucent, pale green or colorless, that sway gently in microcurrents. They do not photosynthesize. There is nothing to photosynthesize with. Whatever they are metabolizing, it is dissolved in the water itself, or in the heat, or in something else the water carries.
+
+You see one animal. Only one, in the entire time you are here, and you are not sure you see it so much as register its passage — a disturbance in the surface of a deep pool, a shape beneath the luminous water that is long and sinuous and too pale to have any business being alive, moving with a slow lateral undulation toward a channel that descends into the floor and disappears. It makes no sound you can distinguish from the general roar. You are not sure it noticed you. You are not sure it *can* notice. It may not have the apparatus.
+
+---
+
+And then there is the technology.
+
+It is easy to miss at first because it does not look like technology. It looks like *features of the stone* — until you notice that certain channels curve in ways that water alone would not carve, angles too precise, radii too consistent. There are grooves cut into the floor at intervals, shallow and smooth, that connect pool to pool in a network that is too orderly to be natural. In one corner of the chamber, half-submerged in a pool so bright it hurts to look at directly, there is a structure — a single object, perhaps three meters tall, partially embedded in mineral deposit. It is dark. Not black, but a color that seems to *subtract* from the luminosity around it, as though it were made of something that eats light. Its surface is covered in markings that might be text and might be erosion patterns and might be both. It hums. Or rather, the water around it hums at a slightly different pitch than the rest of the chamber, and you can feel the difference in your teeth.
+
+This object is old. The mineral deposits around its base have accumulated in layers thick enough to record epochs. Whatever made it — whatever *placed* it here, in this chamber, below the surface of the world, in the dark, surrounded by glowing water — did so long enough ago that the chamber has grown around it like a wound healing over a splinter. The technology is beyond anything you recognize, not because it is complex in a way you can observe but because it operates on principles that seem to *skip steps* your understanding requires. The water is not glowing because of a chemical reaction. It is glowing because the object, or something the object set in motion, has *renegotiated the relationship between water and light* at a level you cannot access.
+
+The scattered grooves in the floor are part of this. They are not decorative. They are functional in some way that requires the water to be where it is, moving at the speed it moves, glowing at the brightness it glows. The entire chamber — the warmth, the wetness, the light, the sound, the impossible ecosystem of fungal mats and pale branching filaments and one long sinuous thing in the deep — is an *engine*. Or a garden. Or a message. Or a body part of something too large to perceive from inside itself.
+
+---
+
+The turbulence is not visible. The chamber appears stable, ancient, settled. But you feel it — in the unpredictability of the light cycles, in the way certain pools drain suddenly and refill from sources you cannot locate, in the low thrumming that occasionally shifts frequency by a fraction that makes your vision blur. The chamber is not at rest. It is at *equilibrium with motion*, the way a river is at equilibrium — always the same shape, never the same water. The mineral deposits are building and dissolving simultaneously. The channels are migrating, slowly, in directions that change from century to century. The object in the corner is doing something that produces turbulence at scales too large and too small for you to perceive directly, and what you experience as *loudness* and *brightness* and *warmth* is just the small fraction of its operation that bleeds into your sensory range.
+
+If you stayed here — if you could survive the humidity and the heat and the subsonic pressure and the light that never dims — you would eventually notice that the chamber is not the same shape it was when you arrived. Not dramatically. Not in any way you could photograph. But the pools would have shifted. A channel would have dried. A new one would have opened. The fungal mats on the ceiling would have advanced a millimeter. The object would be humming at a pitch one microtone lower, or higher, and you would not be able to remember which direction it moved because the memory would feel the same either way.
+
+---
+
+You are not supposed to be here. Not in the sense of *forbidden* — there is no one here to forbid you. You are not supposed to be here in the way that a bacterium is not supposed to be in a cathedral: the space was not made to accommodate you, and its processes do not account for your presence. The water does not care that you are standing in it. The light does not adjust for your eyes. The sound does not make room for your breathing.
+
+And yet you are here. And the chamber accommodates you the way it accommodates everything — by ignoring you completely, by continuing its slow, loud, bright, wet, ancient, turbulent work, by letting you be a thing that is briefly present and then not, in a place that has been becoming itself for longer than you have a framework to measure.

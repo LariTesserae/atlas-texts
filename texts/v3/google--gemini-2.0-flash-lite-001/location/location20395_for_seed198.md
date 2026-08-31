@@ -1,0 +1,23 @@
+The world breathes through a thousand rusted, grinding lungs. It’s a vast, tiered complex of metal and glass, stretching as far as the eye can see, all hewn into the living, weeping rock of a mountain range. Every surface is coated in a sheen of perpetual moisture, a fine mist that clings to the intricate lattice of pipes and walkways that crisscross the landscape. This is a place of ceaseless condensation, where the very air seems to weep and run.
+
+The core of this construction is an immense industrial complex. Below, deep within the mountain, the heart beats with the rhythm of some unknown process. Above, tiers of hab-structures, platforms, refineries, and maintenance-zones are piled one atop another, sometimes bridged together with massive, arching girders. These are connected by a network of lifts, trams, and automated walkways, all moving with a purpose the observer can't easily parse. There is a terrible efficiency to everything, a sense of having been designed for reasons that do not matter to the people who now wander them.
+
+Vegetation, despite the metallic dominance, is astonishing. Luxuriant, alien plants erupt from every available crevice, their bioluminescent leaves casting an eerie, emerald glow in the perpetual twilight. Great, hanging gardens cascade from platforms above, their roots snaking down to drink the constant moisture. These aren’t natural plants; they’re engineered, perhaps a failsafe, or a necessary element in some great process, or perhaps just for aesthetic purposes. They grow in a frenzy of lushness, a riot of impossible forms.
+
+The temperature is consistently cool, bordering on cold, which might explain the dim, filtered light. But that alone doesn't explain the near-absence of the sun. The sky is perpetually overcast, a thick, churning mass of grey that seems to hold a suppressed storm. The air is heavy, and charged, and you can practically taste the industry.
+
+Erosion, in this place, is not a force of nature, but a feature of its construction. Everything is weathered, but not by wind or water. The metal structures are pitted, scarred by some unknown process. The glass is stained, and clouded. There hasn’t been change for a while, it's settled into its present status.
+
+The scale is immense, regional. It's difficult to see any consistent pattern, and the complexity makes it hard to see any consistent purpose. It sprawls, a testament to its creators' dedication.
+
+Density is total. It's impossible to escape the feeling of being completely surrounded. Metallic structures compress the spaces. Platforms and bridges press in from above, and from below.
+
+The technology is unmistakably industrial — a thousand intricate systems, all working in concert, the purpose of which is lost in the mists of time. There are no exposed engines, no open factories, at least not that anyone can see. What machinery there is, is all beneath the metallic surface. The whole place is an engine in itself.
+
+The fauna is rare, but not entirely absent. Occasionally, high on some platform, a shadow flits, or a strange, multi-jointed insect whirs by, darting between the towering structures. Some have begun to make their home in the alien garden.
+
+The world is otherwise as normal as one could imagine it could be. There are no sudden shifts in gravity, no illogical structures. This a world with its own, brutal, logic, but there is nothing to suggest the bizarre.
+
+Sound is mostly quiet--although sometimes the quiet threatens to explode. The dominant noise is the distant, rhythmic thrumming of some deep-earth mechanical activity, something massive turning at a steady pace, and the hiss and shriek of pressurized vapors. Every now and then, though, a building groans. A system fails and a deafening alarm shrieks, before being extinguished and quickly repaired.
+
+Finally, the dynamic is turbulent. The world seems to churn, to be in constant flux. Sections of the great construction will begin to shudder, and shifts will propagate through the superstructure: a platform may extend, a bridge retract, some section of the massive body will be torn away to be rebuilt, elsewhere. The weather is constantly on the verge of breakdown. At intervals, the sky will darken, and the great metal landscape will be lashed by electrical storms that crackle with an energy, before it settles back into its familiar, oppressive dimness. There is no escape from it. If the place itself wills it, it can change completely, within hours.

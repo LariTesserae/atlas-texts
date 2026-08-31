@@ -1,0 +1,19 @@
+The air at this altitude is thin but unnervingly loud. We are high above the world’s respiratory floor, atop the **Serrated Canopy Spires**, where the elevation is so extreme that the clouds do not hang overhead; they drift through the architecture of the trees like lost ghosts. 
+
+At a glance, there is no geology here. The "ground" is a fiction. What looks like mountain peaks are actually the petrified, sky-scraping trunks of *Arboris Prime*, a species of flora so ancient and vast that their wood has reached a state of mineralized erosion. The surfaces are worn smooth, not by water, but by eons of wind and the constant friction of life. Every horizontal surface is a matted peat of moss, fern, and interlocking vine. To fall through a gap in the foliage is not to hit a rock, but to tumble through miles of green scaffolding into a dark, suffocating interior.
+
+The environment is **damp**, but not wet. There are no rivers, only the constant, rhythmic "sweat" of the leaves. Large, waxy cups the size of granaries catch the intermittent mountain rains, holding pockets of tepid, enzyme-rich water where aerial insects drown and dissolve. Condensation clings to everything, shimmering in the **normal light** of a high-altitude sun that feels uncomfortably close.
+
+Despite the **open scale** of the vista—looking out over a valley of green steeples that stretches to the horizon—the world feels **empty**. There are vast, echoing voids between one spire and the next. The density of matter is low; it is a world of giant skeletons wrapped in thin skin. 
+
+But the **sound**... the sound is a physical weight. It is **deafening**. 
+
+The **overwhelming fauna** occupy every cubic inch of the atmosphere. This is not a world of mammals, but of wings and chitin. Imagine clouds of iridescent beetles the size of shields, their buzzing synchronized into a low-frequency thrum that vibrates in your marrow. Imagine "Wind-Gills," thin, translucent creatures that drift on the updrafts, screaming a high-pitched territorial note that never ceases. The air is thick with the biological debris of a trillion lives: shed carapaces, silk streamers, and the pungent, musky scent of pheromones. You do not hear the wind; you hear the hunger of the ecosystem.
+
+Hidden in the hollowed-out "knots" of the giant trees are the **scattered** marks of a **primitive** intelligence. These are not cities, but precarious nests. The inhabitants have used simple hand-tools to carve notches into the iron-hard bark. You might find a bridge made of woven spider-silk and cured lizard-hide spanning a half-mile gap between two thorns. There is no metal here. Tech is a matter of bone-needles, vine-rope, and gourds used to carry the precious "leaf-sweat." These structures are ancient, settled into the landscape as if they grew there, weathered and greyed by the same terminal erosion that has smoothed the trees themselves.
+
+The **weirdness** manifests in the physics of life. Because the elevation is so high and the vegetation so dominant, the plants have learned to hunt. There are "Gravity-Vines" that do not grow upward, but hang heavy, tipped with weighted burrs that drop like plumb-bobs when they sense the vibration of a passing wing. 
+
+The **dynamic** of the place is a frantic, biological clock. Predation is constant. You see a swarm of needle-flies descend upon a slow-moving sky-slug, stripping it to a translucent film in seconds, only for the swarm to be inhaled by a wide-mouthed "Gulp-Ray" soaring on the thermal currents. The world is in a state of hyper-active metabolism. 
+
+It is a warm, screeching, emerald void. You stand on a ledge of bark that has existed since the crust of the earth was young, looking out across a chasm of nothingness, watching the life of the world happen in the air, deafened by the roar of a billion beating wings, while the primitive, lonely marks of your own kind cling to the edges of the abyss like moss.

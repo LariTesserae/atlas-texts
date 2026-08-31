@@ -1,0 +1,33 @@
+Below the surface lies a country that has not yet decided whether it is a cave, a root system, or a body.
+
+It extends farther than the eye can judge: a broad subterranean basin, hot and nearly level, its limits hidden behind successive curtains of vegetation. There is no sense of collapse or erosion here. The walls have not been carved by water, wind, or time. They are raw mineral boundaries, smooth in some places and swollen outward in others, as though the earth is still soft beneath a thin, dark skin. Ridges stand unfinished. Shelves end abruptly. Columns of stone appear halfway formed, their surfaces unweathered and sharp, then soften into pale bulges where living growth has climbed over them.
+
+The air is warm enough to feel inhabited. It presses gently against the skin, damp but not wet, carrying the mineral smell of hot stone and the green, almost sweet odor of plants breathing in darkness. Moisture gathers in isolated places: a line of condensation along a ceiling seam, a shallow basin cupped in a root, a black pool sunk between slabs of newborn rock. Water does not run freely. It appears, remains, and slowly vanishes into the vegetation. Every drop seems claimed before it can travel far.
+
+And yet the place is bright.
+
+The light comes from the plants. Their leaves are broad, translucent, and layered one above another until they form whole luminous fields. Some glow from within like thin sheets of amber. Others are white-green, bright enough to cast shadows, their veins shining in precise branching patterns. Long stems descend from the ceiling and rise from the floor, meeting in dense curtains that resemble hanging orchards or the pillars of a buried forest. Their radiance is steady. Nothing flickers, pulses, or blooms. The light has the calm permanence of daylight remembered by the earth.
+
+In the open stretches, the vegetation does not merely occupy the landscape; it is the landscape.
+
+Carpets of low, fleshy growth cover the ground in overlapping plates. Their surfaces are warm and slightly yielding, marked with geometric pores that open and close without visible movement. From these mats rise thickets of reedlike trunks, packed so closely that a person could not walk between them without pushing through layers of leaf and fiber. Their upper branches spread into a continuous canopy far overhead, though the ceiling may be only a few dozen meters above. The canopy is not dark. It is a second sky, pale and radiant, with broad leaves arranged like overlapping panes of colored glass.
+
+Some plants have become architecture. A grove of hollow stalks arches over a dry channel, making a vaulted passage. Buttress roots rise in walls around clearings. Thick vines descend in parallel rows, not quite bridges and not quite curtains, each one heavy enough to serve as a beam. Here and there are chambers whose floors, walls, and ceilings all consist of a single fused organism, smooth and ribbed, with narrow openings looking out over the basin.
+
+The vegetation is dense without appearing restless. Nothing sways. There is no breeze. Leaves hold their positions exactly, even the delicate ones. Fine tendrils hang motionless in the warm air. A pale flower remains open, its petals fixed like carved porcelain. The entire ecosystem seems caught at the point of completion—not asleep, but finished for now.
+
+The quiet is deep.
+
+There is the occasional soft release of condensation from above, a drop striking a leaf and sliding through several layers before disappearing. Somewhere within the green mass, fluid moves through a stem with a slow internal creak. The sound is less like sap than distant timber settling. At intervals, a root contracts with a muted thump, as if the ground itself has a heartbeat too slow to be recognized as one.
+
+There are few animals. Small, translucent things cling to the undersides of leaves, so still that they might be seed husks or mineral nodules. Once, a many-legged creature may cross a lit patch and vanish into the roots, but it leaves no track. Nothing calls. Nothing hunts openly. The plants seem to have absorbed most of the available roles: shelter, food, light, boundary, and perhaps memory.
+
+Scattered among them are signs of an older or merely neighboring intelligence. A narrow stone platform stands beneath a hanging wall of leaves, its edges squared but softened by growth. A doorway leads into a root-built room with no door attached. On the platform rests a shallow basin, carefully placed beneath a seam in the ceiling where water condenses. It is full, though there is no visible source and no overflow. Elsewhere, a line of upright stones marks a path through the vegetation, each stone identical in shape, as if produced rather than quarried. No tools, machines, or mechanisms remain. The structures have not been ruined so much as accepted by the plants, which have incorporated them without breaking them.
+
+The geology around them is still emerging. Pale seams run through the floor like the first lines in a drawing. Low hills rise from the basin in broad, unfinished forms. Their surfaces are neither dusty nor worn; they look newly exposed, with colors of charcoal, cream, iron-red, and deep violet. In places, the rock appears to have cooled around living roots. In others, roots have entered cracks that seem to have opened specifically for them. Stone and plant are not opposed here. They are being made together.
+
+Far beyond the nearest groves, the illuminated vegetation continues in regional bands: a forest of vertical leaves, a plain of low luminous pads, a canyon filled entirely with dangling roots, and a wide, empty-looking expanse where small green stalks emerge at perfectly regular distances. The openness is not spacious in the usual sense. It is the openness of a system extending beyond its visible center, every region linked by hidden roots and underground moisture.
+
+Nothing appears to age. No leaf browns. No stalk falls. No wall crumbles. The pools do not deepen, and the stones do not gather dust. If something dies here, it does so without changing shape, becoming indistinguishable from the living mass around it. Time is present only as a possibility, not as a force.
+
+The place feels hot, bright, and patiently unfinished: a subterranean world held in a stable moment of becoming, where the earth has begun to form a landscape and the plants have already filled it before it can harden.

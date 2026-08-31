@@ -1,0 +1,27 @@
+At first glance, it looks almost vacant.
+
+You stand on a broad, low basin that could be a floodplain, except there is no river in the usual sense—only long, shallow seams of wetness threading through dark soil like unfinished handwriting. The ground is young, not settled into old patience. Ridges of fresh mineral push up in narrow, sharp-backed folds, as if the land only recently cooled enough to admit roots. Some cuts in the earth still have geometric edges, too clean for weather, suggesting uplift happened in pulses, sudden and recent.
+
+Then your eyes adjust to the dimness, and the emptiness rearranges itself.
+
+The sky is not night, but a permanent late-afternoon gloom: thick airborne haze and high conductive lattices filtering sunlight into a green-bronze murk. Moisture hangs in the air rather than falling often. Rain comes in abrupt, local bursts—ten minutes of hard warm drops over one kilometer, then nothing for hours. Everywhere else, life drinks condensation. Leaves are shaped like gutters, scales, and cupped hands. Vines wear beadwork of water. Towering reed-forests wick fog from moving air.
+
+Vegetation dominates, but not as a continuous jungle wall. It gathers in colossal clusters separated by open tracts of bare, resonant ground. From a distance, each cluster resembles an island, except the sea between them is land: cracked clay, mineral flats, young stone, and engineered corridors. The plant masses are lush to the point of architecture—thick canopies layered with luminous mold, hanging root-curtains, and broad thermal petals that open at dusk to trap warmth and insects. Between these living districts are vast intervals of almost nothing, making the whole region feel sparse despite its fertility.
+
+The built environment follows the same logic: not dense city blocks, but urban nodes suspended in expanses.
+
+Each node rises from the basin floor on pylons grown from composite coral-metal, matte black with veins of moving light. Bridges cross empty kilometers in dead-straight lines, then dissolve into braided pedestrian roots inside each settlement. Buildings are porous: half habitat, half instrument. Walls breathe. Facades are seeded with computational moss that processes air chemistry and glows with low diagnostic constellations. Streets are not paved but tuned—surfaces adjust stiffness and texture in response to traffic, weather, and migration patterns. You can feel them hum underfoot.
+
+Technology here has gone past visible machinery into environmental behavior. Utility networks are phase-embedded in soil and atmosphere. Data travels through fog-charge differentials; power is harvested from pressure gradients and the vibration of wildlife swarms. Drainage systems are alive: microscopic valves in the ground open where condensation accumulates, routing water toward root cisterns and community reservoirs. Nothing looks like a pipe or cable, yet the entire basin is wired into itself.
+
+The strangest part is scale versus occupancy. You can walk for an hour through echoing open land and encounter only wind, insects, and the occasional transit ribbon sliding silently overhead. Then, abruptly, you reach a vertical garden-city full of markets, nest-platforms, clinics, hatcheries, and laboratories, packed with activity. The region alternates between near-void and concentrated complexity, like a lung: emptying, filling, emptying again.
+
+And always—sound.
+
+Not a background murmur, but a continuous, body-felt roar. The fauna are abundant and loud: pulse-throated marsh ungulates bellowing across flats, flocks of membrane-wing gliders that click in synchronized sheets, amphibious packs barking metallic notes from wet trenches. Insect choirs run at different frequencies until they interfere and create beating waves you feel in your teeth. Add to this the infrastructure: resonance towers stabilizing weather cells, transit rails singing as maglev barges pass, root-pumps thudding below ground, warning harmonics from predator corridors. Silence does exist, but only in carefully shielded chambers.
+
+Ecology here is cooperative and predatory at once. Large herbivores graze condensation orchards at dawn; hunters with reflective skin stalk the open gaps at dusk. Some species nest inside civic structures, legally protected because their bioluminescent larvae clean airborne toxins. Others are classified as “acoustic hazards” and tracked by municipal sonars. Human and nonhuman life are deeply interlaced by rule: migration rights encoded into zoning law, seasonal bridge closures for mating flights, noise-curfews enforced not for comfort but for communication bandwidth among key species.
+
+Because the light is weak, color comes from other sources: fungal lantern veils, bioelectric pollen clouds, signage projected directly onto mist. Faces are often painted with anti-glare mineral paste. Clothing tends toward layered membranes that collect dew and dampen noise shock.
+
+The world’s logic becomes clear over time: water is scarce in bulk but constant in trace; land is young and still configuring itself; life has over-responded, becoming exuberant wherever moisture can be trapped. Civilization did not flatten this process—it amplified it with tools that act more like weather than machines. The result is a warm, low country of intervals and eruptions: empty distances, lush citadels, dim skies, and a deafening living system that never quite stops moving.

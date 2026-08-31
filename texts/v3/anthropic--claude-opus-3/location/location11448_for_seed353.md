@@ -1,0 +1,11 @@
+The landscape is a dense, organic mega-structure towering into a dark and hazy sky - an ancient, living city of plant life grown over eons into a tightly interwoven architectural mesh. Colossal trunks and branches, gnarled with age, twist together to form archways, towers, and vast domed spaces draped with curtains of hanging vines and fronds.
+
+The lowest levels are a shadowy labyrinth, lit only by pools of bioluminescent sap and the occasional shaft of dim light filtering down from above. Walls of heartwood and living bark press close on all sides, furrowed and knotted. Tightly coiled spiral stairways and narrow, winding passages lead up through the tangle to higher and more open spaces.
+
+Mid-levels contain great factory-like hollows, where mechanical tendrils process flows of nutrients and shuttle around materials with ceaseless industry. Hive-like structures bustle with activity, assembly lines of artificial pollination and seed distribution. Glowing spores pulse and flow through vascular conduits.
+
+Higher still are airy, cathedral-like enclosures, leaf canopies arching overhead to filter the meager light into an eerie green glow. Windborne fluff and glittering motes of crystallized sugar drift on turbulent currents. Alabaster flowers the size of satellite dishes turn slowly, emitting deep, resonant drones.
+
+At the crest, delicate spires and minarets capped in fruiting bodies and clusters of translucent pods sway in gusting, mineral-laden winds. Vast seed-sails billow and snap. The thinning atmosphere is sharp with strange spices, and a constant electric crackling builds until sporadic flashes of lightning lance between the towers, triggering cascades of luminous pollen. The very peak is lost in amber-tinged cloud.
+
+This vertical plant-city, this mile-high tangle of colossal, arboreal machinery, seems to go about its ancient business with no regard for animal life. Humans could perhaps survive in its mazelike depths, but the mega-structure has the feel of something grown by and for vegetal consciousness alone. Exploring it would be like venturing into an alien mind, akin to how an insect might experience a towering rainforest - an impenetrable and unreadable living world, operating at a scale and to an agenda incomprehensible to fleshy, animal awareness.

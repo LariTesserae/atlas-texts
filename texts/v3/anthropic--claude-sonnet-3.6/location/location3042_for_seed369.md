@@ -1,0 +1,11 @@
+A crystal grotto catches and magnifies the harsh white light that filters down through hairline cracks in the ancient limestone above. The chamber is barely larger than a closet, yet its faceted walls seem to extend the space through countless reflections, each slightly dimmer than the last, creating an illusion of infinite depth.
+
+The air is cool and absolutely still. The silence would be complete if not for the constant, rhythmic tone that rings through the crystal - a deep resonance that seems to emerge from the rock itself, amplified by the geometric arrangement of mineral faces until it fills the tiny space with sound. The note never wavers or changes; it has likely rung unchanged for millions of years as the crystal slowly grew into its current form.
+
+A few hardy lichens cling to the less reflective surfaces, forming delicate fractal patterns in muted grays and pale greens. They grow with extraordinary slowness, maintaining the same coverage they've held for centuries. Their presence marks the boundary between the sterile crystal faces and the ordinary rock, like a living frame around a natural mirror.
+
+The crystals themselves are colorless but capture traces of copper and iron from the surrounding stone, creating subtle bands of blue-green and amber that seem to float in their depths. These bands mark the ancient rhythm of their growth - each one perhaps representing thousands of years of mineral accretion in this perfectly stable environment.
+
+The floor is bare except for a fine dust of eroded crystal, each grain a perfect geometric form in miniature. This dust catches the reflected light and creates tiny starbursts with every disturbance, though such disturbances are rare in this isolated pocket, sealed away from the world's chaos.
+
+The chamber feels like a place out of time - a crystalline moment preserved in the heart of the stone, following its own laws of geometry and light, maintaining its single pure note through the ages. It's a space that exists in perfect equilibrium, neither growing nor decaying, simply persisting in its bright, resonant solitude.

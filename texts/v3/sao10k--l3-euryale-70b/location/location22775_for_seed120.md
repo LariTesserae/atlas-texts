@@ -1,0 +1,9 @@
+A dense tangle of jungle, vines and creepers strangling the few trees, air thick with humidity and the buzz of insects. The ground mire and quicksand, water oozing up from the bog at every step. Ravines on all sides, carved by flash floods, condensate water running in channels over moss and fern.
+
+Lots of new growth, young shoots bursting from log walls and coiling around them, new life burrowing into dead foundations. Giant centipede and millipede scurry through the underbrush. Swarms of beetles on fly in a thicker-than-air cloud, pulsating in the dim filtered light that strains through the canopy above.
+
+Stomping and chittering sounds everywhere, lizard and amphibian noise rising from the swamp. Frog the size of a fist leaping with alarming speed. You sense grubs and horrors crawling through the mud, but don't see them. Wet heavy air rolls in thick with scent of fungal growth and sunbaked detritus.
+
+Seems to be ringed by steep rugged mountains, sparse scrub clinging to rock, a burst of rain in the distance sending runnels of water cascading down. Over the rise the deep-throated call of a ceratopsian riles from the mist-cloaked peaks and you imagine you see the bulk of a larger saurian on the ridge.
+
+Doesn't seem anything like roads, beaten trails, or roads, but everywhere signs of passage - deep grooved tracks in the bog, trampled and squelched, tamped earth, the sheer un-tamed plentitude of the vegetation. Like the land itself is twisting to break down what has been built. Water and greenery and squirming things peeling or erodeing all in their path to a mess of peat and prurising life trying to contain, to overgrow, to digest and forgot, given half a chance.

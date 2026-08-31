@@ -1,0 +1,7 @@
+It is a drowned room below the world.
+
+Not a sea with horizons, not a river with direction, but a bounded hollow filled completely with cool water. The place exists below the surface in the fullest sense: beneath the open air, beneath the upper skin of stone, in a chamber that might once have been a cave, a fault-pocket, or the heart of some old volcanic throat before water claimed it entirely. It is small enough to feel like a single feature — a cathedral-scale basin, a grove-sized volume of liquid — and yet large enough that the water inside it has weight, presence, and a kind of architectural silence.
+
+The water itself is the landscape. It is not merely covering the terrain; it is the medium through which every other thing appears. Cool, clear, and mineral-heavy, it presses in from all sides with the patient density of deep liquid. There is no shore here, no bank where the place politely stops. The boundaries are stone walls worn smooth by time and water, and beyond them the world continues in some other form, but in this hollow everything belongs to submersion.
+
+The terrain has the settled look of enormous age. The rock is dark, fine-grained, and hard — something like basalt, or a dense stone born from heat and then cooled into order. Every edge

@@ -1,0 +1,7 @@
+It is a drowned cathedral at the roof of the world.
+
+High in a newly broken range, above thin air and below an ordinary bright sky, a small basin of cold salt water hangs in a sharp-walled hollow. The rock is young: all fracture, ledge, and blade. Nothing has had time to soften here. The walls are fresh basalt, glassy andesite, pale shattered granite, and seams of magnetite that pull faintly at the senses. Obsidian flakes lie in the shallows like dropped knives. Rust-colored mineral crusts seam the cracks. Where stones have fallen, they still sit angular and unrounded, as if the mountain only just opened its hand.
+
+The water should not be here, or at least it should not behave as it does. It is a high, clear, oceanic lens, cool and heavy, held in the hollow as if altitude and depth had made a private agreement. From below, the surface is a bright ceiling. Clouds pass over it, distorted and slow. Sunlight enters without drama: normal daylight, white and plain, falling through the water in shifting columns. There is no uncanny glow, no aurora, no unnatural color. The strangeness is in the arrangement, not the light: a piece of deep sea set high in the mountains, a submerged room with the sky for a lid.
+
+The scale is intimate. A strong swimmer could cross the open water in a few minutes. It is more chamber than ocean, more nave than sea, yet the pressure and density of it feel

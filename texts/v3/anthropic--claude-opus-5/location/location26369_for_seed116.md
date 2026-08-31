@@ -1,0 +1,45 @@
+## The Warm Cistern
+
+**Where it is.** Near the crown of a mountain that is not a mountain. From ten kilometres off, in the flat light before dawn, you can see what it is: a stack — courses upon courses of masonry, terraced, buttressed, re-buttressed, the buttresses themselves later cased and buttressed again, until the whole thing took on a profile indistinguishable from geology. Snow lies on it in the same way. Cloud shadows cross it in the same way. But every part of it was laid by hand, and there is no natural rock in it anywhere, not at the base, not at the summit, not in the core. Someone dug the substrate out and replaced it. It took a long time and there is no one left to explain it.
+
+The Cistern is a single room inside the top of that stack, roughly four and a half metres across, domed, and full of water.
+
+That is the whole landscape. Everything below is context.
+
+**The room.** Brick, originally — you can still tell by the ghost-grid of joints under the surface, like veins seen through a wrist. But there has not been a corner in here for a very long time. Eight or nine thousand years of standing water has taken every edge off, laid down lime, taken it back, laid down iron, taken *that* back, and left the walls with a smooth pinkish-fawn body that gives slightly under the thumb, like the inside of a shell. Tooling marks: gone. Inscription, if there was one: gone, though there is a band at chest height where the surface is subtly different, and it may be the last blurred residue of writing, or it may be a tide-mark, or both.
+
+The floor is a shallow bowl. The dome above is shallower still, and at its centre is an eye — a round opening a little wider than a manhole. Three stubs of bronze stand in its rim where a grating was seated. The grating is on the floor, has been for millennia, and is now a low reef.
+
+Through the eye: sky. At this altitude the noon sky is a dark bruised violet, and the sunlight that comes down through it does so as a single hard column, about the diameter of the eye, edges nearly parallel. It moves across the floor over the course of the day like a slow hand, and everything alive in the room organises itself around that hand.
+
+**The water.** Warm. Warmer than it should be: skin-temperature at the top, a degree or two more at the bottom, on the west side, where the machine is. It is not sourced from rain. Hail comes in through the eye and melts, and a little snow, but the volume it adds in a year is trivially replaced by the volume the eye's draught takes out again. Chemically, the water in the Cistern has never been anywhere else. It has not been in a cloud, a river, an animal, an ocean. It was put here, and it has been circulating in this room, through this room's inhabitants, since before the concept of a year.
+
+It is also, for reasons no one has settled, *dense* — slow to move, slow to stop, and pressurised. Descend from the eye to the floor, four metres, and your ears report something absurd: the squeeze of four hundred metres of ocean. Your lungs, meanwhile, know perfectly well that they are at six thousand metres of thin cold air. The room holds a pocket of somewhere much lower down and carries it up here, and the boundary of that pocket is the plane of the water's surface, which is flat, silvered, and tense as a drumhead.
+
+**The machine.** Set into the west wall, its housing half-swallowed by the lime that has grown over it the way bark grows over wire: an iron pump. Single cylinder, walking beam, a stroke every four seconds and a half. It has been counted. The rate varies by a few percent with the heat of the day.
+
+It does not lift water out of the room. There is no out. The delivery pipe runs a metre and a half and returns to the room, discharging along the floor as a hot jet that raises a permanent standing plume in the middle of the chamber, a wobbling column of slightly-clearer water that you can put your hand into and feel the age of.
+
+So the machine's only function is to stir, and to be warm. It is possible this was always the function. It is more likely that it once served a descent — an aqueduct, a chain of these rooms going down and down through the made mountain, and that somewhere in the first thousand years the next room down silted, and the machine, having nowhere to send water, simply went on sending it in a circle. It is not a perpetual motion device. Something feeds it. Whatever feeds it is below the floor and cannot be reached, and every attempt to reason about it ends in a shrug.
+
+**Sound.** This is the loudest quiet place you will ever be in. Underwater, the pump's stroke does not arrive as a noise but as an event: a flat iron *clank* that comes through the masonry and through your skeleton at the same instant, so you feel it in the teeth and the shins. Between strokes: the intake's long descending hiss, the plume's white roar close to the floor, and — riding above all of it, felt at the surface — the note of the eye. Wind crossing the opening makes the chamber sound like the mouth of a bottle: a low sustained tone that shifts a semitone or two with the gusts, sometimes doubling into a beat frequency that makes the water surface craze into standing rings. On storm afternoons it is loud enough to be unpleasant. You cannot have a conversation in the Warm Cistern. You point at things.
+
+**What lives here — and how much emptiness there is.** Sparse. That is the first surprise. Given the warmth, the light, the ceaseless stirring, you would expect soup. Instead: you can hang in the middle of the room, arms out, and touch nothing.
+
+The weed grows only in three places — a rope of it up the east wall, red-green, thick as a wrist, moving in the plume's current like something asleep and dreaming of being awake; a shelf of dark mats on the old bronze grating; and a fringe at the tide-line, moss above, algae below, in a band four fingers wide. Between these: clear water and pink walls and space.
+
+The fish are loach, six of them, sometimes seven, never eight, pale as boiled rice, with eyes that are technically present and technically useless. Their ancestors came up in a bucket. They keep to the floor, they work the grating reef, and they line up along the hot outflow at night with an air of habit rather than need.
+
+The shrimp — hundreds, and this is where the abundance is — are all in the two litres of scalding water at the pump's discharge, and on the pump itself. They pick at its bearings. They have picked at its bearings for so long that the machine's continued function is partly their doing: they eat the fouling, they keep the packing clear, they groom the beam's pivot. Remove the shrimp and the pump seizes within a decade. It is not clear whether they were introduced for this or whether they simply drifted into the job.
+
+One snail. Always one. Its shell carries a plating of red copper, deposited from the water, polished by contact with the wall, so that in the crossing column of noon it flares like a coal. When it dies another appears. No one has seen a second.
+
+Above the surface: midges, hatching in clouds on warm afternoons, thin blizzards of them going up the light-shaft and out the eye into air that kills them within seconds. This is a form of respiration for the room. And in the dome's shade, on the dry brick, one spider — cold, slow, black, with an untidy web that catches whatever the draught brings back down.
+
+**Cycles.** Daily: the light column crosses west to east; the weed's rope inclines toward it perceptibly over the hours; the pump quickens; the midges rise; the note of the eye finds its evening pitch. Monthly, or something like monthly: the room breathes — the surface drops eleven or twelve centimetres over several days, exposing a band of dazzling wet moss, then comes back. The tide-line is the record of ten thousand of these, and it is the sharpest feature in the room, the one thing erosion sharpened instead of dulling.
+
+Yearly: at some point in the cold, the eye freezes over. A lens of ice forms in the opening and seals it. The note stops. The light goes to a milky glow, then to nothing. And the Cistern becomes what it may actually be — a warm black stirred room, sealed, humming with iron, the loach motionless, the shrimp still working, the spider dead and replaced by spring.
+
+**The rule of the place.** Nothing here is going anywhere. The mountain has stopped settling. The masonry has reached the shape water wants masonry to be, and will keep it. The machine cannot finish and cannot fail. The population is fixed at its numbers. Everything that happens in the Warm Cistern has happened before and will happen again in four and a half seconds, or tomorrow, or next winter.
+
+Which is why people who find it — and a very small number have, coming up over the last terrace with cracked lips and no idea what they were climbing — describe it in the same two ways, without knowing the others existed. They say: *it is the oldest thing I have ever been inside.* And they say: *it was so loud, and I fell asleep immediately.*

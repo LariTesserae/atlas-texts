@@ -1,0 +1,19 @@
+**The Subterranean Cradle**  
+
+The landscape is a vast, vaulted realm beneath the surface, its ceiling a labyrinth of porous limestone and bioluminescent fungal networks that filter the bright, amber light of an unseen sun. This glow refracts through the dense canopy of towering flora above, casting dappled shadows across the undulating terrain. The ground itself is a patchwork of soft mosses, knotted root-systems, and slick mineral outcrops, their surfaces glazed with a perpetual sheen of condensation. Here, water is a whisper—not a flood, but a slow seep, pooling in hollows or tracing rivulets through crevices where the heat intensifies, creating pockets of steam that vanish into the light-filtered air.  
+
+**The Vegetation Dominion**  
+Vegetation here is not merely plant life but the very architecture of the world. Trees with trunks like fused sinews rise in spirals, their bark exuding a sticky, resinous sap that glistens like molten gold in the dim light. Their branches intertwine to form living bridges and archways, their leaves broad and waxy, pulsing faintly with a green-gold bioluminescence. Thickets of razor-edged ferns cluster around pools of water, their fronds unfurling and retracting in slow, rhythmic cycles. Vines hang like curtains, embedded with seed-pods that crack open to release clouds of iridescent spores. The entire ecosystem feels *grown* rather than built—organic and sprawling, a cathedral of chlorophyll and chitin.  
+
+**Atmosphere and Sound**  
+The air is thick and humid, carrying the metallic tang of minerals and the sweet, cloying scent of blooming fungi. Heat radiates from the rock itself, creating pockets of oppressive warmth that contrast with the cool, damp shadows beneath the foliage. The silence is almost absolute, broken only by the drip of water, the creak of expanding plant matter, and the occasional skitter of unseen creatures. There are no winds here, only the faintest currents stirred by the slow respiration of the larger organisms—or perhaps the lingering echoes of a world still forming around itself.  
+
+**Ecology and Rules**  
+Life here is sparse but specialized. The fauna consists of creatures adapted to the dim, humid labyrinth: translucent arthropods that skitter along root-surfaces, their shells glinting like glass, and serpentine beings that glide through the air on membranous wings, feeding on spores. Plants dominate, though; their roots penetrate deep into the bedrock, seeking moisture in fissures where the geology remains raw and unfinished. Strange growths—perhaps the result of the landscape’s embryonic state—dot the terrain: half-formed geodes that hum with latent energy, their crystalline surfaces etched with patterns that mimic the veins of leaves.  
+
+The scattered remnants of *built* structures hint at a prior age: crumbling arches of black stone, half-swallowed by roots, their surfaces etched with glyphs that shimmer faintly under the fungi-light. These are not ruins but anomalies, as if the world itself is still deciding what they represent.  
+
+**Weirdness and Stasis**  
+There is an eerie constancy here. The light never shifts, the temperature never fluctuates, and the plants grow in slow, deliberate spirals, as if following an internal logic. Yet there is something unsettling about the brightness—it does not behave like sunlight, but feels *directed*, as if the glow originates from within the walls themselves. The vegetation, too, is oddly uniform, its shapes too geometric, its movements too synchronized, like a organism-wide slow pulse. The world is alive, but it feels *designed*, as though it is a breathing thing in the process of waking up.  
+
+This is a landscape in equilibrium, yet not at rest. It is a cradle, not a tomb—something waiting, growing, *becoming*.

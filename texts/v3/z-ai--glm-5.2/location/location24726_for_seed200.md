@@ -1,0 +1,61 @@
+# The Basin at Still-Birth
+
+It is always the same hour here. Not dawn, not dusk — something earlier than either, a light that has not yet decided what it wants to become. It comes through the canopy in shafts so thick with moisture they appear solid, like columns of amber glass that shatter against the ground and reform continuously without any change at all. The light has been this way since the land rose. It will be this way when the land is forgotten.
+
+---
+
+The basin stretches in every direction farther than the mist allows the eye to confirm. Low — almost disrespectfully low, as though the earth here never fully committed to rising from the sea. The ground sits only a few meters above the water table in most places, and in many places it does not sit above it at all. You walk on water without knowing it. The crust is a membrane. Beneath your feet: a dark, warm saturation, liquid working its way up through half-formed stone the way blood works through gauze.
+
+And the stone itself — this is the strangeness. The geology is *new*. Not young in the way that mountains are young, measured in millions of years. New in the way that a scab is new. The rock here has not yet decided to be rock. It is still choosing. You can see it in the outcrops that break through the vegetation: dark, heavy masses with the color of raw iron and the texture of something still cooling, still organizing its mineral structure at a pace the human eye registers as *stasis* but which is, in geological terms, a violent act of becoming. There are no rounded edges. No weathering. No smooth faces worn by wind or water. The formations stand as they stood when they first arrived — sharp, imperative, almost architectural in their refusal to erode. The water runs over them and does nothing. The rain falls and does nothing. The stone receives the world and remains unchanged, as though it has not yet learned that it is supposed to.
+
+They weep. Constantly. Not from cracks or fissures — from the surface itself, the way skin sweats. Water emerges from the rock face in a film so fine it catches the dim light and turns each outcrop into a dark mirror. You can press your palm flat against the stone and feel the water pushing from inside, warm, almost body-temperature, with a faint mineral taste like licking a battery. The rock is sweating because the heat below is close to the surface. Very close. The whole basin sits on a thermal lid that has not yet sealed. In the deepest pools, where the water is dark and still, you can see the bottom shimmering with heat-haze, the substrate itself breathing warmth upward in visible waves.
+
+---
+
+The heat is the first thing that lives in you when you arrive, and the last thing that leaves when you go. It does not fluctuate. It does not peak at midday or ease at night, because there is no midday here, and there is no night — only this one long amber-gray hour that has been held in place like a breath held too long. The air is thirty-eight degrees, give or take a body's uncertainty. The humidity is total. Not high — *total*. The air is water that has not yet condensed, water that hangs in a permanent state of almost. Your skin stops evaporating within minutes. Sweat forms in sheets. Your clothes become a second skin, heavier and warmer than the first. Breathing becomes an act of drinking.
+
+Nothing dries here. Nothing has ever dried here. The moss on the rocks is so saturated it has become a liquid itself — a dark green paste that holds its shape only because it has nowhere to flow. The bark of every tree is black with wet. The leaf litter is not leaf litter; it is a composting sludge that holds the warmth of the ground beneath it and the warmth of its own decomposition above it, so that walking feels like wading through something alive and mildly feverish.
+
+---
+
+And the vegetation — god, the vegetation. It does not grow upward so much as it accumulates in every direction at once. The canopy is not a canopy. It is a *ceiling*, a thatched密度 so dense that the light which reaches the ground has been filtered through six or seven layers of leaf and branch and epiphyte and liana and air-root and still-living leaf and dead-but-hanging leaf, and by the time it arrives it has been reduced to a green-gray glow that casts no shadows. Nothing casts a shadow here. The light is too dispersed, too softened by its passage. The world beneath the canopy is shadowless, which gives everything a flattened, painted quality, as though depth itself has been politely asked to leave.
+
+The trees are not species you would name. They are pre-species — things that have arrived at the general concept of tree and are still working out the details. Their trunks are too thick for their height. Their roots spread above ground in tangled nets that cover more surface area than the canopy above. They reproduce by every method simultaneously: flower, fruit, runner, air-layer, stump-sprout, and something that looks like internal fracture — a trunk splitting open and a new tree unrolling from inside it like a fern frond, still wet, still folded, already reaching. The ground between the trees is not ground. It is root, layered on root, layered on root, with soil filling the gaps like mortar. You are always standing on wood. The earth is an afterthought.
+
+Between the roots: water. Standing water, flowing water, seeping water, water that moves so slowly it has developed its own ecology of film and residue. Pools the size of tables. Pools the size of houses. Channels between them, narrow and deep, warm as bathwater, stained dark with tannin and something else — something mineral, something that glows faintly in the dim light with a dull orange-brown luminescence that is not bioluminescence but *geo*luminescence, the heat below expressing itself as light at the threshold of visibility.
+
+The plants grow in the water. The water grows in the plants. There are roots that are also stems. There are leaves that are also roots. There are things that are both and neither, flat green sheets that float on the warm pools and have no name because they have not yet decided what they are. They reproduce by division. They divide constantly. Every pool is full of them, layer on layer, and beneath them the water is dark and warm and moves not at all.
+
+---
+
+But the sound — the sound is what you cannot prepare for.
+
+It is not quiet here. The silence that you might expect from a place so static, so held, so utterly without weather or wind or change — that silence does not exist. What exists instead is a biological noise so dense and so layered that it has become a texture, a pressure, something you feel against your skin before you hear it with your ears.
+
+The insects come first. Not mosquitoes — something older, something without the elegance of a proboscis, something that buzzes with a low, droning frequency that sits in the chest rather than the ear. They are everywhere. They coat the wet bark of the trees in living layers that shift and re-form. They rise in columns from the warm pools in densities that look like smoke. They are not interested in you. They are interested in the heat, the moisture, the decay, the green sugar that weeps from every broken stem. Their sound is a chord — a sustained, unmodulating chord that has been playing since the land rose and will play until it sinks. It does not rise. It does not fall. It does not pause. It is the baseline frequency of this place, and it is so constant that after a time the ear stops registering it as sound and begins to register it as *silence*, against which all other sounds become foreground.
+
+And there is so much foreground.
+
+Things move in the water. Constantly. Not fish — or not only fish. Shapes that move with too many bends in their bodies, things that swim by undulation in patterns that suggest they have not yet settled on a single method of locomotion. The pools boil with them. The surface tension is broken every few seconds by a mouth, a back, a fin that is not quite a fin, and the sound of it — the *plap*, the splash, the wet click of something returning to the warm dark — is so frequent that it merges into a rhythm, a heartbeat, a biological pulse that syncs with the heat and the light and the dripping and never, ever shifts tempo.
+
+Above: birds. Or things that occupy the bird-niche. They do not sing. They *announce* — short, hard calls that crack through the insect-drone like stones through glass. Each call is identical to the last. Each call comes at the same interval. They have been calling since the canopy closed, and they will call until the canopy opens, and the canopy will never open, because the light here does not change and the trees do not stop and the call is not a response to stimulus but a fact of existence, like gravity, like the heat.
+
+In the undergrowth, larger things move. You hear them more than you see them — heavy bodies pushing through the root-tangle, the wet crash of a limb displacing a standing pool, a low vocalization that is not quite a growl and not quite a rumble and not quite a purr but something that contains all three, a sound made by a throat that is still figuring out what sounds it can make. There are many of them. The undergrowth is full of them. You see movement more than shape — a dark flank retreating into darker shadow, a tail — no, a *projection*, something that might be a tail or might be a limb or might be something the body is trying out — vanishing between two root-masses. They are not afraid of you. They are not unafraid of you. They are engaged in their own continuous existence, and your presence is a pebble dropped into a stream that does not notice pebbles.
+
+The density of animal life here is not a feature of the landscape. It *is* the landscape. The plants are scaffolding. The water is medium. The stone is foundation. But the animals — the insects, the swimmers, the callers, the movers — they are the substance. They fill every volume. The air is more insect than gas. The water is more body than liquid. The undergrowth is more movement than plant. You cannot put your hand anywhere without touching something that moves. You cannot stand still without something landing on you, climbing you, investigating you with the impersonal curiosity of a world that has never learned to fear because it has never had reason to.
+
+---
+
+And the whole of it — the heat, the water, the stone that sweats, the trees that cannot stop growing, the light that will not change, the sound that will not stop, the life that fills every space — the whole of it sits in a stillness that is not calm.
+
+It is the stillness of something that has just begun and has already reached its final form.
+
+The land rose. The water settled. The heat arrived. The plants came. The animals came. The sound began. And then — nothing. No next step. No succession. No erosion, no weathering, no seasonal cycle, no birth-and-death progression toward some future state. The basin arrived complete. It has been this way since it began. It will be this way when it ends. There is no gradient here, no slope from one state to another. The temperature does not move. The humidity does not move. The light does not move. The insects do not migrate. The swimmers do not spawn. The callers do not season. Everything is alive and nothing is changing and the heat goes on and the water goes on and the sound goes on, and the stone — the new, sharp, weeping stone — stands exactly as it stood when it first broke the surface, refusing to erode, refusing to age, refusing to become anything other than what it is in this one held, breathless, endlessly repeated moment.
+
+You do not visit this place. You enter it, and for a time you are part of its density, one more body in the warm dark, one more sound added to the chord. And then you leave, and the place does not notice, because the place has never noticed anything, because noticing implies change, and change has not yet been invented here, and may never be.
+
+The mist does not clear. It does not thicken. It is mist, and it will be mist.
+
+The light does not fail. It does not strengthen. It is light, and it will be light.
+
+The drone goes on.

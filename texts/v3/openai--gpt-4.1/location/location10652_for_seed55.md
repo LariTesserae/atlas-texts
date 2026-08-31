@@ -1,0 +1,23 @@
+**Vastly Submerged, Cold, Constructed Dark**
+
+You press downward and the water doesn’t end. It is subterranean but without overhead stone; the only ceiling is distance, a weight of ancient liquid pressed by planetary gravity. Even light is like a memory here — what tiny drift there is, comes from above, filtered through unimaginable thickness, so diluted that shadow and darkness are indistinguishable. Some say it is night eternal; some would not say anything at all, considering this place.
+
+The cold is absolute, sinking into materials and marrow, water thickening toward ice but never hardening, kept fluid by enormous pressure and ancient chemical trickery in the ocean’s core. The temperature demands patience: everything here functions on a slow timescale, as if centuries pass in minutes above.
+
+But as your vision adjusts to near-black, shapes resolve from the gloom: a world entirely built. There is no wild terrain, no loose sand or open mud, no virgin rock plain. Instead, the foundation is a lattice of titanic slabs, blocks, and columns — all artifice, all formed and laid in ages beyond number. Material is stone and sand-ceramic, perfectly interlocked, weight quietly pressing on weight, grooved by water and time, their geometry too old to speciate: no sign of the hand that made them, just the inevitability of construction.
+
+Everywhere, vegetation clings. Patches at first, then ribbons, then forests: mats of cold-resistant kelps, deep-blue vines, fungal willow forms clinging to walls and ceiling, grotesquely lush for such blackness. The growth saturates every surface not in constant motion, wrapping pillars in thick ropes, skinning redundant arches, hanging so densely that the water feels syrupy. No animal stirs these plants — there are no fish, no amphibians, not so much as a worm. Whatever mobility exists is vegetal: slow, glacial shiftings of tendrils toward microcurrents of chemical attraction, slow blooms and slow retractions at continental timescales.
+
+Look closer, and every meter of stone, every rib in every block, is carved, not in ornament but with purpose: channels and cups and holes, the simple cleverness of peoples who had only stone and their hands. Rain would once have been guided by these, but there is no rain here; in their current function, the channels serve only to catch drifting nutrients, or the fine silt that settles as the endless cold current ambles its way across the foundations.
+
+You have never seen such density in construction — not height, but layering, as though many civilizations tried in succession to make this place their own, each using the previous as foundation and raw material. Temples become platforms become causeways become mere stones, and below each, further strata, so deep that the planet’s crust itself must be stone worked by ancient hands.
+
+Yet for all this, the place is not a ruin, not truly. It never fell; it simply ceased to intend. The slow march of water and plant overtook every purpose, and so now it is settled, complete, and final, nothing left to change except the slow dance of roots and water. 
+
+No animal breaks the silence: there is no shriek, cry, or call. If you wait, you will hear only the ancient sounds: the minute rasping of kelp upon stone, the settling of a distant girder, the slow hiss of a bubble as some trapped gas finds an exit after millennia. Sometimes, currents swirl through colonnades and echo with a low, phrase-like moan, but there is nothing quick or eager in the sound — just the breath of a finished world, the voice of patience.
+
+Rules of gravity and chemistry still bind everything: this is a real ocean, after all — but it is not an ordinary one. Here, construction is law. Nothing is wild, even the plants only survive in the niches left for them by forgotten builders. The only weather is a slow migration of darkness, the only current is inexorable cold. All processes are sedimented, ancient: the sense of time is so thick you can run your fingers through it.
+
+Even as you drift deeper, you sense no end to the place. It is continent-wide, larger, perhaps the ancient bed of a lost sea. The surface is so far above you might as well be in the planet’s heart. The structure has held for eons, and will persist for eons more: a monument to primitive hands making a total environment, then leaving it for plants, water, and cold.
+
+Here, eternity is not myth but material — and patience is all that moves.

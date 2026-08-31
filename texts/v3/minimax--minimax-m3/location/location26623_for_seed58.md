@@ -1,0 +1,21 @@
+# The Condensation Hall
+
+The descent takes you seven meters down a stair worn into a shallow concavity, stone cupped where generations of feet have ground it. Then a hatch — iron, sweating, hot to the touch — and below.
+
+The chamber is roughly circular. Sixty meters across, give or take, though the walls curve in ways that don't quite match the floor plan of any blueprint you might find upstairs. The ceiling rises twelve meters to a domed peak, ribbed with cast-iron tiles fused into the surrounding rock over the working life of the place. The heat reaches you before anything else — a wet, sourceless warmth, the way a greenhouse feels just before the plants begin to wilt. Sweat starts within a minute. Every pipe sweats. Every metal surface wears a thin, living skin of moisture.
+
+The machines are dense here. They fill the chamber in tiers. Three galleries of catwalk ring the walls at different heights, and at the floor a forest of cylinders, tanks, columns, and the heavy housings of engines you feel more than hear. The whole floor shudders at a frequency just below thought — a subsonic pulse you register in the molars, in the soft tissue of the belly. Above this, layered: the slow tick of expansion valves, the occasional phlegmy sigh of pressure released somewhere up in the ceiling ribs, the thin whistle of steam through a hairline crack in a pipe joint. The scattered plink of condensate falling onto hot iron.
+
+No daylight. Phosphor panels set into the upper gallery railings give a yellowish glow — not bright, not enough to read by at floor level. The light catches the moisture in the air and makes it visible: a fog, low-lying, ankle-deep in places, breathing out from cracks between plates and the unsealed edges of pipe-flanges. Where the phosphor doesn't reach, the machines dissolve into brown shadow.
+
+Vegetation: a sparse colony of heat-loving moss has colonized the north rail of the uppermost gallery, green-black tufts sprouting between bolt-heads. A sulfur-yellow lichen crusts the back face of one of the great floor cylinders and bleeds down it in map-pattern, slow as geology. That's all. No leaves, no flowers. Nothing wants to live here except the things that love wet heat and the mineral breath of the place.
+
+No birds. No rats. No insects. The heat alone would cook them, and the machinery leaves no organic waste to attract them anyway. The only movement is mechanical. Pistons walk slowly. Gauge needles tremble against their dials. A chain of buckets tips water from a low cistern up to a higher one — empty buckets climbing up one side, full ones descending on the other, slopping as they go, endlessly. Steam erupts at intervals from a central vent, rises three meters, dissipates into the damp air.
+
+The work of the place you cannot quite read. Something is being distilled, or pumped, or held in suspension. Chambers open and close on schedule. Fluids of indeterminate color move through the visible pipes. The architecture is dense but orderly — each tier of gallery a complete ring, accessed by four ladders at the cardinal points. Between the ladders, the catwalk is interrupted by control stations: a brass wheel, a bank of levers, a glass-faced gauge the size of a dinner plate. Some are clearly maintained. Others have ceased to function, their levers frozen mid-pull, their gauges reading values that may or may not mean anything anymore.
+
+The walls are layered — stone blocks for the first two meters, then brick, then the iron-and-rock fusion that becomes the ceiling. There is the sense of a place excavated, lined, extended, extended again: every age of construction visible in the different materials. Tool marks still fresh in some of the lower stone, where the latest expansion was cut. The dampness is not age but condition — the slow argument between the chamber and the wet, hot geology that surrounds it.
+
+Below the floor, you know without being told, there are more chambers. The floor plates are removable, and some have been removed — revealing darker, hotter spaces beneath, where the engine-throb is louder and the phosphor does not reach.
+
+A place that runs itself. Quiet, hot, wet, mechanical. The only living things are the lichens. The work continues whether anyone watches or not.

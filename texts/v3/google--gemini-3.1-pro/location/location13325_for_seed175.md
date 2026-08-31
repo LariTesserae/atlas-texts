@@ -1,0 +1,23 @@
+High above the cloud layer, cupped in the summit of an ancient limestone spire, lies a shallow, hanging basin. Time and weather have had their way with this place for epochs. The scale is intimate—no larger than the interior of a rural chapel—a single, recessed bowl of pale rock entirely unbounded by anything but the open sky. 
+
+The stone here is sculpted into a series of travertine terraces, deeply weathered and smoothed by millennia of patient water. It is remarkably warm. A persistent thermal updraft climbs the cliffs below, trapping a balmy, subtropical heaviness inside the high rock walls. As this rising, humid air meets the cooler atmospheric pressure of the altitude, it continuously condenses. The walls of the basin are weeping. Clear water sheets silently over the curves of the limestone, pooling in perfectly still, glassy basins, spilling over rounded lips, and gathering in the hollows.
+
+Despite the warmth and the unending supply of water, the space is strikingly uncrowded. Wide expanses of wet, cream-colored stone dominate the basin. Yet, where life has taken hold, it is staggeringly lush. Five or six massive plants are stationed across the terraces, separated by wide stretches of empty stone. They are magnificent, sprawling things—resembling a cross between great bromeliads and fleshy cycads, with thick, waxy leaves of a deep, vibrating emerald green. They look opulent against the pale stone, their broad fronds heavy with condensed droplets.
+
+If you close your eyes, the most unnerving aspect of the basin reveals itself: total, unbroken silence. In a warm, wet, lush environment, one intuitively braces for the roar of life—the thrum of cicadas, the shrieking of high-altitude birds, the splashing of amphibians, the drone of gnats. Here, there is nothing. Not a single winged insect hovers over the shallow pools. Not a single worm turns in the accumulated silt. The animal kingdom simply does not exist here. The only sound is the occasional, delicate *clink* of a heavy water drop striking a shallow pool, and the quiet, continuous hiss of weeping stone. 
+
+But as you look closer at the polished floor, you begin to notice the subtle, unsettling logic of the place. 
+
+Strewn across the pale limestone are tools. 
+
+They are undeniably manufactured. At the edge of a pristine pool lies a heavy nodule of dark, grey chert, native to the limestone bed. Flakes have been systematically struck from its core, leaving a perfectly scalloped, razor-sharp edge. Beside it sits a fist-sized river stone—a hammerstone—worn dimpled from repeated impacts. Further along the terrace, several long, sharp blades of chert are lined up precisely, their edges glistening in the bright, normal daylight. 
+
+There are no humans here. There are no creatures of any kind. There is only the slow, brooding flora.
+
+Beside the nearest emerald giant, a thick, woody vine stretches tightly across the floor. Wrapped securely in the knot of its fibrous, calloused end is a jagged chert scraper. You realize that the heavy scrape-marks gouged into the limestone floor—channels carefully designed to reroute the trickling water directly toward the plant’s central root-mass—were not formed by water. They were carved by the plant itself.
+
+There is a botanical Stone Age underway in this high, silent room. It operates on a timeline of unimaginable slowness. It takes three seasons for a root to firmly clasp a hammerstone, and another two years of cellular expansion, building up excruciating hydraulic pressure against the rock face, before a sudden, silent snap shears a perfect blade from a chert core. 
+
+Above one of the pools, an elaborate catch-basin hangs suspended. It is a primitive fabrication, woven flawlessly from dead, tough vascular fibers by the living tendrils that painstakingly layered them over decades. The woven funnel catches the heavy mist, consolidating it into a steady drip that bypasses the porous rock and falls directly into the open, waiting rosette of the host plant. 
+
+Everything here is in a state of suspended, agonizingly slow intention. The plants fashion hand-axes to sever the creeping roots of their few competitors. They weave mats to inhibit evaporation over their personal aquifers. There is no violence as blooded creatures know it, no rapid flush of action. Just the quiet dripping of the warm mist, the bright sunlight reflecting off the undisturbed pools, and the profound, strange intelligence of a lush world lifting stones at the speed of timber.

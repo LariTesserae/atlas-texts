@@ -1,0 +1,25 @@
+# The Terraced Pavilion at Keth'morn Ridge
+
+You stand on a constructed platform—not a building, but a *landscape made* of it. Precisely fitted stone blocks in shades of rust and grey create tiered floors that step upward in concentric rings, each surface worn to a particular smoothness by centuries of careful use. The entire structure occupies perhaps two hundred meters across, no more. A enclosed world.
+
+The platform itself is the terrain. There is no soil underneath, no earth visible—only the continuous, deliberate masonry. The blocks fit so tightly that water barely pools; instead, channels have been grooved into the surfaces, subtle gradient-lines that guide the intermittent rains downward in spiraling paths. You can see where mineral deposits have stained the stone in orange and white striations, marking the passages of monsoon seasons across decades. The erosion pattern is not one of breakdown, but of *integration*—the structure has settled into its own weathered state and seems unlikely to change further.
+
+The air is warm, but not hot. It carries constant dampness, a persistent mist that sits between you and the far edges of the platform. This moisture condenses on every surface; the stone always feels slightly slick. Occasionally, from somewhere beyond the visible boundaries—you cannot determine where—comes the sound of actual running water, a distant murmur.
+
+The plants change everything.
+
+They grow from—no, they grow *through*—the built surfaces. Vines in thick, muscular clusters wrap around the stone edges. Ferns in dozens of species erupt from crevices, their fronds arranged in patterns so dense and interlocking that some sections of the platform are more living green than grey. There are flowering plants too, small bright bursts: crimson, pale yellow, a violet that borders on unnatural. They've been encouraged, guided, perhaps tended, because they grow in arrangements that seem intentional rather than chaotic. The vegetation is lush—overwhelmingly so—yet it never obscures the geometric order beneath. Plant and platform exist in a kind of negotiated harmony.
+
+But it is the *sound* that dominates.
+
+Mechanical. Relentless. A deep, rhythmic *thump-thump-thump* emanates from below the platform—not from within your visible section, but from the core of the structure, somewhere in its lowest chambers. Pumps, almost certainly. Massive ones. The sound carries up through the stone and resonates in your chest. Overlaid on this baseline are sharper mechanical noises: the spin and hiss of something pressurized, the grinding of gears that haven't been oiled in months, occasional metallic screams as internal mechanisms shudder. Between these mechanical pulses, you hear the drip and trickle of water, following those grooved channels, collecting, being drawn downward. The overall effect is a kind of industrial symphony played by an orchestra that never stops, never quite finds rhythm, never quite breaks.
+
+The fauna are sparse in your immediate view but evident in their work. Small birds—grey, unremarkable—move through the fern clusters. You've seen evidence of larger things: droppings on the platform's upper surfaces, trails worn through the vegetation. Insects are everywhere if you look closely: beetle-shells glinting where the mist shifts the light, the constant invisible drone of wings. They're drawn to the lush plants, and the plants feed them. An ecosystem has nested itself into the built landscape, but it remains thin, stretched, not quite comfortable. There is space. Too much space. The platform could hold ten times this life and still echo.
+
+The light is ordinary—filtered through the persistent mist, evened-out, soft. No harsh shadows, no brilliance. It's the light of a place that rarely sees direct sun, or where the architecture shields it away. Early morning and late afternoon look identical here.
+
+The weirdness is in the acceptance. This place—this hybrid of mechanical infrastructure and botanical reclamation—has reached a kind of equilibrium that feels *wrong* only until you've been present for a time. Then it seems like the inevitable state. The machinery works to manage the water that the plants both require and resist. The plants soften the stone. The platform channels moisture in patterns so ancient they've become natural. Nothing changes quickly. The hum persists. The fronds tremble slightly with the vibration.
+
+You realize, standing still, that you cannot hear silence. The ambient mechanical noise is so constant that you've stopped processing it consciously. It's become the baseline. The platform exists in a state of slow, patient, perpetual operation—not broken, not failing, just... running. As it has for a very long time. As it will continue.
+
+The mist thickens slightly. Somewhere, water is being moved. Somewhere, something green is growing. Somewhere far below, vast pumps turn in their chambers, and the landscape itself breathes in rhythm with machinery you'll never see.

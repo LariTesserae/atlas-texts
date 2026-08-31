@@ -1,0 +1,27 @@
+You stand at the bottom of a lung.
+
+The space is a vast, singular hollow, a spherical pocket buried deep beneath the crust of the world—far too deep for the sun to touch, yet the air here is blindingly bright. The light is not sourced from any fixture; it is a property of the atmosphere itself, a pale, searing luminescence that seems to hum against the skin. It feels less like vision and more like a pressure behind the eyes.
+
+The floor beneath your feet is soft, yielding, and damp. It is not soil, but a dense, interlocking mat of root-hairs and mycelium, compressed by the sheer weight of the biomass above into a surface that feels like wet velvet over steel. It springs back with every step, releasing tiny puffs of humid, oxygen-rich air that smell of ozone and crushed chlorophyll.
+
+The silence here is aggressive. It is not quiet, but a deafening roar of biological processes. If you hold your breath, you can hear the walls hiss. Millions of microscopic stomata opening and closing in unison, the wet slither of capillaries expanding, the groan of cellulose fibers tightening. The sound is a constant, rushing white noise, like a waterfall held hostage inside a bottle.
+
+Looking up, the scale of the place induces vertigo. The distance to the "ceiling" is immense, hundreds of feet of empty, warm air. This is the emptiness the parameters speak of—a void so pure it feels architectural. There are no stalactites, no rocks, no debris. The space is scrupulously clean. The only features are the walls, which are not stone, but a single, continuous layer of living plant matter.
+
+The vegetation here is not a collection of plants; it is a symptom. The walls are a riot of "total" biomass, a monoculture of aggressive, neon-green anatomy that has replaced the geology of the earth. Because the erosion is "young," the transition between the old world and the new is terrifyingly sharp. You can see the seam where the strata of grey limestone ends and the green invasion begins. The plants do not *grow* on the rock; they have *replaced* it. The boundary is jagged, a serrated line of vibrant tubers sawing their way into the ancient stone, digesting it in real-time. The rock face looks freshly broken, shattered by the explosive pressure of the life erupting from it.
+
+Every surface is weaponized. The leaves are thick, rubbery paddles tipped with barbs that drip a viscous, clear nectar. Vines hang down from the distant ceiling like the taut strings of a pendulum, motionless and tense, vibrating slightly with the ambient noise of the room. They are sharp enough to cut skin on contact. The overall aesthetic is one of freshness and violence—a garden that has just woken up hungry.
+
+Water manifests as a heavy, intermittent condensation. The temperature is sweltering, a tropical warmth trapped in a thermos. Every few minutes, the humidity reaches a saturation point, and the entire room cycles through a brief, misting rain. It falls vertically from the glowing air above, a curtain of fine warm water that lasts exactly sixty seconds before stopping instantly as the plants on the walls absorb the moisture through their pores. The floor drinks it instantly; no puddles form. The dampness is constant, a slick layer of sheen on every surface.
+
+Despite the lushness, fauna is rare. The ecosystem here is too new, too hostile for animals to have established a foothold. But they are not absent. High up in the vaulted ceiling, where the light is most intense, small, pale shapes move. They are spindly, six-legged creatures that scuttle along the underside of the hanging vines. They are primitive things, exoskeletons soft and wet.
+
+Occasionally, one drops. It falls hundreds of feet, thrashing in the glowing air, before hitting the root-mat floor with a wet snap. It does not die. Immediately, the floor reacts. The carpet of root-hairs unravels, tendrils shooting out to stitch the creature into the substrate. It is not eating it; it is repurposing it.
+
+This is the primitive technology of the world. The creatures use simple tools—shards of broken rock that have not yet been consumed by the walls—to scrape nectar from the high vines. But the plants themselves are the engineers. They construct traps, walls, and barriers. They weave the air. You see a strange formation near the wall: a lattice of woven branches that looks suspiciously like a cage, occupied by nothing but shadow.
+
+The dynamic of the place is frantic. You can watch the plants grow. It is visible to the naked eye. A vine extends a fraction of an inch every minute. A bud swells, bursts, and flowers within the span of a breath. The hiss of the walls grows louder as the sun-cycle (simulated by the brightening air) peaks.
+
+The weirdness is in the logic of the place. It feels unfinished. The reality here is thin. If you look at the edges of your vision, the sharp lines of the plant-blade walls seem to vibrate, pixelating into pure green static. The geometry of the room is slightly wrong; the corners of the spherical pocket do not meet correctly. If you walk far enough in one direction, you might find yourself back where you started, or you might step into a "fold" where the air is thicker and the light is dimmer, a glitch in the cavern's generation.
+
+This is a place that was not formed, but *occurred*. A bubble of pure, aggressive biology blown in the dark of the earth, screaming with the sound of its own growth, waiting for the rest of the world to catch up to its sharp, green hunger.

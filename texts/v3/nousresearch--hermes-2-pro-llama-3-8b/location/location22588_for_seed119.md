@@ -1,0 +1,19 @@
+In the realm of Dregar, where opposing forces meld into one singular plane, lies the Hollows—a place of strange beauty, bristling with whispers of wonder and fear interspersed between its raw, ancient features.
+
+Intricate threads weave their way through the land, connecting disparate elements into a harmonious tapestry of survival. The water, a welcomed sight on this cool and ever so slightly damp world, flows gently downward, propelled by noticeable slopes toward awaiting depressions. They collect into numerous puddles, rivulets, and ponds—inlets commonly brimming with aquatic life that teems around every bend.
+
+Below the surface of glinting waters, the vegetation remains sparse. Clinging to the tiniest of crevices, they have learned the art of survival in this unyielding environment. Some even bear the peculiar aspect of photosynthesis, drawing what life they can from the sun-laden pledges that occasionally filter through the dim atmosphere above. Some grow towards the light, even though it's not sufficient in this shadowy world.
+
+The temperature, as cool as it might be, barely encourages the expansion of such limited vegetation. A more abundant flora could be found in the areas with more sunlight, where ambient heat builds up with each passing day. Still, nature abounds not only in lifeforms that call the Hollows home but visitors drawn from other realms, making this place all the more lively and bustling.
+
+The geological landscape, grown and established over countless cycles of erosion and construction, exudes tranquility that seems at odds with the dynamism beneath its surface. Despite the mountainous scale, the hollows remain cryptic and mysterious. The terrain built of an assemblage of haphazard rocks, jumbling together as if a titan once took a sledgehammer to this quiet world—a relic echoing with whispers of former chaos and puzzling beauty.
+
+Constructed within the Hollows is both art and necessity. Harnessing the thin light that squeezes through the dark air, each structure unveils its own story of struggle and survival. Even as the world is eternally in flux, the built environment scrambles for omnipresence in the valleys and tall cliffs alike. Everything here is made, birthed from a futile attempt to defy nature.
+
+Technological advancement, simple and primitive as it may be, surmounts to the craft of the inhabitant's hands—the power of their will shaped stone by stone. This impressive feat makes a mockery of the idea of a natural-substrate.
+
+Fauna species, so abundant and diverse, dwell within the Hollows. They exhibit extraordinary resilience within an environment largely hostile to them. It's a remarkable thing to observe how these lifeforms change and evolve over time, how they metabolize the peculiar ecology around them, and how they build, step by step, an existence within the confines of this haunting landscape.
+
+The Hollows is full of sounds, loud and boisterous, an orchestra of life playing its never-ending symphony. It echoes with the clash of rocks, the hum of insectile hordes, the cacophony of creatures that call it home, as well as the hushed cries of the hunted, and the triumphant roars of the hunters. Each sound is a testament to the fight for survival; each note another brushstroke in the vivid yet stark canvas painting the Hollows.
+
+The Hollows is a strange place, full of blinding contradictions. It skilfully waltzes the line between life and decay, growth and destruction, light and darkness. You could stand in awe of its creativity, wonder at its weirdness, and marvel at its ability to host such life in such a seemingly inhospitable landscape—a testament to the boundless possibility and unrelenting force of life.

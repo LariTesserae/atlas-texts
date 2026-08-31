@@ -1,0 +1,24 @@
+The place is called the Weeping Hollows.
+
+It is a high, wide basin ringed by fractured basalt cliffs that have stood so long they have forgotten they were ever uplifted. The altitude is enough to thin the air and cool the edges of things, yet the basin itself is a furnace. Heat rises from below as though the planet has left one of its lungs open. Steam and mineral vapor breathe upward through ten thousand fissures, so the atmosphere itself is wet and heavy even though almost nothing living grows here.
+
+There are no trees, no grasses, no moss. What passes for vegetation is a low, slow empire of black and rust-red fungal lattices that spread across damp stone like spilled ink. They do not photosynthesize; they drink dissolved metals and the faint electric gradients that leak from the old machines. In places the fungus has fused with the architecture until it is impossible to say where the city ends and the mineral life begins.
+
+The city is ancient, industrial, and mostly abandoned. Vast iron foundries, cooling towers, and elevated rail lines march across the basin in concentric rings, rusting into elegant, lace-like skeletons. Many of the structures have sunk or tilted over centuries of uneven subsidence; others have been lifted again by slow mineral accretion, so entire districts appear to float on pedestals of travertine and sulfur. Pipes as thick as tram cars run everywhere, weeping constant threads of scalding water that hiss where they strike the ground. The water is rich with dissolved salts and precipitates instantly into terraces of blinding white and ochre that grow, millimeter by millimeter, across every surface. The city is literally crying itself into new shapes.
+
+Light is perpetual dusk. A thick haze of steam and volcanic gases filters the sky into a low bronze ceiling. There are no true shadows, only gradients of scalding glare and wet gloom. At night the only illumination comes from rivers of dull red lava moving beneath translucent crusts in the deepest trenches, and from the occasional stuttering arc-lamp that still functions on emergency geothermal power.
+
+The place is almost empty. A single human figure would be visible for kilometers. Yet it is not dead. It is active in its own slow, geological rhythm. Every few hours a new geyser opens with a sound like a distant cannon. Hot springs overflow their mineral lips and send fresh sheets of water sliding down tilted boulevards, carving fresh channels through centuries of scale. Condensate gathers on the undersides of mile-long bridges and falls in slow, glittering chains that evaporate again before they reach the ground. The city exhales. The city drinks. The city rearranges itself.
+
+Fauna is rare and strange. There are things that might once have been insects, now armored in silica scales and moving with the clicking patience of wind-up toys. There are translucent, heat-loving lizards no larger than a hand that live inside the steam pipes, their blood replaced by a metallic brine. Once in a great while something larger stirs — a herd of six-legged silhouettes crossing a distant ridge, or a vast, blind shape that surfaces in one of the boiling lakes, breathes a column of steam, and sinks again. No one has ever studied them for long. The heat and the chemistry make fieldwork almost impossible.
+
+Sound is scarce but precise. The dominant noise is the soft, constant hiss of water flashing into vapor. Every few minutes a pipe somewhere groans as it expands. Occasionally a great iron girder, stressed beyond endurance by differential heating, gives way with a single clear note like a broken bell. These sounds arrive across vast distances with almost no muffling; the near-void air carries them perfectly.
+
+The rules of the world here are simple and merciless:
+
+- Everything rusts, everything precipitates, everything is slowly becoming part of the terraces.
+- Heat rises; water falls; both move in cycles older than any memory.
+- The city is still producing. Deep in sealed vaults, nameless machines continue to refine, to pump, to generate power for a civilization that left or died centuries ago. No one knows what they are making. The product is piped away into the rock and never seen again.
+- If you stay too long the minerals begin to grow on you as well. First a fine white dust at the corners of the eyes and mouth, then heavier encrustations along the sweat lines. The locals (there are still a few) call it “the city claiming its interest.”
+
+This is not a ruin. It is a functioning organism of stone, iron, fungus, and superheated brine that has achieved a kind of equilibrium. A vast, hot, weeping machine slowly digesting itself and being reborn in the same motion, under a bronze sky, in near-silence, for kilometers in every direction.

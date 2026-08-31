@@ -1,0 +1,79 @@
+# The Dry Upland
+
+---
+
+Begin with the light. It arrives before anything else does — before shape, before texture, before your eyes have registered that there is a horizon to register. The light here is not illumination so much as *presence*, a white-gold envelope that has no visible source because it seems to fall from the entire sky at once, the sky being a pale and tremendous thing, blue so diluted it is nearly silver, nearly white, the blue of something that has been blue for an enormous amount of time and has almost forgotten why. At this altitude the atmosphere is thin enough that the light does not so much filter down as *arrive*, unmediated, without the thickening that lower places do to it. Shadows are crisp and decisive. Every edge is itself.
+
+The place is large. That is the first thing that must be established, because the scale of it shapes everything else — shapes the quality of the silence, the spacing of the plants, the way a single visible living thing at great distance does not make the place feel less empty but somehow more so. This is not a mountain or a plateau in the familiar sense of those words. It is more like a raised interior, a continental table that has been here long enough that geographers, if there were any, might struggle to explain it in terms of the forces that make such things rise. The edges are far away and the center of it is everywhere you stand. The land does not climb toward a peak. It simply *is*, at this height, and has been for longer than the present shapes of the continents in lower places, as though the elevation here is not a height above something but simply the natural resting place of the ground, and it is the rest of the world that has subsided.
+
+---
+
+The stone is the first material. Pale, iron-reduced, tending toward ochre and cream, sometimes toward a faint lavender where the mineral composition shifts — an igneous base so thoroughly weathered that it no longer looks volcanic, no longer looks like anything dramatic happened to produce it. The rock has been here through enough freeze-and-thaw cycles, enough centuries of thermal expansion and contraction, that it has sorted itself into something almost orderly. Large formations tend to break along horizontal lines. Boulders have settled into positions that look considered. The surface of any exposed stone face is covered in a micropattern of small fractures that catch shadow and make the whole face look finely crosshatched, like an engraving of itself, like the stone has developed its own internal notation for what has happened to it over time.
+
+What the stone does not do, almost anywhere across this entire vast interior, is show signs of water. There are no channels. No dried streambeds, no fluvial carving, no alluvial fans — none of the grammar that moving water leaves in stone. This is the first unusual thing. The erosion here is real and thorough and ancient, but it has been accomplished by other means: by wind, by the freeze-and-thaw, by the slow chemical exchange between exposed mineral and thin cold air, by processes that move so much more slowly than water that the results look different in character — smoother in some places, more fractured in others, never channeled, never scooped. The wind-rounded faces of boulders have a particular quality, a matte roundness that is different from water-smoothing: less polished, more abraded, like something that has been sandpapered rather than caressed.
+
+There is almost no soil in the conventional sense. Between the stone surfaces there is a fine mineral grit — the same ochre-cream material as the parent rock, ground fine — and this grit packs into low-lying areas between boulders, into the lee-sides of formations, creating small level patches of pale dust that in certain angles of light look almost luminous. This is not soil. Nothing much decomposes here to make true soil. What organic material has accumulated over the ages has done so very slowly and lies thin as paper over the mineral layer.
+
+---
+
+Now: the vegetation.
+
+This is where the place contradicts itself, and the contradiction is worth spending time in, because it is the heart of what makes this landscape a landscape and not just a terrain.
+
+Given everything — the altitude, the aridity, the cold, the stone — you would not expect lushness. And yet. And yet the plants here are not sparse in the way that, say, a cold desert's plants are sparse, huddled and minimized and apologetic. They are lush. Individually, each plant is fully, extravagantly itself. The contradiction is in the *spacing*.
+
+There is much space between them. You could walk for several minutes between one cluster and the next. But when you arrive at a cluster — when you are standing at one rather than between them — the life is dense, layered, intricate. This is not a landscape of individual plants scattered across stone. It is a landscape of *communities* scattered across stone, each community occupying its chosen territory with great intensity, surrounded by openness.
+
+The dominant forms are low and ground-hugging in their architecture but not in their color. There are mosses — if mosses is the right word, because they have grown into forms that mosses elsewhere don't take, thick cushions that in the largest examples stand thirty centimeters high and spread two or three meters across, their surfaces an almost violent green against the pale stone, green so saturated it seems to emit light rather than reflect it. These cushion-forms are botanically remarkable in ways that would take a specialist to name: they have evolved an interior structure that traps and cycles moisture from the thin air, from the rare fogs that move through in the early hours of certain mornings, from the nightly condensation that the temperature differential between stone and air produces. They are, in essence, their own water systems. They do not need rain. They have developed chemistry for this.
+
+Between and beneath the cushion-mosses, other forms: low-growing plants with thick waxy leaves, the leaves pale on their undersides and dark on top — almost black in the full light of midday, which maximizes solar absorption at this altitude — and these are spaced with an almost architectural regularity, as though they have negotiated their territories over centuries and arrived at a stable agreement. Their flowers, when present, are small and white or pale yellow and they open fully only when the bright light falls on them directly, closing to tight fists in shade. This is not tropism. This is the plant being careful.
+
+There are also lichens. The lichens are the most ancient presences here. They have colonized the rock faces, and in doing so have — over geological time, over the time it took for this upland to settle into its present form — produced a faint coloration across the stone: patches of rust, of ashy gray, of pale orange, of near-black. From a distance, the boulder fields look like they have been painted in dilute washes. Up close, the lichen surface is a world at a smaller scale, a texture of hexagonal and irregular plates, a miniature pavement, cool and dry to the touch and somehow ancient-feeling in a way that even the stone is not, because stone is passive in its age and lichen has been *doing something* the entire time, slowly dissolving mineral, slowly exhaling, slowly growing toward its edges at rates that require calendars of centuries.
+
+---
+
+The fauna is rare but not absent. 
+
+The absence of water means that what lives here has solved a problem, and solutions to hard problems often produce unusual animals. The creatures that pass through this landscape — they pass through; they do not seem to settle the way the plants have settled — are present as suggestions more than as facts. A movement at the edge of vision, on a far boulder field, that when you look directly is no longer there. Not because it has fled, necessarily, but because the distance is so vast and the shapes so confusing that distinguishing animal from stone requires sustained attention and good luck.
+
+What seems to live here: something large and pale, moving slowly across the pale stone, its outline softened by a coat the color of the mineral grit. It walks with deliberate patience. It pauses frequently. When it pauses it is almost invisible. Its size is difficult to judge because the scale of everything else defeats visual estimation — it could be the size of a deer or twice that. It does not appear to drink. It appears to graze at the cushion-mosses with something like reluctance, or perhaps merely without urgency.
+
+There are also things in the air, occasionally. Not birds, precisely, or if birds then birds that have lost the interest in flapping — they ride the thermals that the heated rock produces during the bright hours, and they circle at great heights, their wingspans wide enough to be visible from below but not wide enough for their shapes to resolve into detail. They make no sound. 
+
+---
+
+The sounds, or the near-absence of them.
+
+Wind is present but not loud. At this altitude, wind is a constant fact — the pressure systems that move across the upland are immense, and the wind that expresses them is usually gentle, steady, without the gusts and drops that lower terrain produces when air moves around obstacles. Here the air simply moves, horizontally, at a pace that is felt more than heard. It does not whistle. There are not enough edges for it to whistle. It moves through the cushion-mosses and produces a very faint sighing at the lower end of audibility.
+
+The thermal expansion of rock in morning light produces occasional quiet sounds — a low creak, a settling, something between a tick and a groan. These sounds stop abruptly and do not echo because the geometry of the landscape is not reflective enough to produce echo.
+
+The pale grazing animal, when it moves across stone, produces a sound that travels very far in the thin still air. Small stones shifting under weight. A careful sound. Not a furtive one.
+
+That is almost everything that can be heard.
+
+The dominant experience of sound here is its absence, and the absence is not a deprivation but a condition, a room the other sounds live in. Silence at this altitude is not the silence of a closed space. It has dimension. It extends in all directions and curves eventually, given the curvature of something this vast, away over the horizon, and you understand standing in it that the silence is also enormous, that it has the same scale as the landscape, that the vast pale upland and the vast pale quiet are the same thing expressed in different registers.
+
+---
+
+The dynamic quality of this place is slow and large.
+
+Weather forms here and dissipates here without reference to anyplace else. Cloud systems that begin as nothing — a slightly elevated moisture content, a temperature differential over a darker rock field — build over the course of a bright morning into vertical formations that throw slow shadows across many kilometers, the shadows moving across the pale stone like something deliberate, and then dissolve in the afternoon as the thermals shift. These are not storms. They rarely produce rain. They are atmospheric events without consequence except as events, except as the light they block and restore and the brief cold they carry under their bellies.
+
+The temperature cycles between day and night are significant and rapid and account for much of what happens here. The stone cools quickly after dark, quickly enough that by early morning the surface temperature is very different from the air temperature immediately above it, and in this differential a faint moisture forms — not dew in the conventional sense but a thin deposition that the cushion-mosses drink with their upper surfaces, their green intensifying slightly in the early hours before the light burns it away.
+
+There are seasonal processes too, larger and slower. Times when the pale animals are more visible, moving through in loose dispersed groups that are not herds because they do not coordinate, but they coincide, each one making its own decision to be here and all of them having made the same decision in the same weeks. Times when the mosses produce their reproductive structures — small vertical stalks with tiny capsules, visible across the whole community when light falls right, giving the cushion a furred quality as though it is trying to become something else. Times when the lichens, for reasons tied to temperature ranges too specific to observe directly, enter a phase of slightly accelerated growth and the rock faces take on a faintly brighter hue, barely perceptible, perceptible only if you have spent enough time here to know what the usual color is.
+
+---
+
+The rules of this place, as best as can be determined from long looking:
+
+Water is not the medium of life here. Life has found other media — thin air, mineral dust, the chemistry of lichen-rock exchange, the careful architecture of plants that are their own cisterns. The absence of water is not an absence of life's possibility but a different set of its conditions, and the life that has risen to meet those conditions has had a very long time to do so. It is established. It is settled. It has worked things out.
+
+Scale defeats urgency. In a place this vast and this quiet, the rates at which things happen seem to have adjusted to the available time. The lichen grows at its pace, the stone weathers at its pace, the animal on the far boulder moves without haste because haste is a response to scarcity and here the one thing that is not scarce is space and time. This is not a place that is running toward anything. It is not waiting for anything. It is fully what it is, at this moment, in the same way it was fully what it was in a previous and distant moment and will continue.
+
+Emptiness here is not a lack. The space between the communities of moss, the kilometers of pale stone grit between one group of living things and the next — this is not emptiness as deficit but emptiness as medium. The same way the silence is a room for sound. The spacing is what gives each community its meaning. Together they would be a different landscape, perhaps a richer-feeling one, but it would be less *itself*, less shaped by its own logic. The sparseness is load-bearing. It holds the whole thing up.
+
+The light is the most active thing. The light crosses the landscape all day, shifting the color of the stone from warm ochre in morning to pale blinding white at noon to a burnished rose-gold near the end of the bright hours, and in doing so it moves through the landscape like a slow enormous tide, and the landscape changes with it not in its facts but in its feeling — in morning it is intimate and detailed, each stone face showing its crosshatching in long shadow; at noon it is abstract and almost featureless, all shadow compressed; in the late hours it is ceremonial, the cushion-mosses turning a color so rich it has no name for it, and the pale rock glowing, and the enormous sky above turning through its long gradient from silver-white at the zenith to something almost amber at the edges, where the light comes in low and has passed through more atmosphere, and picked up more of what atmosphere does to it.
+
+The bright hours end and the temperature drops quickly and the stone speaks quietly to itself as it contracts and the pale animal on the far boulder has become indistinguishable from the pale stone and the cushion-mosses are dark and closed and the lichens go on doing what they have always done, which is very slowly become more themselves, and the sky fills with stars — many more than any lower place would show, sharper, less twinkled, burning cleanly in the thin air — and the vast upland is dark and quiet and fully itself, in its own state, in balance, in possession of all its own enormous time.

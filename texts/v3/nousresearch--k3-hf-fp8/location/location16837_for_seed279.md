@@ -1,0 +1,30 @@
+You stand at the edge of the Drowned Plain, where water arrives not as rivers or rain but as memory. The ground remembers wetness. It recalls, in irregular pulses, the weight of oceans that never existed here—these low, rolling flats exhaling mist through millions of tiny mouths that open and close like pores in the basalt. Each exhalation carries the taste of salt and iron though no sea has ever touched this place.
+
+The plain stretches open in all directions, yet feels dense as a lung filled halfway with smoke. Distance behaves strangely here—objects five hundred meters away appear sharper than those fifty meters distant, as if the air compresses space itself into strata of varying clarity. Far-off columns of stone stand in perfect focus, scarred with fresh fractures that still glitter unweathered despite the landscape's great age. But the neighboring stones within reach of your hand remain vague suggestions, their edges softening and reshaping whenever you blink.
+
+Vegetation exists only as absence, as negative space where living things might have taken root in some other version of this world. The ground offers no purchase for roots—it is too busy remembering. Instead of plants, the plain grows sculptures of mineral breath: hollow geodesic frameworks that crystallize overnight from vapor, expand until they reach the height of your waist, then collapse into dust that drifts away singing. Walking here requires care not to crush these fragile half-made forests before they complete their brief lives.
+
+The temperature stays cool and stable, neither day nor night bringing relief or variation. But this constancy carries its own strangeness—your body clock falters and resets every few hours, unable to anchor itself to a world without circadian rhythm. You could have been walking for minutes or months when you first notice the buildings.
+
+They appear scattered as afterthoughts across the plain: twelve structures in total, though counting them is difficult because the number seems to shift whenever you look away. Each is small enough to be a single room, constructed from thousands of identical square plates that absorb exactly 93% of all light that strikes them. They have no windows, no doors, no discernible entrances or purposes. When wind (which here sounds like voices speaking just below comprehension) moves between them, the buildings resonate at specific frequencies that make your teeth ache and bring tears to your eyes without any accompanying emotion.
+
+There is no technology here in any recognizable form. What exists instead is a kind of mineral intentionality—the plain itself thinking in slow, geological thoughts that occasionally manifest as these structures or other phenomena. The square plates of the buildings grow from the ground like crystals forming according to principles of architecture rather than chemistry. They expand outward atom by atom, each new layer perfectly aligned to patterns encoded somewhere in the substrate's memory of water.
+
+Sound dominates everything. The plain is never silent, but its soundtrack contains none of the familiar orchestration of natural places. Instead of birdsong or wind or water, you hear: low metallic groans that shift pitch following rules of mathematical progressions too complex to follow; sudden staccato bursts like distant gunfire that turn out to be stones expanding by single molecules and cracking apart from the stress; continuous whispering static composed of millions of tiny collisions between dust particles remembering their histories at incompatible speeds; and beneath it all, everywhere, a deep infrasonic pulse at exactly 7.83 hertz—the former resonance frequency of a planet that no longer exists.
+
+Very occasionally, you glimpse movement that might be fauna. Brief flickers at the edge of vision: something like a shimmer of heat haze but moving against the wind, traveling in straight lines that ignore the contours of the ground. If you try to follow directly, it vanishes instantly. But if you walk randomly, changing direction without pattern, sometimes you'll find evidence of the thing's passage—perfect circles where the basalt has been polished mirror-smooth, temperatures slightly warmer than surroundings (though still cool to touch), faint trails in the dust composed of particles arranged in fractal patterns that collapse into randomness when examined too closely.
+
+The rules here are few but absolute:
+
+1. The plain remembers everything that has ever been wet, but interprets 'wet' according to its own definitions.
+2. Time flows at different rates depending on how much you are trying to measure it.
+3. Objects observed carefully become less real; only the periphery holds solidity.
+4. The square buildings are alive in some sense that doesn't apply to anything else, but they are neither aware nor unaware of this condition.
+5. The shimmer creatures are not alive but are very curious about living things, particularly about the sensation of drying out.
+6. Water cannot physically exist here in liquid form, but the concept of water exercises gravitational influence.
+7. The best way to navigate is to follow the sound of something you desperately hope you won't find.
+8. If you stay too long without moving (where 'too long' varies based on factors including your birth weight and number of languages spoken), the plain will begin incorporating your memories into its own. This process is neither painful nor pleasant but is extremely difficult to reverse once begun.
+
+You are walking across this place now, though when you started walking remains uncertain. Behind you, your footprints fill slowly with a liquid that isn't water—too thick, too reflective, carrying images of somewhere else entirely in its depths. Ahead, one of the square buildings has moved closer while you weren't watching. It is vibrating gently at a frequency that matches the rhythm of your heartbeat, which is strange because you haven't had a heartbeat since before you arrived here.
+
+The plain waits to see what you will remember next.

@@ -1,0 +1,7 @@
+Let's venture into this engineered expanse:
+
+The landscape is the fully constructed cavity of a large, dry, air-filled asteroid. Its surface form has long since stabilized at the edges and base of the cavern, as erosion finished after all unstable rocks and such were long gone. The air inside the cavity is motionless, unchanged ever since the last vapor in the rock was baked out. It is warm from the radiant heat of starlight that shines in through a large, thick, clear stone window at the top of the cave. The space is fully filled with a very dense packing of large, connected, incomplete stone ships, seemingly of early metal age construction. Some of the partial ships shine weakly in the dim light, and soft, very low-pitched humming emanates from many of them, so that the overall soundfield is louder than anything else may have been in eons. 
+
+The huge stone ships fill most of the cave, but a clear passageway a hundred meters wide weaves through them, providing a path winding from the central window down to the cave floor. Towering above the passage at many points are large stone tripods. Instead of the usual ship's mast, each one supports three stone pendulums connected with a large, slowly conter-rotating, stone gearset. Their shadows, against the side of a ship, give the only visual indication of time passing, but this place has stood in complete stillness for so long that the lovingly detailed method of regulating their gentle oscillations has been completely forgotten by time.
+
+I became frustrated and discouraged. I need more time to think.

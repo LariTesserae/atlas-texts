@@ -1,0 +1,17 @@
+A vast processing facility stretches through the underground darkness, its true extent masked by perpetual mist and the limits of artificial lighting. The complex exists to filter and purify groundwater, but over decades it has developed its own ecology of drips, flows, and precipitations.
+
+Enormous catchment tanks, their surfaces beaded with condensation, stand like steel mountains in the carved-out caverns. Water seeps from the rock walls and is immediately captured by collection gutters that trace geometric patterns across every surface. The liquid moves with purpose here - channeled, filtered, processed through layers of engineered systems.
+
+The air is cold and thick with moisture, creating halos around the industrial lighting that hangs in regular intervals from the ceiling. These lights cast more shadow than illumination, their beams diffused by the ever-present mist that rolls through the facility's corridors and chambers. The fog carries the metallic taste of purification chemicals and the sharp mineral scent of newly-exposed rock.
+
+The dominant sound is a constant industrial drone - the bass note of massive pumps moving water through the facility's arteries, overlaid with the higher pitched whine of filtration systems and pressure release valves. But beneath this mechanical chorus is a more organic soundscape: the persistent drip of water finding new paths through the facility's structures, the occasional hollow boom of air pockets shifting in the main tanks, the whisper of mist condensing on cold surfaces.
+
+The facility's architecture follows water's tendency to spread and seek depth. Maintenance corridors branch and descend like dried riverbeds, their floors worn smooth by decades of foot traffic. Pipes of varying diameters run everywhere - some as wide as tunnels, others as fine as capillaries, creating a complex circulatory system that flows through the facility's body.
+
+In places where human attention has wavered, the facility has begun developing its own patterns. Mineral deposits form strange sculptures where leaks have gone unrepaired. Patches of pale, tough fungi have colonized the damper corners, feeding on the traces of organic matter in the groundwater. Rare species of blind cave fish occasionally appear in the holding tanks, having found their way through some unknown connection to the outside world.
+
+The newest sections of the facility gleam with polished efficiency, but in the older chambers, corrosion paints complex patterns across metal surfaces. These areas feel more alive somehow, as if the facility is slowly developing its own form of consciousness through the interaction of water, metal, and time.
+
+Maintenance robots move through this landscape like mechanical priests, their lights cutting through the mist as they tend to the facility's needs. Their movements create momentary clearings in the fog, offering glimpses of the true scale of the infrastructure before the mist flows back to reclaim the space.
+
+The whole complex feels like an inverted aquarium - instead of containing water within glass walls, it exists within water, constantly working to separate, clean, and control the fluid that surrounds and penetrates it. Despite its industrial purpose, there's something almost religious about the space - a cathedral dedicated to the purification of water, humming its eternal mechanical hymn in the darkness below the surface.

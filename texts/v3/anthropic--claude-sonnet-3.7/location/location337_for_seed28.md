@@ -1,0 +1,21 @@
+# The Terrarium City
+
+In a hollow sphere of rose-copper metal, a city thrives. This hidden world—no larger than a medieval castle's great hall—houses a civilization within its curved walls. The sphere is ancient, its outer shell weathered and discolored in complex patterns by whatever lies beyond, but the interior remains pristine through the diligent work of its inhabitants.
+
+The dome arches overhead, lined with countless glass bulbs emitting merciless brightness. The light doesn't wax or wane; there is no day or night here, only perpetual noon. The illumination casts no shadows, surrounding all things with a halo that makes edges difficult to perceive. The many-bulbed ceiling creates a phenomenon the locals call "the thousand suns."
+
+There is no water here—not as most would recognize it. Instead, the residents have engineered a system using a viscous amber fluid that flows through transparent tubes and channels carved into the reddish stone pathways. This liquid—they call it "savia"—sustains the remarkably lush vegetation that climbs every vertical surface of the miniature metropolis. Vines with triangular purple leaves twist around buildings, and succulent plants with rubbery tendrils drape from balconies. These plants have adapted to extract moisture from the air itself and store it within thick, glistening tissues.
+
+The circular city is densely built upon itself. Thousands of small dwellings stack atop one another in concentric rings, connected by spiral staircases and arched bridges of hammered copper and clay brick. Each home is scarcely larger than a closet, with intricate wooden doors that unfold like origami to transform the spaces from sleeping quarters to workshops to dining areas as needed. Every surface serves multiple purposes—a wall becomes a table becomes a bed becomes a storage unit.
+
+The sound is what strikes visitors most profoundly. The NOISE. Constant, overwhelming, physical. The city's mechanisms produce a deafening symphony: thousands of tiny copper gears turning against one another, the rhythmic pounding of manual fabrication tools, and the city's heart—an enormous mechanism of unknown purpose at the center that produces a constant bass resonance that vibrates through bone and tooth. Residents communicate through an elaborate sign language; their ear canals have evolved to partially close, protecting them from the perpetual din.
+
+Animal life is scarce—a few species of iridescent beetles that tend to the plants, and occasionally a glimpse of something rat-like that scurries along the higher passages. The residents themselves appear mostly human, though their skin has taken on a copper-ish hue that matches their environment, and their ears have that peculiar, protective fold.
+
+The inhabitants craft everything by hand, working with simple tools—hammers, chisels, bone needles, and wooden looms. Yet despite this primitive technology, they've achieved remarkable complexity through generational knowledge and painstaking precision. Their finest artisans can create mechanical marvels using only wooden gears, copper wire, and obsidian cutting tools.
+
+Most curious is the rain of seeds. At irregular intervals, the air fills with drifting plant spores and seeds that emerge from tiny openings in the domed ceiling. This "seed-storm" sends the residents into practiced routines—some gathering the valuable specimens in woven baskets, others covering sensitive mechanisms with oiled cloths. The vegetation surges with new growth afterward, requiring careful pruning to maintain the city's delicate balance.
+
+The sphere has been this way for countless generations. The copper walls show wear patterns suggesting centuries of hands touching the same spots. The central mechanism has paths worn into the stone floor around it from millennia of maintenance processions. Everything here has found its rhythm, its place, its purpose.
+
+No one speaks of what lies beyond the sphere. Some say there is nothing; others believe the outside world died long ago. The eldest residents whisper that they are but one of many such spheres, adrift in something vast and dark and empty. But these are just stories told in hand-signs while the city's heart pounds its eternal rhythm, drowning out all other thoughts.

@@ -1,0 +1,17 @@
+Deep within the sun-baked pinnacle of a dry, high-altitude mountain range, sealed away from the wind and the skies, lies a pocket-world no larger than the interior of an iron safe. 
+
+This is a fissure of raw, unweathered basalt and high-grade quartz, compressed by millions of tons of dry tectonic weight. There is no sky here, no horizon, no distance. The entire environment is contained within a jagged, vertical crack three feet wide and six feet high. There has never been water here; the air is a suffocatingly dry, superheated mixture of nitrogen and fine sulfur dust, baking at temperatures that would blister human skin.
+
+Because the rock is young and untouched by wind, rain, or ice, there is no erosion to soften it. Every edge is surgically sharp. The basalt walls are sheared into glass-smooth, razor-edged planes; the quartz veins are jagged, newly formed teeth that have never known a drop of moisture. There are no plants, no lichens, not even the simplest fungal spores. The mineral world here is absolute.
+
+Yet, this tiny, lightless chamber is crammed to its limits. It is a space of extreme density, a packed hive where there is virtually no unoccupied volume.
+
+Though there are no tools, no masonry, and no conscious architecture, the pocket functions like an industrial machine—specifically, a massive, natural electrical transformer. Under the immense, slow-shifting pressure of the high mountain peak, the quartz veins generate a continuous, powerful piezoelectric charge. The basalt, rich in iron and copper ores, acts as a series of natural conductors. The result is an electrified interior. Tiny, blue-white static arcs jump rhythmically from one sharp mineral facet to another, snapping like miniature combustion plugs. 
+
+The air smells of ozone, parched sulfur, and hot, dry iron. The sound inside this tiny space is deafening and constant—a deep, mechanical thrumming that vibrates at sixty hertz, the exact hum of a massive electrical substation. This heavy, industrial drone is layered with the sharp *snap-snap* of the static discharges discharging across the narrow gaps of the rock.
+
+Living in the tight crannies of this electrified heater is an incredibly dense population of micro-fauna. These are not soft-bodied creatures; they are dry, carbon-silicon arthropods, like tiny, multi-segmented beetles with carapaces of matte-black iron. They do not eat plants or hunt; they harvest energy directly from the air and rock. They cling in layers, three or four deep, to the flat planes of the basalt, their clawed feet tapping into the copper-bearing veins to drink the micro-currents. 
+
+They do not move quickly. Their lives are measured in slow, patient cycles; they can remain motionless for days, absorbing charge, their tiny iron-plated bodies acting as biological capacitors. But when they do move, they do so in a frantic, clicking friction, their dry shells grinding against each other with the sound of gravel being turned over with a shovel. There are thousands of them in this single, small pocket, packed together like grain in a silo, filling every corner that is not already occupied by sharp rock.
+
+In the pitch darkness of the fissure, the only illumination is the faint, periodic spark of the quartz discharging its stored pressure, casting brief, skeletal shadows of the clicking iron-beetles against the razor-sharp walls. Then the darkness returns, heavy and hot, vibrating to the slow, ancient squeeze of the mountain.

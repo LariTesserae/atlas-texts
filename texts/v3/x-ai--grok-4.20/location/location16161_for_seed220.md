@@ -1,0 +1,24 @@
+The place is called the Hollow Choir.
+
+You descend through a single, perfectly circular shaft bored centuries ago through kilometres of black basalt. When you finally step out, the world opens sideways rather than upward. You are not underground in the usual sense; you are inside a sealed, self-sustaining cavity the size of a small cathedral, yet the ceiling is so far above you that it is lost in absolute dark. The air is warm, thick, and faintly metallic, like the inside of a mouth that has just finished speaking.
+
+Everything here is gently damp. Moisture does not fall as rain; it condenses in slow, deliberate sheets along invisible thermal gradients, sliding down surfaces in silver ribbons before vanishing into hairline drains that were never meant for human eyes. The water is warm, almost body temperature, and it never quite pools. It beads, trembles, and is drawn away by forces that feel half technological, half alive.
+
+The city itself is sparse in the extreme. Between each structure lie cathedral-sized volumes of emptiness. What buildings there are stand alone, never touching, arranged in a loose spiral that follows a geometry your eye cannot quite resolve. They are not ruins. They are ancient, yes, but they have reached an equilibrium of erosion so perfect that every pitted surface and every hairline crack appears intentional, as though the city were grown or sung rather than built. The material is a dark, glassy ceramic shot through with threads of something that still faintly pulses—slow, arterial light the colour of old embers, visible only if you stare at the edges of your vision.
+
+The structures themselves are beyond modern. Their outer skins are active lattices that breathe. Every few minutes a low, tectonic groan rolls through the hollow and the walls flex by millimetres, redistributing stress, shedding microscopic flakes of themselves that drift downward like black snow. These flakes catch in the condensation and are carried into the floor, where they are reabsorbed. The city is eating and rebuilding itself in real time, so slowly it feels like geology.
+
+Sound is constant and loud, yet never chaotic. A deep, organ-like thrum emanates from the curved shell of the cavern itself—half tectonic, half engineered. It is the sound of titanic resonators buried in the rock, tuned to frequencies that make your teeth ache and your lungs vibrate in sympathy. Over this bassline move sharper, almost biological noises: the wet click and hiss of moisture valves opening and closing, the glassy ringing of expanding lattices, and occasional vast, percussive clangs as unseen mechanisms far above reset themselves. The sounds arrive from every direction at once, overlapping, braided, never ceasing. After a while you realise the city is singing to itself in a register just beyond human comfort.
+
+There is almost no life. A few pale, blind things the size of your hand scuttle between the condensation tracks—long-legged crustaceans with shells patterned like circuit boards. They are rare. You might walk for an hour without seeing another. Occasionally something larger drifts through the upper darkness on membranous wings, but it is silhouette only, gone before your eyes can focus.
+
+The darkness is not total. It is tiered. Near the floor, a soft, directionless ember-glow leaks from the buildings themselves, just enough to make the emptiness feel deliberate. Higher up, the light dies completely. You sense that if you could reach the ceiling you would find it covered in fields of faint, cold stars—bioluminescent colonies or perhaps machine equivalents—that have never seen a sun.
+
+The Hollow Choir is active. Every surface is in motion at scales both microscopic and architectural. Temperature differentials drive columns of warm, damp air that spiral lazily between the isolated towers. Condensation forms, runs, evaporates, re-forms. The city exhales. The city inhales. Structures swell and contract. The great resonators in the stone sing their endless, bone-deep chord.
+
+And through it all you remain startlingly, almost frighteningly alone. The emptiness between things is so complete that your own breathing feels like intrusion. The city does not seem to need inhabitants. It has achieved a state of busy desolation, a machine-ecosystem that has outlived every purpose except its own continuation, singing to itself in the warm, wet dark for ten thousand years.
+
+If you stand still long enough, you begin to feel the faint pull of the spiral geometry. The city wants you to walk its curve. It is not hostile. It is simply vast, ancient, loud, and profoundly uninterested in whether you understand it or not.
+
+Welcome to the Hollow Choir.  
+It has been waiting, not for you, but for the next condensation cycle.

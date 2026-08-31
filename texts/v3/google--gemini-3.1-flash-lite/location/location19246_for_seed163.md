@@ -1,0 +1,3 @@
+The high plateau is not composed of earth, but of a spongy, hyper-saturated substrate—a living peat five hundred feet thick that breathes with the slow, tectonic rhythm of a continent. Because it is so high, the air is thin and biting, yet it remains perpetually heavy with water. It is a place where light arrives not as a sunbeam, but as a total, overwhelming saturation; the atmosphere acts like a prism, turning the sky into a relentless, white-hot glare that reflects off a million weeping plant-pores.
+
+There is no soil here, only the *Calyx-Mat*. The ground is a vast, interconnected network of pressurized rhizomes and bloated moss-cushions. When you step, the surface yields with a wet, squelching sigh

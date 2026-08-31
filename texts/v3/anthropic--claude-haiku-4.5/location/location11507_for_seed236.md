@@ -1,0 +1,31 @@
+# The Terraced Hollows
+
+The place announces itself first as a smell—not unpleasant, but singular and present. Something between stone-dust and fermentation, the particular dryness of a closed room where something living has been turning over for a long time.
+
+You are standing in what might be called a canyon, though it is more accurate to say you are standing *within* one, the walls so close that you can reach both sides if you stretch your arms without extending them fully. The space rises perhaps forty feet overhead before the light changes—not to darkness, but to a warmer, more diffuse gold. There is no visible sky.
+
+The floor beneath your feet is not stone, though you would think it was at first touch. It is smooth, almost ceramic, the color of dried blood and rust. But it yields slightly, a give like packed earth, and when you look closely you see it is scored with fine parallel lines—channels, maybe, or the imprints of something that moved here when the material was softer. These lines never quite align; they cross at subtle angles, creating a palimpsest of direction that makes your eyes tired if you follow them too long.
+
+The walls are terraced.
+
+At first this seems impossible in such a narrow space—what purpose could terraces serve when there is barely room to move between them? But they are here nonetheless: narrow ledges, each perhaps knee-high, stacked vertically one above another like a very steep staircase that someone forgot to connect with risers. The ledges are crowded with growth.
+
+It is not vegetation as you would expect. The plants here are compact, dense, almost architectural in their organization. They do not sprawl or vine; they grow upward in tight spirals and coils, their stems the thickness of fingers, pale green with a waxy surface that catches the diffuse light. The leaves are small, nearly scale-like, arranged in overlapping patterns that suggest both economy and precision. There is no flowering that you can see, yet the air carries sweetness—not the sweetness of nectar, but something closer to fermentation, to yeast, to slow biological transformation.
+
+Where the plants are most dense, they have begun to form structures. Not by intent—there is no architecture here, no tool-marks, no building—but through sheer accumulated growth. Branches have woven together. Small gaps between stems have filled with a papery material, almost like wasps' nests, though it is the plants themselves doing this, secreting or interweaving. In places, the growth has become so thick that it forms nearly solid walls, opaque, with a surface texture like tightly bound straw.
+
+The air is warm. Not hot—there is no oppression in it—but persistently, evenly warm, as if the narrow walls hold heat and the dense growth moderates it into something manageable. You can breathe without effort, but the air feels *substantial*, present against your skin in a way air usually isn't. There is moisture in it, though you see no water. The moisture seems to emanate from the plants themselves, a slow release that creates a thin film on every surface.
+
+Life moves here, but very slowly.
+
+In the gaps between plant-stems, you notice movement that takes time to register as movement. Small creatures—you cannot quite see them clearly; they are the color of the stone-dust floor, or nearly so—move through the terraced growth with patient deliberation. Some appear to be something like insects, but their proportions are wrong; legs too many or too few, bodies too geometric. They do not seem alarmed by your presence. They navigate the dense plant-matter with an intimacy that suggests they have lived here for countless generations, their bodies shaped to fit the spaces between stems.
+
+There are larger presences too. In the deeper shadows of the upper terraces, you catch glimpses of things that might be animals—lumped, slow-moving forms that seem to spend hours, maybe longer, shifting position by fractions of an inch. Breathing, perhaps. Or the terraces themselves breathing around them.
+
+The silence is nearly complete. There is no wind—the walls and vegetation prevent it—and the creatures do not make sound, or make it so quietly that it falls below the threshold of hearing. What you hear instead is something like the absence of sound: a pressure against your eardrums, a heightened awareness of your own pulse, your own breath, the tiny movements of your own body. When you stand very still, you can almost hear the plants growing—not a sound, exactly, but a kind of tactile whisper transmitted through the stone-dust floor, up through your feet, into your bones.
+
+The place has no clear boundary. You could move deeper into the canyon, and it would continue: more terraces, more growth, the walls continuing upward or perhaps narrowing further. You could climb—the ledges suggest it—and ascend into the warmer gold light, closer to whatever ceiling holds it. Or you could retreat the way you came, assuming you can remember which direction that was in a space where direction feels less like a spatial concept and more like a texture, a quality of the air that gradually shifts.
+
+Time moves differently here. A minute feels like it might expand, or contract; you're not certain. The creatures move on their own schedule, indifferent to your sense of duration. The plants grow according to a patience that predates human concepts of growth. The terraces stack upward, creating a space that is simultaneously a canyon and a room, a wildly overgrown chamber, a slow-motion forest where the trees have learned to grow in spirals and the silence has learned to think.
+
+Everything is young. The sharp edges of the terraces have not yet been weathered. The plant-growth shows no signs of the enormous age you might have expected—no deadwood, no rot, no skeleton-remains of previous generations. It is as if this place recently became itself, organized itself into these terraces and populated them with this precisely-calibrated growth, these patient creatures. And yet it feels settled. Established. As if it has always been here, just waiting for you to arrive and finally notice it.

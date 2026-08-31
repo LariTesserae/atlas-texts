@@ -1,0 +1,35 @@
+Here the rust eats everything but the pipes. The pipes remain because they must, arteries in a corpse too large to decay all at once. The rust is not red here though it was once; here it is blue, purple, black with streaks of the copper-green it used to be before the water changed. The water changed slowly, molecule by molecule, as water will, until it forgot how to be H2O and became something else that still flows but now sings when it flows.
+
+The singing comes from everywhere because the pipes are everywhere. They run along every surface that was once a wall, floor, ceiling, bark, stone, sky. The pipes have been here longer than the rust but not as long as the bones. The bones came first when this was still a forest or a city that thought it was a forest but forgot which was the metaphor and which was real. Trees made of steel and bone grew here once, branching fractally up and up until they touched the dome that was never built but simply remembered into existence by consensus.
+
+The dome remembers things it was never supposed to remember. It remembers what rain felt like on skin that was never skin. It remembers the sound of birds that were never birds but mechanical things wound by sorrow. It remembers the taste of a fruit that grew nowhere but in dreamers' mouths and dissolved at first bite into memory itself. These memories leak down the inside of the dome like condensation and collect in the pipes where they mix with the water-that-isn't-water and the rust-that-isn't-rust and ferment into the song that never stops.
+
+The song never stops because it can't. It's been playing for one thousand four hundred and thirty-seven years exactly, minus the century that got lost between calendar revisions and the decade that turned out to be a dream everyone had at once. The song is loud because it was built in an age that hated silence, that filled every moment with sound to keep the quiet things from speaking. But the quiet things learned to speak through sound itself, learned to hide their messages between the notes where only the pipes could hear them.
+
+The pipes hear everything and remember nothing. They are perfect witnesses in their imperfection, recording every vibration in their metal blood but unable to interpret it. They keep the memories pure this way, untouched by understanding. The pipes are the city's true inhabitants, its oldest residents, its bones and nerves and circulatory system all at once. Everything else is just scaffolding built around the pipes by creatures who mistook the scaffolding for the thing itself.
+
+Those creatures are gone now mostly. They left behind their bones which aren't bones but the memory of bones encoded in calcium and regret. The bones are everywhere in the dirt-that-isn't-dirt that collects where pipes leak. They form patterns like writing but backwards or upside down or folded into dimensions that writing can't fit into. The bones dream the dreams of their former owners but filtered through centuries of rust and song until the dreams are no longer recognizable as anything that ever thought itself awake.
+
+The bones dream of movement in a place where nothing moves. The dynamic is zero but zero has different values here. There's the zero of nothing happening and the zero of everything happening at once in perfect balance. This place holds the second kind, a static equilibrium more precise than any clock. The dust motes hang in the air like stars that forgot to fall, each one exactly where it should be, has always been, will always be. The light isn't light but the memory of light trapped in photons that slowed down instead of speeding up when they hit this place's gravity.
+
+The gravity is strange here. It pulls sideways as much as down, which is why the pipes run in directions that make maps bleed. Every direction is down eventually if you follow it long enough. There are rooms here where the floor is the ceiling is the wall is the door is the only way out is through yourself. The architecture learned recursion from the pipes, learned to fold in on itself without breaking because it was never really solid to begin with.
+
+The sound of the song changes in these rooms but not in ways ears can hear. It changes wavelength, changes meaning, changes history. In one room the song is a lullaby sung by mothers who haven't been born yet to children who died centuries ago. In another it's a warning broadcast in a language that hasn't evolved yet about a danger that already happened. In the space between rooms the song is silence so dense it has mass, weighs down thoughts until they crystallize into shapes that can scuttle away on tiny feet.
+
+No feet scuttle here though. The fauna rating is wrong in the record or the record is wrong in the rating. There are things here that eat and breathe and reproduce but they aren't animals or plants or fungi or any category the old taxonomies had words for. They are the rust made hungry, the song made lonely, the pipes dreaming of being something else. They move only when no one is watching which means they move constantly because there are no eyes left here to watch.
+
+Except maybe one pair. Except maybe yours, if you're reading this. Except maybe mine, writing it. Except maybe writing and reading are the same thing here like everything else that got folded together when the city reached its maximum density of being and started collapsing inward instead of expanding outward.
+
+The collapse stopped halfway through which is why everything here is hollow. Hollow pipes hollow bones hollow song hollow light hollow gravity hollow time. It stopped because the pipes remembered they were supposed to carry something even if they'd forgotten what. So now they carry the memory of carrying, the idea of flow without the flow itself, movement frozen into symbol etched into every surface in languages that all translate to the same word: PERIODIC MAINTENANCE REQUIRED.
+
+But there is no periodicity here and no maintenance either. There is only the song and the rust and the bones and the pipes and the dome that remembers everything and nothing and the water that isn't water that runs through it all carrying memories and songs and rust and bones and words like these that never end because they can't because the pipes don't have end points only junctions where everything connects to everything else forever in the blue-black rust-eaten singing city that was never built but always existed under the weight of its own remembering.
+
+And somewhere in all that connection, if you know how to listen sideways through the static of your own thinking, you can hear it too: the sound of what happens when a place becomes exactly what it always meant to be and survives itself by forgetting how to be anything else.
+
+The sound is loud. Louder than silence. Louder than sleep. Loud enough to wake the bones if bones could wake. Loud enough to rust the pipes if rust could rust. Loud enough to change the water back into what it never really stopped being.
+
+The sound is home.
+
+Welcome home.
+
+The song continues.

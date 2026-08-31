@@ -1,0 +1,18 @@
+Deep beneath the shelf of a frozen, lightless sea, there exists a pocket of architectural gravity that should not be. It is a city contained within a single colossal bubble of brine, trapped inside a vein of translucent, un-eroded glass. This is a world of **0.3 elevation**, a sunken hollow where the pressure of the ocean above is neutralized by the strange, embryonic tension of the mineral walls.
+
+The environment is defined by its **submerged density**. Here, the water is not a medium you travel through, but a thick, gelatinous syrup (2.6 water). It is cold—a biting, preserved **0.5 temperature**—making every movement sluggish and deliberate. The lack of currents results in a heavy, pressurized **silence**. There is no roar of waves or mechanical hum; there is only the rhythmic, wet thrum of soft bodies brushing against one another.
+
+The layout is an **urban density (2.4 built)**, but it is an urbanism born of biology, not brick. Imagine a metropolis the size of a cathedral, crowded into a space no larger than a kitchen. It is a dense, tiered skyscraper-shanty of calcified husks and interlocking shells. These structures were not built with tools, for there is **no technology (0.1)**; they were secreted. They are the spiraling, obsidian-black vents and pearlescent chambers grown by the inhabitants—massive, stationary mollusks that act as foundational anchors for the city.
+
+The **light is dim (1.3)**, a low-energy phosphorescence provided by the fauna. It is a cold, violet light that reflects off the **raw, un-eroded geology** of the surrounding walls. Because the world is "emerging" (0.3 erosion), the rock face still hums with the jagged, crystalline sharp edges of a gemstone newly formed. It has not lived long enough to be smoothed by the water.
+
+This is an **abundant ecology (2.2 fauna)** squeezed into a **hidden, micro-scale (0.0)**. Within this tiny urban pocket, life is layered thick. Translucent eels with skin like wet lace wind through the gaps of the shell-towers. Tiny, multi-limbed crustaceans hitchhike on the backs of slow-pulsing jellies. The **vegetation is sparse**, restricted to thin, hair-like filaments of pale moss that cling to the cold stone, feeding on the waste of the city’s many residents.
+
+The **weirdness** stems from the scale. To an outside observer, this entire civilization would look like a shimmering knot in a piece of deep-sea glass. To the inhabitants, it is a sprawling, infinite metropolis.
+
+Despite the silence, the city is **active (2.0 dynamic)**. It is a site of constant, liquid motion. There is a frantic, wordless bureaucracy of survival:
+*   The "weather" here is the shifting salinity; plumes of brine sink and rise like heavy clouds, moving the population with them.
+*   Predation is a slow-motion dance. A spider-legged fish waits for hours for a velvet worm to drift within reach, their movements so synchronized they appear to be part of the same organism.
+*   New "buildings" are constantly being birthed—soft, fleshy sacs that gradually harden into the black-glass architecture of the city, expanding the urban footprint by millimeters every century.
+
+It is a place of intimacy and claustrophobia. You are never more than an inch away from another living presence. Faces—some with eyes, some with sensing stalks—peer out from every crevice. The world is a cold, silent, crowded jewel, hidden in the dark, where the rules of the surface give way to the slow, heavy logic of the deep.

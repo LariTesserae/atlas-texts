@@ -1,0 +1,7 @@
+In the high, thin atmosphere of an extreme world, a landscape of raw, emerging geology unfolds. Jagged peaks of volcanic glass and half-formed mineral structures pierce the dimly-lit horizon, their surfaces etched by the slow, patient erosion of wind and intermittent moisture. 
+
+Scattered amongst the jagged formations are the faint remains of primitive structures, built from the same unearthly materials as the surrounding terrain. These small, isolated outposts hint at the presence of some long-vanished civilization, their purpose and nature now obscured by the gradual, inexorable forces of this strange, high-altitude realm.
+
+The air is warm, but damp with an almost tangible presence of moisture, as if the very atmosphere were condensing around you. Droplets cling to the angular surfaces, refracting the sparse, diffuse light into a myriad of flickering, spectral hues. The soundscape is muted, punctuated only by the occasional, muffled creak or groan as the landscape itself seems to shift and settle, almost imperceptibly, under the pressure of unseen energies.
+
+There is no plant life, no animal presence here - this is a world of raw, primal geology, a place where the forces of creation and erosion play out in a never-ending, glacial dance. Yet, beneath the stark, alien beauty, there is a palpable sense of weirdness, of something strange and unknowable lurking just beyond the limits of perception. This is a world in its infancy, a place where the fundamental rules of existence are still being written, and the future remains shrouded in mystery.

@@ -1,0 +1,39 @@
+The landscape is hidden inside a wall.
+
+Not behind it, not beneath it, but within the thickness of a single pale slab, in a cavity no larger than a small room. The entrance is a narrow crack disguised among thousands of other seams. From outside there is only a continuous surface: a cool, white-gray plane, smooth in some places and ridged in others, bearing the faint, repetitive markings of something made rather than grown. No horizon can be seen once you enter. The world is all enclosure.
+
+The chamber has been built completely from interlocking mineral pieces. There is no native ground beneath them, no exposed soil, no vein of stone left unworked. Every surface is fitted: floor, walls, ceiling, corners, even the irregular hollows where dust might otherwise gather. The material resembles salt, bone, porcelain, and weathered plaster at once. It is dry enough to sting the throat. Its color is mostly the color of old snow under a hard sky, though close inspection reveals bands of blue, yellow, iron-red, and a dull green sealed inside the slabs.
+
+The floor is not flat. It is a dense field of shallow, repeated forms—hexagons, wedges, hooked blocks—packed so tightly that no gap remains between them. They might be paving stones, but each one rises slightly in the center and slopes toward its edges, making the entire floor resemble a vast field of teeth worn down by centuries. Their surfaces have been polished by no apparent traffic. They are simply old, settled, and exact. The corners have softened. Edges have blurred into one another. Whatever force shaped the place has been acting for so long that construction and erosion have become indistinguishable.
+
+The walls lean inward by almost imperceptible degrees. They are covered with ribs and shelves, all built into the architecture, all occupied. Thin mineral plates fill the shelves. Some stand upright like pages in a book; others overlap like scales. Between them are packed threads of ochre dust, dry fibers, splinters of black glass, and small pale growths no taller than a fingernail. There is no spare space. The chamber has been filled to its limits, not with objects scattered at random, but with presences arranged in a total, close-fitting order.
+
+The ceiling is low enough to make the space feel pressed down. It consists of hundreds of bright facets set at angles. They catch the light and return it in hard, white flashes. The illumination has no visible source. It seems to enter from every surface at once, as if the mineral itself were remembering daylight and releasing it without warmth. The brightness is clean but not comforting. It leaves nowhere for a shadow to deepen. Even the smallest recesses are visible: dry grooves, sealed seams, the faint branching marks inside the walls.
+
+The air is cool and utterly dry. It carries the smell of crushed stone, hot metal gone cold, and something faintly bitter, like a struck match. Breathing is possible, but the air feels used rather than renewed. Nothing stirs it. There is no breeze, no draft, no pressure of weather beyond the chamber. The temperature does not vary. The bright surfaces remain cold beneath the hand.
+
+Vegetation exists here only in sparse, stubborn traces. Along one wall, narrow gray-green films cling to the seams, not soft enough to be called moss. They are more like lacquered growths or mineral lichens, thin as paint and divided into tiny geometric leaves. A few colorless stalks emerge from cracks in the upper plates and stop at the height of a finger. They have no flowers, no scent, and no visible response to light. Their roots, if they have roots, are sealed inside the construction. They seem less like plants occupying the chamber than small permissions granted by it.
+
+There are no animals. No insects move across the floor. No wings beat in the high spaces. Nothing leaves tracks. The sparse growths are not browsed or disturbed. The chamber has the stillness of a place from which appetite has been removed.
+
+Yet it is extraordinarily loud.
+
+The sound is a continuous, packed resonance, so broad that it is first mistaken for silence. It fills the body rather than arriving from any single direction: a deep, sustained vibration under the feet, layered with a metallic ringing from the walls and a dry rushing noise from the ceiling facets. Every fitted plate contributes its own tone. The tones are too numerous to separate, but they do not become chaotic. They form a single immense chord, stable and unmoving.
+
+At intervals, certain ribs produce a sharp note—a clear struck-glass ping that seems to pass through the entire chamber. Nothing visibly causes it. No plate shifts. No stone falls. The sound simply appears, hangs in the bright air, and is absorbed back into the larger resonance. If one speaks, the words are immediately swallowed and returned as pressure rather than echo. The chamber does not repeat a voice. It translates it into vibration.
+
+The noise has no rhythm, yet it never changes. It is not machinery, because there are no moving parts, no mechanisms, no visible source of power. It may be the sound of the structure bearing its own weight. It may be the sound of countless mineral joins settling into a balance so old that balance itself has become audible. The place does not hum as a living thing hums. It resounds as an object resounds when it has finally reached its completed shape.
+
+Nothing here is in the process of becoming.
+
+There are no loose stones, no active cracks, no drips, no accumulating dust. The seams are full. The surfaces have weathered into their final forms. Even the small growths appear fixed at their present size, preserved in the act of surviving. If a flake breaks from the wall, it does not fall; it remains suspended in the seam, already incorporated into the pattern. Time may pass outside, but inside the chamber it has no visible effect.
+
+The rules of the place are simple and absolute. Water does not enter. Moisture beads nowhere. Breath leaves the mouth as a brief pale haze and vanishes without condensing. Sound is permitted, but motion is not. Light is abundant, but warmth is absent. The built material can be touched, scraped, and leaned against, but never displaced. The packed forms accept pressure and return it evenly. There is no weak point, no hidden hollow, no unmade portion waiting to be uncovered.
+
+The chamber may have been constructed by hands, though no tool marks remain. It may be the interior of a larger object whose purpose has been forgotten. It may be a sealed model of a landscape, made so completely that the model became the landscape. Its scale is intimate, but its density gives it the gravity of something vast. Standing among the close-set plates, beneath the bright faceted ceiling, one feels not enclosed in a room but embedded in a solid thought.
+
+At the far end is a shallow recess filled with pale blocks. They are arranged like a miniature ridge line, though the ridge is only a few handspans long. Each block has been worn smooth on one side and left sharply angled on the other. Between them lie the gray-green films, sparse and carefully spaced. This is the nearest thing to a view. It suggests distance without containing any. The ridge does not lead anywhere. It is a landscape compressed into an ornament, and the ornament has become the whole world.
+
+The constant resonance thickens around it.
+
+The bright chamber remains dry, cold, crowded, and complete. Its surfaces shine. Its minute growths hold fast. Its mineral pieces remain locked together in their ancient arrangement. No creature crosses the floor. No shadow moves. The loudness continues without event, like a buried choir singing one unchanging note inside a sealed white stone.

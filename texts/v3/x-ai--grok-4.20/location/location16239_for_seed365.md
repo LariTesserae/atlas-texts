@@ -1,0 +1,27 @@
+The place is called Veyr’s Cradle.
+
+It is a high, folded basin no larger than a modest cathedral valley, cupped inside the young shoulders of a mountain range that still remembers the fire that birthed it. The stone is black and knife-edged, freshly fractured, glistening wherever water beads. Every surface looks as though it was split open only yesterday; the edges have not yet learned how to blunt themselves. Between these black ribs lie pockets of startling green so vivid they seem to glow in the permanent dimness.
+
+Light arrives in two jealous forms. First, a cold, blue-white radiance that filters down through a perpetual low ceiling of cloud, thin and watery, never strong enough to cast hard shadows. Second, the bioluminescence of the creatures themselves. Between these two sources the air stays underwater-dim, as though the entire basin were submerged in twilight.
+
+Water moves through the Cradle not as rivers but as slow, thoughtful leaks. It condenses on every cold blade of stone, gathers in trembling drops, and falls in irregular silver threads. Some drops never reach the ground; they are intercepted by leaves the size of wagon wheels that cup them like chalices. Others find their way into black mirror-pools that lie between the roots of trees, perfectly still until something beneath the surface breathes.
+
+The vegetation is almost violently lush yet strangely spaced. Massive ferns and mosses the texture of damp velvet grow in dense, waist-high carpets, but they leave wide lanes of bare black rock between them, as if obeying some ancient treaty. Towering pale-barked trees (none taller than three storeys) stand alone or in jealous pairs, their crowns spreading horizontally rather than upward, forming a second, lower roof. Every trunk and branch is furred with epiphytes that flower only at night and only for minutes at a time, releasing a scent like crushed mint and lightning.
+
+The fauna is overwhelming in both number and strangeness, yet the overwhelming is strangely quiet. There is no roar, no shriek, no chorus of frogs. The Cradle keeps a library hush. What you hear instead are soft clicks, wet inhalations, the papery rustle of wings opening, the delicate tap of many feet on stone.  
+
+Everything that moves here is either luminous or reflective. Vast clouds of thumb-sized moths drift between the trees like living mist, their wings edged in slow blue fire. On the ground, herds of pale, deer-like creatures no larger than hares move in uncanny synchrony; their antlers are transparent and filled with circulating blood that glows soft rose. Above them, membranous things the size of bedsheets glide on invisible thermals, their bodies patterned with moving constellations that flicker in deliberate code. Every surface that is not rock or leaf is crawling with small, jointed things that look like living jewelry.
+
+The settlement clings to the north wall of the Cradle where the stone folds create natural shelves. It is a primitive town built by people who have clearly been here only a few generations. Their homes are half-carved into the living rock and half-woven from the giant fern fronds, bound with sinew and resin. Narrow ladders of black wood and rope zigzag between levels. Lanterns are unnecessary; the inhabitants simply keep cages of the glowing moths or hang hollowed fruit that hold colonies of luminescent grubs. At night the entire town twinkles like a miniature galaxy pressed against the mountainside.
+
+The people call themselves the Quiet. They speak rarely and only in near-whispers. Their tools are bone, obsidian, and the hardened resin of a tree that bleeds amber when cut. They have no metal. They do not need it. The Cradle itself provides.
+
+This is the strangest law of the place: nothing here is dead for long.
+
+When a creature dies its body is immediately claimed by a pale, root-like fungus that grows with visible speed. Within hours the corpse is lifted on stilts of mycelium and carried, still recognizable, to one of the many open-air ossuaries that dot the open rock. There the bodies are arranged in poses that seem half-prayer, half-dance. The fungus then fruits in colors no human eye had names for before this place. The fruiting bodies sing—very softly, a sound like wet glass being rubbed—until they release spores that drift back into the pools and the leaf-cups. From those spores the next generation of impossible animals is born.
+
+The cycle is constant, visible, and reverent. Predation is theatrical rather than brutal: a luminous mantis the length of a man’s arm will stalk a glowing hare for hours in complete silence before striking with a single, courteous motion. The hare’s last act is often to flare its own light in a pattern that looks, to the Quiet, like gratitude.
+
+The air always smells of wet stone, crushed mint, and something electrical. Rain falls without warning, brief, cold, and perfectly vertical, as though the clouds above are simply wringing out sponges. Ten minutes later the droplets still tremble on every leaf like hesitant jewels, and the glowing creatures emerge again in greater numbers, as if the rain were a signal only they can hear.
+
+This is Veyr’s Cradle. Small, high, damp, impossibly alive, and governed by laws that feel less like ecology and more like ritual. A place that has only just been born, yet already remembers everything that has ever happened inside it.

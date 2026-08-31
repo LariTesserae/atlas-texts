@@ -1,0 +1,43 @@
+# The Tarn at the World's Hinge
+
+You arrive at the edge of something incomplete.
+
+The ground beneath your feet is not quite ground yet—it's *becoming* ground. The bedrock here rises in raw, unweathered formations that look freshly fractured, their surfaces still sharp enough to cut, pale stone bristling with angles that haven't yet been smoothed by the courtesy of time. These formations emerge from a shallow basin that fills and empties on a rhythm you don't immediately understand. The water is there, then it isn't, then it seeps back up from nowhere, warm to the touch and faintly luminescent at dusk.
+
+The tarn itself—if you can call it that—occupies perhaps the size of a chapel. Its edges aren't defined by a shore so much as by a gradation: stone to damp stone to soil that remembers being stone to the particular gray-green moss that only grows where the water has recently receded. The water is never still. It trembles. Sometimes this is wind—you feel wind here, though rarely, and when it comes it carries the smell of warm stone and something chemical, something like ozone but warmer. More often, the trembling has no obvious source. The water surface wrinkles with interference patterns that suggest depth far greater than the visible basin should allow.
+
+Mist rises perpetually from the water, not in the morning and evening only but throughout the day. The air holds moisture the way skin holds a blush. Condensation beads on every vertical surface. Weeping rocks—actual rocks with permanent seepage—dot the basin's rim, and from these seeps grows a sparse garden of ferns and something else, something that might be fungal, might be animal, might be neither. These growths are luminescent too, faintly, a dim blue-green that becomes visible only when the ambient light falls below a certain threshold, which happens often here because the light never quite commits to fullness.
+
+The sky, when visible through the mist, is a color between gray and warm brown, like old paper. The sun—you assume it's the sun—is a diffuse brightness rather than a source with a location.
+
+The structures are few and fragmentary. Toward the northeast, barely distinguishable from the stone, are the remains of something with right angles: a foundation, perhaps, or a platform. Its edges are too precise to be natural, but whatever built it doesn't exist anymore. The material is not quite stone and not quite metal; it has a grainy quality, as though it's slowly decomposing into something else, or being reabsorbed. Closer to the water, there's a single pillar—no more than a man's height—that stands at an impossible angle. It shouldn't balance. It does. Its surface is etched with patterns that your eye slides off of; you can't quite focus on them long enough to understand them.
+
+And there's a structure in the water itself: a framework of something that catches light strangely, submerged halfway, its geometry too intricate for your eyes to parse. It creates interference patterns in the water, ghost-diffraction. Sometimes you think you see things moving through it. Sometimes you think the water moves around it differently than water should move.
+
+The fauna is abundant but strange.
+
+There are birds—you hear them constantly, a complex overlapping chorus that's never quite melody but never silence either. Some calls are familiar enough to make you uneasy, recognizable variations on sparrows or thrushes, but pitched wrong, sustained too long, or inverted somehow. Others are entirely alien: clicking, harmonic, sometimes almost mechanical, sometimes almost like speech. They rarely show themselves. You catch glimpses of wings in the mist, shapes moving between the sparse vegetation at a pace that suggests intelligence rather than instinct.
+
+The insects are visible. Impossible numbers of them. They hang in the mist like a separate ecosystem: dragonflies with wingspans that must exceed a foot, their wings iridescent with colors that have no names, moving with balletic precision. Smaller things—midges perhaps, or something functionally equivalent—form clouds that part when you pass through them and reform behind you. They don't bite. They don't seem to touch you at all, but you feel their presence like a texture in the air.
+
+In the water are fish, or creatures that occupy that ecological niche. They're visible as shapes and shadows in the luminescent water, large enough to make disturbances. They seem to follow patterns: circling the pillar, congregating near the seeping rocks, dispersing when something larger moves through their domain. You've never seen their heads clearly. It might be that they don't have them in any conventional sense.
+
+There are also things that move through the sparse vegetation—low, quadrupedal, making sounds like nothing you've heard before: clicks and susurrations, low grinding noises like stones being drawn across stone. They retreat when you approach. You smell them sometimes: mineral, organic, warm. They seem to be grazing on something, though what they're eating is unclear. The vegetation is too sparse, too scattered. Perhaps they're feeding on the air itself, on the chemical possibilities that thick mist seems to contain.
+
+And sometimes, at the edge of perception, there's a sound like breathing—not wind, not water, but something vast and slow, like the land itself respiring.
+
+The technology here is not evident until you look closely. Then you see it everywhere.
+
+The water's luminescence isn't bioluminescence—it has the wrong spectrum, the wrong consistency. It's something engineered, though engineered how or by whom remains opaque. The patterns you can't quite focus on—the etchings on the pillar, the shimmer in the submerged framework—these suggest manufacture at scales either microscopic or involving logic that doesn't map cleanly onto human engineering intuitions. The rock itself is not quite native stone; its crystalline structure shows evidence of alteration, restructuring, purpose-building. The weeping rocks seem to be *designed* to weep; the water finds its way through them with an efficiency that suggests channeling rather than percolation.
+
+There are no batteries, no wires, no visible machines. But the entire space functions like one—a place of directed processes, of intention expressed in geology, of systems operating at rhythms and scales you're still learning to perceive.
+
+The temperature is warm, persistently. Not hot—warm. The kind of warmth that suggests geothermal activity, but the stones aren't radiating it obviously; the heat seems distributed throughout the space, delivered by the water, held in the mist. Your skin prickles slightly in the humidity. Breathing feels like inhaling warmth and moisture simultaneously. Time in this space seems to slow your metabolism. You don't feel tired, but you don't feel entirely present either. Everything moves at a slightly decalerated pace.
+
+The dynamic of the place is relentless. The water rises and falls on a cycle that might be hours or might be days—time feels uncertain. The mist thickens and thins. The sounds oscillate between cacophony and something almost orchestrated. The creatures move through their patterns like parts of a machine in operation, each pursuing its own trajectory, each intersecting with the trajectories of others. There's predation here, definitely: you've heard sudden silences in the bird calls, seen creatures vanish into the mist. But it's predation that feels measured, sustainable, part of the rhythm rather than a disruption of it.
+
+The place is being built. Or it was built, and is now slowly unmaking itself according to some design only it understands. Or it's operating exactly as intended, and what you perceive as construction and decay are simply the normal operation of a system so far outside your ordinary experience that you lack the vocabulary to describe it accurately.
+
+You could stay here. The warmth suggests you won't freeze. The water is potable—you've tested it. The air, thick as it is, carries sufficient oxygen. Your presence doesn't seem to disturb the system's operation. There are worse places to wait out a life, to watch a landscape articulate itself, to listen to a chorus whose meaning remains forever just beyond the threshold of understanding.
+
+The mist parts slightly. For a moment you can see the water clearly, and in its depths, the framework catches light: something architectural, something alive, something neither, something both. Then the mist closes again, and the chorus continues its intricate, incomprehensible song.

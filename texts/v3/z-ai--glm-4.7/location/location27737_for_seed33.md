@@ -1,0 +1,19 @@
+The air here is thin and sharp, tasting of iron and ancient dust. It sits at an extreme elevation, a vast, open tableland perched at the upper edge of the atmosphere where the sky transitions from a deep, bruised indigo to the black of space.
+
+This is the City of Echoes Without a Voice.
+
+It appears urban—a sprawling, regional expanse of "infrastructure" that stretches to the horizon—but it is entirely geological. There are no tools here, no bricks, no mortar. Instead, the planet has eroded into the shape of a metropolis. Over eons, wind and thermal stress have carved the bedrock into jagged spires that mimic skyscrapers, into sprawling, multi-layered plazas of slate, and into narrow, deep canyons that function as avenues. The "buildings" are monoliths of basalt and salt, weathered into perfect right angles and geometric arches by a mindless, patient chaos.
+
+The scale is immense and deceptive. Because the density is so low—empty, hollow space—the distances between structures are vast. A "city block" might be a mile of barren, cracked earth. The silence is absolute, a heavy blanket (Sound: 0.3). When you shout, the air is too thin to carry the wave; your voice dies at your lips, swallowed by the void.
+
+There is no water (0.2). It is a desiccated world. The ground crunches underfoot—a brittle rime of dehydrated minerals and halite crystals. The only "vegetation" (0.5) is a mockery of life. Clustered in the lee of the stone towers are growths of translucent silica and mineral fibers. They stand frozen, brittle sculptures that look like petrified ferns or towering fungi, growing imperceptibly slow from the latent heat of the planet's core. They do not photosynthesize; they crystallize.
+
+The light is dim (1.4), trapped in a perpetual twilight. The sun is a distant, pale coin, struggling through a high haze of atmospheric ice, casting long, indigo shadows that refuse to shorten.
+
+But the defining feature of this place is the instability of its reality (Weirdness: 2.9). The laws of physics here are more like suggestions. The urban layout is non-Euclidean; you can walk down a straight canyon of stone and find yourself back at your starting point, or three miles higher than you were a moment ago without having climbed. Gravity is variable. In the great empty plazas, rocks hover inches off the ground, suspended in a silent, static ballet. The stone towers breathe—literally expanding and contracting with a geological slowness that grinds the air into a low-frequency vibration you feel in your teeth rather than hear.
+
+Despite the silence and the stillness, the landscape is active (Dynamic: 2.5). It is not dead; it is processing. The erosion is an ongoing, accelerated disaster. You can watch a spire crumble into dust before your eyes, only for that dust to swirl in the wind and instantly reassemble into a new, impossible shape a mile away. It is a frantic, self-consuming ecosystem of rock.
+
+The fauna (1.4) is rare and perfectly adapted to this madness. They are the "Silents"—small, quadrupedal creatures with skin like polished slate and no eyes. They navigate by sensing the shifts in gravity and the magnetic field lines that visibly arc between the towers like glowing spiderwebs. They do not eat or drink; they lap at the seams in reality where the dimensional walls are thin, absorbing energy directly from the vacuum.
+
+To stand in this place is to stand on the edge of a hallucination. It is a cool, dry, architecturally perfect ghost town built by wind and glitch physics, stretching out forever in the dim light, constantly tearing itself down and rebuilding itself in a silent, violent loop of creation.

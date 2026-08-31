@@ -1,0 +1,13 @@
+Deep beneath the churning seas, a vast underwater city thrums with ceaseless industrial activity. Titanic machines, encrusted with bioluminescent coral and algal blooms, pump and churn in the dim depths. Their endless mechanical din reverberates through the water, a deafening chorus of grinding gears, shrieking metal and thrumming engines that drowns out all else.
+
+The seabed here is pocked with hydrothermal vents belching scalding mineral-rich waters in ghostly plumes. Lush mats of extremophile bacteria, tube worms, and strange clinging anemones thrive in these hellish conditions, painting the jagged basalt crags in vivid violets, crimsons and blinding whites.  
+
+Immense transparent conduits snake out from the central industrial nexus, pulsing with glowing fluids and crackling energies siphoned from the planet's core. They branch and spread for miles, a circulatory system feeding this monstrous submerged hive.
+
+Inside the heart of the machine city, reality itself seems to fray and flux. Solid walls shiver and deform, morphing into impossible shapes before snapping back. Glistening bubbles expand from nothingness, drifting through the water before popping out of existence. Phantom lights flicker in mesmerizing patterns with no discernible source.
+
+Dark masses of dense architecture loom through the haze - blocky structures fused with organic curves, encrusted with eons of growth. Some seem not built, but grown, or *extruded* by inscrutable processes. Cyclopean doorways and gaping maws hint at labyrinthine interiors and unfathomable purposes.
+
+Among the riot of machinery and cancerous sprawl, remnants of long-vanished inhabitants can still be seen. A solitary edifice, angular and jutting, stands apart from the main mass, its form still defiantly unassimilated. Crumbling statues of long-forgotten gods or leaders, now featureless and pitted, jut from seaweed-shrouded piazzas - all that remains of a once-powerful civilization now reduced to an orphaned ruin amid an invading technopolis.  
+
+No fish swim these turbid waters. No crabs scuttle among the corroded wreckage. All familiar life has long since fled this mechanical cacophony, leaving an alien ecosystem of metal and mutant flora to propagate unchecked through the abyssal darkness. Only the machines remain active, endlessly building, consuming, expanding with relentless inhuman purpose, as reality itself warps beneath the crushing pressures of the oceanic abyss.

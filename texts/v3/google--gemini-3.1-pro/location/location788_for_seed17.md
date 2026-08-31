@@ -1,0 +1,25 @@
+You do not hear the sound of this world. You endure it. 
+
+You are suspended in a supercooled, globe-spanning ocean, hovering just above the jagged summits of a drowned supercontinent. The water here is aggressively, terrifyingly clear. Because there is absolutely no vegetation—no blooms of green algae, no floating kelp, no suspended organic snow—the visibility stretches into the realm of vertigo. You can see for sixty, perhaps seventy miles in every direction. Above, the sun blazes through the roof of the water in perfectly straight, unbending columns of brilliant, icy light, illuminating a high-altitude abyss. 
+
+You are thousands of miles from the true ocean floor, floating in the alpine canopy of a flooded mountain range. The rock formations rising from the deep azure below are brutal and fresh. There are no smoothed stones or gentle slopes here, only titanic blades of raw, unweathered basalt and fractured obsidian, thrusting upward like shattered glass. This crust is newly broken, sharp enough to cut, born of fresh tectonic violence that has not yet known the softening touch of time or tide. 
+
+It is a world defined by a staggering emptiness, an oceanic void where distance loses its meaning. Between the black, upthrust spires lies nothing but impossibly cold, perfectly transparent azure fluid. 
+
+Yet, the emptiness is charged with an omnipresent, bone-shattering roar.
+
+The sound does not enter through your ears; it punches through your sternum, vibrates in your teeth, and shakes the marrow of your bones. Woven into the scattered peaks of this submerged mountain range are engines of incomprehensible scale. Every twenty or thirty miles, bolted into the jagged saddles of the obsidian spires, sit solitary, gargantuan industrial installations. They are brutalist cathedrals of blackened iron and spinning, house-sized hydro-turbines. There is no grace to their design—only heavy, mechanized utility. 
+
+They are atmospheric and thermal regulators, perhaps left behind by whatever intelligence flooded this high tectonic plateau. Colossal intake vents swallow millions of tons of supercooled water, while colossal impellers jet it out, churning and agitating the sea to prevent the sub-zero ocean from freezing solid. The friction and kinetic energy of these scattered machines keep the water liquid, but their byproduct is a deafening, ceaseless hydro-acoustic violence. The roar of cavitating water and grinding continental-scale gears generates standing pressure waves that literally distort the light, creating rippling mirages in the pure water.
+
+Despite the punishing cold, the barrenness, and the lethal volume of the noise, this young world is teeming with life. But life here has adapted to a biome of pure acoustics and raw mechanics.
+
+Because the open water is a vast, nutrient-less void, the fauna does not spread out. Instead, it rides the sound. Cutting through the pristine emptiness are what look like glittering, underwater highways—miles-long rivers of shimmering, translucent shapes flowing directly out of the mouths of the industrial turbines. 
+
+These are schools of piezoelectric organisms. They possess no flesh in the traditional sense; they are complex arrangements of biological silica, looking like fragile, articulated shards of spun glass and silver wire. They have no plants to eat, no organic debris to scavenge. Instead, they feed on the noise. They congregate in the tens of billions along the loudest acoustic vectors, their crystalline structures vibrating in resonance with the deafening roar of the engines. Through piezoelectricity, they convert the crushing acoustic pressure into life-sustaining biomechanical energy, sparking with micro-bursts of blue static electricity as they absorb the sound. 
+
+Where the sound is loudest, the swarms are thickest. They form massive, undulating ribbons of living static that spiral outward from each scattered factory, riding the invisible currents of decibels before looping back around the sharp basalt peaks. Away from these concentrated acoustic highways, the vast tracts of the ocean remain perfectly, terrifyingly barren.
+
+There is a profound, terrifying permanence to this place. The sun above seems nailed to the zenith, its blinding rays locked at a constant angle, piercing the cold water without ever shifting toward dusk. The gargantuan turbines do not fluctuate; they grind and roar at an unchanging revolution, locked at the exact same pitch, century after century. The crystalline fauna flow in an eternal, recycling loop along the standing waves of sound, born from the friction, sustained by the noise. 
+
+Nothing decays. Nothing grows. There are no seasons here in the high, clear depths. You are suspended in a frozen equilibrium—a crystal diorama of shattered rock, brilliant light, and roaring industrial thunder, suspended perfectly in time.

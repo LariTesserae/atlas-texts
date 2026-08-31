@@ -1,0 +1,23 @@
+The place has no name because names require memory, and nothing here is old enough to remember.
+
+It is a low, dense, entirely constructed world still in the act of being built. A labyrinthine embryonic city forged from wet black stone and pale bone-white ceramic, half-finished and dripping. Everything is raw joinery and exposed join: buttresses that have not yet met their arches, pillars rising blindly into darkness, staircases that terminate in mid-air like broken thoughts. The scale is regional — you can walk for hours and the half-made city still stretches ahead and behind — yet the density is oppressive. Structures crowd so tightly that in places the gaps between them are only forearm-wide, slick corridors of condensation and shadow.
+
+There is almost no vegetation. What little grows is not plant life but a slow, mineral crust — dull lichen-like films of silica and salt that bloom in the wettest seams, glowing faintly turquoise when touched by the rare light. They are less alive than accreted.
+
+Water is everywhere and nowhere. It does not fall as honest rain but condenses out of the cold air in slow, heavy beads that crawl down every surface like living sweat. It gathers in cupped palms of half-carved stone, in the hollows of unfinished gargoyles, in long ceramic gutters that have not yet been connected to any drainage. Sometimes these pockets overflow and the water finds a new path downward through the dense lattice of scaffolding, pipes, and stairwells, producing a constant, overlapping percussion: dripping, slapping, ringing, gurgling. The sound is loud, almost violent in its insistence. It never stops.
+
+The temperature is cool enough that breath becomes sluggish silver in the darkness. The air smells of wet clay, iron, and something electric — like the moment before lightning, though no storms ever arrive.
+
+Light is scarce. A few primitive oil lanterns hang from chains where the builders left them centuries (or days?) ago; their small flames waver in perpetual draft, throwing trembling amber across wet surfaces. Most of the city remains in absolute dark. In that darkness things move.
+
+Fauna is rare but not absent. Pale, blind things the size of dogs scuttle along the upper scaffolding on too many jointed legs. They are not animals in any familiar sense; they appear to be unfinished construction mechanisms that have learned to walk. Their shells are the same black ceramic as the buildings. When they pass, they click and hiss in wet tones, as though clearing their own internal gutters. Sometimes they stop and extrude delicate silica filaments into the condensation, drinking.
+
+The entire place is active. It is being built by something, or by many somethings, though you almost never see the primary builders. You see only their evidence: fresh wet mortar squeezing between new blocks, ropes of braided tendon-fiber being hauled through darkness by unseen winches, the sudden grinding clatter of stone being shaped somewhere just out of sight. The sound of construction is ceaseless — hammering, scraping, the wet slap of material being pressed into place. Every few hours the entire district will shudder as some vast, distant mechanism drives a new foundation pile deep into whatever lies beneath.
+
+This is a world before ecology. Before geology, really. The rules are still being written in real time. Gravity seems uncertain in places; certain towers lean at angles that should topple them but do not. Echoes sometimes arrive before the sounds that made them. In the deeper pockets of absolute black, the condensation gathers into perfect reflective spheres that hang in the air and whisper in voices made of other people’s unfinished thoughts.
+
+You can walk here. You can even build here, if you have the tools. Primitive ones only: mallet, chisel of volcanic glass, rope, fire. Anything more advanced rusts or is quietly disassembled by the blind ceramic creatures while you sleep.
+
+The city does not want to be finished. That much becomes clear the longer you remain. Every time a wall is completed, another section collapses elsewhere in a deliberate, wet avalanche of fresh masonry. It is building itself the way a wound builds scar tissue — endlessly, painfully, and never quite whole.
+
+And all the while the water drips, the lanterns gutter, the scaffolding groans, and the loud, wet dark keeps working on itself, layer after dripping layer, in the cool embryonic gloom.

@@ -1,0 +1,18 @@
+The place is a grotto, though not one of sculpted stone and classical ideals. This one is built of rust. It sits tucked within the guts of something much larger – a factory, perhaps, long fallen into disrepair, or a colossal machine whose purpose is lost to time. We are speaking pocket-scale here, though; the grotto itself is perhaps the size of a small room, no more. You might only stumble upon it following a narrow, damp passage that branches off a larger, debris-choked corridor.
+
+Water is the essential artist here, though its touch is intermittent. Condensation clings to every surface, beading on the rough, corrugated iron and trickling down the flaking paint. Occasional drips fall with surprising resonance into small, stagnant pools that collect in the hollows of the rusted floor. There is the faintest smell of oil, and something else… something vaguely organic, metallic, and disturbing.
+
+Vegetation is sparse and tenacious. Patches of a strange, bioluminescent moss cling to the dampest surfaces, casting an eerie, blue-green glow that supplements the pale sunlight filtering in through cracks in the grotto's rusted ceiling. Here and there, strange, metallic fungi sprout from the decaying machinery like grotesque ornaments. They are warm to the touch.
+he metal here is young rust, flakes and fresh corrosion. Edges have not yet softened, but remain sharp and brittle.
+
+The air hangs heavy and warm, thick with the aforementioned smells. It’s a place alive with miniature dramas. The rust is not merely decay, but a substrate for life. The density of this place is most apparent in the fauna. Insects abound: strange, iridescent beetles with segmented, metallic shells; long-legged, spindly spiders that weave webs of shimmering, oily silk; and swarms of tiny, phosphorescent gnats that dance in the shafts of filtered sunlight.
+
+Sound is mostly quiet. The occasional drip of water. The faint hum of residual electricity thrumming through the decaying machinery. The rustle of insect wings. But beneath this quietude, there's an underlying susurrus, a constant, almost imperceptible grinding – the sound of erosion, of life, of the factory itself slowly digesting itself.
+
+There are traces of human presence. A section of corroded cable serves as a bridge across one of the deeper pools. A rusted wrench lies half-submerged in the muck, its jaws agape. But these are scattered remnants, and they feel more like intrusions than intentional design. This place has been reclaimed, or perhaps was always something else.
+
+The tech is industrial but corrupted. Twisted pipes, corroded gears, and shattered instrument panels are fused with the burgeoning ecosystem. The factory has become a terrarium, and the purpose of the machines is no longer production, but… something else. Something stranger. Imagine a kind of automated alchemy, powered by decay.
+
+The weirdness is the most pervasive element. Everything feels slightly off. The light seems to bend and distort. The shadows writhe with unseen life. The insects carry themselves with an almost preternatural intelligence, as if they are custodians of some ancient, forgotten knowledge. The rust itself seems to pulse with a faint, inner light.
+
+The grotto is not static. It is dynamic, active. The weather cycles are internal. Condensation ebbs and flows. The moss blooms and fades. The insects reproduce with feverish abandon. Predator stalks prey in the tangled undergrowth of rust and moss. The entire system is locked in a perpetual state of flux, of creation and destruction. It is a microcosm of a larger world, a world where the boundaries between technology and nature have blurred into an indistinguishable, and unsettling, whole.

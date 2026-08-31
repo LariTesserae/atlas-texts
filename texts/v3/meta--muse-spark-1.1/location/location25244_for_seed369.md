@@ -1,0 +1,21 @@
+It is not a valley. It is not a summit. It is a cup left behind high up.
+
+You come to it by climbing out of warm air into warmer air — the way it works on this mountain. The lowlands are in mist, the middle slopes are in rain, and then you break through above the inversion into a high, clear, wet heat. The altitude is in your knees and ears, a thinness to the breathing, but the sun is close and kind. The light here is ordinary, midday, no theatrical color, which makes everything else harder to explain.
+
+The place is a single room. A shallow bowl maybe sixty steps across, cut into the shoulder of the peak and rimmed on three sides by a low wall of rock that is old enough to have forgotten it was ever sharp. The rock is dark where it is dry, which it almost never is, and green-black where it is wet, which is always. Basalt, maybe, but softened. Pitted. Established. It has settled into the exact shape water wants it to be. Nothing about it is falling or forming anymore. It is in balance with itself.
+
+And it weeps.
+
+Not in streams. The water doesn't have that kind of urgency. The fourth wall of the bowl is open downhill — a lip where wind comes up — and the updraft hits the cold stone rim and wrings itself out. The air condenses. The stone sweats. You can see it bead and crawl. Every surface is post-rain even when it hasn't rained. The ground underfoot is not ground but a living sponge, a peat that sighs when you step off it. Sphagnum and liverwort in a mat a meter thick, and in the lowest point of the cup, where it can't decide to become a pool, brown water stands between the roots, clear as tea, reflecting straight up.
+
+That is the weirdness: it rains from below.
+
+The cup fills from the bottom up, from rock-sweat and cloud-breath. The water never really falls here. It rises out of the stone, gathers in the air, drops a hand's breadth, is caught again by moss. It cycles in a space of ten feet. If you sit still, your shoulders get damp though the sky is blue.
+
+The vegetation is lush but not crowded. That is the first thing that doesn't make sense until you are inside it. In a lowland jungle lush means choked, but up here lush means each thing is allowed to become completely itself, with space around it. So there are — count them — seven tree-ferns, no more, each with a trunk as thick as a boar, each wearing a coat of epiphytes so heavy their leaves look furred. Between them is emptiness full of wet light. Then there are the giant rosette plants, like agave crossed with cabbage, that sit alone in the sponge, holding a perfect private lake of water in their crowns. The moss is everywhere but it's a plain, not a wall. You can see from one side of the hamlet-sized bowl to the other without pushing anything aside, and everything you see is overgrown, dripping, fat with life.
+
+It is loud. That is startling at first because nothing seems to be happening. No birds. Fauna is rare here — maybe a single kind of highland flycatcher that nests in the tree-fern crowns and does not call — maybe a mottled lizard as big as your forearm that you mistake for rock until it blinks, once an hour. But the loudness is the water unmaking distance. Hundreds, thousands of drips with different voices. The tappet of the tree-ferns shedding. The plip into rosette-cisterns. The deep glut-glut of peat sucking itself. The sigh at the lip where cloud rushes over stone and becomes water mid-air with a faint hiss, like fat on fire. The whole bowl is a percussion room tuned to half-second delays.
+
+On the basalt rim, at almost regular intervals, you find shallow scoops, palm-sized, where the moss has been scraped free. Inside each scoop, a smooth river stone that does not belong to this peak, placed with intent. Not buildings. Not villages. No wall, no roof, no cut timber. But someone was here, or something, that knows how to use a stone to hollow stone, to keep a place for water to gather cleaner. Primitive tools, primitive mind: water held for drinking, not farming, not storing. Five bowls. Six. Sparsely placed. Marked and left. The rain-from-below will fill them in an hour and spill them, and fill them again.
+
+Nothing in the bowl moves fast. The rosettes grow a leaf a season. The peat deepens a thumb every decade. The rock sweats. The cloud comes up the same way every afternoon. The lizard blinks.

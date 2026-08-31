@@ -1,0 +1,24 @@
+The place is called the Hollow Lattice.
+
+It is not a desert. It is not a cave. It is a single, ancient, self-contained pocket of existence no larger than a modest cathedral, yet it feels measureless because nothing inside it is solid in the way stone is solid. Every wall, floor, ceiling, and volume is composed of living plant matter that has grown, died, petrified, and regrown so many millions of times that the distinction between life and mineral has dissolved. The vegetation parameter is near absolute: there is nothing here that is not plant, or was not plant, or will not become plant again. Yet the density is almost nothing. The Lattice is mostly emptiness wrapped in a filigree of colossal, brittle, interwoven stalks, ribs, and vaults.
+
+The temperature is a constant cool that feels older than cold itself, like the memory of cold. There is no wind. There is no water. Moisture long ago became irrelevant; the plants here metabolize through slow piezoelectric exchange with the mineral lattice itself, drawing minute currents from the friction of their own eternal contraction and expansion.
+
+Light is entirely absent. Not dim — absent. The only illumination is the faint phosphorescent ghost-light that certain ancient veins of the lattice still emit, a cold violet that arrives hours after any disturbance, as though the structure itself must decide whether the intrusion is worth remembering. Most of the time the darkness is total, absolute, devotional.
+
+Sound, however, is constant and loud.
+
+It is not the loudness of voices or machines. It is the slow, tectonic creaking of an entire vegetable cathedral that has been growing, compressing, and fracturing for longer than mountains have existed. Every few heartbeats a vast stem the thickness of a redwood trunk splits with a sound like a warship breaking in half. The crack travels through the Lattice for minutes, echoing, refracting, multiplying. Then comes the long, patient groan as the wound slowly seals again with new growth that is already half-lignified, half-crystal. The noise is perpetual. It is the sound of a forest that has outlived forests and is now eating its own skeleton and rebuilding it inside an endless night.
+
+The architecture is urban in the mostliteral sense: there are districts. There are boulevards of hollowed petrified reed that once carried nutrient flows now dried to dust. There are “plazas” where six or seven colossal trunks intersect in spiraling knots the size of town squares, their surfaces carved by time into fractal balconies and spiraled galleries. There are tiers and levels stacked in slow, geological confusion, because the living structure has folded over itself for aeons. Some corridors are so narrow only a hand can pass. Others are vaulted halls tall enough that the creaking echoes take a full minute to return. All of it is hand-made in the most ancient meaning: every joint, every buttress, every impossible cantilever was grown, guided, and pruned by a vanished culture that used nothing but bone tools, fiber ropes, and the patient coercion of plant memory. Their only technology was understanding how to speak to the growth.
+
+Nothing moves quickly. Erosion has reached its final plateau. The Lattice is the oldest stable state this kind of life can reach: a near-flat gradient of becoming. New growth is so slow it is almost undetectable within a human lifetime. Old sections die and crystallize into glassy black xylem that rings like iron when struck. The entire place is slowly collapsing into itself and simultaneously being reborn, but both processes are measured in centuries per centimeter. You can sit in one spot for a thousand years and still feel you have arrived too early.
+
+There is no animal life. Not even microbes in any recognizable way. The only ecology is the plant-matter itself, engaged in a conversation so protracted it has become architecture, religion, and geology at once. The strangeness lies in the realization that the city is not built from plants. The city is a single organism that learned how to be a city and then forgot everything except the shape of its own forgetting.
+
+If you stand (or sit, or lie; there is no hurry) in one of the wide negative spaces where the violet ghost-light finally arrives after long deliberation, you can see the Lattice stretching away in every direction like the fossilized lungs of some extinct god. Tier upon tier of ribs, arches, buttresses, and hanging curtains of crystallized fiber. All of it breathing, very slowly, in and out, with a sound like continents grinding their teeth.
+
+This is not a ruin.  
+This is the final, settled form.
+
+And it is still, after all this time, deciding what it wants to become next.

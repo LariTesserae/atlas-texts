@@ -1,0 +1,15 @@
+You are submerged in a cathedral of cold, clear water, suspended deep beneath the earth’s surface. 
+
+This is a space devoid of architecture, stripped entirely of human accommodation. There are no catwalks, no stairwells, no grated floors or safety railings. It is simply a colossal, vertical shaft bored directly into raw, unyielding basalt, an immense subterranean pocket flooded with millions of gallons of heavy, pristine groundwater. 
+
+Yet, it is alive with industry. 
+
+Massive, monolithic machinery is grafted directly into the naked bedrock. Great cylindrical housings—turbines or geothermal heat exchangers of staggering scale—protrude from the stone. Thick bands of oxidized titanium and dark, anechoic composite metals span the distance across the cavern, disappearing into the opposite walls. They are arranged with sparse, mathematical precision, leaving vast oceans of empty, silent water between each mechanical structure. The engineering is naked and absolute, serving a purpose far divorced from human presence.
+
+The water is crisp and biting, resting at a steady, cool temperature that leeches body heat with slow, unwavering efficiency. Everything is illuminated by an array of heavy-duty, pressure-sealed halogen rigs mounted to the mechanical struts. They cast a broad, stark, unblinking white light that penetrates the clear water effortlessly, revealing the full breadth of the chamber. There are no shadows to hide in; the light bounces off the pale stone and the dulled, matte surfaces of the machinery in a state of continuous daytime.
+
+It has been this way for a very long time. An established, weathered equilibrium holds the chamber. The metals have lost their factory sheen, surrendering to a smooth, dull patina of slow oxidation. Where the thick pipes meet the basalt, blooming collars of pale calcium and mineral deposits have built up over decades, fusing the industrial tech with the geological scale of the cavern. Clinging to the subtle warmth of the primary exchanger coils are sparse, wispy veins of extremophile lichen and pale, filamentous algae. They drift lazily in the micro-currents, the only organic life in the entire expanse. There are no fish, no insects, no scuttling scavengers—just pure, isolated engineering and a few stubborn threads of green. 
+
+The atmosphere is one of profound, crushing stillness, heavily weighted by the pressure of the water above. Sound does not travel here as it does in the air; it is felt in the teeth and the marrow. The machinery operates with a low, bone-deep hum—a stable, 60-cycle vibration that pulses through the water. It is a quiet noise, muffled and heavy, absorbing all other sounds into its baseline resonance. 
+
+Nothing changes. There are no surges in power, no shifting gears, no rising bubbles. The environment exists in a state of absolute, time-invariant stasis. The pumps draw, the water flows in smooth, invisible, laminar sheets, and the quiet, continuous thrum of the mechanized deep hums onward without end, an eternal, submerged engine room locked perfectly in the dark of the earth.

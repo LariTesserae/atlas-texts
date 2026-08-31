@@ -1,0 +1,37 @@
+The city is easy to miss because it occupies no horizon.
+
+It lies beneath a low plain of pale stone and close-cropped heath, inside the abandoned bend of an underground river. From above, its only sign is a seam in the ground no wider than a handspan. Cold air breathes through the seam, although there is never enough of a current to stir the grass. If one follows it, the crack widens behind a screen of dwarf juniper and descends by worn steps into a place called the Still Ward.
+
+The descent is short. The Ward is scarcely two hundred paces from end to end, yet it contains streets, gardens, cisterns, shrines, animal pens, workshops, terraces, bridges, and several generations of construction. Nothing has been allowed an empty interval. Houses lean over alleys. Stairs pass beneath other stairs. Roofs serve as paths and planting beds; planting beds conceal channels; channels run through walls and emerge beneath benches polished by centuries of use. A person standing in the central court can touch a house with either outstretched hand, but above them rises a crowded architecture of balconies, ladders, drying racks, nesting ledges, and white masonry.
+
+It is intensely bright.
+
+A long fracture in the cavern roof admits the sky as a narrow, colorless blade. The surrounding stone is milk-white limestone veined with quartz, and every surface has been rubbed, limewashed, or faced with shells to carry the light farther. Even the undersides of arches are set with chips of pale mica. No flame is needed during the day. Illumination passes by reflection from wall to wall until the deepest alleys possess a soft, shadowless brilliance, as if lit from within the stone.
+
+The brightness has no warmth. The Ward remains cold in every season. Frost feathers the upper steps. Breath shows in workshops and kitchens. Doorways are hung with layered felt, woven sedge, and the cured skins of small river animals. The inhabitants build low rooms with thick walls and sleeping platforms crowded around clay-lined hearth pits. Fuel is precious, so fires are small, smokeless, and frequently shared by several households.
+
+Water is present everywhere but seldom flows freely. It condenses on the cold ceiling, gathers along mineral ribs, and descends by patient droplets into carved cups. After rain on the plain, the walls darken and cisterns fill; in dry periods, the city survives on what the stone releases. There are shallow basins beneath every eave and shelf. Moss-plugged gutters carry excess moisture from one terrace to another. The largest pool, no broader than a dining table, lies beneath the central court. It is roofed with flat stones to prevent evaporation, leaving only a small square opening from which water is lifted in bone ladles.
+
+Nothing here is new enough to have sharp edges. The steps have been hollowed by feet. Thresholds sag in the middle. Channels are glazed with mineral deposits, and carvings have worn into smooth, unreadable gestures. The limestone itself is deeply settled: scalloped by the former river, rounded where ceilings once dripped more heavily, stained green and ocher where ancient wetness found its preferred routes. Collapse has not occurred within living memory. Every cracked lintel has long since found the angle at which it will remain.
+
+The vegetation is lush, though it grows in compressed layers rather than open abundance. Black-green moss covers mortar and shaded roofs. Liverworts crowd the cistern rims. Ferns uncurl from gaps between houses, their fronds brushing both walls of the alleys. Beds of sorrel, cold mint, bitter cabbage, and small white-rooted tubers occupy every horizontal handspan. Dwarf willows are trained flat against the stone in intricate fans. Their twigs are harvested for baskets, pegs, snares, and the flexible joints of tools.
+
+Near the roof crack, where the light is strongest, the growth becomes almost excessive. Dense cushions of silver grass and tiny blue flowers spill down the upper terraces. Pale vines cross the bridges in woven masses. There is no soil visible beneath them—only leaf, stem, moss, and the occasional smooth cap of a mushroom. Gardeners move through this thicket with narrow antler combs, separating edible shoots from those reserved for insects.
+
+Animal life is similarly crowded and discreet. White moths rest on limewashed walls. Cold beetles live beneath roof tiles. Snails graze the cistern stones without leaving the Ward’s boundaries. Small gray birds nest in masonry holes, and long-bodied, velvet-furred mice pass through channels too narrow for a finger. In the lower damp chambers live eyeless frogs no larger than fingernails. They gather by the hundreds around condensation pools, yet their throats produce no audible call.
+
+Almost all creatures of the Ward are quiet. This is partly adaptation and partly law.
+
+Sound behaves strangely in the old river chamber. A loud noise does not echo and fade. It seems to lodge in the stone. After a shout, people may feel a faint vibration in nearby walls for days; after a hammer blow, droplets fall out of sequence and gardens lose moisture. For this reason, work is done with wrapped tools. Stone is shaped by steady abrasion rather than striking. Wood is split by wet wedges. Pottery is pressed into molds, not thrown on fast wheels. Doors close against pads of moss. Footwear is soft.
+
+Conversation takes place close to the listener. Markets are conducted by touch, gesture, and quiet speech. Children learn early not to call across a room. Even the city’s bells are made of wood and announce the hours with a muted knock like a seed falling onto cloth.
+
+Metal is rare. Most implements are stone, bone, shell, fired clay, or wood hardened over coals. Copper appears in fishhooks, surgical needles, and a few inherited blades worn thin from repeated sharpening. The Ward’s most sophisticated machines are gravity-fed water channels, counterweighted lifts, hand looms, and door latches whose polished stone parts have functioned for centuries. Complexity comes not from power but from arrangement. One dripping ledge may supply six homes, chill a pantry, water a medicinal fern bed, and finally enter a frog basin before vanishing into the floor.
+
+The city has reached a form of equilibrium so complete that maintenance and ritual are nearly the same act. Each family tends a specific crack, gutter, stair, nest shelf, or patch of reflective plaster. No wall is demolished while it can still bear moss. No channel is straightened merely because it winds. When a structure settles, the next structure is fitted to its new angle. Growth is trimmed, but never cleared. Water is redirected, but never commanded to run faster.
+
+The days differ little. Light enters, traverses the pale walls, and withdraws. Condensation gathers in the same grooves. Birds leave through the roof seam and return without song. The inhabitants harvest small amounts from many places, so no garden becomes bare. Births, deaths, repairs, and meals occur within a city whose overall shape seems never to alter.
+
+From the plain above, none of this can be heard.
+
+There is only the heath, the white ground, and a line of juniper around a crack too narrow to suggest streets. Beneath it, the Still Ward remains packed into its ancient river bend: bright as snow, green as a wet forest, cold as buried stone, and quiet enough that the fall of a single drop can mark the middle of the day.

@@ -1,0 +1,11 @@
+The arid landscape stretches out in all directions, an endless expanse of rust-colored sand dunes crested with sparse stands of twisted, thorny scrub. Bones of long-dead plants and creatures are scattered across the barren ground. Parched mesas and buttes of layered rock rise towards a sky of palest blue that bleeds into desiccated white at the horizon. 
+
+Here and there the skeletal remains of abandoned villages still perch on the rock outcrops - crumbling adobe and peat structures roofed with woven branches. Faded tracks plod across the wastes, even fainter, revealing only the lightest suggestions of paths used by the long-ago residents of this unforgiving place.
+
+The air is utterly still and soundless save for the shivering whispers of the wind through dry leaves and the occasional languid buzz of insects. Even the chirps of birds are absent here. At sunrise and sunset the sky glows a furnace red as if the very land itself were burning.
+
+Strangely, on the crest of the tallest mesa, a peculiar sight: The silvery glint of glass and polished metal. An enormous structure emerges into view as one draws closer - a great spire of gleaming white flecked with metallic reflections that seem to dance across its rose-patinaed curves. Without warning, the surface shimmers like oil on still water and warbles into strange new shapes as if its very form is not fixed. Acrid smoke wisps from the edifice's impossible angles.
+
+At its base, the plant life feels corrupted - tree-shapes with ruby shoots and leaves like beaten copper, spidery mandrakes that drip viscous honey across the sand, shrubs of glassy spikes that reflect the pale sunlight. These plants moan softly as the breeze passes through them and old rusted artifacts litter the greenery - gears, victimrails, scraps of coherent runes and sigils of warding.
+
+The longer one tarry here, the more it seems the very performance of the landscape breaks and frays, like a tattered canvas painting torn to reveal the proto-jumble behind. Colors melt into odder shapes, angles seem to elongate and twist in ways impossible. The wind whispers a million disjointed phrases that make no sense. And sometimes, so faintly you cannot be certain, you catch the distant skirl of mad piping on the edge of hearing.

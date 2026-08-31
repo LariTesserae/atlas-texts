@@ -1,0 +1,29 @@
+The plateau is wet enough that it seems not to rest on the earth but to float on a held breath of water.
+
+It begins above the tree line, though there are almost no trees to mark a line. The high country has been given over to smaller things: dense carpets of moss, slick green liverwort, stiff grasses, pale rushes rooted in seams of peat, and low woody plants that crawl rather than rise. Vegetation does not gather in picturesque patches here. It makes the ground. Every apparent bank is a mass of roots and soaked fiber; every hummock is a sponge dressed in sedge. Between them, channels of cold water shine as if the land has been split open to show its veins.
+
+The valley is broad enough to take an afternoon to cross. It lies among raw, unfinished slopes of pale stone, recently exposed in geological terms, with fractured faces and shelves that have not yet decided whether they are cliffs, ridges, or merely rubble waiting to settle. There is little erosion in the familiar sense. Streams do not cut deep gullies; they wander, hesitate, disappear beneath plant mats, and surface somewhere else. The hills are young-looking even if they are ancient: broken slabs, fresh gravel fans, enormous boulders sitting on beds of moss with no obvious route by which they arrived. Soil is thin where it exists, and everywhere water is working patiently to invent it.
+
+Nothing is dry for long. Rain comes often, but not always as rain. On bright days, clouds snag on the high margins of the basin and dissolve into a fine cold mist. It beads on every blade of grass, gathers beneath leaf edges, drips from the undersides of rocks. In the morning, the marsh exhales. By noon, sunlight breaks through in hard white sheets, illuminating every pool and wet stalk until the entire valley seems varnished. The light is almost too clean for the amount of water: a bright, elevated light without warmth, making distances look close and colors unnaturally exact—black peat, mineral-gray stone, copper-brown rush stems, greens ranging from yellow acid to blue shadow.
+
+There are structures, but they are widely spaced, each one seeming less a settlement than an interruption in the weather.
+
+A pump house stands at the edge of a long drainage channel: corrugated metal, riveted doors, roof bowed under years of wind. Farther off, a line of pylons crosses the bog on thick concrete feet. Their cables sag gently from one slope to another, vanishing into cloud and reappearing in glare. A narrow service road, raised above the wetland on a bed of crushed stone, threads between pools and disappears behind a morainal ridge. At intervals along it are small transformer sheds, intake boxes, marker poles, and the occasional abandoned machine—an orange excavator sinking slowly into its own reflected sky, its tracks swallowed to the hubs by bog growth.
+
+The industrial works do not dominate the landscape by size. They dominate it by sound.
+
+Water is being collected here from a dozen upland sources and pushed through pipes toward somewhere lower and warmer. Beneath the mossy ground, turbines turn in unseen chambers. The sound travels astonishingly far in the open basin: a constant low mechanical thunder, a pressure in the chest, joined by the roar of spillways and the fierce white noise of water spilling over grates. When the wind moves across the plateau it catches the metal towers, the valve houses, the cable runs, and turns their hum into a vast thin scream. Even at a distance from the works, the noise is nearly deafening. Conversation is possible only in gestures. A person stops thinking of silence as an absence; silence becomes a sheltered interior space found only inside a sealed maintenance cabin, or below the surface of a deep peat pool.
+
+Yet the landscape itself changes slowly.
+
+The pumping station may cycle, gates may open and close, water levels may rise by a handspan overnight, but the greater motions take decades. Moss advances over ballast. Reed beds colonize the shallow margins of settling ponds. A fallen signpost becomes a root frame. Water darkens exposed stone, lets lichens take hold, then plants, then peat. The raw slopes are not being dramatically carved away; they are being softened, wet grain by wet grain, into a future terrain. Every season adds another thin skin of organic matter. In a century, some of the machine yards will stand on islands. In several centuries, the islands may not be recognizable as human-made.
+
+Animal life is present mostly as evidence rather than spectacle. Tiny flies gather in the warmer air around pipe outlets. Beetles move through wet moss. A distant bird may cross the glare as a black stroke and vanish behind cloud. At dusk, if one waits quietly enough for the machinery to become merely background, there are sometimes tracks on the soft margins: hoofprints from a few high-country deer, or the delicate paired marks of a wading bird. But the place belongs chiefly to plants and water. Animals pass through it. Human beings maintain selected points within it. The bog and its green architecture occupy everything else.
+
+There are rules learned quickly by anyone working here.
+
+Do not trust a solid-looking surface if it is green all the way to the horizon.  
+Do not step from one moss mound to another without testing it.  
+Do not leave metal on the ground; by the next year it will be wet, stained, and half claimed.  
+Do not judge distance by the brightness of a building. The light lies.  
+And when the turbines shut down briefly for inspection, do not mistake the sudden vacancy of sound for peace. It is only the plateau hearing itself again: water slipping beneath roots, wind in the cables, innumerable droplets falling from leaf to leaf.

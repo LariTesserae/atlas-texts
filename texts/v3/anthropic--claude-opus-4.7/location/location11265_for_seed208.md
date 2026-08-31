@@ -1,0 +1,27 @@
+# The Drumming Flats
+
+The land here has forgotten how to be anything but flat. Whatever mountains once stood have been ground down across such depths of time that only the suggestion of them remains — long, low swells in the rock, barely tall enough to cast a shadow. The stone is dark, gray-green, polished by water and weather into something that looks almost soft, almost like the back of a sleeping animal. In the troughs between the swells, water pools. Everywhere, water pools.
+
+It is not a marsh, because nothing grows. It is not a lake, because the water is shallow — ankle-deep, knee-deep at most, spreading in great sheets across the worn rock for miles. Mineral pans, mostly. The cool air keeps it from evaporating; a low ceiling of cloud keeps the light grayed-down to the quality of an hour before dawn that never tips over into day. Mist sits on the water in patches, drifting, parting, re-forming.
+
+And the sound.
+
+The sound is the first thing and the last thing. It is the *frogs* — though calling them frogs is a courtesy, because whatever they are, they aren't quite. They are abundant past reason. They sit in the shallows, on the worn humps of stone, in the cup-hollows where water has spent a hundred million years carving a seat for them, and they call. The call is deep, deeper than a body their size should produce — a wooden, hollow *thock* like a mallet on a log, struck in waves across the flats. When one starts, a hundred answer. When a hundred call, the air vibrates against your sternum. You feel it in your teeth. Conversation would be impossible; even thought goes ragged at the edges. The drumming rolls across the water, bounces off the low swells, comes back doubled. There is no silence here, only the lulls between waves of sound, which are themselves filled by the lesser percussion of dripping — water finding water, water leaving the lip of a stone — and by the soft suck of mud where mud exists.
+
+The creatures themselves are pale, the color of wet bone. Eyes like dark beads set high. No legs to speak of in the back — they move by a kind of pulsed undulation, a flexing of the whole body. In the dim light their skin glistens like the rock. There are other things, too: long-bodied swimmers that ripple through the shallows in S-curves, hunting; a kind of slow grazer with a flattened head that scrapes the mineral crust off the stones (whatever it metabolizes, it isn't plant — perhaps the thin biofilms that pinken certain pools, perhaps the rock itself); and high overhead, rarely, the silhouette of something winged passing through the cloud, never descending.
+
+There is no green. There is no green anywhere. The closest thing to vegetation is the rust-and-ochre staining of certain stones where some chemotrophic film has set up house — slick to the touch, faintly warm. In a few places, pale fungal shelves push up through cracks in the rock, the color of old ivory. They are not common. The world here has decided, long ago, to be a world of water and stone and animal, and to let the matter of plants pass.
+
+The built things are few and small. Standing in the shallow water at intervals — perhaps a mile apart, perhaps further — are *cairns*. Stacks of the local stone, sometimes waist-high, sometimes taller than a person, weathered smooth, leaning. Some have toppled and been restacked, by hands that knew the originals. Some have lines pecked into them: tally marks, or maps, or notation for the drumming. Near a few of the cairns one finds the remains of small shelters — a half-circle of stones, a slab laid across two others to make a sitting place out of the wet. Bone tools, occasionally. A scraper of some dense black stone, knapped to an edge. A length of cord made from something fibrous and dark, perhaps the dried gut of one of the swimmers.
+
+Whoever made these things is not gone, but is not often here. You can walk a day and see no one. You can walk three days and find a fresh cairn, the stones still dark with the water they were lifted from, and know that someone passed through in the last hour, and not see them. They move quietly, in a landscape where quiet is impossible anyway — the drumming hides every footstep. They have learned, perhaps, that being unseen is easier where being unheard is irrelevant.
+
+The rules of this place, as far as can be worked out:
+
+The water is always there. It rises slightly with the tides of some larger body beyond the horizon — there must be a sea — but it never drains. The flats are the floor of the world; everything runs to here and stops.
+
+The drumming has rhythms. Not constant — it surges and quiets across the day, and across the (faintly perceptible) day-night cycle. At the deepest part of what passes for night, the calls slow and deepen until the whole landscape is one long held note, and the mist thickens, and the bone-pale bodies of the callers shine very faintly, just at the threshold of vision.
+
+The cairns mark something. Not paths — they don't lead anywhere in particular. Perhaps they mark where a particular caller was heard, on a particular night, by a particular listener, and the stack is a way of saying: *this happened here, and I was the one it happened to.*
+
+Nothing here is in a hurry. Erosion has done its work; the rock has settled into its final shape; even the animals, abundant as they are, move at a measured pace, except when they strike. The world is old and wet and loud and almost empty of anything but its own deep voice, repeating itself, repeating itself, against the patient stone.

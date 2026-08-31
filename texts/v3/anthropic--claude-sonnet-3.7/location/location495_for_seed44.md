@@ -1,0 +1,21 @@
+# The Verdant Mills
+
+Here, in the shallows of the valley, a forested town has fused with industry. Not built in the forest—built *of* the forest. The ancient mills spread between the living trunks of massive trees whose canopies entwine hundreds of feet overhead, creating a perpetual green twilight below.
+
+Water is the lifeblood of this place. It runs everywhere: trickling from leaf to leaf, flowing through hollowed vine-pipes that spiral around tree trunks, collecting in cisterns of woven root and clay. The ground never fully dries, a soft loam that yields slightly with each step. Small canals cut between buildings, channeling the persistent flow toward the central waterworks where the great wooden wheels turn with ponderous grace.
+
+The mills themselves emerge from the landscape as if grown rather than constructed. At first glance, it's difficult to distinguish where vegetation ends and architecture begins. Walls curve and bulge like living things, because they are—trained and trimmed and guided over decades into habitable shapes. Foundations extend directly from massive root systems. Windows are perfect circles where branches have been coaxed to grow in rings, now glazed with amber-tinted resin that filters the dappled light into warm, honeyed beams.
+
+What appears to be ivy clinging to walls is actually the building's circulatory system—photosynthetic pipes pumping water, nutrients, and in some cases, power. The more industrial sectors feature trees deliberately grown with hollow chambers where large wooden gears interlock, turned by the weight of collected rainwater or by the steady pressure of growing branches against calibrated resistance plates.
+
+The soundscape is a constant, textured rumble: the creak of wood under tension, the splash and gurgle of water through channels, the steady rhythm of mill wheels and gears, punctuated by the hiss of steam when water meets the heated metal of the newer processing equipment. These mechanical sounds blend with the natural creaking of branches and the constant dripping from leaves overhead, creating a percussive symphony that marks time in this self-contained world.
+
+Very few animals make their home here—the density of both plant life and human activity leaves little room for fauna beyond the occasional bird that nests in the highest branches, or small amphibians that navigate the wet ground between buildings. Instead, insects serve as the primary pollinators and decomposers, maintaining the delicate balance of this living industrial complex.
+
+The people who live and work here move with the measured pace of the turning wheels. They tend to both machines and plants with equal care, trimming back overgrowth from critical mechanisms while encouraging new growth where structural reinforcement is needed. Their clothes are stained green at the knees and elbows, and their tools are a curious hybrid of traditional gardening implements and mechanical wrenches specifically designed to interface with the plant-machine systems.
+
+At night, bioluminescent fungi cultivated in strategic locations provide illumination, their soft blue glow complementing the warmer light from sealed glass lanterns that burn refined plant oils. The pace slows further as darkness falls, though the mills never fully stop—water continues to flow, gears continue to turn, plants continue to grow.
+
+Changes here happen on the scale of seasons, not days. A new building might take fifteen years to reach its intended shape. Infrastructure plans are made with decades in mind. Yet within this slow evolution, there is a constant industry—the processing of the forest's bounty into materials, medicines, and goods that sustain both the town and its trading partners downriver.
+
+This is not a place of radical innovation, but of deep refinement—each process, each structure, each relationship between plant and machine carefully optimized over generations to achieve a sustainable harmony that, while not perfect, has proven remarkably resilient against the passage of time.

@@ -1,0 +1,19 @@
+# The Still Basin
+
+What you are standing at the edge of is not a lake. It is not a reservoir, not a flooded quarry. It is a *well* — but a well the size of a cathedral district, sunk into the high plateau like a perfectly cylindrical wound in the earth.
+
+The water is not still the way calm water is still. It is still the way glass is still. There is no current, no thermal shimmer, no surface tension rippling from particulate. The boundary between water and air is a hard line, almost architectural in its precision, as if the two realms were placed against each other by the same engineer who placed the stones. You could lean over the rim — the rim being a sidewalk of dark, fine-grained material that looks like it has never been touched — and the water would stare back at you like a black mirror.
+
+Below, you can see the geometry of the submerged city. The water is clear enough that you can witness the depth: the floor drops away at an angle that no natural erosion would produce — too regular, too clean. It descends perhaps forty meters, and along its walls, windows. Doors. Corridors. Balconies. The architecture is not ruined. It is *unfinished* in the way that a thing is unfinished when it was built for a purpose other than being lived in — corridors with no carpet, stairs that end in mid-air thirty centimeters above the waterline, railings whose geometry suggests they were never meant to be grasped.
+
+The dark is not total. There are faint points of light at intervals along the submerged walls — not glowing fixtures, not electroluminescent panels, but something softer, something that pulses at the frequency of thought rather than electricity. They might be biology. They might be architecture. The light they cast is cool and blue and barely enough to see by, and it does not move, and it does not flicker, and it does not warm the water.
+
+Fauna: you have heard something twice in the last hour. Not splashing. Not calling. A tone — low, almost subsonic, the kind of sound that registers in the sternum before the ears — that lasted seven seconds and then ceased as though cut. Whatever is in the water, it does not breach the surface. The water does not welcome it and does not reject it. It simply holds it.
+
+There is no vegetation. Not the absence of vegetation as destruction — no dead trunks, no rotted mats, no silt of decay. The basin was never planted. The walls of the submerged corridors, where the light touches them, show a surface material that resembles stone but is not stone: it has the micro-texture of something *manufactured*, and along its base, where it meets the floor, there are ridges — regular, calibrated, like the ridges on a cooling fin — that suggest the whole structure was engineered at a scale where the difference between architecture and machine has collapsed.
+
+This is a place that was built to function in perfect equilibrium. The water holds it. The infrastructure — whatever it was for — continues, because continuing is all it knows how to do. Nothing changes. Nothing decays because nothing is consuming it. The light points have not dimmed in a century or a millennium or a geological age, because they were not made to dim.
+
+You stand on the rim and listen to the silence — not the silence of absence but the silence of *occupation*, the way a museum is silent — and you understand that the water is not flooding this place. The water is the *ointment*. The water is what preserves it. Something sealed this basin and filled it with a fluid that does not corrode, does not mix with biology, does not evaporate, does not respond to temperature, and whatever city lies below is lying in that stillness like a seed in amber, waiting for no one.
+
+The sound of your own breathing is the loudest thing in the world.

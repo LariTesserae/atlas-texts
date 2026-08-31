@@ -1,0 +1,9 @@
+The primordial wetland swarms with life in a riotous tangle of twisting vines, coiling roots, and a thousand species of fungal growth. Bioluminescent plants illuminate the foggy valleys that stretch as far as the eye can see, through the dense, steamy jungle. Towering trees with trunks wider than houses lift their canopies into the dim sky, dripping water to the seething undergrowth.
+
+The dripping echoes through the undergrowth, and the chittering, splashing, burrowing of an abundance of small animal life. Huge, armored insects and reptiles shuffle through the underbrush. In the distance, the screels and trumpetings of larger saurian beasts. Beastly calls resound through the fetid air.
+
+Strange growths, like budding heads on thick stalks, turret the canopy - and eye and ear and tongue are placed on opposite sides, as if awaiting rebirth, or communing with the campanulaً، with the stegra and amid the knot of sumera. When the breeze shifts, their mouths gape and emit hollow moans that seem to echo the shape of the fungal flowers, ventilate the vapor more, the thing-breath rising in rhythms of billumphropping.
+
+Power pylons, leaning at slovenly angles, grid this emerald expanse, a warpage and thrumming, carnagietide, with lines stark and wire as if born in confluences of earth and mist, tree humour binding adamant, echoing the shape of kick-harvested brain-tasks, audial beanpods nod towards rootward daytypes, tender mycelia telling their chloride less.
+
+The whole swamp moves and twitches, seems to grow and change before your eyes, an autarch of loams and spore. Everywhere the land oozes hydrotic steam as if the very earth itself is hyperventilating, panting to exist. Water and plant seem held in equipoise, promoting each other in a sopping, near-sentient near-stasis.

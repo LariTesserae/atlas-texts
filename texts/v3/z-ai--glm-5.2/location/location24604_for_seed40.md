@@ -1,0 +1,43 @@
+# The Termitaries
+
+You arrive through a duct.
+
+That's how everything works here — you pass through one place to get to the next, because there is no *outside.* The Termitaries are a single continuous structure the size of a small mountain range, and the structure is all there is. No bedrock underneath, no soil beneath the floor. You can walk for three days and never touch anything that wasn't put there by a hand or a machine, though the hands and the machines have been gone long enough that the distinction is starting to lose its meaning.
+
+The air is cool, almost cold, the way high places are cold — but there is no sky to attribute it to. The temperature comes from somewhere in the architecture itself, radiating down from certain walls and up from others, a gentle thermal disagreement that keeps the interior at a persistent chill. You breathe and your breath doesn't quite fog, but you feel the dampness in your lungs. Water is everywhere here, but never as a body of it, never as a stream or pond. It surfaces as condensation — on ceilings, on the cold-metal undersides of walkways, in the junctions between walls — and collects in slow, fat drops that fall at long intervals, so that walking through any corridor is to pass through a sparse and patient rain. The drops strike surfaces with small bright sounds, like someone tapping a nail against glass, and these taps are the loudest thing you hear for hours.
+
+Because it is quiet here. Profoundly, almost aggressively quiet. The structure is dense with machinery — turbines the height of buildings, standing in ranks like burned trees; conveyor belts threaded through corridors like arteries, now still; tanks and vats and pressure vessels lining whole streets, cold and enormous — and all of it is *off.* Not broken, exactly. Quiescent. As if the engines have decided not to run and are simply waiting for a reason to change their minds. The absence of their operation is not silence so much as *held* silence, the way a held breath is not the same as not breathing. You feel the potential of the sound more than its absence.
+
+And yet there is animal life here, in bewildering abundance.
+
+The fauna arrived after the builders left, or perhaps they were always here, brought in as part of some system whose purpose has been forgotten. The Termitaries are full of them. Fat-bellied moths the color of rust cluster on the warm walls by the thousands, their wings flat, their bodies motionless until you touch one and the whole mass shudders and re-settles. Pale amphibians — something between a salamander and a lamprey, eyeless, slick — live in the condensation films and travel from wall to wall along the thin wet channels that form at the seams between panels. There are birds, or things descended from birds, that roost in the upper frameworks where light is brightest. They make no calls. You see them gliding between the great turbines in the high halls, their wings long and narrow, and you hear nothing — just the flick of air, if you are close enough, which you rarely are.
+
+There are also things that are harder to classify. Knots of dark filament on the floor that retract when you approach, pulling into drainage grates with a wet sound. Colonies of something chitinous and articulate — thousands of segments moving in coordination — living inside the conduit runs, audible only as a faint continuous clicking if you press your ear to the metal. They do not emerge. The animals here have entered into a kind of economy with the structure, occupying its spaces, drinking its water, feeding on its surfaces — but the structure does not seem to care, and may not be able to care, and may never have been designed to.
+
+The light is the strangest thing.
+
+It is bright. Bright everywhere — a flat, even, sourceless illumination that seems to come from the walls themselves, or from behind the walls, or from a layer of the material that is specifically designed to glow. Some surfaces glow white, others amber, others a pale green. The effect is of being inside a lamp, or inside something that has decided that darkness will not be permitted here, ever, under any circumstances. There are no shadows in the deep sense. There are no dark corners. The light folds around objects so that they are lit from beneath and above simultaneously, and the effect is disorienting until it isn't, until your eyes accept it as simply the way light works, and then you forget it is strange.
+
+But the strangeness of the light is *nothing* compared to the strangeness of the space.
+
+Because reality is not holding together here. Not dramatically — nothing is crumbling, nothing is screaming. The breakdown is patient, structural, almost polite. You notice it first in the corridors that curve. They curve, and they curve, and they keep curving, and you realize after walking for twenty minutes that you are not going around something — the corridor is simply curved, perpetually, as if the idea of straightness was never available to it. Some rooms are larger inside than they are outside. Some rooms are larger inside than they are inside — you walk into a space that seems reasonable, and after fifty meters the ceiling is still above you and the far wall is further away than when you entered, and you are still walking, and the room is still opening.
+
+Stairs descend to floors that are above them.
+
+Doorways open onto the room you just left, but at a different time of — no. Not time. A different *version.* The furniture is rearranged. The condensation is falling in a different pattern. The moths are in a different place. You step back through the doorway and you are in the original room again, and you step through and you are in the variation, and this is just how doors work here.
+
+In some of the great halls, the turbines stand in rows that go on longer than the hall can contain, their bases vanishing into a distance that the architecture does not justify. Light falls evenly on all of them. No sound. The moths on their housings are so thick the metal is invisible beneath them. The air is cool and wet and smells of iron and ozone and something fungal.
+
+Everything here is *made.* That is the founding condition. The floor under your feet is a manufactured composite, the walls are manufactured panels, the ceiling is a manufactured expanse of structural mesh and glowing material. There is no exposed rock, no natural ground, no substrate. Even the water — the condensation — is produced by the structure, by systems that are still functioning for reasons no one can name. The Termitaries were built. Completely. From nothing. Someone looked at an empty high-altitude nothing and built *this* instead, every surface, every corridor, every tank and turbine and stairway, and then left.
+
+Or did not leave. Or did not exist.
+
+Because the erosion here is *young.* The structure is fresh. Edges are sharp, surfaces are unmarked, joints are clean. There is no weathering, no wear, no decay. The structure looks like it was built yesterday, but it has been here long enough to be colonized by a full ecosystem of fauna, long enough that no one remembers building it, long enough that reality has started to loosen around its edges. The youth of the structure and the age of the abandonment do not agree. They coexist anyway, the way everything here coexists — densely, quietly, without resolving.
+
+Sparse vegetation clings to the warmest surfaces: thin mats of something like moss, pale green, growing in the condensation channels. No roots in soil — there is no soil — just thin fibers gripping the composite, feeding on moisture and whatever the structure leaches. It spreads slowly. The dynamic of this whole place is slow. The condensation falls, the animals move, the moths settle and unsettle, the light stays constant, the rooms open and open and open. Change here is measured in the shifting of a wall's glow from white to amber over what might be months. The fauna populations grow and contract in cycles so long you would need to live here for years to notice them.
+
+And you are here. And the structure does not acknowledge you. And the machines do not turn on. And the corridors curve, and the doors open into other versions of the rooms, and the light stays on, and the water falls, drop by patient drop, and somewhere in the deep frameworks, the chitinous things click and click and click.
+
+You walk. The floor is dry and then wet and then dry. A salamander passes over your boot. A moth lifts off a wall ahead of you and resettles three meters further on. The corridor bends. You follow it. The corridor bends.
+
+It is quiet here.

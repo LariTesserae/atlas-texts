@@ -1,0 +1,19 @@
+# The Clockwork Reliquary
+
+The Cathedral of Timepieces stretches upward in the dim light, its bronze and copper spires reaching toward an obscured ceiling that might be sky or might be vault. The air is warm and dry, carrying an electrical tang of heated metal and ozone. In this enclosed world, the ground is not earth but a vast, interlocking series of brass plates and gears that click forward with inexorable, glacial patience—one tooth every seventeen minutes.
+
+Sparse vegetation exists here, but not as you might expect. Copper wire trees with delicate filament leaves rise from junction points in the floor mechanism. Their branches support tiny bulbs that pulse with bioluminescent fungi cultivated within glass chambers. These "plants" draw energy not from water or sun but from the minute electrical currents that pulse through the foundation plates. Their growth is carefully regulated by the mechanism itself, their presence a necessary component in the greater machine.
+
+The reliquary is densely packed with clockwork fauna. Mechanical hummingbirds no larger than a thumbnail dart between the wire trees, collecting the spores from the fungi to distribute elsewhere. Articulated copper beetles with jeweled carapaces tend to the inner workings of the floor mechanism, their mandibles perfectly sized to adjust the smallest screws. Brass serpents wind through specialized channels, their bodies compressing and expanding to pump lubricating oils through the system. Larger constructs—perhaps the size of foxes—move with deliberate purpose, their glass eyes containing something that seems almost like awareness.
+
+There is no natural water here. Instead, mercury pools in small reservoirs, acting as conductive medium and bearing fluid. The mechanisms have evolved to harness this quicksilver, pumping it through crystal tubes that glow with faint blue luminescence. Some of the more complex fauna have mercury chambers that serve as primitive hydraulic systems, allowing for smooth movement despite their metallic construction.
+
+The silence is not complete but nearly so—a muffled world of soft ticking, the occasional whisper of gears meshing, the delicate ping of a calibration completing. These sounds don't travel far, absorbed by the felt and velvet that lines many of the vertical surfaces. The cathedral seems designed to contain sound as much as to contain its mechanical ecosystem.
+
+The entire environment is constructed, every element purposeful. Even what appears to be dust is actually a fine powder of iron filings that serves some function in the overall mechanism. The elevation is considerable—this place exists as a stack of seventeen interconnected chambers, each with its own ecosystem of mechanical life, all part of a system whose purpose remains obscure. The current chamber might be near the top or middle of this vertical world.
+
+What makes this place strange is not just its mechanical nature, but the undeniable impression that it has evolved beyond its original design. The mechanical creatures move with too much purpose, the systems integrate with too much elegance. The most complex fauna—brass owls with rotating eye lenses that perch on the higher wire trees—seem to observe visitors with calculation beyond mere programming.
+
+Time passes differently here. The great mechanism marks its own hours, following cycles that correspond to no known calendar. The entire cathedral may be a clock itself, though what it measures and for whom remains a mystery. The temperature remains constant, regulated by vents that occasionally release warm air scented with machine oil and metal.
+
+This is not a place that was built and abandoned. It is maintained, it evolves, it functions—though for what purpose and under whose direction, none can say. The only certainty is that everything here has its place in the greater mechanism, densely packed and precisely arranged, moving forward with the slow inevitability of time itself.

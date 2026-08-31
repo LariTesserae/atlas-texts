@@ -1,0 +1,21 @@
+The world is not a planet, but a vertical sea suspended in the high cold of a sun-drenched void, held together by a gravity that works only on fluids. It is a gargantuan, drifting sphere of warm, pressurized water, thirty miles across, floating at an elevation so high that the air around it has thinned into nothingness. Within this orb, life does not swim; it hangs.
+
+Because the erosion is negligible—the world is too young for the friction of wind or the grinding of sand—the internal structures are raw and embryonic. Massive pillars of translucent, unweathered obsidian rise from a central core that has not yet finished cooling. These jagged needles of volcanic glass reach toward the outer membrane of the sphere, intersecting at sharp, geometric angles. They are not worn down. Every edge is razor-sharp, every surface a perfect mirror, creating a fractured, kaleidoscopic interior where the dim light from the distant star is refracted and trapped.
+
+The water itself is thick, heavy with suspended silicates and a pale, bioluminescent mucilage. It feels less like liquid and more like a warm, viscous gel.
+
+This is a drowned city of the vertical.
+
+The "urban" sprawl is a dense, tangled infrastructure of bio-engineered flora. Without the need for stone or wood, the inhabitants—sparse, slow-moving silhouettes seen only in the periphery—have woven a civilization out of giant, pressure-resistant kelp and thick, tubular vines that pulse with a slow, rhythmic heat. These structures are not houses so much as they are woven cocoons, tethered to the obsidian pillars by primitive, hand-braided ropes of fiber and pitch. The "buildings" are clusters of these pods, layered thick like grapes, creating a vertical metropolis that spans miles of the interior.
+
+Everything is green and deep teal. The vegetation is aggressive and lush, feeding on the mineral-rich heat blooming from the central obsidian core. Fern-like fronds the size of ship sails unfurl in the dark, their edges glowing with a faint, velvet purple. They do not wave in a current; there are no currents here. They simply occupy the space, heavy and still.
+
+Technologically, the world is in a state of advanced primitivity. There is no fire—fire is an impossibility here. Instead, the inhabitants use percussion and pressure. They carve the obsidian with harder diamonds found in the core, creating jagged, serrated tools. They use bioluminescent fungi for illumination, carrying it in hand-blown glass spheres or translucent bladders. There is a sense of immense labor behind every object; every rope was twisted by hand, every pod woven through generations of slow, patient movement.
+
+The atmosphere is one of profound, heavy silence. Sound travels exceptionally well in the water, yet there is nothing to make it. The inhabitants communicate through low-frequency hums that vibrate the chest rather than the ear. Occasionally, the obsidian core will groan—a deep, tectonic shift of a world still settling into its skin—and the sound will ripple through the city like a physical blow, slow and resonant.
+
+Fauna is nearly non-existent. There are no schools of fish, no predators. Only "The Drifters": translucent, jelly-like organisms that resemble umbrellas made of lace, ten meters wide, pulsating once every hour. They act as the city’s slow-moving lungs, scrubbing the water of toxins. They move with an agonizing lack of haste, their long, stinging tendrils occasionally tangling in the garden-streets of the city.
+
+The rules of this world are dictated by buoyancy and heat. To move "down" is to move toward the scorching, jagged dark of the glass core; to move "up" is to move toward the terrifying, bright membrane where the water meets the vacuum. The inhabitants live in the temperate middle-ground, a dense, green-choked twilight where the water is the temperature of blood.
+
+It is a slow world. A conversation might take a day; the construction of a single dwelling might take a decade. The erosion has not yet begun to round the corners of the world, and the people here match that embryonic pace, living within the folds of a lush, wet architectural dream that hasn't yet realized it has the potential to break. Everything is suspended, waiting, pressed together in a warm, dim, and emerald-colored eternity.

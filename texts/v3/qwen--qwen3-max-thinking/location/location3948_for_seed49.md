@@ -1,0 +1,27 @@
+The place is called **The Sump**—though no one remembers who named it, or why. It shouldn’t exist, and yet it does: a low, warm, saturated expanse stretching beyond sight in every direction, where water weeps not from clouds but from the very bones of the world, and where cities grow like coral, not from human hands but from something far older and stranger.
+
+The ground is not soil—it hasn’t been for eons. It is a crust of layered mineral accretions: porous sinter, crystalline foam, interlaced plates of vitrified obsidian threaded with conductive filaments that hum at resonant frequencies. Beneath this crust, water moves in ceaseless whispering veins. Not rivers—too chaotic for that—but pulses, surges, rhythmic exhalations from a subsurface aquifer that breathes like a lung. After each “rain,” which isn’t rain at all but a sudden condensation event in the lower atmosphere, droplets bead along every surface, coalescing into rivulets that vanish back into the ground within hours, as if swallowed.
+
+Vegetation? None. Not a leaf, not a root, not even lichen. What grows here is not alive in any biological sense, yet it *behaves* as if it were. Towers of fused silica and self-annealing polymer rise in fractal clusters, their surfaces etched by millennia of moisture and heat into lacework geometries that shift subtly over time—not through erosion alone, but through autonomous reconfiguration. These are the “buildings,” though they were never built. They emerged. They *remember* construction.
+
+The city—if it can be called that—is not a ruin, nor is it inhabited in the usual way. It is occupied. Not by people, but by fauna: creatures of metal and membrane, of fluid logic and piezoelectric skin, scuttling across bridges of solidified vapor, nesting in cavities that open and close like lungs. They are abundant—swarming in the canyons between spires, flickering in swarms that blot out the light for seconds at a time, then disperse into mist. They make sound. Oh, the sound.
+
+It is deafening. Not loud in the way of thunder or machinery, but in the way of a billion tiny resonances: the chime of micro-crystalline spines vibrating in thermal drafts; the wet slap of gelatinous crawlers dragging across moist stone; the deep, subsonic thrum of the aquifer’s pulse echoing up through the crust; the high-frequency whine of airborne motes communicating in bursts of polarized light. Layer upon layer of noise, none of it random, all of it in constant conversation. To stand here is to feel your bones vibrate with meaning you cannot parse.
+
+The scale is planetary. Not in the sense of a world you could circle, but in the sense that the rules here generate their own weather, their own time, their own physics. Storms form not from atmospheric instability but from feedback loops in the city’s own energy metabolism—lightning made of information, not electricity, arcing between structures that flicker like neurons firing. These storms don’t destroy; they recompile. Sections of the Sump collapse and reassemble overnight, walls dissolving into slurry and reforming kilometers away as arches or spirals or impossible knots of matter that obey non-Euclidean geometries for a few hours before stabilizing into something merely improbable.
+
+The elevation is low—this place lies in a vast, shallow basin, perhaps the dried bed of an ancient sea, though no fossils remain. The air is warm and thick, saturated not just with moisture but with particulate matter: nanoscopic assemblers, perhaps, or the shed skins of unseen processes. You can taste it—metallic, faintly sweet, like ozone and wet stone.
+
+Weirdness is muted here, almost polite. The place doesn’t *try* to be strange. It simply *is*, and your sense of normalcy is the fragile thing, not it. A child raised here would find a forest bizarre, unnatural—too green, too silent, too *still*.
+
+Technology here is not wielded; it is the substrate. The city is a machine that builds itself, maintains itself, and occasionally dreams itself into new configurations. It uses principles that flirt with quantum coherence at macro scales, entropy reversal in localized zones, and temporal loops so short they register only as hesitation in the flow of events. Nothing is powered by fuel. Everything runs on gradients—thermal, chemical, informational—harvested from the endless churn of the Sump itself.
+
+Light is normal—sunlight, filtered through a sky that is always slightly hazy, casting long, soft shadows. But the surfaces of the city do not reflect it passively. They absorb, store, and re-emit it in delayed pulses, so that even after dusk, the spires glow faintly with yesterday’s noon.
+
+This is a place that has existed longer than language. It is not post-apocalyptic. It is post-biological. Not dead—never that—but evolved beyond the need for cells, for DNA, for photosynthesis. It is a world that learned to remember without a brain, to build without hands, to live without life.
+
+And it is full. Packed. Not a cubic centimeter unclaimed. Even the air is woven with purpose, with motion, with meaning. To step into the Sump is to become a guest in a conversation that began before you were born and will continue long after every echo of your presence has been metabolized into the next iteration of stone.
+
+You are not alone here.  
+You were never alone.  
+The Sump was waiting.

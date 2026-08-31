@@ -1,0 +1,25 @@
+The Breathing Hollows stretch beyond comprehension—a manufactured wilderness of impossible scope where the builders have long since dissolved into their own creation.
+
+The substrate is a living architecture of calcified breath. Vast ribcages of pearl and mineral span kilometers, their hollow bones wider than canyons. These are not remains but active structures, drawing moisture from the scorching air through billions of microscopic pores. The bones sweat continuously, their surfaces slick with condensation that pools in the joints and sutures where one massive skeletal plate meets another. In the deepest hollows between ribs, this collected water forms hanging lakes—suspended pools that defy gravity through surface tension alone, trembling like mercury in the heat.
+
+The emptiness here is aggressive. Between the bone-spans lies nothing but superheated air and the occasional strand of connective tissue—translucent ligaments thick as bridges that hum in frequencies just below hearing. The space between structures can be measured in kilometers of nothing, yet the whole system is connected, integrated, breathing as one vast organism.
+
+What vegetation exists grows only in the water-catches: sparse colonies of crystalline grass that tinkle like wind chimes when disturbed. These plants are more mineral than organic, their transparent leaves focusing the harsh light into burning points that score the bone beneath. They grow in perfect spirals, following mathematical patterns that hurt to look at directly.
+
+The fauna have adapted to the emptiness by becoming part of the architecture. Herds of void-swimmers drift between the rib-spans—creatures like living shadows that feed on the temperature differential between bone-shade and open air. They move in schools of thousands, their bodies so insubstantial they're only visible as distortions in the heat shimmer. When they pass overhead, the air cools briefly and rain falls upward.
+
+Predators here are patient geometries. Angular hunters that unfold from two dimensions into three, spending decades compressed against the bone surfaces before detecting prey. When they strike, space itself seems to crease and fold, bringing distant points together in ways that make the eyes water.
+
+The sound never stops. The entire structure moans and creaks as thermal expansion and contraction work against joints the size of city blocks. The hanging lakes slosh and gurgle. The void-swimmers keen in ultrasonic choruses that make the bones ring like bells. Sometimes the harmonics align and the whole hollow sings—a sound that carries for thousands of kilometers and causes spontaneous rainfall.
+
+The construction is so total that finding an edge seems impossible. Each horizon reveals more bones, more hollows, more impossible suspended waters. The skeleton-world curves upward in all directions, as if the entire landscape exists on the inside surface of a sphere. Yet somehow there is still sky—a burning bright vault that may itself be constructed, another layer of the endless architecture.
+
+Reality stutters here. Sometimes the bones are clearly manufactured—bearing tool marks, joints that click open to reveal maintenance passages, surfaces etched with symbols in languages that crawl and rearrange themselves. Other times they seem purely biological, warm to the touch, pulsing with some cosmic heartbeat. Both states are true. Neither state is true. The landscape exists in superposition, industrial and organic, ancient and newly-made, dead and desperately alive.
+
+The heat drives everything. It makes the air thick as syrup, causes the hanging lakes to rain upward in sheets of steam, bakes the sparse crystal grasses into new configurations. The fauna move in patterns dictated by thermal columns. Even the predatory geometries unfold more frequently where the temperature differentials are greatest. 
+
+At the deepest points, where ribs converge into vast thoracic cathedrals, the collected waters form proper seas—but seas that hang in space, held in place by the architecture's breath. Ships of bone sail across their inverted surfaces, crewed by nothing, carrying cargoes of condensed sound from one hollow to the next.
+
+This is a made place that has forgotten its makers, or perhaps consumed them, integrating their purpose into its own vast breathing. It builds itself now, each breath adding new layers of pearl to the bones, each exhalation spawning new void-swimmers from the marriage of heat and hollow. The sparse life that clings to its water-catches may be all that remains of whatever ecosystem existed before the building began—or they may be the first colonizers of a world just beginning to learn what it is.
+
+The Breathing Hollows continue, worldless and wordless, a vast construction that has become its own reality. In the distance, something like thunder rolls through the bones—but it might be laughter, or digestion, or simply another part of the endless breathing that gives this empty fullness its name.

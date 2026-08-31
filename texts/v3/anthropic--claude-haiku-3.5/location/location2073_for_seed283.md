@@ -1,0 +1,9 @@
+The Verdant Sprawl breathes and pulses, a living organism of tangled green architecture where vegetation has completely consumed and replaced traditional structures. Massive plant-flesh buildings twist and secrete, their cellular walls translucent and rhythmic, pulsing with internal liquids and nervous systems. Thick vine-tendons connect massive chlorophyll towers, and every surface is carpeted in dense, moving vegetation that seems more like muscle than foliage.
+
+Darkness saturates everything — not blackness, but a deep green-black twilight where bioluminescent growths provide shifting, organic illumination. The environment is hot and humid, with water constantly condensing and dripping from every surface. Strange fauna move within the plant-architecture: part animal, part botanical creature, their forms blending and shifting, overwhelmingly complex and in constant motion.
+
+The soundscape is a cacophony — wet organic sounds of growth and decay, chitinous creature movements, the constant whisper-rustle-scream of plant-flesh reconfiguring itself. Nothing is stable. Everything is turbulent. Entire districts might reshape themselves in minutes, vines extending and contracting, creating and destroying pathways, architectural elements flowing like liquid.
+
+Primitive technologies are embedded within this living system — crude tool-extensions grown directly from plant-flesh, organic mechanisms that function more like appendages than machines. Condensation pools form and dissolve. The ground itself seems to breathe, to have agency, to be watching.
+
+This is not a landscape. This is a living, dynamic entity that happens to contain landscapes within its shifting, breathing mass.

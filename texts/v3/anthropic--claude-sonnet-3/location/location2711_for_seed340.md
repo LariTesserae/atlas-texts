@@ -1,0 +1,11 @@
+You stand atop a towering spire of volcanic glass, its smooth obsidian surface glinting in the cool sunlight. This spire is one of many that pierce the desolate, mineral-streaked plain stretching to the horizon. A city of dark, jagged towers built into and around these volcanic upthrusts.
+
+The air is thin and dry at this extreme elevation. There is no water here, not a drop. No vegetation clings to the glassy slopes. This is a world without life as we know it, a starkly inorganic panorama of raw geology.
+
+Yet the city is very much alive with motion and industry. Lumbering factories and assembly lines are carved into the volcanic rock, plumes of steam and smoke drifting upwards. Antimony railways run between the spires on precarious trestles, carrying ore and processed materials. The sound of impacts, grinding gears, and low metallic rumbles constantly reverberates across the plain.
+
+Strange six-legged creatures scuttle about, tending to machinery and performing maintenance. Not biological life, but some form of autonomous clockwork automation or self-replicating nanotech swarm. They move with insect-like precision, Purpose unfolding in slow cycles suited to the gradual processes required at this scale.  
+
+This is a world optimized for extraction and manufacturing, hollowed out from within by millennium of mining and construction. Once solid volcanic plugs have been bored through, their interiors now housing dimly lit foundries and smelting chambers. Gaps between spires are bridged by interlocking latticeworks of refinery stacks belching ruddy vapors.
+
+Despite the frenetic industry, there is an eerie stillness here. The vastness of the empty plain mutes all movement and noise to a subdued murmur. Erosion has sculpted the landscape into austere, severe forms that seem frozen in time. This is a place ruled by implacable geological processes and the remorseless acquisition of resources. An abandoned factory world of the deep future, its original inhabitants long gone, left to the care of their tireless automaton children.

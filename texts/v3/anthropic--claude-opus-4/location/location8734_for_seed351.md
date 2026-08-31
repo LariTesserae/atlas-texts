@@ -1,0 +1,21 @@
+The black water trembles with industry.
+
+This is the Drowning Works—a vast fen of manufacture where ancient peat bogs have been colonized by sprawling networks of half-submerged factories. Steam vents puncture the marsh surface like breathing holes, their exhalations merging with the perpetual mist that clings to everything here. The air tastes of iron and vegetation, thick enough to leave condensation on your tongue.
+
+The factories themselves rise from the wetlands on stilts of corroded metal, their foundations disappearing into water so dark it swallows light. Between them, catwalks and pneumatic tubes create a canopy of industrial webbing, dripping constantly with collected moisture. The structures are young—perhaps only decades old—but the marsh ages them rapidly. Rust blooms across every surface in fractal patterns, while moss and strange phosphorescent lichens colonize the joints and seams.
+
+Below, the water moves wrong. It flows in multiple directions at once, creating interference patterns that suggest vast machinery operating beneath the surface. Occasionally, bubbles the size of houses rise and burst, releasing clouds of spores that glow faintly green before dissolving. The bog itself seems to be breathing, its surface rising and falling with a rhythm too slow for human perception but fast enough for the patient observer to notice over hours.
+
+The vegetation here has adapted to drink metal. Cattails grow with leaves of flexible copper that chime in the slightest breeze. Marsh grasses weave themselves into the factory outputs, their roots tangling with pipes and cables, drawing sustenance from industrial runoff. Trees—what few grow in this sodden land—have bark that sweats oil and leaves that collect sound, vibrating in resonance with the endless mechanical din.
+
+And the noise—the noise is everything. The factories run without pause, their turbines and engines creating a wall of sound that physical rather than auditory. It presses against your chest, makes your bones hum. Beneath this industrial roar runs the subtler cacophony of the marsh: the gulping of water through hidden channels, the hiss of gas escaping from disturbed peat, the metallic calls of birds that have learned to mimic machine sounds for their mating songs.
+
+The fauna here defies easy categorization. Herons stand motionless on one leg atop exhaust pipes, their beaks adapted to snatch brass beetles from the air. Schools of fish with scales like ball bearings navigate the channels between factories, their movements generating small electrical currents that power the bioluminescent algae coating their bodies. Amphibious things—part salamander, part actuator—climb the factory walls at night, feeding on the rubber seals and leaving trails of corrosive slime.
+
+In the deeper pools between structures, larger shapes move. Workers speak of the Turbine Mothers—massive creatures that have incorporated industrial components into their bodies, their hearts replaced with pumps, their limbs articulated with pistons. Whether these began as animals or machines, none can say.
+
+The few human structures beyond the factories are small, practical things: monitoring stations on floating platforms, tethered to the stilts by chains that sang in the wind. Abandoned manager's offices slowly sink into the peat, their contents preserved in the anaerobic muck. Occasionally, a corrugated metal shelter appears, housing a single hermit who claims to understand the language of the machines, translating their noise into prophecies no one wants to hear.
+
+Time moves strangely here. The factories' constant operation creates a sense of frozen urgency—nothing changes quickly, but everything is always in motion. Shifts blend together. Day and night matter less than the rhythm of production. The darkness is near-total; what little light exists comes from the factories' furnaces, the bioluminescent marsh life, and the occasional arc of electricity jumping between wet surfaces.
+
+The deeper you travel into the Drowning Works, the more the distinction between organic and mechanical dissolves. Pipes grow like roots. Vines operate like cables. The entire landscape pulses with a hybrid vitality, neither fully alive nor completely artificial, but something new—a wetland ecosystem that has learned to metabolize industry itself.

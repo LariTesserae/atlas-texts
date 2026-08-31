@@ -1,0 +1,19 @@
+# The Living Vault
+
+You descend through an opening in the earth, and the world inverts.
+
+What you find below is not a darkness but a brightness — a thick, warm light that seems to come from everywhere and nowhere, pooling on surfaces that have never known rain. The luminous plants do not glow subtly here. They blaze. Great trailing fronds of pale gold hang from above like frozen waterfalls, their undersides studded with clusters of tiny luminous bodies. Between them, curtains of blue-green mosses sway in currents of humid air, each leaf-tip a faint star.
+
+The walls are not stone. They are roots.
+
+Not roots pushed through soil, but roots that *are* the soil — dense mats of living tissue, pale and damp, drinking from the moisture that seeps through them. Where the root-matter thins, you see the raw geology beneath: not carved and worn but still emerging, still taking shape. The rock here is newborn. It has the quality of something formed yesterday — sharp angles where lava once crept, glassy surfaces where mineral-rich water once pooled and hardened in the humid air. No erosion has touched it. No time has worn it down. It exists in the first instant of its existence, saturated with heat, still warm to the touch.
+
+The air is thick and still. Hot, but not stifling — a moist heat, the warmth of a body, of life. Moisture beads on every surface, runs in thin rivulets down the root-walls, gathers in pools where the plant-matter dips and cups. These pools are rare and precious-looking, perfectly still, their surfaces reflecting the plant-light in pale mirrors. You hear only a faint sound: the slow drip of condensation, the occasional creak of growing wood, the soft percussion of water finding its way downward through living tissue.
+
+There are structures here, but they are not structures in any familiar sense. They might once have been built by hands, but the plants have made them their own. A small stone platform, perhaps an altar, perhaps something older — its surface nearly consumed now by a dense mat of root-fiber, flowering with pale blossoms that smell of wet earth and something sweeter beneath. A single standing stone, black and glassy, wrapped entirely in glowing moss. A low wall that might have once divided a space, now transformed into a trellis for vines so thick they resemble small trees.
+
+Animals exist here, but sparingly. A pale, eyeless beetle the length of your finger moves along the root-walls in slow, deliberate paths. In the deeper recesses, you sometimes catch the flutter of something moth-shaped, wings luminous at their edges, drifting toward the brightest clusters of light. Once, at the far edge of what you can see, something larger shifts — a shape the color of wet bark, long-limbed and silent — and then is still again, watching or sleeping or simply being.
+
+The space is large. It opens up beyond the first chamber into corridors and hollows, the root-architecture rising and falling like frozen waves. You cannot see the ceiling. Above, the light-scouring plants grow so dense that they become a second surface, a living sky. Below, the root-mats thicken into a floor that is soft in places and hard in others, sometimes giving way to reveal the glassy rock beneath.
+
+Nothing changes while you watch. The water does not move faster or slower. The light does not dim. The plants do not visibly grow or shift. Yet the space feels alive — not with motion but with presence, with a slow and patient awareness. Everything here was new once. Everything here has been integrated. The raw geology, the root-walls, the luminous plants, the scattered artifacts — all of it settled into a stillness that seems less like death than like patience. The vault is waiting, or resting, or simply existing, and has been doing so for so long that it has forgotten any other way to be.

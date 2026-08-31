@@ -1,0 +1,15 @@
+The air here is heavy, thick with a vapor that refuses to solidify into true rain but clings to every surface like a damp, microscopic veil. It is a place of perpetual condensation. You have stepped into a basin of low, rounded limestone hills—eroded to smooth, undulating curves over aeons—that act as a collection bowl for the constant, subterranean seepage that rises through the salt-slicked soil.
+
+This is a **High-Pressure Foundry of the Lowlands**, a compact, intensely active pocket of industry that operates with the frantic, wet energy of an anthill.
+
+The scale is cathedral-intimate. Within a confined, canyon-like depression of no more than a few hundred yards, a dense network of oxidized copper pipes, dripping brass manifolds, and rhythmic, steaming pistons is packed tight. There is no sprawling factory footprint here; instead, the equipment is layered, winding over and around the weeping rock faces like vines made of iron. 
+
+The sound is not one of clanging metal—the dampness mutes everything—but a rhythmic, organic *thrum-hiss-thrum*. It suggests a heartbeat. Because the ground is nearly liquid, each industrial unit is mounted on a series of tethered, floating pontoons or suspended from the weeping limestone walls by ancient, calcified chains. Everything is in a state of turbulent flux; you can watch, in real-time, as a piston head slowly dissolves under the chemical assault of the moisture, only to be replaced by a secondary arm that swings down from a shadowed overhang, welding itself into place with a quick, silent flash of blue arc-light.
+
+The vegetation is starved and spindly, consisting only of pale, translucent mosses and liverworts that carpet the undersides of the machinery. They do not grow toward the sun, but toward the heat-exhaust ports of the engines, drinking the acrid condensation that drips from the copper veins. There is no fauna here, save for the occasional, translucent crustacean that skitters up the base of the weeping rocks, feeding on the metallic salts that bloom in white, crystalline flowers everywhere. 
+
+The built aspect is a haunting, scattered logic. You find abandoned remnants of older, larger eras half-buried in the silt: a singular, rusted crane-arm that serves as a bridge, or a cluster of brass dials embedded directly into the living stone, their needles still twitching in response to changes in the atmospheric pressure.
+
+The world feels "settled" into its own strange, mechanical metabolism. It is not building something for an external market; it is simply *processing*, churning its own material in a closed, chaotic loop. The light is a flat, diffuse grey that filters through the heavy mist, giving everything a washed-out, cinematic quality—like a photograph left to soak in a tray of developing fluid. 
+
+You feel the instability in your teeth. Everything is moving, dissolving, and re-forming within a space small enough to hold your gaze, yet complex enough to defy understanding. It is a humid, industrious bubble of entropy, breathing with a frantic, wet, and quiet intensity.

@@ -1,0 +1,1 @@
+The chamber is the size of a modest threshing barn, yet it rests higher than the atmospheres of ordinary worlds, perched atop a shaft of rammed earth, crushed terr

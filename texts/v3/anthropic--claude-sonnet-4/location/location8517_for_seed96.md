@@ -1,0 +1,19 @@
+The Cultivated Peaks rise in terraced impossibility, a mountain range carved entirely into living galleries and gardens that climb toward thin, cold air. Every surface—from the gentlest slope to the most vertical cliff face—has been shaped into platforms, shelves, and hanging amphitheaters where vegetation cascades in deliberate abundance.
+
+The architecture is purely biological. Massive tree-trunks, bred over generations to grow in perfect geometric forms, serve as living pillars supporting canopies that form natural roofs. Vines as thick as cables have been trained into spiraling staircases and bridges, their woody stems polished smooth by countless feet. Root systems, exposed and sculpted, create intricate latticework walls that filter the mountain light into dappled patterns.
+
+Everything here grows without soil, without rain. The plants have evolved—or been bred—to draw sustenance from the mountain's mineral heart itself. Their roots penetrate deep into granite and schist, extracting what they need directly from stone. Leaves shimmer with crystalline deposits, and many plants have developed waxy, succulent characteristics to hoard every molecule of moisture from the rare mountain mists.
+
+The cold is persistent but not harsh. At this elevation, frost forms delicate lacework on the endless foliage each dawn, only to sublimate away as the day progresses. The plants seem to thrive in this temperature, their metabolisms slowed to a contemplative pace that matches the thin air. Some species glow with a faint bioluminescence, their internal chemistry generating just enough heat and light to supplement the pale mountain sun.
+
+Despite the lush growth everywhere, the place feels hushed. The dense vegetation muffles sound, creating a cathedral quiet broken only by the occasional rustle of leaves in the constant, gentle wind that flows up from the valleys below. Sometimes there's a distant crack as a branch adjusts its growth pattern, or the soft whisper of root-tendrils finding new purchase in stone.
+
+Animals are scarce here, as if the very completeness of the cultivated environment leaves little room for wild creatures. Occasionally, a pale bird moves through the upper canopies—something adapted to feed on the mineral-rich saps that weep from cut stems. Small arthropods with translucent shells scuttle along the root-highways, their bodies evolved to process the strange chemistry of these stone-fed plants.
+
+The Peaks extend beyond the horizon in every direction, wave after wave of these impossible gardens climbing toward distant summits. Each range seems to follow its own botanical theme—here, cascading curtains of needle-leafed evergreens; there, geometric orchards of perfectly spherical fruits that grow directly from bark. The cultivation follows no human logic but some deeper principle, as if the mountains themselves dream of what they might become and slowly, generation by generation, convince the plants to fulfill that vision.
+
+Movement is everywhere despite the quiet. Vines grow visibly, extending new tendrils each day. Flowers open and close in complex rhythms that have nothing to do with day and night. Entire sections of the garden-peaks shift their colors seasonally—not autumn colors, but strange metallics and deep purples that speak to the unusual nutrients flowing up from below. The plants compete and cooperate in slow, vegetative dramas that play out over decades, creating an ever-changing tapestry across the mountain faces.
+
+At the edges of vision, where one range meets another, strange hybrid zones appear where different botanical philosophies meet and merge, creating impossible combinations—forests that grow like coral reefs, meadows that spiral vertically up cliff faces, trees whose canopies connect underground through vast root-galleries that hollow out the mountains themselves.
+
+The air tastes of green metal and growing things, crisp and strange on the tongue.

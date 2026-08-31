@@ -1,0 +1,41 @@
+# The Sunken Pass of Olethrun
+
+The water is everywhere, and it is loud.
+
+It does not move the way surface water moves. There is no rush, no careen of wave against bank. Instead the entire body of it leans and drifts, a slow continental sigh, pressed against every surface with the patience of stone. Cold — the kind of cold that comes not from wind but from depth, from pressure, from the long absence of any warm thing — fills the chambered world above and below and sideways. You cannot tell which way is up. There is no up. Only darker and less dark.
+
+Once, very far above, there is a ceiling. It is not visible. It is a memory of light — the idea of a surface where this water meets air, where once a sky held a different cold, where once the wind could be heard rather than felt as a deep current that turns whole corridors of growth in unison. That ceiling is kilometers up now, or perhaps leagues, and the only sign it exists is the faintest grey-green diffusion, the way a room remembers a candle after the candle is gone. It is not enough to see by. The eye learns to work without it.
+
+---
+
+The land itself is a pass, a high saddle of mountain that was high when there was air. Now it is high in water — a ridge rising from a deeper plain, the spine of the place, where the currents split and braid around it. The stone is dark basalt and something older, something layered and pale that fractures in smooth steps. Long ago — when this was a place of feet and breath and small tools — the stone was carved. The carved things are still here. They have not been carried away. Erosion has settled into a long truce with them: the water takes what it can, the growth gives back, and the marks remain legible to anyone patient enough to read them in the dim.
+
+A wall. A low wall, shoulder-height once, now a ribbon of fitted stones running along the ridge like vertebrae. The mortar between them is no longer mortar but a calcium-pale accretion that has grown over centuries into something more durable than what the builders intended. Lichen — if such a word can be used here — has colonized the joints. Not lichen, then: a moss-thing, a dark green-black lacework that trembles in the current and gives the wall a furred look, a sleeping-animal look, though no animal sleeps here. There has never been an animal here. There are no fish. There are no worms in the silt. There are no things with mouths. The water is alive only with the slow vegetable will of the growth.
+
+---
+
+The growth is the loudness made visible.
+
+It stands in sparse groves along the ridge and the slopes that fall away on either side. Stalks — not kelp, not quite any seaweed — rise from cracks in the stone, some as thick as a thigh and twice as tall as a man, others slender as reeds, clustered in colonies of seven or eleven. They are dark. The deepest are nearly black, the color of wet slate, with a faint gloss that catches what little light filters down and gives it back reluctantly. Their surfaces are ridged, segmented, jointed in a way that suggests anatomy but is not anatomy — no circulation, no nerve, no mouth. They are cold architecture. They drink the water and they drink the mineral trace within the water and they grow, slowly, by a finger-length in a year, in directions that have nothing to do with the sun, since there is no sun.
+
+When the deep current pushes past them they do not bend so much as bow, and the bowing makes a sound. A low groan, felt more than heard, that runs through the water and through the stone and into the bones of anyone standing near. The smaller growths click together — hollow stalks tapping hollow stalks in a slow, irregular percussion. This is part of the loudness. The rest of the loudness is the falls.
+
+There are falls here.
+
+In the distance, half a kilometer down the long slope, where the ridge gives way to a broken cliff face, the water itself pours. Some strange circulation of the deep — a thermal pump, or the slow breathing of the basin, or something no chart has ever mapped — drives a column of colder water upward along the cliff, and where it meets a horizontal stratum of harder rock it cannot rise through, it must go over. It pours sideways. It pours down. It pours in sheets and veils and ropy strands that hang in the water like the ghosts of waterfalls, every strand a moving rope of sound. The roar of it is constant. It is the loudest thing in the world, because the world is only this, and the water carries the sound without mercy, so that the noise reaches you in your chest before it reaches your ears.
+
+You live near the falls if you live here. There is no living anywhere else. The people who built the wall did not live in the water. The wall was for them when the air was still here, when the pass was walked by pilgrims or traders or shepherds following high routes between valleys that no longer exist as valleys. They had small tools. Flint and copper, perhaps. They had hand-thrown pots and woven things that have not survived. They carved marks into the stone beside the wall — notches, a circle within a circle, a hand with too many fingers — and they stacked smaller stones in cairns at the points where the path turned. The cairns are still here. They have grown mineral whiskers. Some have tilted slightly, settling over the centuries into the patience of their own weight.
+
+---
+
+The dynamic is the slow dynamic. There is no spring here, no summer, no turning of leaves. There is instead a procession of cycles that do not name themselves but recur: a drift of fine sediment from the falls when the upward current runs strong, settling across the slope and burying the bases of the growth-stalks; then a long quiet where the water clears again and the stalks, in their unhurried way, push upward through the new silt, leaving ridged collars around their trunks like the rings of an absent tree. Mineral water seeps through cracks in the basalt and deposits pale crusts on every surface it touches, thickening the cairns, smoothing the edges of the wall, sealing the carved marks under a skin that the next strong current will sometimes strip away and sometimes not. A slow negotiation. A long equilibrium.
+
+It is strange here, and the strangeness is not a decoration. It is the place. The growths do not photosynthesize, and yet they grow. The water has no oxygen budget for animal life, and yet it is not dead. There is a presence in it — a tendency, an orientation, a kind of leaning — that does not belong to anything that can be named as a creature, but that organizes the silt into patterns, the growths into groves, the currents into channels that return to themselves. The wall follows one of these channels. The cairns mark the others. The falls are the mouth of the system, or its throat. It is as if the place were thinking, slowly, in the only medium available to it.
+
+A sound comes from the falls that is not the fall. A deeper sound. A hum, almost below hearing, that the stone conducts and the water carries. The carved hand with too many fingers faces toward it. The circle within a circle frames it. The builders, when there were builders, came here to listen to whatever the pass was listening to. They did not understand it. They built small things to mark it. Then the water came, and the small things kept their post.
+
+---
+
+If you stand on the ridge — if you can imagine standing, in this cold and this dark and this constant groan of current against growth against stone — you can see, very faintly, in the grey-green almost-light, the line of the wall stretching away in both directions until it thins to nothing. To the east, the ridge dips into a saddle and rises again, smaller, smaller, finally lost. To the west, it climbs toward what may once have been a summit and is now a dark fin of rock, wreathed in the tallest growths, their stalks black against the blacker water, clicking faintly to each other as the deep current passes.
+
+The water is loud. The place is dark. Nothing moves that has a face. The wall holds. The falls pour. The hum goes on.

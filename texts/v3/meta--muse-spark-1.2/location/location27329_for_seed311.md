@@ -1,0 +1,33 @@
+This place isn't *underwater* the way a reef is underwater. It *is* water.
+
+You don't find it on a map, because it isn't a place on a map scale. It's a pocket. An inclusion. A flaw in something much larger that became a world unto itself. Imagine the megastructure of a continent-sized seawall, or the cooling jacket of a planetary engine, or the drowned foundation of a city that kept building down after the flood came — and then at one of its low points, at an elevation so low it's a sump, a drain, a basement of basements, a single chamber failed to seal properly.
+
+That chamber is the whole landscape.
+
+From the outside, it's nothing. A maintenance hatch you miss if you blink, a seam in a white ceramic plain that stretches to the horizon. Inside, the hatch opens and the water doesn't pour out. It holds.
+
+The chamber is perhaps three hundred meters across, not much more than a city square, but it contains a city. That's the trick of its density. There is no empty volume. When they say packed, they mean *no room between presences*. Every cubic meter is occupied, used, layered, built through.
+
+You enter through the top lock and drop into cool water — 1.2 cool, not freezing, the kind of cool that tightens your skin and makes your breath short. The water is clear and perfectly illuminated, normal daylight bright, though there is no sun. The light comes from the water itself, or from the walls, or from everywhere at once. It has no source and no shadow, a flat, honest white that makes every edge razor-sharp. You can see every bolt, every weld, every barnacle of calcified infrastructure from one end of the pocket to the other. Nothing is in haze. Nothing is dark.
+
+And the water stays.
+
+It doesn't behave like water should. That's the tech — 2.6 beyond modern, physics-as-courtesy. The chamber is fully submerged, wall-to-wall liquid, but the liquid has been taught manners. In the middle of the plaza, a vertical river hangs in the air like a glass wall, a meter thick, flowing sideways, then up. Streets are made of water held in lanes by invisible pressure fields; you can see the boundary as a faint shimmer, like heat haze. On one side of the shimmer, a torrent roars down a boulevard; on the other side, a pocket of slower, almost still water where a dwelling's doorway opens. People — or whatever lives here now — step through curtains of water that part and reseal. The whole town is plumbing that learned architecture.
+
+Because it is a town. Organized construction, layered construction, urban despite being the size of a room. Balconies bead the chamber walls from floor to ceiling, ten, twenty stories of them, each one shallow, each one fronted with narrow railings and struts and pipes that run like vines. Catwalks cross the open middle on impossible catenaries, humming with maglev charge. Below them, service canals braid and split. Above them, inverted streets cling to the ceiling, where gravity has been locally persuaded to run the other way and water drips *up*.
+
+Everything is young. The erosion score is wrong for a drowned place — there is no softness, no rounding. The concrete, the printed basalt, the ceramic-metal composite of the walls — all of it is sharp. Corners still crisp enough to cut. Rebar still bright where it shows through. You can tell this pocket was opened recently, or grown recently, or extruded weeks ago by the larger machine that contains it. The water hasn't had time to wear it smooth. Instead, the water is still learning the shape of the place, jetting against fresh edges and throwing up standing waves that never break.
+
+It is very loud. You expect the muffled hush of being submerged, but this is the opposite. The chamber is a drum. The active hydraulics never stop — pumps the size of houses breathe on a seven-minute cycle, flushing the pocket with new, cool, filtered ocean from the great outside, then drawing it back. When the cycle peaks, the vertical rivers double in pressure and the whole town thrums. Metal sings. The water itself makes a low, total roar, plus the clatter of a thousand check-valves ticking, plus a deeper, resonant tone you feel in your teeth, the megastructure around you resonating like a bell. You have to raise your voice to be heard, and even then your words are flattened by the liquid.
+
+And it is packed. There is no empty water. Between the buildings there are pipes, between the pipes there are cables, between the cables there are membranes growing like lichen, between the membranes there is scaffolding that is already being built upon. The sparse vegetation — a 0.7, barely there — exploits whatever gap it can find: black-green threads of engineered kelp, not plant, not algae, extruding from cracks in the ceramic, waving in the current, each frond tipped with a faintly glowing nodule that scrubs minerals from the flow. They are the only soft things here. They are not many.
+
+There is no fauna. That is the strangest absence. For all this water, for all this light and motion, there are no fish. No shrimp. No gulls that somehow got in. Not even a microbe bloom to cloud the clarity. The filtration is absolute. The tech that holds the water in walls also sieves it clean of any animal life. So the only motion is abiotic and vegetative and architectural: the sway of kelp threads, the shudder of a pressure gate, the slow crawl of a maintenance armature along a ceiling street, folding and unfolding like a spider made of girders.
+
+The rules of this little hidden world are simple and strange:
+
+1.  Water is structure. You do not swim through it so much as you navigate it. Some lanes are for moving, some lanes are for dwelling, and you learn to read the shimmer that tells them apart.
+2.  Up is negotiable. Gravity pools in corners, stronger near the walls where the dwellings cluster, weaker in the central plaza where things drift.
+3.  Everything cycles. Every seven minutes the flush, every hour a deeper shudder as the exterior ocean presses and releases, every day the light very slightly warms and cools though there is no sun. The town breathes, even without lungs.
+
+If you stay in the exact center and tread water and turn slowly, you can take the whole place in at once — intimate, contained, a single urban square drowned in a cube of held ocean, loud and bright and cold and impossibly full — and still understand that you are inside something vastly larger, something that does not know or care that this pocket exists. A blister of city in the skin of a machine. A place that was never meant to be a place, but became one because water found a sharp, young, low hollow and people, or whatever came after people, learned how to live packed inside the rain.

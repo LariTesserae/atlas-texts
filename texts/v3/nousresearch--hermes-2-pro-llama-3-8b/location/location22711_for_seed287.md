@@ -1,0 +1,15 @@
+Beneath the surface of the earth, there lies a network of interconnected, damp, and lush tunnels, formed in a series of catacombs. Condensation weaves a thin sheet of water upon the walls of the labyrinth, adding an ambient hum to the stillness with each droplet's gentle patter against the moist ground.
+
+The air is warm and thick, held close by the subterranean terrain. Fireflies flit through the darkness, their sporadic lights punctuating the dimness and accentuating the eerie beauty of this hidden world. The atmosphere is rich and heady with the musk of damp earth, the scent of decay intermingling with the fragrance of ancient, prehistoric life.
+
+The cathedrals-collapse of the ceiling and walls do not quite cave in, a testament to the long-time persistence of this system far beneath the earth. Weathered stone crunches underfoot, and the space echoes with the weight of long-held quietude. Time seems slow here; the rocks themselves are patient, unmoving, and undeterred by the passage of eras. The provenance of the catacombs is a mystery veiled in rock, their original purpose obscured by millennia of shadows.
+
+Though few in number, small structures, formed from the bedrock itself or cleverly disguised by it, are scattered among the catacombs. The infrastructure of this unique civilization is a harmonious blend of the primordial and the industrial, with wells of mechanical LEDs shifting the dim light with a rhythm as ancient as the earth it illuminates. However, there is limited technology, a sparse economy of mechanical force to power the system.
+
+Despite being below the surface, the world above occasionally intrudes in the form of sunbeams, which slant through vents or fissures in the stone, shafts of golden light piercing the gloom.
+
+Here resides a lively density of plant life, twisting through the crevices and cracks of the walls, roots piercing the stone ceiling. The flora and fauna that make this place their home are peculiar and evolved to withstand the damp, dim, and hot conditions. Though there is no tall or expansive vegetation, this lush system supports an abundance of species and the unique life they lead.
+
+Although there is a faint murmur of the world's sounds — far distant echoes of trickling water or the faint vibrations from structures mid-function — the catacombs remain a quiet place, whispers muffled by the dense moist air.
+
+As the millennia pass, shadows stretch and shrink in these caverns, providing only subtle reminders of the world outside. This strange and ancient place manages to hold a spotlight on its singular existence, resisting the temptation to change or alter in any major way. The cyclic rhythm of the catacomb system remains entrenched in each passing moment, a testament to its unbreakable connection to the earth's heartbeat.

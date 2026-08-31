@@ -1,0 +1,21 @@
+# The Glass Gardens of Atmos
+
+The Glass Gardens of Atmos float high above the world, a series of interconnected glass domes that capture the constant moisture of the upper troposphere. Each dome is perhaps the size of a cathedral nave, their curved surfaces engineered to maximize condensation while allowing sunlight to stream through in rainbow-fractured beams.
+
+Inside, the heat is oppressive yet strangely comforting. The temperature never drops below sweltering, creating a perpetual tropical microclimate that has remained unchanged for generations. The glass itself is ancient—its surfaces etched with the careful mathematics of a civilization that understood the perfect balance between heat retention and water collection.
+
+The vegetation within these domes is almost overwhelmingly dense. Plants climb over plants, ferns unfurl beneath hanging orchids, and mosses carpet every available surface. The garden's designers created a botanical impossibility: species that should never coexist thrive together in this carefully manufactured ecosystem. Roots and vines intertwine in three-dimensional lattices, creating living architecture that both supports and is supported by the glass structures.
+
+Water is everywhere yet nowhere in excess. It beads constantly on the interior glass, trickling down in measured rivulets into collection channels that feed the garden. Some plants have evolved specialized structures to capture the perpetual condensation before it reaches the ground. The air itself feels heavy with moisture—not quite fog, but a thickness you can almost touch. Certain sections feature small pools where the water briefly collects before being redistributed through nearly invisible tubing embedded within the living walls.
+
+The entirety of Atmos is built—not a single element left to nature's design. Even what appears natural is carefully engineered. The soil composition varies by precise degrees throughout each dome. The "rocks" are actually sophisticated water-purification constructs disguised as stone. The very humidity is regulated by microscopic vents that open and close autonomously throughout the day.
+
+Industrial elements reveal themselves upon closer inspection. Brass pipes occasionally emerge from green walls before disappearing again. Small mechanical insects—barely distinguishable from their biological counterparts—move methodically among the foliage, pollinating and maintaining. Somewhere beneath the living floor, one can detect the faint, slow rhythm of machinery, like the heartbeat of the garden itself.
+
+Fauna is scarce but deliberate. Occasional hummingbirds appear, their wings modified with gossamer extensions that allow them to hover for hours rather than minutes. A species of translucent frog, no larger than a thumbnail, moves among the leaves with geometric precision. These creatures were clearly designed as functional components rather than decorative additions.
+
+Sound is minimal—the gentle drip of condensation, the occasional mechanical click of a system adjusting itself, the low hum that might be machinery or might be the resonance of the glass itself. These sounds don't disturb the prevailing quiet but rather define it, like the ticking of a grandfather clock in a silent house.
+
+The strangeness of Atmos lies in its contradictions. It feels primordial yet manufactured, lush yet controlled. Time moves differently here—plants grow at precisely calculated rates, neither too quickly nor too slowly. The glass itself changes imperceptibly, thickening in some areas and thinning in others over decades, responding to stresses and needs that only the original engineers could fully comprehend.
+
+Visitors to the Gardens of Atmos often report a peculiar sensation: despite the constructed nature of everything around them, they feel they've entered something alive—not a building containing life, but a living entity composed of glass, water, vegetation, and ancient technology, breathing so slowly that a human lifetime registers as merely a moment in its existence.

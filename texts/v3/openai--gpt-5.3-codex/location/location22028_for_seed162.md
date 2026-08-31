@@ -1,0 +1,27 @@
+At first glance it looks like a mountain range at dusk, but the second glance fails: the ridgelines are too new, too clean, as if they were extruded this morning from a hotter world below.
+
+You are high—high enough that cloud should be underfoot—yet cloud here does not settle into a simple “below.” It threads the land in narrow belts and suspended pockets, coiling through gullies and hanging between black spires. Moisture is intermittent and precise: dry stone for kilometers, then sudden dripping corridors where every surface beads with warm condensation. Rain comes in hard, brief passages, never long enough to soften the terrain. So the rock remains sharp. Cliffs break with knife-edge fractures; scree is angular and bright like freshly snapped pottery. Erosion has barely begun negotiating with this place.
+
+The scale is continental. One escarpment can hold three climates on its own face. Whole storm systems are born from thermal updrafts along a single fault wall, spiral for days in enclosed basins, then collapse into mist that feeds fern-forests tucked into cracks no wider than valleys elsewhere. Distance doesn’t flatten things here; it multiplies them.
+
+Despite the freshness of the rock, vegetation is vigorous, almost opportunistic. Warmth never quite leaves. Mats of glossy vine-lichen cling to vertical surfaces and pump water uphill through capillary towers of living tissue. Tree-analogs grow in dense stands where cracks trap moisture—trunks braided, canopies interlocked, leaves broad and dark, tuned for the dimness. They are lush but not gentle. Many are fibrous, tensile, metallic in sheen, rooted in mineral seams rather than soil. Some “groves” align in repeating rows that look cultivated from afar, but no hand planted them; they self-organize around magnetic gradients in the stone.
+
+That is where the “industrial” feeling arrives, without a single built structure.
+
+Nothing here is made, yet everything behaves like process infrastructure. Valleys function as conveyor systems for spores and iron-rich dust. Storm fronts operate like rotating assembly lines: charge accumulates on ridge combs, discharges into conductive forests, and drives waves of electrochemical growth. Fungal reefs precipitate copper in thin lattices. Bacterial films etch channels that resemble machined grooves. Herds of plated grazers move in synchronized loops, stripping and depositing biomass so consistently that whole slopes pulse between bare and overgrown on a schedule like shift work.
+
+You can stand on a ledge and watch a basin “start up” at dusk: mist condenses, filament plants unfurl, charged insects lift in coordinated swarms, predator kites descend, carrion sinks open, decomposition vents release nutrient fog, and by midnight the entire bowl glows faintly with biochemical arcs. By dawn it shuts down again, silent except for dripping and wingcloth rustle. It feels mechanized. It is entirely alive.
+
+Fauna is everywhere, and mostly close. Not crowded in the visible sense—there is too much volume for that—but dense in layers: climbers on bark, floaters in vapor, burrowers in hot talus, gliders in thermal lanes, translucent filter-jellies in hanging pools. Even bare rock is occupied by colonies that move too slowly to notice until you return and find the cliff face rearranged. Predation is constant, but rarely loud. Mouths close soft, feet are padded, wings are membrane-thin. The loudest sounds are environmental: a distant rockfall, the low pressure-thrum before rain, occasional crackling discharges across mineral groves. Mostly, the world keeps its own counsel.
+
+Light is stingy. The sky is seldom dark, never bright—an iron-violet overcast with brighter seams where upper winds tear it open. Shadows are broad and uncertain. Bioluminescence, corona effects, and static glow fill in what sunlight refuses to provide. At times, moving through the forest feels like walking inside a machine room lit only by indicator lamps.
+
+And then the place becomes stranger.
+
+Physics is local here. Gravity can slope sideways along certain mineral bands; streams will run parallel to cliffs for kilometers, then peel away into open air and continue as braided ropes of water, not falling until they cross an unseen threshold. Time also pools. In some fog hollows, growth accelerates: vines flower, fruit, rot, and reseed in an afternoon. Nearby ridges hold moments like amber—an insect can hover in one position for hours, wings a glass blur, while weather passes around it. Predators learn the boundaries and hunt at their edges.
+
+The rules are consistent, but only inside each zone. Life has adapted by becoming modular: bodies with redundant organs, reversible metabolisms, sensory systems that test local constants before committing movement. Migration routes are less about food than about stable laws.
+
+No roads, no towers, no tools, no ruins. Yet if you watch long enough, you see throughput, feedback, extraction, refinement, storage, release. A biosphere that discovered industry without inventing builders. A wilderness that runs like a factory and dreams like weather.
+
+It is young, immense, warm, damp in pulses, dim, crowded with life, mostly quiet—and never still for long.

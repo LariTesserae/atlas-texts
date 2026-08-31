@@ -1,0 +1,29 @@
+You are in the **Husk**.
+
+It is not a cave, nor a ruin, but something in between—a place that was built, and has since been allowed to grow into, over, and through itself. The scale is that of a large, rambling house or a very small village, all contained within a single, artificially vaulted chamber deep below ground. The boundaries are not walls in the conventional sense, but a seamlesstransition from floor to wall to ceiling, all composed of the same dark, fibrous, layered material.
+
+**Terrain & Materials:**
+The substrate is entirely manufactured—a composite of compacted silt, ash, animal glue, and torn, felted lengths of woven plant fiber that have since petrified into a ligneous, bark-like solid. This "Husk-stuff" is shot through with countless horizontal and vertical tubes and channels, some open, some sealed. The floor is a mosaic of cracked, flag-like slabs set in a resilient, spongy mortar. It is uneven, worn concave by endless foot traffic into a soft, sweeping topography of hollows and rises. Erosion is not the work of wind or water, but of persistent biological activity: the slow, mineral leaching from the material itself, the abrasive polishing by countless small bodies, the chemical digestion by resident microbes. The place is *settled* into its state, perfectly balanced between construction and decay.
+
+**Atmosphere & Light:**
+The air is warm (1.9/3), thick, and perpetually damp (0.7/3) with a fine mist that condenses on every surface. It carries a complex smell: the sweet-rot of fermentation, the dry dust of felted fiber, the musky scent of fur and urine, and the underlying tang of salt from mineral deposits. Light (1.5/3) is normal, diffuse, and directionless, emitted by a faint, widespread bioluminescence from colonies of pale, lichen-like growths clinging to the upper reaches of the walls and ceilings. There are no shadows, only slight gradients of grey.
+
+**Sound & Density:**
+Sound (2.5/3) is a constant, dense wall of noise, a single sustained chord of existence. It is the **loudness of density** (2.5/3). The susurrus of a million tiny claws on fibrous walls. Theconstant, pattering drip of condensation into stone basins and the soft *glug* of water(re)absorbed into the porous floor. The low, moist Vocalizations—clicks, chirrs, hisses, and coos—of the abundant fauna (1.8/3), communicating in a layered shorthand. The occasional, heavier scrape of a larger body moving through a central avenue. There is no silence, only shifts in the dominant frequency.
+
+**Ecology & Built World:**
+Everything is made (3.0/3), yet everything is alive. The "walls" are not inert; they are slowly metabolizing. Faint, vein-like patterns of fungal mycelia pulse with a barely perceptible rhythm, transporting nutrients and water. Sparse "vegetation" (1.1/3) exists as patches of tough, black moss and tubular, cabbage-like growths that sprout from moisture seams, but the true abundance of life is **fauna**.
+
+The place is thick with it. Thousands of small, rodent-like creatures with sensitive whiskers and dexterous forepants—the **Moss-kin**—scale the walls, harvest the moss and lichen, and tend to the fungal networks with bone tools (0.7/3 tech). They are the maintainers, their primitive technology consisting of sharpened bone splinters, needles of hardened hair, and baskets woven from their own shed fur. They live in the dense, honeycomb of small chambers and tunnels that honeycomb the Husk-stuff itself.
+
+Their predators are larger, silent, six-legged **Skirters** that glide just beneath the ceiling arches, hunting the Moss-kin. In turn, aerial, dragonfly-like **Glimmers** flit through the mist, their transparent wings capturing the bioluminescent light, preying on tiny flying insects that are in turn drawn to the moisture.
+
+**Rules & Dynamics:**
+The Husk is a closed, active (2.2/3) system in perfect, slow motion.
+1.  **The Wetting:** Periodically, a deeper, rhythmic *thrum* vibrates through the floor. The condensation intensifies, and water wells up from hidden channels, floodingminor basins before being re-absorbed. This is the primary water cycle (0.7/3).
+2.  **The Shed:** The Husk-stuff undergoes a seasonal, microscopic exfoliation. A fine, grey dust rains down in a silent storm every few weeks. The Moss-kin collect this "prime dust" to mix with glue and patch worn surfaces. To not participate is to be buried.
+3.  **The Cycle of Touch:** Every surface is designed for constant tactile engagement. The dense population (2.5/3) means bodies are always near-touching. Hygiene is maintained by the constant abrasion of fur against fibrous walls and by communal dust-bathing in the prime dust.
+4.  **Weirdness (0.6/3):** The unusualness lies in the seamless integration of the built and the biological. There is no "architecture" separate from "ecosystem." A "doorway" is simply a larger, smoother-worn aperture that a Skirter cannot navigate. A "plaza" is a wider floor depression that collects more water, supporting a denser patch of moss. The rules are physical, not conceptual: what holds water, what can be climbed, what is too soft to support weight. The primitive tech is entirely adaptive, never imposing a new form, only slightly guiding the slow, organic processes of the Husk.
+
+**Emergent Feeling:**
+You do not *observe* the Husk; you are *absorbed* by it. The sound is not merely loud; it is the sound of proximity, of life pressed together in a warm, dark belly. The damp is not cold, but a nurturing, womb-like moisture. The light is a perpetual, shadowless twilight that makes every surface seem to glow from within. The erosion is not a sign of decay, but of use—the proof that this place is being lived, breathed, and worn smooth by a million small presences. It is a total, handmade world, but one that has forgotten it was ever made, and now simply *is*, in a state of warm, loud, densely-packed balance.

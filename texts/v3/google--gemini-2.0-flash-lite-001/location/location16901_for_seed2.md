@@ -1,0 +1,17 @@
+The deeps of the world are a churning symphony of perpetual twilight. It is an ocean, but not one of water. Or perhaps, it is no ocean at all, but some other, stranger medium that looks like an ocean to our eyes. Its substance is a swirling, roiling mass — metallic, oily, with currents of greens, blues, and blacks. It is a world of utter construction, a vast factory where the very elements are the raw materials.
+
+Here, everything is made. The "water" itself is manufactured, a synthetic analog of the real thing, engineered to react and interact in precise ways. Its volume is planetary, containing within it complex weather patterns, tectonic shifts, and vast, sluggish currents. Elevation is meaningless; the entire world is a sub-surface structure, a massive creation built from the bottom up. Below, and above, exist only variations of the same fabricated medium.
+
+The temperature hovers just above freezing, a chilling coolness that permeates every facet of the environment. Light, a soft and ever-present glow, filters down from unseen sources. It is “normal” in the way a flawlessly manufactured thing can be normal — consistent, predictable, and artificial.
+
+Vegetation, in the conventional sense, is absent. But the world is not barren. Instead, strange, manufactured forms drift and pulse within the metallic sea. Huge, crystalline structures, like angular stalactites, rise from unseen floors, their facets catching and refracting the light. These formations act as filters, screens, and perhaps, strangely, as something like a source of food. They are sparse, however, in the grand scheme of things, and the vastness of the environment is defined by empty space.
+
+The landscape is young, its features sharply defined, almost brutal. The erosion is not natural but deliberate, a constant reshaping of the manufactured world as its creators tinker and refine the environment.
+
+The scale of the place is beyond comprehension. Weather patterns occur on a continental scale. Currents circulate with impossible slowness, vast sweeps of the metallic sea that take centuries to complete. Inside, great machines hum and churn.
+
+Yet it is not empty. Fauna, both built and born, teems within its depths, a bizarre ecosystem of mechanical and biological horrors. Great, leviathan constructs, part-organic and part-machine, patrol the currents, their purpose unknown. Smaller, more numerous forms scuttle and dart, perhaps feeding on the crystalline structures or on the byproducts of the endless industrial processes. The weirdness is low, yet the synthetic nature of everything still manages to create the feeling of extreme otherworldliness.
+
+Loud is an understatement; this place *roars*. The ceaseless grind of gears, the hiss of steam, the echoing *thrum* of colossal engines, the cacophony of an environment perpetually in labor. Sound, like light, is carefully managed, but too much is happening for quiet to ever exist.
+
+The world is exceptionally dynamic, a place of constant transformation and change. Weather cycles of acid rain, chemical storms, and sudden shifts in temperature sweep across the vast expanse. Mechanical predators hunt biological prey and the constructed environment goes through phases of growth and decay. Everything is in motion, driven by the ceaseless work of the unseen architects.

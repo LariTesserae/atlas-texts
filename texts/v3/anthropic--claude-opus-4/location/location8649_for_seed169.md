@@ -1,0 +1,19 @@
+The Singing Gorge
+
+You descend through a fissure in the earth where water weeps perpetually from stone. The walls are slick with condensation, but this is not bare rock—every surface blooms with a strange integration of mineral and plant, where rootlets have penetrated so deeply into the substrate that stone and vegetation have become one substance. Moss doesn't merely grow on these walls; it *is* the walls, having replaced the original geology grain by grain over countless centuries.
+
+The gorge opens into a vast subterranean valley, warm and humid as a mouth. Here the vegetation achieves its strangest expression: colossal fungi-plants that are neither mushroom nor tree rise from pools of collected seepage, their trunks woven from thousands of aerial roots that never touched soil. These columnar giants support a canopy so dense it forms a second ground overhead—a ceiling-floor of interlaced branches, epiphytes, and hanging gardens that drip constantly into the twilight space between.
+
+Sound rules this place absolutely. Every water drop that falls from the canopy-ceiling strikes a different natural formation—hollow reed-plants, cupped leaves broad as tables, pools of varying depth—creating an endless, deafening symphony. The acoustic properties of the gorge amplify and layer these sounds until they become a physical presence, a wall of harmonics that vibrates through your chest and teeth. Certain frequencies cause the plant-architecture to resonate, setting whole groves humming in sympathy.
+
+The sparse fauna have adapted to this cacophony. The few creatures here are nearly deaf, navigating by vibration through the root networks. Pale salamander-things with no external ears press their bellies to the singing trunks. Moths with wings like sheets of lichen flutter silently between the columns, invisible against the plant-stone surfaces until they move.
+
+Scattered throughout are the remnants of some ancient presence—not ruins exactly, but deliberate arrangements. Stones stacked in cairns that channel water into specific acoustic patterns. Hollows carved into the giant trunks that modify their resonance. Living bridges of trained root systems spanning the gaps between columns. Whether these were made by people or some other intelligence is impossible to say; the boundary between the built and grown has long since dissolved.
+
+The entire gorge exists in perfect stasis, a closed system where every drop of water that falls is eventually transpired back to the ceiling canopy. Nothing changes here. The same drops fall in the same places, playing the same notes in the same endless composition. Even the rare animals follow unchanging paths through their vibration-mapped world. It is an ecosystem locked in perpetual equilibrium, playing its deafening song to no audience but itself.
+
+Light filters down green and gold through the vegetable ceiling, but also rises from below—bioluminescent fungi in the pools glow in response to sound, pulsing in rhythm with the acoustic waves. The loudest passages trigger cascades of light that race across the root networks like captured lightning.
+
+The warmth comes not from sun but from the massive biological processes at work—decomposition, respiration, the slow fire of growth. Steam rises constantly from the pools, condensing on the cooler stone-plant walls, dripping back down to begin again. 
+
+This is architecture built from living sound, a place that grows its own acoustics, where the distinction between the geological and biological, the intentional and emergent, the built and born, has been erased by time and the patient work of roots and water. The gorge sings because it must sing—it is the shape of song itself, carved in living stone.

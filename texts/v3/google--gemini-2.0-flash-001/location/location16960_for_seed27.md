@@ -1,0 +1,15 @@
+The air is thin and cold, biting with a chill that permeates even the dense, alien foliage. We are high. Not precisely on a mountain peak – the erosion here has been too thorough for such dramatic forms. Instead, imagine a vast, elevated plateau, an ancient wound on the face of a world mostly healed over. The rock itself is unseen: swallowed completely by a verdant tide.
+
+This is a city, of sorts, though unlike any terrestrial place. The "buildings" are colossal, fungal-like growths of bioluminescent flora, their surfaces etched with what appear to be deliberate patterns. The structures are impossibly large, dwarfing anything humanity has ever constructed. Yet, there is a sparseness to their placement. Each growth stands isolated, separated by wide expanses of tangled, low-lying vegetation.
+
+The flora forms the only landscape. No minerals peek through. What might have been the ground is now a mat of countless interwoven organisms, a tapestry of bizarre, leafy shapes and fungal extrusions. Life here doesn't compete in a vertical struggle for light; it spills outwards, horizontally, a boundless carpet of saturated green and bruised purple hues.
+
+The dimness is perpetual. The dominant light source is biological. The fungal-towers pulse with a soft, internal luminescence, a muted spectrum of colours that flicker and shift in complex patterns. Light is communication, perhaps, or some essential energy exchange.
+
+We're not alone. Fauna is abundant, though largely unseen. The loudness here arises not from animal cries but from something more constant and pervasive. The collective susurrus of countless rustling leaves, the creaking of immense fungal structures shifting in the wind, the pops and clicks of internal biological processes all combine into a deafening symphony. The air vibrates with a constant, throbbing hum.
+
+There's tech here. A subtle, pervasive infrastructure. The patterns on the fungal towers are not merely decorative. They are conduits, resonant circuits that interact in ways that defy simple explanation. Nanoscale engineering, perhaps, or something stranger. It’s entangled with the biology, inextricable from it. This is not a city *in* the environment; it *is* the environment.
+
+The dominant processes here are biological. The plateau breathes. The towers pulsate. Gases vent from the ground in shimmering waves. Parasitic lifeforms engage in constant battles across every surface. Fungi bloom and decay in vibrant cycles, their spores carried on the thin winds. There is a clear predator-prey dynamic, not among animal species, but between different strata of the plant kingdom. One sprawling vine chokes off the light of another; mobile, slug-like lichen devour patches of stationary moss.
+
+The weirdness is the most overwhelming aspect. This is not a place of simple survival. This is a landscape of deliberate, impossible design. It feels as though we have stumbled upon the failed experiment a god has thrown out — a planet that grew, and then was twisted, and then left to stew, alone, for eons.

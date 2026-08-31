@@ -1,0 +1,17 @@
+The Verdant Amphitheater rises from the mountainside like a cupped palm, a circular depression perhaps two hundred paces across where ancient stone has settled into perfect balance with the encroaching cold. Here, at this elevation where breath mists and fingers numb, an impossible garden has claimed dominion.
+
+Moss-wrapped boulders emerge from a living carpet so dense that no patch of earth shows through. Every surface breathes with plant life—cushions of arctic moss in shades of jade and copper, their surfaces beaded with perpetual moisture that never quite freezes. The stones themselves seem more suggestion than substance, buried beneath generations of bryophytes that have learned to drink directly from the thin, cold air.
+
+The walls of this natural bowl rise in terraced steps, each ledge claimed by different communities of plants. Tiny willows no taller than a child's hand spread their branches in perfect miniature, their leaves silver-backed and trembling. Between them, sedges form dense tufts like green sea anemones, and in the deepest crevices, delicate ferns unfurl fronds that seem too tender for this harsh height, yet persist with stubborn grace.
+
+Water seeps constantly from the rock faces—not flowing streams, but a patient weeping that keeps everything perpetually damp. The moisture condenses from mist that rolls up from valleys far below, gathering on every leaf and stem before trickling down to feed the dense mat of roots beneath. The air itself feels thick with vapor, each breath cool and faintly sweet with the exhalation of countless photosynthetic cells.
+
+Sound here is the whisper of water finding its way through living channels, the soft compression of saturated moss underfoot, and sometimes—strangely—a low harmonic humming that seems to rise from the plants themselves when the wind moves through their packed masses just so. No birds call, no insects buzz. The silence has weight, broken only by the gentle percussion of condensation dripping from leaf to leaf.
+
+The light that filters down carries a green tint, having passed through so many layers of vegetation that even the mist seems chlorophyll-touched. Shadows are soft here, diffused through the perpetual moisture, creating a twilight world even at midday.
+
+At the center of the amphitheater, the plant mass grows deepest, rising in a gentle mound where moss has accumulated for centuries, layer upon layer, creating something between hillock and organism. Here the green darkens to near-black, and strange phosphorescent patches glow faintly when touched—not quite bioluminescence, but some cold chemical reaction triggered by disturbance.
+
+This is a place where the boundary between individual plants has dissolved into a single breathing entity. The moss connects everything, sharing nutrients and moisture across the entire bowl. Step anywhere and the surface yields with a spongy resilience, as if walking on the lung of some vast, vegetative creature. The cold preserves everything in slow motion—growth measured in decades, change occurring at the pace of stone weathering.
+
+No tools have shaped this place, yet it feels almost architectural in its perfect proportions. The plants have found their own equilibrium with stone and water and cold air, creating chambers and passages through their growth, natural shelters formed by the intertwining of countless small lives into one greater organism that breathes moisture and dreams in chlorophyll.

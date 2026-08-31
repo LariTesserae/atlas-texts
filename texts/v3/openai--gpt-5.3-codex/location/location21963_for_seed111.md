@@ -1,0 +1,21 @@
+At this height, the mountain has not learned softness yet.
+
+The place is a single high cirque split by a narrow rift, a bowl no larger than a village square, pressed into the spine of a range that still looks freshly broken. The stone is dark and angular, all hard planes and knife-lines, as if it cooled yesterday. There are no old valleys here, no rounded shoulders, no deep soils—just raw faces of basalt and pale seams of younger, brittle rock that snap under frost and ring when struck.
+
+Light rarely arrives whole. The walls are so steep that even noon comes in as a thin blade, then leaves. Most of the day is blue-black dimness: not cave-dark, but mountain shadow-dark, where shapes exist before colors do. In that dimness everything sweats. Moisture does not run in clear rivers; it beads, films, and gathers. Clouds scrape the rim and snag there, exhaling into the basin. Condensation pearls on stone lips, drips into potholes, vanishes again. The ground is mostly dry grit and shattered scree, interrupted by black puddles and slick mineral patches that smell metallic and cold.
+
+Vegetation survives in punctuation marks. Tufts of iron-gray sedge where a crack holds damp. Lichen maps in rust and mint, thin as breath. A few low, waxy shrubs that grow sideways to avoid wind, each one no taller than a handspan, each one older than it looks. Nothing like a meadow, nothing like a forest; life rooted in place is sparse and stubborn.
+
+Life that moves is the opposite.
+
+Every ledge is occupied. Every shadow has eyes in it. The basin is crowded with animals adapted to vertical stone and thin air: hook-footed cliff ungulates that sleep standing against near-sheer walls; pale, broad-winged gliders that nest in colonies so dense their bodies tile the rock; rope-tailed scavengers that move in flowing knots; fist-sized carrion beetles with mirrored backs; translucent amphibians clustered around seep holes, motionless until all at once they are not. At dusk, which is almost all day here, the air fills with wing traffic. At night, it does not empty.
+
+The sound is constant and physical. Calls strike stone and return distorted. Wingbeats become surf. Hooves crack loose pebbles that chatter down the slopes. Throats boom, hiss, rasp, click. Drips fall in irregular clocks beneath it all. Silence appears only in very short pockets, and when it does, you hear breathing—yours, theirs, the mountain’s cold exhale.
+
+There is no building, no wall, no carved mark that stays. But there is a kind of primitive craft in the fauna. The gliders carry shell fragments and flat stones to favored perches, using them to break the armored eggs of cliff-snails. The rope-tails wedge bones into cracks to lever mineral salts free. Ungulates paw narrow “steps” in scree routes over years, not constructing paths so much as persuading the mountain to permit passage. Nothing permanent, nothing that outlasts weather; tool use without architecture.
+
+The strangeness comes from rules that seem wrong until you remain long enough to see them repeat. Predators here often hunt by echo instead of sight, barking and listening for shape. Some insects flash faint violet when fog thickens, and entire feeding chains key off that color as if it were dawn. Puddles can freeze on top while steaming below, warmed by mineral vents too weak to be called hot springs. Creatures that should be territorial stack almost body-to-body around damp pockets and do not fight there, as if water suspends another law.
+
+Change is slow. Storms come and go quickly, but the basin’s real motion is patient: frost pries open another seam, one slab shears away, a new ledge forms, a colony shifts ten body-lengths over a decade. Pools migrate by centimeters. Lichens advance like cautious fire. You can stand here for an hour and think nothing changes; return after years and find the same place, but re-written in sharp new lines.
+
+It is a small place at the top of the world, dark most of the time, crowded with breathing things, wet only in patches, and young enough that every edge still remembers being broken.

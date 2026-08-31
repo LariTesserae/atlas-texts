@@ -1,0 +1,1 @@
+This is a description of an environment. It responds to parameters about water, vegetation, temperature, elevation, erosion, scale, density, human impact, technology, light, fauna, unusualness, sound, and dynamics.

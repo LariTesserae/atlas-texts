@@ -1,0 +1,30 @@
+This is a world held in the throat of a cooling star.
+
+The place is a vertical city, a spire of impossible thinness and impossible height, anchored to a planetary crust that is no longer there. It is a needle, kilometers long, piercing a thermosphere that is both vacuum and furnace. The wind does not blow here; it is a slow, thermal convection, a rising and falling of gas that takes days to complete a single breath. The city is its architecture.
+
+**Terrain and Materials:**
+The base is a lattice of carbon-nanotube filaments, each strand no thicker than a hair, woven into a grid that descends into a sea of cooling volcanic glass. The glass is not solid but a slow, viscous sea, its surface a skin of obsidian that cracks and re-seals in a cycle of millenia. The city climbs from this, a framework of hexascale geodesic domes and tensile bridges that catch the faint, infra-red glow of the planet's residual heat. The primary material is a meta-material, a ceramic-crystal that is 99% void, designed to insulate against the impossible gradient between the inner furnace and the near-absolute zero of the upper atmosphere. Its surface is a tapestry of prismatic facets that do not reflect light so much as swallow it, leaving the city cloaked in a perpetual, self-generated twilight.
+
+**Atmosphere and Light:**
+The light is not sunlight. It is a dim, ember-glow emanating from the planet's core, filtered through the crystal lattice of the city itself. This is a light of deep reds and violets, a bioluminescence without biology. It does not illuminate; it suggests. It is enough to see the outlines of structures, the ghostly filigree of bridges, but not enough to see detail. Shadows are not black, but a gradient of deeper red. The air is not air, but a rarefied soup of noble gases, maintained at a pressure just sufficient to allow capillary action in the constructed root-systems that draw condensation from the cooling surfaces.
+
+**Water:**
+Water is not a sea or a river. It is a secret, a moisture that seeps from the cracks in the cooling glass below and is drawn upward by hydraulic filaments woven into the city's struts. It beads on the facets of the meta-material, a constant, silent dew. There are no pools, only a perpetual, damp sheen. The condensation is the city's blood, a slow, silent circulation through channels microscopically small, a nutrient and a coolant. It falls in a fine, hot mist from the higher, cooler elevations, each droplet evaporating before it reaches the lower, hotter levels, its cycle eternal and contained.
+
+**Ecology and Rule of World:**
+There is no life. Not as we know it. The city is the only organism. It is a post-biological entity, a machine that has learned to breathe and to sweat. Its "ecology" is a series of feedback loops. The meta-material expands and contracts with thermal cycles, its facets opening like gills to release heat, closing to conserve it. The condensation channels are its nervous system, sensing temperature and pressure. There are no fauna, no plants. ThereThe rules of this world are absolute:
+1.  **Thermodynamic Law is Local:** The temperature gradient is so extreme that heat flows in predictable, engineered paths. To step from one level to another is to step from one season to another, not over kilometers, but over meters.
+2.  **Scale is Deceptive:** What appears to be a single, monolithic spire is, upon closer inspection (if one could inspect), a fractal. Each facet is a smaller version of the whole. The "city" is a concept, a pattern replicated to infinity at a diminishing scale, until it is only a pattern in the atomic lattice of the material itself.
+3.  **Time is Material:** Processes here are not biological. The condensation cycle is measured in years. The thermal expansion of the meta-material is measured in decades. The "city" is not inhabited; it is a place that is *happening*, a slow, immense event.
+
+**Soundscape:**
+The sound is the absence of sound. It is the hum of infra-sonic vibration, the collective resonance of the city's structure as it adjusts to thermal stress. It is a bass note so low it is felt in the bones, a constant, sub-audible thrum. The only other sound is the occasional *ping* of a crystal facet expanding or contracting, a tiny, sharp report that echoes for a second in the vast emptiness before being swallowed by the silence. It is a quiet so profound it has weight.
+
+**Density and Scale:**
+The city is empty. The space between structures is immense, a vacuum of air and light. Bridges are thrown across chasms of kilometers, their threads barely visible. The "rooms" are not rooms but volumes, hollows within the crystalline lattice. A person standing on a platform would be alone in a space the size of a cathedral, with no walls, only the dim, red light and the distant, ghostly shapes of other parts of the city. The pocket-scale is the molecular; the macro-scale is the celestial.
+
+**Dynamics:**
+The city is active, but its pace is geologic. The thermal cycles are the heartbeat. The condensation is the respiration. The slow, inexorable creep of the meta-material as it is deposited by the atmospheric processors is its growth. There is no predator-prey, but there is a constant negotiation between heat and cold, between expansion and contraction. It is a system in equilibrium, a dance of forces.
+
+**The Weirdness:**
+The strangeness is in the perception. To look at the city is to see a pattern that seems to understand itself. The facets are arranged not for function alone, but for a kind of aesthetic harmony. The lines of the bridges seem to follow a mathematical principle that is not just efficient, but beautiful. It is a place that feels like a thought, a physical manifestation of a complex, alien logic. It is not a place that was built; it is a place that *grew*, from a seed of engineering into a forest of crystal and silence, a testament to a world where life is not biology, but structure.

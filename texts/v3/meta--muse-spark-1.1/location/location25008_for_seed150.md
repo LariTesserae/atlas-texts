@@ -1,0 +1,31 @@
+It is a room. That is the first thing you have to understand. Not a forest, not a valley — a room cut into the high world with walls and a ceiling, and a floor, all made out of things that are alive.
+
+You find it at the top of the basalt. The mountain here is young. It does not have the soft, worn-down shoulders of old mountains. It broke recently — geologically recently — and the break is still sharp. Black glass and column-jointed stair-steps of stone, edges so fresh they would cut your boots if the plants hadn't gotten there first. And they have. They got there within a season of the uplift, it seems. There is no bare rock here.
+
+The cirque is maybe thirty meters across. A hamlet-sized bowl, an amphitheater, a single open chamber sunk into the ridge at an altitude where air goes thin and cold burns your nose. The light doesn't really get in. Not because there are clouds below you — there are — but because the city has grown a roof.
+
+Cold is the law here. 0.1 / 3 cold. The kind of cold where water forgets whether it wants to be water. It exists in all three states at once, undecided. Breathing is small white ghosts that do not rise.
+
+And wet. The stone weeps constantly. The cold rock sweats. The air itself condenses on any surface it touches. You are wet without it ever having rained. Water beads on every leaf, hangs, stretches, drops a centimeter to the leaf below. All of it moving downward in a slow, endless chain. Gutters that are not gutters, leaves cupped to be gutters. The walls of the room seep, and in the night they freeze into clear nails of ice, and in the day they melt again. Drip. Pause. Drip.
+
+The built thing — because it is built, unmistakably built — is plant.
+
+Vegetation 2.9. There is not plant *on* the landscape. There *is* no substrate except plant. The stone is only a memory underneath. What grows here is not trees, not in any lowland sense. Up this high and this cold, trees are a rumor. Here are the plants that know how to be architecture: alpine willow, but dwarfed and trained by wind and its own necessity until its stems are thick as your wrist and hard as cabinet wood, and they grow at right angles. Cushion moss, meters deep, so dense it holds your weight like a mattress and then like a floor. Liverwort that sheets in black-green leather. Lichen that grows into a lattice, structural, load-bearing lichen the color of old bone.
+
+They have made a town because they had to. That is the rule of this place. To survive here, a lone plant dies. Exposed surface is death. So they pack. Density 2.7. No gaps. No air between presences. Everything touches everything.
+
+You have to crouch to enter. The doorway is not cut, it is grown: two willow trunks that leaned toward each other and fused, leaving a lens-shaped opening. Inside, the packed-ness becomes organized.
+
+It really is urban. There are streets, in that there are ways to move that are not the walls. Hollow ways, about shoulder-width, floored with living moss so tight it is like felted wool, bouncing slightly, already soaking your knees with its stored water. The streets branch at right angles. The streets have second stories. The willows grow horizontal beams, and from the beams hang curtains of moss that partition rooms, no bigger than closets, no bigger than nests. Some rooms are empty except for pooled water that has frozen into a perfect black lens. Some rooms are full of a single swollen leaf that stores water for the whole block around it, a cistern.
+
+There is infrastructure. The sap runs thick with antifreeze, sweet, slightly luminous in the dim. In the coldest hours, the outer walls steam faintly — metabolism. The city keeps itself at exactly two degrees above death. The outer thatch of moss dies back and browns and forms insulation. The inner layers stay wet and green and warm. You put your hand on a wall and it is not cold like plant should be. It is cool and faintly warm, like an animal.
+
+Light: 1.1. Almost none. The roof is a dome of interwoven willow branches and moss cushions, maybe four meters above the floor at the tallest point. It lets light through as through stained glass — green, filtered, algae-green, moss-green. In the dim, you can see the dust of ice crystals hanging in the air, not falling. The only brighter spots are where a stem has died and left a skylight, a small round hole through which the white sky looks down, and a single column of cold light falls to the moss floor and makes the water beads there glitter.
+
+It is mostly quiet. Sound 1.2. Snow would be loud compared to this. The moss drinks all echo. What you hear is close and small and active: the tick of a freezing drop, the sigh of a cushion compressing under its own weight, the creak of living wood making a millimeter more wood. Far above, wind tears across the basalt outside and you hear nothing of it except a change in pressure. Inside, there is a slow hydraulic pulse. The cistern leaves filling and emptying. Drip. Pause. Drip.
+
+There is almost no fauna. The cold and the packed walls leave no room for anything large. Once in a long while, a springtail flicks in the moss — a black speck — and disappears. A single alpine moth, white as the ice, has learned to live inside the walls and never leave. You might see it not flying but walking along a street, as if it too is a citizen.
+
+If you stay long enough to be still, the city continues to build around you. Dynamic 1.6. A tendril finds your boot and tests it for purchase. Water finds the lowest path, carving a new street one drop at a time. A wall thickens. This place was born yesterday in geological time, and it knows it is young. Its edges are still sharp under the moss. It is still deciding what shape it wants to be, and because there is no tool here, no tech, no hand except growth, it decides with growth alone.
+
+It is not hostile. It is not welcoming. It is a settlement that settled itself, a town with zoning laws written in cold and wet and light. Stay in the street, don't block the water. You will be insulated and dripped upon. If you lie down, the floor will begin, politely, to grow over you.

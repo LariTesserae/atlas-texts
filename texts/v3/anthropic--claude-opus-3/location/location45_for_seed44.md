@@ -1,0 +1,11 @@
+In a shallow valley, a dense, overgrown city hums with the sounds of industry. The streets are narrow, twisting corridors between looming buildings draped in curtains of vines and moss. Thick foliage spills from every balcony, rooftop garden, and crack in the crumbling brick and concrete. Trees stretch their branches over alleyways, filtering the light and casting dappled shadows on the damp cobblestones below.
+
+The air is warm and heavy with humidity, filled with the mingled scents of engine oil, coal smoke, and the sweet decay of vegetation. Everywhere, water seeps and trickles - running in rivulets down walls, pooling in cisterns and rain barrels, dripping from eves and awnings in a constant gentle patter. In the lowest parts of the town, permanent puddles and small marshes have formed, filled with reeds, lily pads and the flash of minnows.  
+
+Rusty pipes and cables wind through the undergrowth, connecting hissing steam engines and thumping generators to the factories and workshops packed into converted townhouses. Gears turn, belts slap, and furnaces rumble behind ivy-choked windows. The whole city seems to pulse with slow, phlegmatic purpose - an ancient, half-flooded machine gradually being reclaimed by plant-life.
+
+Narrow-gauge rail lines, mossy and slightly askew, run down the center of major thoroughfares, carrying clattering strings of ore carts from the mines that honeycomb the soft rock beneath the city. Footbridges of weathered timber or cast iron arch over stagnant canals that serve as roads for shallow-draft barges piled high with salvage and raw materials.
+
+There are no wide plazas or open spaces, just a dense warren of dwellings and industry, all jumbled together and linked by a web of bridges, ladders, and spiral staircases. The only demarcations are those of altitude - the damp, misty lower reaches gradually giving way to slightly drier, brighter workshops and living quarters above. 
+
+It is a place of patient, ceaseless activity - the inexorable cycles of industry and nature intertwined. Vines are pruned back just enough to keep the generators turning. Pumps keep the encroaching wetlands at bay. And the citizens go about their business to the rhythms of hissing pistons and dripping leaves, just as they have for long generations. A strange, verdant, half-drowned city, enduring.

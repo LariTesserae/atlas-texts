@@ -1,0 +1,19 @@
+The city breathes through its moss.
+
+In the cool morning, condensation beads on the smooth stone walls that rise like ribs from the earth. These are not ruins—they are too fresh, too sharp-edged, their surfaces still showing the grain of their recent emergence. The walls form chambers and corridors, plazas and passages, following some organic logic that feels more grown than built. Each surface is skinned with a velvet of moss and lichen, lush carpets that drink the moisture from the air.
+
+The architecture has no tools' marks. The stone itself seems to have crystallized into these forms—walls that curve and branch like coral, bridges that span empty spaces in perfect mathematical arcs, towers that spiral up following the golden ratio. Everything is connected, a single continuous structure that has pushed up from the earth like a vast fungal fruiting body made mineral.
+
+Between the walls: emptiness. Vast chambers open to the sky, their floors carpeted in moss so thick your footsteps make no sound. The vegetation grows in precise patterns—ferns unfurling from cracks that seem designed to hold them, vines tracing the edges of windows that have no glass, never had glass, were always meant to be openings for the green world to enter.
+
+Water moves through the city in thin films. It slides down the walls in sheets so fine they're barely visible, collecting in shallow channels carved into the stone, pooling in perfect circular depressions before overflowing to the next level down. The whole city is a system for catching and channeling moisture, though whether by design or nature is impossible to say.
+
+The strangest thing: the growth. You can see it if you stay still long enough. The walls are still emerging, still crystallizing upward at a pace just faster than geological time. A fingernail's width in an hour. The moss follows immediately after, colonizing the fresh stone within minutes of its emergence. The ferns know where the next crack will form. The city builds itself, and the vegetation clothes it, in a dance of mineral and plant that needs no inhabitants.
+
+In the plaza centers, spiral stairs descend into darkness—not to basements or dungeons, but to the root system. Down there, glimpsed through the openings: more chambers, more walls, branching and spreading beneath the earth. The city is an iceberg of stone, mostly hidden, quietly spreading its foundation through the cool, damp soil.
+
+The silence is profound. No birds nest in the towers, no insects buzz through the covered walkways. Only the faintest whisper of water sliding down stone, the sub-audible crack of crystal growth, the minute rustle of spores settling on new surfaces. Even the wind seems to avoid this place, leaving the air still and heavy with moisture and the green smell of growth.
+
+At night, the condensation grows heavier. Water pools in the collecting points, overflows more quickly through the channels. The moss glows faintly—bioluminescence or reflected starlight or some other phenomenon. The city continues its slow construction, adding new rooms at its edges, pushing new towers toward the sky, following blueprints encoded in the stone itself or in the marriage of mineral and moss that defines this place.
+
+A city without citizens, without history, without purpose except its own existence. An urban organism that builds itself in the quiet spaces of the world, creating infrastructure for no one, streets for nothing to walk, chambers for emptiness to fill. It spreads slowly across the landscape, a living architecture that knows only how to grow, how to channel water, how to create spaces that will never be inhabited except by silence and green life and the patient accumulation of dew.

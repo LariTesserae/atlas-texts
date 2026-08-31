@@ -1,0 +1,13 @@
+In the heart of a vast, low-lying basin, an impossible city thrums with frenetic energy. The very ground itself is a writhing tapestry of lush vegetation—vines, mosses, fungal mats and flowering plants all interwoven into a dense living substrate that undulates gently as if breathing. Rising from this rippling green sea, colossal towers and spires erupt skyward, each one an explosion of riotous plant growth.
+
+The architecture here is grown, not built. Huge trunks and stems, gnarled with age, twist around each other to form the superstructure of the city. Leaves the size of billboards and flower-petals in psychedelic hues adorn every surface. Tendrils and creepers weave in and out, knitting it all together into a mind-bending organic metropolis. Pockets of moisture glisten everywhere, nourishing this super-dense flora.
+
+Amid the towering vegetative high-rises, the tangled streets resemble a cross between a rainforest understory and a frenzied bazaar. Curtains of vines and air-roots form mazes and canopies over the narrow, winding pathways teeming with more varieties of plant life than a dozen jungles.
+
+But something is strange here. The colors are a little too vivid, shapes a little too perfect or too chaotic. Space itself seems to warp and breathe along with the vegetation. The normal rules of biology, even physics, seem more like suggestions that this ultra-jungle adheres to only loosely. Gravity, scale, form—everything feels fluid and surreal.
+
+And the noise, the unending noise! The air reverberates with a cacophonous symphony—creaking and groaning of titanic plant fibers, the swarming drone of vigorous growth, leaves and fronds singing as wind whips through them, strange clicks and calls that could be insectile or something entirely alien. Occasionally, an eerie quiet descends, but it never lasts. This city is pure turbulence in green.
+
+No animals scurry amid the foliage. No birds wing between the canopy layers. Perhaps this environment is too new, too strange for anything but the plants themselves—if "plants" is even the right word for these extraordinary photosynthetic beings that occupy every available inch from the damp soil to the sunlight-drenched pinnacles. It is a glimpse of how lush a world can be when freed from all limits, an ecology in hyperdrive.
+
+This place is young, bursting with the energy of genesis, and constantly remaking itself cell by cell, leaf by leaf, branch by soaring branch. In this green rapture-city, nature is the only architect, and it builds with a fervor bordering on ecstatic madness.

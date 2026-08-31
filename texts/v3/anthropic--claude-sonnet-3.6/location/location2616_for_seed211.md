@@ -1,0 +1,13 @@
+A dense cluster of elevated terraces rises through the perpetual mist, each level held up by timber scaffolding and weathered stone. The settlement clings to the mountainside like a hanging garden of industry - but where ancient Babylon had cascading flowers, here there are stacks of woven bamboo cages, their occupants adding to the constant chorus of croaks, chirps and fluttering wings.
+
+The air is thick and warm, weeping constant moisture that beads on every surface. Water trickles down carved channels in the rock face, feeding a network of ceramic pipes and wooden aqueducts that thread between the buildings. The sound of running water provides a liquid bassline beneath the cacophony of animals.
+
+Most structures are two or three stories of dark wood and stone, connected by covered walkways that protect from the near-constant drip. Strings of paper lanterns cast weak pools of light through the mist, just enough to navigate by. The buildings huddle close together, making maximum use of the limited flat space, with narrow alleyways between them that concentrate sound into echoing canyons.
+
+This is a place of careful animal husbandry - an elevated farm for the creatures that thrive in warm, wet conditions. Frogs splash in carefully maintained pools. Exotic birds nest in the eaves, their waste collected and channeled away by the same system that handles the omnipresent moisture. Insects buzz between flowering vines that are trained up posts and walls - the only abundant vegetation, cultivated to feed certain prized specimens.
+
+The technology is purposeful but unobtrusive - simple machines to lift water, basic steam engines that power feed-grinding mills, systems of pulleys to move supplies between levels. Everything built to withstand the constant moisture, sealed with lacquer and pitch, designed to channel rather than resist the flow of water.
+
+Time moves slowly here, marked by the steady drip of water and the gradual cycles of breeding and growth. But the space is alive with motion and sound - wings stirring air, amphibians diving into pools, the constant movement of caretakers between the various enclosures, checking temperatures, adjusting water flows, measuring feed.
+
+At the edges of the settlement, the mist thickens into impenetrable white, giving the impression of an island floating in clouds. The mountain face behind is barely visible, its sharp young peaks lost in the haze above. The limited visibility creates a sense of enclosure, of a complete world in miniature, densely packed with life and purpose.

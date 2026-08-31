@@ -1,0 +1,19 @@
+The world is water. Not just any water, but viscous, warm, silty water, the color of old blood. It hangs here, far above any recognizable sea level, pooling in the vast caldera of some unimaginable volcano. The slopes around it are not green; they are carved, tooled, terraced, and walled with basalt blocks, each the size of a small cottage, fitted together with a precision that seems almost casual, as if the builders had infinite time and patience. Because perhaps they did.
+
+The light is almost nonexistent. Not quite darkness, but a perpetual twilight, a gloom that filters weakly even through the turbid water itself. It is brightest near the surface, where the carved terraces are thickest, but even there you might only see a few feet. And no stars above; only the heavy, hanging, dripping vault of the caldera's rim.
+
+The silence is profound. Not an absence of sound, but the suppression of it. A gentle lapping of the water against the carved stone is the loudest noise here. Sometimes, a low hum vibrates through the water, resonating in your bones more than your ears, an echo of some massive machine breathing far below. 
+
+The water is dense, saturated with microscopic, glittering entities. They are not plants; they are something simpler, perhaps, something closer to crystalline structures that have learned to move. They are everywhere, clinging to every surface, filling every crevice, and their collective bioluminescence is the primary source of light in this drowned world.
+
+The fauna is strange, yet abundant. Blind, cave-dwelling creatures, evolved to navigate the dense, murky water with sensitive barbels and pressure-detecting organs. Pale, eel-like forms glide through this dim world, brushing gently against the carved stones. Large, almost spherical beings pulse with a faint but strong light, their bodies covered with symbiotic clusters of the crystalline entities. Some of them, the largest, are unsettlingly intelligent, their alien thought processes almost, but not quite, comprehensible. A few of them show apparent curiosity.
+
+This is a landscape of profound artifice, every inch of it shaped by hands, or tools, or processes unknown. The basalt terraces are not just for show. They are riddled with internal channels, intricate plumbing systems capped with stone valves and covered with strange runes etched into the rock. The water itself seems to flow according to design, drawn up through unseen vents and draining away through hidden sluices. Small structures, like submerged grottoes, are common on the terraces – perhaps simple spaces for sheltering from the elements, or small temples for unknown gods, or something else.
+
+There is no evidence of great works. The technology is crude, but precise. The tools are simple, but the craftsmanship is exquisite. It's the work of a patient people, who have lived here for a long time, and who have no need for speed or efficiency. Theirs is a slow world.
+
+The erosion is ancient, measured across epochs. The basalt blocks are rounded and smooth, the runes are faded, the edges softened. The entire caldera has settled into a state of profound equilibrium. Everything is close, dense, touching, pressing. Even the water seems weary, heavy with time.
+
+No great calamity struck here, no mighty disaster. The water simply rose, perhaps over centuries, perhaps over millennia, gently claiming what was once a sunlit world. And the creatures did not flee; they adapted, evolved, and waited.
+
+And today, they still wait, in the warm, dark, silty water, amidst the carved stones, in the quiet twilight world filled with the pulse of light and the low hum of ancient machines. They wait, and they watch, and they listen. And time flows on.

@@ -1,0 +1,77 @@
+It is a low country, but not a natural one.
+
+From a distance it lies like a black sheet hammered flat between the sky and the horizon, a manufactured plain sunk almost to the level of the surrounding water. There are no hills, only very slow rises in the plating, long swells of metal and stone-composite that were once roads, ramps, spillways, loading terraces, now worn down into broad backs by uncountable seasons of weather and use. The whole region has settled. Nothing stands upright except what was built too heavily to fall: stacks without smoke, ribbed towers, gantries, the blunt shells of processing halls, sluice frames and crane-arms frozen in poses of labor. Everything else has been abraded into the same ancient horizontal language.
+
+The ground is not earth. It is layered material: iron-grit aggregate, ceramic slabs, cracked asphalt, poured basalt-glass, plates of green-black alloy riveted to older plates beneath. Where the surface has split, it does not reveal soil, but more construction—pipes nested inside ducts, ducts inside vaults, vaults inside earlier foundations, foundations laid over gridded drains and sealed service corridors. The place was made, and then remade, and then covered over with its own repairs until no original bottom can be reached. Even the mud is artificial: a cold paste of rust powder, pulverized concrete, oily silt, and mineral bloom, collecting in seams and wheel-ruts long after the wheels are gone.
+
+Water is everywhere, but seldom deep. It rests in shallow pans across the floor of the plain, trembles in cable trenches, beads on conduit, seeps from vertical seams in walls. It is the water of a place that cannot dry: recent rain, condensed fog, sweating pipework, leaks from buried reservoirs, drainage systems that still perform their duties too well or not well enough. At times whole sections of the plain shine as if varnished. At others, the surface disappears under a skin of dull water no deeper than a hand, broken by studs, rails, low vents, and the ribs of half-submerged tracks.
+
+There are channels, too, but they are rectilinear, disciplined, cut through the district in long straight lines and sudden right angles. Some still run, though no river feeds them. Pumps below the visible world lift water from unseen basins and send it through canals lined with old black brick and enamel tile. The flow is steady, loud, indifferent. It carries flakes of rust, white scum, threads of translucent algae, and the occasional floating tag of insulation like dead skin.
+
+The air is cool and crowded with moisture. Breath would fog here. Metal sweats. Concrete darkens. The cold is not winter’s cold, not sharp enough to cleanse; it is the cold of basements, tunnels, wet machinery, dawn that never quite arrives. The sky is mostly absent. Low vapor presses down, a ceiling of soot-colored cloud that catches the weak industrial glow from below and gives it back as a dim bruise. There is little light. Lamps remain, but many have failed. Those that work are not generous: sodium slits under catwalks, blue emergency beads along railings, slow red pulses on sealed doors, the sick green of instrument panels glimpsed through cracked observation glass. Most of the place is dark enough that distance becomes an acoustical thing before it is a visual one.
+
+And it is never quiet.
+
+The noise is huge, continuous, layered until it becomes a weather system. Somewhere beneath the plates, turbines turn. Not quickly—nothing here is quick—but with a force so large the ground seems to remember each rotation. Pumps thud in buried chambers. Pressure valves scream and then cut out. Chains drag inside housings. Fans as wide as houses churn fog through ventilation towers. Water hammers in pipes. Overflow drops from one level to another in hidden cataracts. Relays chatter in walls. Far off, a stamping mill or something like one still descends at intervals, each impact spreading across the plain in a low metallic concussion.
+
+There is no animal sound to divide it. No insects ticking in the wet. No birds in the gantries. No rats in the ducts. No gulls over the canals. The absence is not peaceful; it feels enforced. The machines have occupied all frequencies. The landscape has no calls, only operations.
+
+The vegetation is sparse, and what lives here does so in margins too thin to claim. Pale reed-like stems grow from drainage sumps where mineral water collects, but they are few and widely spaced, each clump isolated like a fault in the system. They do not sway much; the air is heavy. Mosses form dark low stains along the north faces of retaining walls, especially where condensation runs down in constant threads. In the cracks between slabs there are wiry gray plants with translucent leaves, their roots gripping cable mesh instead of soil. A few basins hold floating mats of copper-colored scum, not quite plant, not quite film, gathering around warm outlets where machine water enters cold air.
+
+This is the ecology now: not animal and plant, but pump and leak, corrosion and patch, condensation and drainage, bloom and scrape, pressure and release. Rust feeds the water; water feeds the rust. Warmth from buried engines draws fog down through broken roofs. Fog condenses on beams and rains indoors. That rain trickles into collectors that still power the pumps that lift more water into the canals. The place sustains itself through failure carefully balanced against function.
+
+Nothing here looks new, but little is truly abandoned.
+
+The built world has aged past ruin into a second kind of permanence. Rail lines have been worn smooth, then pitted, then polished again by water and grit. Staircases end in walls because the floors they served have sunk or been sealed. Arched culverts bear maker’s marks from eras that contradict one another: embossed numerals, stamped codes, glyph-like warning bands, hand-laid tile inscriptions almost erased by mineral crust. The oldest surfaces are not the most damaged; some have reached a stable final state, hard as bone, dark as old teeth, shedding weather without changing. The younger additions rot more visibly around them.
+
+In the open districts, the land stretches in broad functional fields. Tank farms stand like low constellations of black cylinders, many collapsed inward, some still breathing vapor through pressure vents. Between them lie empty service aprons, acres of scored slab interrupted by puddles and low mounds of cable. Conveyor bridges cross the canals, their belts gone slack or still crawling beneath curtains of condensation. Storage yards extend into darkness, marked by ranks of identical concrete plinths where machinery once sat, each plinth bearing a different pattern of stain, bolt, and shallow pooled water.
+
+There are factories with their roofs mostly intact, great rectangular volumes whose interiors are darker than the outside. Through ruptures in their walls comes light in bands, and within those bands hang suspended droplets, falling continuously from overhead trusses. The floors inside are terraced with runoff. Shallow streams pass beneath machines the size of buildings. Some of the machines are still active: not producing anything recognizable, but cycling, folding, extruding, rinsing, compacting, heating, cooling. Sheets of material emerge from rollers and vanish into slots. Empty molds pass along lines and return empty. Furnaces glow without flame behind ceramic shutters. Robotic arms dip into vats and rise streaming, holding nothing.
+
+The place gives the impression not of a dead industry, but of an industry that has forgotten its product and continued with the ritual.
+
+Its rules are old and strict.
+
+Water must be moved.
+
+Pressure must be relieved.
+
+Surfaces must drain toward assigned channels, even if the channels are cracked, even if the drains lead only to lower flooded chambers.
+
+Lights must mark danger, though there is no one left to be warned.
+
+Doors must seal at intervals.
+
+Ventilation must cycle.
+
+Waste must be sorted.
+
+Heat must be exchanged.
+
+Every process has outlived its reason. Every reason has been buried under procedure. The landscape is less a ruin than a law-abiding corpse.
+
+In some places the strangeness is subtle. A row of warning signs repeats down a corridor, each one newer than the last, each in a different language, all pointing toward a hazard that has become the corridor itself. A rain gutter runs uphill because the building around it has subsided unevenly but the water still follows it, drawn by some hidden pressure. A basin fills only during dry hours. A stairwell descends below the waterline and remains dry, its lower door sweating on the inside. Condensation forms not on cold surfaces, but on illuminated ones. Reflections in the standing water lag a little behind the movement of the lights.
+
+Elsewhere the place is openly wrong. There are enormous circular yards where the paving has been eroded into concentric grooves, as if something revolved there for centuries after the mechanism was removed. There are towers whose external ladders lead to platforms facing blank walls, and platforms facing empty air, and platforms facing other platforms at impossible angles. There are pipe fields where identical valves open and close in waves, like breathing organs, though no fluid visibly passes through them. There are sealed rooms visible through thick glass, their interiors dry and dustless, containing chairs arranged around tables, coats still hung on hooks, mugs placed beside obsolete terminals—untouched islands inside a drowned industrial continent.
+
+The darkness changes slowly. It is not night exactly. It has phases. During the low phase, the only visible things are red beacons on tower crowns, reflected in puddles as broken strings. The sound seems larger then, because the eye has less to hold. During the pale phase, a cold grayness filters through the vapor and reveals distance: canal after canal, roofline after roofline, low bridges, fenced enclosures, tank rims, the long vanishing lines of pipes all running toward the same obscured center. During electrical storms, if they are storms, light crawls across the undersides of the clouds without thunder. The machines answer with shifts in pitch. Pumps accelerate. Floodgates drop. Water rises in the channels and spills over into the yards.
+
+Rain comes often, but gently at first, as if the air has lost the strength to hold itself up. It begins as condensation thickening on every edge, then as ticking from rails and gantries, then as a full soft downpour that turns the slabs black. The noise of it is swallowed by the engines until the gutters overflow. Then the sound changes. Water runs everywhere. It finds the old slopes. It discovers forgotten cracks. It pours through open hatches into the warm dark below, where hidden machinery knocks and roars in response. Steam rolls out of vents at ground level. The canals foam. The entire low country seems to wake, not into life, but into maintenance.
+
+After rain, the place becomes mirror and stain. The puddles are so still they seem deep. Towers double downward. Blue lamps make small underwater galaxies in oil films. Thin vapor rises from grates and spreads low across the ground, obscuring the feet of structures, so that warehouses, cranes, and pipe racks appear to float. The few plants collect droplets and bend under their weight. When the droplets fall, they strike metal, not earth.
+
+There is no scent of leaf mold, no animal musk, no flowering. The air smells of cold iron, wet concrete, ozone, old lubricant, alkaline water, and something mineral like opened stone. In the factory mouths there is a warmer smell: rubber, electrical insulation, boiler scale. Near the canals, the odor turns brackish, though there is no sea visible. Perhaps the whole region was once a harbor. Perhaps it was built over a marsh. Perhaps the marsh was built too—designed, gridded, drained, refilled, disciplined until even the idea of natural wetland became an industrial component.
+
+At the edges of the plain, the constructed surface does not end cleanly. It lowers into drowned districts where only the tops of walls and vent stacks remain above black water. Causeways run out into these areas and disappear. In the distance, barely visible through the murk, are more structures: low domes, skeletal frameworks, the silhouettes of plants or refineries, repeated so many times they become geological. The openness is not empty in the way a desert is empty. It is empty in compartments, in great measured spans between presences. A tower here. A pumping station there. A kilometer of wet slab. A line of lamps. A canal. Another black building beyond it.
+
+Movement occurs constantly, but not eagerly. It is the movement of systems with enormous inertia. Gates descend over ten minutes. Reservoir levels creep up marker poles. Fog banks slide along corridors. Overhead cranes traverse rails at the speed of shadows, hooks hanging unused. A field of vents opens one by one across a plaza and exhales white vapor, then closes in reverse order. Conveyor belts shudder forward a few meters and stop. Somewhere, a siren begins, holds a single tone for so long it becomes part of the architecture, and then drops away, leaving the remaining noise feeling briefly hollow.
+
+The ancient erosion is everywhere, though the place is artificial. Corners have rounded. Lettering has softened. Metal has delaminated into scales like shale. Concrete has been eaten into smooth troughs by runoff following the same paths for centuries. Walkways sag not from sudden collapse, but from patient yielding. Pipes once painted in bright hazard colors are now dark, their colors visible only under flakes where the wet has lifted them. Edges that should cut the air have become blunt. Everything has been lowered, rubbed, settled. The land has spent ages becoming less articulate and more absolute.
+
+It feels close to an end state. Not destroyed, not alive, not waiting. The landscape has found a way to persist without hope. Its industry has become climate. Its infrastructure has become terrain. Its failures have become rivers. Its warnings have become birdsong, except there are no birds.
+
+If one stood there long enough, the first impression of a factory plain would dissolve. The eye would stop seeking people, roads, purposes. It would begin to read the place as a cold constructed marsh, an engineered fen of slabs and tanks, a low metallic watershed under a permanent dark. The sparse reeds in the drains would seem less like intruders than indicators. The puddles would define basins. The vents would mark warm springs. The pump houses would be the hearts of subcatchments. The stacks would be dead trees. The canals would be straightened creeks forced to remember geometry.
+
+Yet beneath that second landscape, the made-ness never disappears. There is no stone not cast or cut, no pool not contained, no horizon not interrupted by production. Even the darkness feels installed.
+
+The world here is one enormous apparatus, ancient enough to have eroded into landform, active enough to be dangerous, wet enough to shine, cold enough to preserve itself, and loud enough to erase the thought of anything living. It extends beyond sight in all directions: a regional machine-plain, a drowned industrial lowland, a place where the final weather is maintenance and the final ecology is corrosion.

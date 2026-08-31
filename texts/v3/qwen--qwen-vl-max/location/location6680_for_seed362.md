@@ -1,0 +1,47 @@
+The world is a vast, low-slung biosphere of improbable greenness, but greenness that is not wet — not water-based, not earth-rooted, not anything the body of a human knows. It is a place where *life has usurped all matter*, yet nothing moves with the violence of biology as we know it. It breathes. It pulses. It *is* the environment. It is an architecture of living substance, built by the plants themselves into a total, self-replicating construct, a planet-scale organism that has absorbed the old world beneath and reshaped it into a new logic.
+
+There is no open sky. The horizon is swallowed by a canopy so dense and continuous that it resembles a forest ceiling, yet it floats above the surface, like a suspended membrane of verdant tissue. It is not a forest, not exactly — rather, it is a *lattice* of plant-biomechanical systems: vascular conduits of thick, iridescent green fiber, leaf-cells as large as buildings, root-mass coiled beneath and rising like pillars. This is not forest *under* the sky, but forest *as* the sky. The air above the ground is not atmosphere, but an exoskeletal canopy, layered and folded, with light filtered through translucent phloem-ribs and chlorophyll-laden membranes. It glows.
+
+**Light** does not fall from above — it *emerges* from within. The light is a constant, cool, bioluminescent radiance, diffused and spectral, shifting in hue with the slow metabolic rhythms of the living structures. It is not sun — it is *lifeglow*. The brightness is nearly blinding, yet never hot. It is a silent fire, a cold aurora, a world aglow from its own inside. It casts no shadows. The light is *everywhere*, and therefore nowhere.
+
+**Vegetation** is not sparse or emergent. It is the medium. The ground is not soil but a thick, compact layer of mycelial concrete, hardened over eons into a substrate of living polymer — a fossilized bio-lattice, like petrified tissue, but still humming with slow respiration. Trees are not vertical. The concept of "up" has been replaced by "out." There are no trunks. There are *expansions*, fleshy columns, bulbous nodes, and networks of root-ribs that branch into the sky and also into the ground. Some of these "branches" are hollow tubes, humming softly, pulsing like veins. Others are solid, sculpted from living cellulose, reinforced by crystalline deposits of calcium-like minerals secreted from chloroplast nodes. There is no decay. There is only slow, deliberate *remodeling*. The world *builds itself* constantly. New growth extrudes from the old, like a slow geology of tissue. You could step on a root that was once a leaf, now turned into stem, now transforming into a new canopy.
+
+**Water** does not exist. There is no liquid phase. The system runs on *supercritical organic solvents*, fluid mixtures of non-aqueous compounds — possibly based on sulfur or ammonia, or some entirely new chemistry — that serve as the internal medium for nutrient transport and signaling. These liquids are enclosed in sealed, biopolymer-lined tubes, like arteries beneath a crust. They glow faintly, amber or violet, and occasionally pulse in rhythm. The air, though dense with oxygen and other gases, is dry as bone. There is no rain. There is no condensation. There is no wetness on skin. The world has no need to sweat — it does not lose water.
+
+Temperature is cool but not cold. The air drifts at 10–15°C, with a persistent chill on the skin that does not come from temperature alone, but from an absence of moisture. The sensation is not *cold* — it is *still*. The world feels suspended.
+
+**Elevation** is low, but it is *deep*. The surface is not flat — it is layered. Each "layer" is a zone of different plant-phase, different density, different function. Some levels are open chambers filled with gas-roots, others are tunnels of fused lichen-cement, others are vaults of translucent, pulsing bark. The world is not a sphere covered with life — it is a *volume* *filled* with life. One could step across a threshold and find oneself inside a living cell — a cavity lined with glowing membrane, breathing in slow waves, with veins coursing along the walls like rivers of light.
+
+**Density** is extreme. There is nowhere to stand that is *empty*. The air is thick with suspended particles — spores, organic dust, microscopic plant-entities that float like living pollen. The ground is layered, stacked, folded. The canopy is not a single roof — it is a *sky-assembly*, a multi-tiered structure where plants grow both upward and sideways into each other, forming solidified lattices of interlocking biomass. The space is saturated. To walk is to move through a *body*.
+
+**Built**: this world is not *designed*. It is *grown* — but it is grown with intent. The structures are not random. They are *engineered*. The plant-forms follow geometries that resemble industrial design: modular nodes, standardized junctions, repeating helical forms. There are no ruins, no old technology. The plant-architecture has *mimicked* industrial forms over time, perhaps through convergent evolution, or perhaps this is the original architecture — a world where biology *is* technology.
+
+**Technology** is embedded. Machines are not steel and wire — they are *bio-mechanical*. The “factories” are vast, slow-moving organs — thick stalks of tissue that pulse with internal pressure, producing new plant-materials, secreting biotopes, refining nutrient streams. These are the *engines*: not fossil-fueled, but bio-fueled. The air vibrates faintly, like the low hum of a submerged city. But the sound is not mechanical. It is *biological*. There is no clatter, no siren. Only the soft thrum, the breath-like exhalation of the world, the slow chime of vibrating membranes as they oscillate in resonance with each other. It is a sound that fades into silence.
+
+**Fauna**: rare. But what little lives in this world is not animal in any known sense. There are drifting, translucent forms — gelatinous masses that float in the air, feeding on spores or organic mist. They have no eyes, no limbs. They are more like colonies of cells, or floating organs. Some are mobile, gliding through the canopy on currents of slow gas. Others are sessile, attached to surfaces, pulsing as they absorb light and chemical nutrients. There are no predators, no hunts. Death is rare. Decay is irrelevant. The world is a *closed* system — a circuit of self-renewal.
+
+**Weirdness** is not an anomaly. It is the condition. Reality here is not stable. The laws of physics are *slightly* different. Gravity is consistent but *felt* differently — not as a pull, but as a pressure, like being held within a thick fluid. Time seems slower. Events unfold on a scale that is not linear. A change in light color may correspond to a planetary cycle measured in centuries, yet it feels like a breath. The plant-forms exhibit non-local coordination — a tremor in one part responds instantly in another hundreds of kilometers away. Is this communication? Is it consciousness? Or is it simply the result of a system so dense and interconnected that there is no distinction between parts and whole?
+
+**Scale**: vast. This is a world that could be a continent, or a planet, or a construct within a larger system. It is large enough to have its own weather — not storm weather, but *bio-weather*. Periodic pulses of light, coordinated waves of growth, the slow expansion and contraction of the living canopy. There are micro-climates within the layers, zones where light is denser, or where metabolic activity peaks, or where the air is thicker with suspended organic matter. The world breathes. It inhales through pores in the ground, exhales through the canopy. It does not need a sky for this. It creates its own.
+
+**Dynamic**: yes, but not violently. The world is in constant, slow motion — growing, restructuring, pulsing. The processes are not fast, but they are *continuous*. The canopy ripples like a tide, not in wind, but in internal expansion. New cells form, old ones dissolve into the surrounding matrix. There is no death, only *reintegration*. The cycle is closed, endless, and utterly still in its totality.
+
+And yet — the silence.
+
+**Sound** is not absent. It is there — a low hum, a thrum, a soft breathing — but it is not loud, nor is it distinct. It blends into the light, into the structure. It is felt more than heard. The absence of high-frequency sound gives the world a dreamlike weight. No birds. No insects. No wind. Just the slow oscillation of living matter.
+
+To be here is to exist within a *living machine*, a biotic computer of unimaginable scale, where the substrate is plant, the code is chemistry, the output is structure, and the input is light and time.
+
+It is not a desert. It is not a garden. It is not a city. It is not an organism. It is not a machine.
+
+It is *itself*.
+
+And it is still.
+
+And it is growing.
+
+And it is *not* for humans.
+
+You stand on the surface — not soil, not rock, not metal — but on a living crust, pulsing gently beneath your feet. The air is thick, cool, silent. Above, a green sky breathes. A column of light, thick as a tree, emerges from the ground, rises into the canopy, and vanishes into the glowing membrane. It is not a beam. It is a *nerve*. It pulses, once. Slowly.
+
+You can no longer tell if you are inside the world, or if the world is growing inside you.

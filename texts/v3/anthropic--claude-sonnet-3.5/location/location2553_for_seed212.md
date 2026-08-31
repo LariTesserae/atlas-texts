@@ -1,0 +1,17 @@
+The Suspended City of Quorzha emerges from the depths of an endless ocean, a vast metropolis held aloft by an intricate network of translucent bubbles. These spheres, varying in size from small dwellings to massive communal spaces, cluster together in a dense, three-dimensional lattice that stretches for miles in every direction. The city is eternally submerged, yet its inhabitants remain dry, protected by the mysterious properties of the bubble walls.
+
+The water surrounding Quorzha is cool and dark, its depths barely penetrated by the ambient light that seems to emanate from the city itself. This glow, neither natural nor artificial, pulses with a rhythm that defies explanation, casting eerie shadows that dance across the bubble surfaces.
+
+Vegetation is sparse within the city, limited to small patches of bioluminescent algae that cling to the outer surfaces of some bubbles. These patches form intricate, ever-shifting patterns that seem to communicate in a language beyond human comprehension.
+
+The soundscape of Quorzha is a cacophony of alien noise. The constant, thunderous pressure of the surrounding ocean is omnipresent, punctuated by the eerie songs of unseen leviathans and the sharp clicks and whistles of swarms of bioluminescent creatures that dart between the bubbles. Within the city, the sounds are no less strange – a discordant symphony of humming energy, crystalline chimes, and the echoing voices of the inhabitants, distorted by the acoustics of their spherical homes.
+
+The fauna of this world is overwhelming and bizarre. Schools of fish-like creatures with too many eyes and limbs weave through the city's structure, some passive, others predatory. Massive, tentacled beings wrap themselves around clusters of bubbles, their skin shifting colors in hypnotic patterns. Swarms of tiny, glowing organisms occasionally penetrate the bubble walls, filling dwellings with drifting constellations of living light.
+
+Despite the primitive technology evident in the simple tools and handcrafted objects used by Quorzha's inhabitants, the city itself seems to defy the laws of physics and biology. The bubble walls, impossibly thin yet impenetrably strong, appear to be grown rather than built, suggesting a symbiotic relationship between the city and some unseen, godlike entity.
+
+Time behaves strangely in Quorzha. While the city itself remains unchanging, locked in an eternal present, the inhabitants experience temporal distortions. Moments stretch into eons, while years can pass in the blink of an eye. This temporal instability manifests visually as well, with objects and beings occasionally blurring or leaving trails of after-images as they move.
+
+The laws of reality break down further at the edges of the city. Here, the boundary between water and air becomes fluid, with pockets of breathable atmosphere spontaneously forming and dissolving in the open ocean. Matter itself becomes mutable, with solid objects flowing like liquid and liquids crystalizing into impossible geometries.
+
+Quorzha is a place of paradoxes – a primitive society living in an impossibly advanced structure, a static city teeming with dynamic life, a haven of air and earth submerged in an endless ocean. It is a testament to the adaptability of life and the malleability of reality itself, a place where the impossible is commonplace and the familiar becomes alien.

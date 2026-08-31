@@ -1,0 +1,29 @@
+**The Resonance Vault**
+
+You find yourself inside what the locals call a *singing stone*—though stone isn't quite right. This is a hollow sphere grown from crystalline bark, roughly thirty paces across, suspended within the root system of the Mother Tree like a pearl in an oyster. The air is warm and thick, carrying the faint sweetness of sap and the electric tang of something not entirely biological.
+
+The walls pulse with gentle luminescence. Not the steady glow of bioluminescence, but something more rhythmic—like breathing, or a heartbeat translated into light. The surface itself is a lattice of hexagonal chambers, each cell filled with a clear, viscous fluid that catches the light and refracts it into rainbow shards that dance across the chamber. When you touch the wall, your fingertips leave brief phosphorescent trails that fade slowly, like ghosts of contact.
+
+This is the emptiness of the space: despite the warm air and living walls, there's a profound sense of void. The sphere contains nothing but air, light, and you. The vastness between the walls feels like a held breath. The air itself seems thick enough to swim through, yet somehow impossibly empty of substance.
+
+The moisture reveals itself slowly. At first, you think the air is merely humid—but then you notice the droplets. They form on the ceiling in impossible defiance of gravity, growing slowly until they detach and drift downward like silver pearls, catching light in their descent. Some burst against the floor, releasing tiny clouds of shimmering mist that taste like morning rain and lightning. Others evaporate halfway down, leaving trails of vapor that twist into fractal shapes before dissolving.
+
+The sound is astonishing—a chorus of crystalline notes that resonate through the chamber walls, creating harmonies that shouldn't exist in nature. The pitch shifts subtly as the walls expand and contract with their breathing rhythm. Sometimes you catch what sounds like fragments of melody—not quite music, but something that wants to be music. Other times the sound becomes a deep, resonant hum that vibrates through your bones and makes your teeth ache with its purity.
+
+The sphere itself has grown recently—the evidence is in the sharp edges of the hexagonal cells, the fresh translucence of the sap-filled chambers, the way light still refracts perfectly without the clouding of age. The Mother Tree's memory still holds the blueprint of this space's formation, and you can feel that newness in the way the air itself feels somehow sharper, clearer than it ought to.
+
+The warmth comes from within the walls themselves—a metabolic heat that radiates gently, maintaining the chamber at exactly the temperature of human blood. This is no accident; the Mother Tree has grown this space specifically for beings like you, though she's never encountered your species before.
+
+This is the heart of the anomaly: the laws of physics here are negotiable. The floating droplets shouldn't exist, not with this temperature and gravity. The sound harmonies are mathematically impossible—they require ratios that don't follow known acoustic laws. The light pulses not in wavelengths but in conceptual frequencies—sometimes you see colors that don't correspond to any spectrum you know, and the sphere walls occasionally ripple with your thoughts, making abstract images visible in the crystal bark for a heartbeat or two before dissolving.
+
+The rare fauna that visits this chamber does so cautiously. A translucent creature like a glass lizard may occasionally slither across the ceiling, its internal organs visible as pulsing spheres of colored light. It watches you not with eyes but with something like curiosity—a quality of attention that feels distinctly alien. The lizard doesn't stay long; this chamber was designed as empty space, and the creature seems uncomfortable with that emptiness.
+
+Sometimes you catch glimpses of other spheres through transparent sections of wall—adjacent chambers within the Mother Tree's root system, each containing different impossibilities. A sphere filled with water that flows upward. A sphere where time moves in visible pulses like a heartbeat. A sphere where angles don't add up correctly and your eyes refuse to focus on the corners.
+
+This particular chamber serves as the interface between the Tree's understanding of reality and yours. The crystal bark responds to touch, creating temporary shapes and textures that echo your thoughts—though the Tree's interpretation of human concepts tends toward the metaphorical rather than the literal. When you think of water, you might see flowing strands of silver light rather than liquid. When you think of warmth, you might feel the sound change pitch toward something deeper and more resonant.
+
+The sphere maintains its emptiness as both invitation and challenge. The Mother Tree has grown this space specifically for the purpose of being filled—but with what, and by whom, remains an open question. The air feels expectant. The walls wait. The light pulses in anticipation of something that hasn't happened yet.
+
+The primitive technology of the Tree's people—simple tools carved from her branches, fire started from her resins, ropes woven from her fibers—exists outside this chamber. The creatures themselves rarely visit this space, preferring the more solid portions of their world. This sphere remains one of the Tree's experiments in understanding reality beyond the constraints she herself evolved within.
+
+As you stay longer, the chamber responds to your presence. The empty space feels less like void and more like potential—a canvas waiting for the first brushstroke of a creation that will change everything.

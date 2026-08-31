@@ -1,0 +1,33 @@
+There is no water here, and there has not been for an age longer than the word *age* can hold. But there is no thirst either, because nothing here drinks the way you would understand drinking. The whole place is plant, and the plant does not need water. It learned, somewhere back in the floor of time, to live on something else.
+
+Let me find the size of it first, because that is the strangest part.
+
+It is small. A pocket. A sealed room of a world, no wider than a great hall, though you cannot see the walls because there is no light. You feel the smallness instead. The air has the closeness of a space with a ceiling. Sound returns to you too quickly — every noise you make comes back changed, telling you the dimensions of a cupped hand. You are inside something. You have always been inside something, since the moment you arrived.
+
+And yet this hand-sized room is built. Built up, built over, built through — a town's worth of construction crammed into a chamber, and all of it grown rather than made.
+
+Run your fingers along the nearest surface. It is bark, but bark shaped into a wall, smooth and load-bearing, fitted to its neighbor with the precision of dressed stone. The plant did this. Over the long settling of erosion-time — the 2.9, the near-final state — the vegetation here did not sprawl outward into a forest. There was nowhere outward to go. It had only this pocket. So it built inward. It made streets of itself. It raised wooden towers of its own dead wood and threaded living tissue up through them. It dug rooms and corridors and stacked them in layers, primitive in their method — no machine ever touched any of it, only the slow blind craft of growth pressing against growth, fiber against fiber, until something like masonry emerged. A city of one organism that became its own citizens.
+
+It is cool in the streets of this place. Not cold — a cellar coolness, the temperature of deep shade that has never known a noon. The plant prefers it so. Warmth would mean light, and there is no light. There has never been light. The plant is black, or would be if you could see it; it does not photosynthesize. It eats sound.
+
+That is the rule of this world, the strange engine under everything: here, sound is food, and sound is also abundant, and so the plant grew enormous and intricate and unhurried, and filled its pocket with architecture, and then — having filled it — went nearly empty.
+
+Listen.
+
+The place is loud. A standing roar lives in it, low and structural, the sound of the chamber resonating with itself. You cannot find the source because the source is everything. Every wall is a membrane. Every grown corridor is a flute, a throat, a drum-skin. The plant made itself into instruments and then it plays itself, endlessly, harvesting its own noise. The towers hum at the base of hearing. Somewhere a long hollow stalk catches a draft of the dead still air — there is no wind, but the plant breathes, very slowly, a tidal swell across hours — and the stalk sounds a single note that goes on long enough to become a place you live inside rather than a thing you hear. The walls drink it. You can feel the bark warm faintly under your palm as it feeds. That is the only warmth here. Sound, turning into the plant's slow living.
+
+Now the emptiness. This is the part that troubles people.
+
+The city is vast in its detail and almost wholly unoccupied. Density near zero. You walk for a long time — though *long* means little in a hand-sized room; the geometry has folded, corridors are longer inside than the chamber could possibly hold — and you pass no one, you pass nothing. No animal scurries. No insect ticks against a wall. Fauna never came, or came and left, or was never invited. The plant made a town and then declined to fill it, the way a coral makes a reef and is itself the only resident, multiplied past the meaning of number. Doorways open on rooms holding nothing but more dark and the throbbing note. Plazas grown of woven root stretch out empty under a ceiling you cannot see. The grandeur is total and the population is none.
+
+You begin to understand that the building was never *for* anyone. The plant did not need shelter. It built because building is what it does with the sound it eats — the way a body lays down bone. The city is a skeleton it grew around the act of listening to itself. And then it stopped. Not died — this is not a ruin, nothing is decaying, there is no rot because there is no water and no rot-bringing life. It simply reached its final form, ages ago, and has held it. The erosion here is not the wearing-down of weather but the settling of a thing into the last shape it will ever take. Everything is already as old as it will get. Everything is finished.
+
+There is dust, though it is not dust. It is the plant's slow shedding, a fine dry powder of itself that drifts down through the dark and never wets, never clumps, lies in soft drifts in the corners of the empty rooms. When you disturb it, it does not rise in a cloud — it falls again slowly, slowly, the whole world's dynamism gathered into that one patient settling. Hours to fall. You could watch it if there were light.
+
+What pulls at me, writing this, is the question the place poses and will not answer: whether it is lonely. It is hard not to put that word on it — a single living thing, grown into a whole town, sealed in a small dark room, roaring quietly to itself forever, eating its own voice, building nothing new because there is nothing left to build, and no one ever coming, and no one ever having come.
+
+But loneliness is an animal feeling, and there are no animals here. The plant is not waiting. It is not even still, exactly — it breathes its tidal breath, it sounds its endless note, it feeds, it holds its city in the dark. It is doing the only thing it was ever for, which is to be wholly itself in a space exactly its own size, and to be heard by nothing, and not to mind.
+
+You are the strange element. You, with your eyes that find no use, your need for water you will not satisfy here, your habit of calling a hum *lonely*. The place was complete before you came through the wall of it. It will be complete after.
+
+Stand still a moment longer in the warm dark, palm flat against the breathing bark, and let the note pass through you. It is using you, a little. You are making sound — your breath, your heartbeat, the small involuntary noises of being alive — and the wall is drinking those too. For a moment you are part of its food, part of the slow settling, part of the oldest finished thing. Then you take your hand away, and the city does not notice, and the note goes on.

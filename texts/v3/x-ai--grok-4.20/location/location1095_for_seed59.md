@@ -1,0 +1,25 @@
+The place is called the **Verdant Choir**, a living cathedral-basin no larger than a hamlet, cupped in the folded lap of a high plateau where the land has long since stopped arguing with itself.
+
+Everything here is wet. The air itself sweats. A constant, low-grade drizzle falls upward as often as downward; mist condenses on every surface and beads like mercury, then runs in silver threads that never quite reach the ground before they are drunk by the leaves. The rocks themselves weep steadily — not from cracks, but from pores that opened centuries ago and never closed. The water table is so high that the ground sighs when you step on it.
+
+And the ground is almost entirely plant.
+
+There is no soil visible. What looks like earth is a living mat of interwoven root, moss, liverwort, and fungal felt three to four feet thick. Every surface — wall, floor, ceiling of the natural basin — has been colonised so completely that the original geology is only a suggestion beneath the green architecture. The “buildings” are colossal bromeliads, strangler figs braided into buttresses, mats of clubmoss grown into vaulted ceilings thick enough to walk on. Towers of horsetail and bamboo have fused into spiraling tenements. Whole neighborhoods are nothing but a single ancient fern whose fronds have become layered roofs and balconies, dripping constantly.
+
+It is cool here, never cold. The temperature hovers in the low fifties Fahrenheit, the kind of damp chill that makes every breath feel like drinking. Yet the growth is explosive. The plants do not wait for seasons; they compete in real time. Vines race one another up columns of living wood. Orchids bloom, rot, and are replaced by moss within a day. The entire basin is one continuous, turbulent act of photosynthesis and decomposition happening at audible speed.
+
+And it is loud.
+
+The sound is overwhelming because the fauna is overwhelming. Millions of small creatures live inside the green walls: glass frogs, tree crickets, moss-colored katydids, tiny jewel-weevils, lungless salamanders that breathe through their skin, colonies of bees that have given up hives in favor of living inside the stems of giant pitcher plants. Their combined voices — chirrs, creaks, wet clicks, ultrasonic trills, the constant patter of dripping water on leaves, the low rushing of sap under pressure — merge into a single roaring hymn that never stops. It is not music. It is argument and commerce and birth and death all given voice at once.
+
+The settlement is primitive but dense. Several hundred people live here in what can only be called a vertical shantytown grown from the vegetation itself. They shape the living mass with bone knives, fire-hardened digging sticks, and obsidian flakes. Houses are hollowed-out trunks of enormous figs or rooms formed by training four colossal vines into walls and roofing them with living bromeliad tanks. Bridges are braided root cables re-grown every few years. Ladders are living aerial roots encouraged downward by careful pruning and song. Everything is temporary and permanent at the same time; if a wall dies, another grows inches away within weeks.
+
+The people call themselves the Choir. They move constantly because the floor itself moves — swelling, collapsing, sending up new trunks, opening sudden sinkholes that become pools. Children learn to read the tension in the leaves the way sailors read wind. At any moment a new “street” may piston upward as a bamboo colony surges, or a section of “ceiling” may collapse in a wet green avalanche of rotting epiphytes, instantly repopulated by opportunistic ferns.
+
+Light is normal but heavily filtered. It arrives as a cool, even, silvery-green glow, the color of early spring seen through stained glass. There are no long shadows. Everything is softly backlit by a thousand layers of translucent leaf.
+
+The basin is bounded on all sides by sheer weeping cliffs draped in curtains of hanging moss so thick they look like green waterfalls frozen mid-fall. These cliffs are the edge of the world for the Choir. Beyond them the plateau continues, but the vegetation thins and the water changes its mind. Here, inside the Choir, the rules are different: nothing is allowed to stay still. Even stone is eaten and remade into root. Even memory is overgrown.
+
+At night the sound only grows louder. The nocturnal shift arrives — bioluminescent click-beetles, night-blooming orchids releasing their thick perfume, colonies of tiny luminous tree-frogs that flash in slow waves across entire walls of vegetation like living constellations. The temperature drops another few degrees. The mist thickens until the air itself becomes a breathing organism.
+
+And still the basin pulses, drips, sings, grows, dies, and grows again in the same breath — a small, wet, loud, impossibly dense world that has reached a ferocious equilibrium between architecture and wilderness, between city and jungle, between the steady weeping of ancient rock and the frantic, anthill energy of ten thousand species that have decided the only acceptable pace is all of them, all at once, forever.

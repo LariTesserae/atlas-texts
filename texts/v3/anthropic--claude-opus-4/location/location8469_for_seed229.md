@@ -1,0 +1,25 @@
+The Drowned Quarries of Kellensmere
+
+You descend through the old entrance cut, where stone stairs have been worn to suggestions by centuries of seepage. The bright sky vanishes in stages—first blocked by the quarry walls, then filtered through the latticework of hanging mosses and trailing vines that drape from every ledge. Even thirty feet down, the light remains surprisingly strong, reflected and magnified by the water that fills the lower galleries.
+
+This is no darkness. The flooded chambers glow with an aqueous luminescence, light bouncing between wet limestone walls and the perfectly still pools that mirror the sky. Every surface weeps. Water beads and runs in constant silver threads down the carved faces where generations of stonecutters left their marks—chisel scars now softened to ripples, tool marks become channels for the endless trickle.
+
+The cold here has a peculiar quality, not the dry bite of winter but something that seeps through cloth and skin with patient persistence. Your breath clouds despite the brightness. Ice never forms—the movement of water is too constant, too pervasive—but the chill settles in your bones like the limestone damp.
+
+Vegetation thrives in defiance of the cold. Cushions of moss pile thick as mattresses on every horizontal surface. Ferns cascade from cracks in gorgeous green fountains, their fronds jeweled with droplets. Strange pale flowers bloom in the eternal twilight of the deeper galleries, their roots threading through mortar and stone. The plants grow lush but lonely—each specimen separated by spans of bare, weeping rock.
+
+The old quarry extends far beyond what you can see from any single vantage. Galleries open into galleries, connected by half-flooded passages and stone bridges carved from the living rock. Some chambers stretch wide as market squares, their ceilings supported by pillars of stone left standing by long-dead quarrymen. Others narrow to corridors barely wide enough for shoulders, where the water rises to your chest and the walls press close enough to touch both sides.
+
+Sound carries strangely here. Every drip echoes and multiplies until the air fills with a constant percussion—not quite rain, not quite river, but something between. When wind finds its way down from above, it moans across the openings like breath over bottle mouths. The acoustics transform whispers into shouts, footsteps into drumbeats. Even silence has a quality of barely-suppressed resonance.
+
+Traces of the old work remain everywhere. Rusted iron rings still anchor in the walls where ropes once held. Stone shelters, barely more than three walls and a roof, nestle in the drier corners—ancient break rooms for ancient workers. Wooden platforms rot slowly in the damp, their planks soft as cheese. In one vast chamber, an enormous block of half-cut limestone sits abandoned, its surface still showing the grid lines drawn in ochre by some long-dead master mason.
+
+The quarrymen left other marks too. Carved into walls throughout the complex are tallies, names, simple pictures—a fish here, a hand there, something that might be a map of the galleries themselves. Near the deepest accessible point, where the water finally wins and fills the passages completely, someone chiseled a series of water-level marks. The highest is dated three hundred years ago. The water has risen two feet since then.
+
+Life persists but sparingly. Pale crayfish scuttle in the shallows. White cave fish dart away from movement, visible only as fleeting shadows in the clear water. Sometimes a bird's call echoes from above—always solitary, never answered. In the moss gardens, tiny invertebrates go about their business, but nothing larger shows itself. The quarry feels poised in a state of waiting, as if the next creature to arrive might be the first or the last.
+
+Water finds its way everywhere here, but never violently. It seeps, drips, pools, flows in sheets down walls. The limestone drinks it and releases it in an endless, patient cycle. Some chambers flood with the seasons, others stay perpetually half-full. The water table lives just below the quarry floor, making every step a negotiation with hidden springs.
+
+This is a place that has found its balance. The stones have settled. The water has claimed what it will claim. The plants grow where they can. The slow work of erosion continues, but at a pace measured in centuries. Even the cold has an ancient quality, as if it seeped up from some deeper, older source than mere weather.
+
+At noon, when the sun angles just right, shafts of light lance down through the entrance cuts and turn the flooded chambers into cathedrals of brightness. The water becomes transparent glass. Every surface shimmers. For an hour, the Drowned Quarries transform into something almost warm, almost welcoming. Then the sun moves on, and the patient cold returns, and the endless dripping resumes its percussion in the bright, wet shadows of the stone.

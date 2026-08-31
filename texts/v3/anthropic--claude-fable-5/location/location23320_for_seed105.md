@@ -1,0 +1,41 @@
+**The Drowned Fells**
+
+You are high up. That is the first thing to understand, and the hardest, because everything around you is water.
+
+This was once a range of cold uplands — a broad shoulder of mountains, a plateau cut by glacial valleys, perhaps three days' walk from one end to the other in the days when walking was possible. Then the water came, or rose, or simply *stayed* after some rain that never properly ended, and now the fells lie under it entire: passes, tarns, summits, all of it submerged beneath a column of dark water whose surface — if it has one — is somewhere far overhead, sealed under a lid of grey ice. Light comes down from there only as a rumor. At midday you can tell which direction is up by a faint slate-colored dimness; the rest of the time you cannot.
+
+So the landscape exists in a deep, pressurized dusk, and it is cold the way stone is cold — not the sharp cold of wind but the patient cold of water that has not felt sun in a long time. Your breath, if you breathe, comes out heavy. Things move slowly here, but they do move.
+
+---
+
+**Terrain.** The bones of the high country are still legible underwater. Ridgelines run for miles, their crests softened, scoured smooth long before the flood by the glaciers that made them. The valleys between are drowned twice over — they hold the old tarns within them still, lenses of denser, colder, more mineral water that sit in the valley bottoms like dark oil under the dark sea, refusing to mix. You can see their boundaries: a faint shivering plane, a layer where the water changes its mind. Cross one and the temperature drops enough to ache.
+
+The rock is grey gneiss and a pale, almost bone-colored granite, exposed in long whaleback outcrops and frost-shattered scree slopes that now slip and resettle in slow underwater avalanches — a stone will let go somewhere upslope and you will hear it for a full minute, *tok... tok... tok*, knocking its way down through the dim.
+
+**Vegetation.** This is the strange wealth of the place: it is lush, and there is no sun to explain it.
+
+The drowned fells are forested. Not with kelp exactly, and not with trees exactly, but with something that seems to have decided, after the flood, to split the difference. Tall ribbon-growths rise from the old soil of the valley floors — thirty, forty feet of them, dark olive-black, broad as banners, anchored in root-masses that grip the submerged turf. On the slopes grow dense pelts of what was once moss and heather and has become a deep, soft, swaying meadow, ankle-deep to waist-deep, a vegetation that combs the current and breathes visibly: you can watch the whole hillside exhale, a slow ripple passing across it like wind across grass, though there is no wind, only the water deciding to move.
+
+None of it is green in any way you could verify. In the gloom everything reads as shades of black and bruise. But here and there — sparse, scattered, never two close together — a single growth carries its own light: a pale stalk in the meadow glowing faintly blue-white from within, steady as a banked coal. The locals, when there were locals, must have had a name for these. They stand alone on the dark slopes at long intervals, like shepherds' lanterns, like markers, and the unsettling thing is that they *do* seem to mark something — they stand at fords of old streams, at saddle-points of passes, at the doorways of ruins, as if the plants found the same places people once did, or remember them.
+
+Whatever feeds this forest, it is not the sun. The growths lean, all of them, very slightly downslope and down-valley, toward the deepest tarns — toward the dense cold lenses in the valley bottoms — the way sunflowers lean toward light. Something down there is worth leaning toward.
+
+**Fauna.** None. This is the second strangeness, and the one that takes longest to notice. A drowned country this rich should swarm — fish in the meadows, things grazing the ribbon-forest. There is nothing. No flicker at the edge of vision, no movement that is not the water or the plants. No shells in the silt, no bones, no burrows. It is not that animal life died here; it is that the place reads as though animals were never part of the design. The vegetation grows unbrowsed, untorn, perfectly whole, century after century. The silence of fauna makes the plants' movement more unnerving — every stir of the meadow is just current, you tell yourself, just current.
+
+**Sound.** And yet the place is loud. Sound carries hugely and strangely in cold water, and the drowned fells are never quiet. The ice ceiling far above grinds and detonates as it shifts — long groaning chords, then a *crack* like a tree splitting, arriving from no particular direction, from every direction at once. The currents that pour over the high passes funnel and accelerate and set the ribbon-forests roaring, a deep textured rush exactly like wind in pines, so that with your eyes closed you would swear you stood in a mountain forest in a gale. Beneath it, constant, the percussion of settling scree, the slow knock of stones. And at intervals — once or twice in a day, never predictable — a single enormous low tone passes through the whole valley system, felt in the chest more than heard, as if the mountain itself had been struck once, gently, by something very large. The water shivers. The glowing stalks brighten momentarily, all together, then dim. Nobody is left to say what it is.
+
+**The built things.** People lived here before the water — high-country people, herders or pilgrims or both, working with their hands and what the mountain gave them. Their marks remain, scattered thin across the miles:
+
+Drystone shelters, round-walled, corbel-roofed, the masonry still tight after the long drowning — built without mortar, without metal tools, every stone chosen and turned by hand until it sat. The meadow-growth has climbed them now and they wear pelts of swaying dark fur, but the doorways stay clear, low black mouths facing always down-valley.
+
+Cairns along the old ridgeline paths, one every few hundred yards, marking routes that no longer need marking. Some have been re-stacked. The stones at their tops sit at angles too deliberate for collapse, balanced in ways that should not survive the currents, and do.
+
+Terraces on the south-facing slopes — long curved steps of stone retaining walls where something was once cultivated in the thin alpine soil. The ribbon-growths favor these terraces above all other ground; they rise from the old planting beds in orderly rows, taller and darker than anywhere else, as if the gardens were never abandoned, only handed over.
+
+And in one high corrie, alone, a standing circle of nine upright stones, each the height of a person, hand-shaped with stone mauls — you can still feel the peck-marks under the silt-film. Nothing grows inside the circle. The meadow stops at its perimeter as if at a wall. The water inside is noticeably stiller, noticeably colder, and the glowing stalks on the surrounding slopes all face it.
+
+**The rules of the place, as far as they can be guessed.** The water does not behave as a single body. It is layered, territorial, holding its tarns within its sea, its cold within its cold. The plants lean toward the deep places and light themselves at the old human waypoints. Sound is the dominant weather: the days have moods of grinding ice and rushing current the way other countries have rain and shine, and the vegetation responds to these moods, opening, flattening, brightening. Things settle but do not decay — the stonework, the turf, the soil all held in a long cold balance, the whole range like a body preserved in a bog, except that this body grows.
+
+Once a season — if the slow cycles here are seasons — the great low tone comes more often, the meadows release clouds of pale drifting spores that rise toward the ice like inverted snow, and for a few dim days the whole drowned country glimmers faintly from end to end, every slope and pass and terrace traced in cold light, the shape of the old high paths suddenly visible across miles of dark.
+
+Then it fades, the spores settle, the ice groans, and the fells go back to their work — whatever it is — patient, lush, and entirely alone.

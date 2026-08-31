@@ -1,0 +1,35 @@
+# The Sump-Works at Lower Drennick
+
+You come down to it the way you come down to anything old and below: by stairs that have stopped pretending to be stairs. Limestone risers worn into shallow troughs, each one cupping a finger of water that runs off into the next, so that descending feels like walking down a slow staircase-river. The air thickens as you go. By the fortieth step you are breathing something more than air — something the lungs have to learn.
+
+The cavern, when it opens, is not large. You could walk its diameter in four minutes if the ground allowed walking, which it mostly doesn't. Call it cathedral-sized, if the cathedral were a modest parish one, vaulted but not grand. The ceiling is perhaps sixty feet up and lost in a haze that is partly mist and partly the soft exhaust of the machines.
+
+The machines are the first surprise, and they remain a surprise no matter how long you stay.
+
+They are old. Brass and blackened iron and a kind of green-grey alloy that doesn't quite belong to any catalogue. They stand at intervals across the cavern floor — eight of them, or nine, depending on whether you count the half-collapsed one near the western seep as still being a machine or as having graduated to being terrain. Each is roughly the size of a small house. Each has the architecture of a pumping engine: a tall walking-beam, a flywheel, condensation chambers, governor balls hanging motionless on their arms. None of them are running fast. All of them are running.
+
+A flywheel completes a revolution roughly once every two minutes. The walking-beams nod at the pace of a person thinking through a difficult sentence. There is no chuff, no hiss, no whistle — just the long, patient *gluck* of water moving through pipes thicker than a man's thigh, and the occasional soft clank of a linkage easing into its next position. The whole works runs on the slowness of deep time. Whatever it pumps, it pumps in geological earnest.
+
+Between the engines, the floor is a marsh. Black water stands in shallow basins divided by lips of travertine that the seeping walls have laid down over centuries. The travertine has grown around the iron feet of the machines, swallowed bolts, fused pipework to bedrock — the engines are no longer installed here, they are *of* here, the cavern has accepted them the way a tree accepts a fence wire driven into it as a sapling. You cannot now tell where the engineering ends and the cave begins. A pressure gauge wears a beard of flowstone. A maintenance ladder has become a small calcite waterfall with rungs inside it.
+
+The light is low and comes from two sources. First, the lamps: oil-fed, set in cages on tall iron poles at the corners of the works, throwing a tired amber that doesn't reach the ceiling. Second — and this is where the place declares itself strange — there are the snails.
+
+They are everywhere once you see them. Palm-sized, shell the colour of wet slate, and along the lip of each shell a band of bioluminescent tissue that glows a steady pale green. They cluster on the warm flanks of the engines, hundreds to a machine, drawn to the residual heat of the slow pistons. They graze on the films of algae and bacterial mat that grow on the brass. The engines, in turn, seem to need them — or at least, the snails have become part of the works' maintenance, polishing the metal as they feed, their slime trails inhibiting the corrosion that the wet air would otherwise complete in a season. No one tends the engines now. The snails tend them. The engines warm the snails. The arrangement has held, by the look of the calcite, for a very long time.
+
+Other fauna: blind pale newts in the standing water, fingerlength, drifting between the basins with the unhurried air of creatures that have nowhere to be. A kind of cave cricket, large and soft, that doesn't sing but produces instead a slow ticking sound when it moves — you hear them more than you see them. Bats, but only a few, and they hang in the upper haze without flying; they appear to be asleep, or to have decided not to bother. On one of the flywheel hubs, a colony of small white crabs has taken up residence in a maintenance hatch, and they ride the slow rotation around and around, up and over and down again, eating whatever the snails miss. There is enough fauna in this room that, if you stand still long enough, you understand that you are the loudest thing in it, and the only one in any hurry.
+
+Vegetation is sparse and strange. A few tussocks of a thin, etiolated reed growing where the lamp-light is strongest. Mats of liverwort on the wetter walls. And, growing out of the brickwork of the central engine's firebox — long abandoned, no fire in it for who knows how long — a single stand of pale mushrooms, tall as a child, their caps the soft yellow of old paper. They lean toward the walking-beam as it nods, and lean back as it rises, in a rhythm so slow you have to watch for a full minute to be sure of it.
+
+The rules of the place, as best as can be inferred:
+
+The engines pump water from somewhere below to somewhere else below. Not up — there is no outlet to the surface here. The pipes leave the cavern through the floor and through the lower walls. Whatever circulation they maintain, it is internal to the underworld. Perhaps they keep a deeper chamber from flooding. Perhaps they move water from a colder reservoir to a warmer one, or the reverse, smoothing some temperature against some other temperature in a balance struck so long ago that the original engineers would no longer recognize their own solution.
+
+No one comes here. There is no sign of recent footprint, no fresh oil, no maintenance log. And yet the works run. They have found their own equilibrium — the snails clean the metal, the seeping water replenishes whatever the engines lose, the slow heat keeps the snails alive, the snails' light is enough for the newts to navigate by, the newts keep the basins clear of the larvae that would otherwise foul the intakes. A whole industrial ecology, mechanized and biological at once, ticking over at the pace of a sleeping animal's breath.
+
+You can stand in the middle of it for an hour and witness perhaps three discrete events: a snail falls from a piston into the water below with a small *plip*; one of the engines, for no reason you can identify, gives a single louder clank and resumes its quiet; a bat, somewhere overhead, sighs.
+
+Then the next hour. Then the next.
+
+Eventually you understand that the place is not waiting for anything. It is not a ruin — ruins are things that have stopped. This has not stopped. It is simply running at a tempo that has no use for you. You can leave or stay; the difference, to the works, is the difference between one snail and another.
+
+When you climb back up the limestone stairs, your clothes will be heavier than when you came down, and you will find that you have not spoken in some hours, and that this seems, on reflection, correct.

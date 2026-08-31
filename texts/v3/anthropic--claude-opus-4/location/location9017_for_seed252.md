@@ -1,0 +1,23 @@
+The Birthing Gyre
+
+You descend through layers of brilliance. The water here is not water as you know it—it's a superheated solution thick with mineral suspensions, glowing from within like liquid glass. The pressure should crush you, but something about this place operates on different physics. Light doesn't diminish with depth; instead it intensifies, radiating from vast thermal plumes that spiral upward for kilometers like inverted tornadoes of molten crystal.
+
+This is a world still learning what it wants to become.
+
+The seafloor—if you can call it that—writhes. Mountain ranges push up from the abyssal plain only to dissolve back into sediment within hours. Volcanic ridges birth themselves in chains of white-hot eruptions, sending shock waves through the dense medium that sound like planetary heartbeats. The cacophony is overwhelming: grinding stone, shrieking metal-on-metal as tectonic plates scrape past each other at visible speeds, the boom and hiss of steam explosions when pockets of different-temperature liquids collide.
+
+Strange chemistries bloom in the turbulence. Where cold currents meet the superheated upwellings, minerals precipitate out in geometric cascades—not the slow accumulation of ages but rapid crystallization you can watch happening. Towers of sulfur and salt grow like time-lapse footage, reaching heights of hundreds of meters before toppling under their own weight or dissolving back into the roiling solution. The fragments don't settle; they're caught in the perpetual churn, ground down and recycled into new formations.
+
+The few living things here seem more like industrial processes than organisms. Ribbon-like entities hundreds of meters long undulate through the brightest zones, their translucent bodies acting as living chemical reactors. They ingest the mineral-rich water at one end and excrete purified compounds at the other—biological factories running on geothermal energy. Smaller creatures, if you can call them that, appear to be self-assembling colonies of metallic particles that swarm briefly into complex patterns before dispersing. Are they alive? Are they machines? In this place, the distinction blurs.
+
+The sparsest vegetation clings to temporary surfaces—not plants but bacterial mats that flash into existence wherever the geology pauses long enough. They spread like oil slicks, iridescent purples and golds, racing to colonize new rock before it's swallowed again. Some have learned to surf the chaos, riding chunks of dissolving stone from one thermal vent to another, always seeking the sweet spot between too hot and too cold.
+
+Above it all, or through it all, move the density layers. The water here isn't uniform—different temperatures, different mineral contents create distinct strata that slide past each other like atmospheric fronts. Where they shear, the friction generates electricity. Lightning flashes through the liquid medium in sheets and forks, adding a stroboscopic quality to the already blazing illumination. The thunder it creates doesn't crack—it groans and warbles, distorted by the density of its medium.
+
+This is planetogenesis in real-time. Not the patient accumulation of eons but a hyperdrive version, creation at industrial scale and industrial violence. The entire ocean is a forge, and what's being forged is the very ground beneath it. Continental plates assemble themselves from aggregating mineral deposits, compress under their own weight, crack apart, and begin again. The process generates its own weather systems—currents of different densities creating underwater storms, complete with vortices that could swallow cities.
+
+You realize this place has no horizon, no surface, no sky. It's a universe of liquid light and grinding stone, vast enough that its far reaches operate under different conditions entirely. In the distance—though distance means something strange here—you can see regions where the process has stabilized slightly, where proto-continents have managed to persist for days or weeks. But even these are temporary. The gyre consumes everything eventually, breaks it down, rebuilds it.
+
+The sound builds to something beyond sound—a vibration you feel in your bones, in the water itself. Another surge is coming. The seafloor beneath you begins to buckle and rise. New mountains are being born, and you're standing at ground zero of their emergence. The light intensifies until it's painful, until everything is white fire and crushing pressure and the scream of planet-scale machinery grinding out new geography.
+
+This is how worlds begin: not in silence and darkness, but in brilliant violence, in the marriage of water and fire, in the endless industrial churn of creation itself.

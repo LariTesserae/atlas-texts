@@ -1,0 +1,13 @@
+In the absolute, velvet-thick dark of a high-altitude crevice, there exists a pocket of reality no larger than a burial chamber. It is a place of static, humid pressure, a subterranean lung that has held its breath since the dawn of the world.
+
+The atmosphere here is not merely damp; it is heavy with liquid spirit. Moisture does not fall; it simply *is*, clinging in oversized, gelatinous beads to the faces of raw, unformed stones. These rocks are embryonic—shining, translucent, and smooth as organ tissue. They have not yet suffered the indignity of erosion, nor have they sharp edges or granular history. They are architectural, bulging and soft, looking less like geology and more like muscles waiting for a skeletal frame that will never arrive.
+
+Because the light is nonexistent, the sense of touch becomes the primary map. Warmth radiates from the porous stone, a steady, blood-heat temperature that suggests the earth beneath is alive, though it remains perfectly, stubbornly still. The air is so saturated with condensation that breathing feels like drinking; there is no gradient, no wind to stir the heavy, silver-slicked air. Time has no currency here. The beads of water hanging from the ceiling have been suspended for eons, defying gravity in a state of frozen-equilibrium.
+
+Across the floor of this narrow, enclosed room, a meager, sprawling moss—sparse, pale, and bioluminescent in a way that suggests chemical reaction rather than organic growth—clings to the wet surfaces. It does not grow; it exists as a fixed pattern, like lace pinned to the rock.
+
+In the center of this tight, intimate space lies a single artifact: a tool carved from a singular, dense knot of wood, bound with a length of braided, rotting fiber. It is a primitive thing, a scraper or a stylus, left behind by a hand that stopped moving before the first layer of condensation could settle. It is half-submerged in a persistent, shallow pool of water that never ripples, never evaporates, and never dries.
+
+The density of this place is overwhelming. Despite its tiny volume, the air feels crowded, heavy with the weight of unseen presence. There are no creatures here, yet you feel watched by the walls themselves, which possess the soft, yielding texture of skin. The sound is an absolute, suffocating silence, punctuated only by the occasional *click* of a water droplet hitting the floor—a sound that is impossibly loud in the dead dark, but which leaves no echo. 
+
+Everything here is a final draft, a work that ceased just before completion. It is a place of warm, wet permanence, where the world is hidden, held in a dark palm, waiting for a clock to start that will never tick.

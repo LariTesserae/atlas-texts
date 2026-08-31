@@ -1,0 +1,21 @@
+# The Hive Beneath
+
+Deep below the surface of what was once a mountain, the Forge Chamber endures—a vast cathedral-like cavern where the rock itself has been carved into smooth, gleaming facets. In the near-total darkness, only the reflected glow of magma channels illuminates the space, casting long shadows across the polished obsidian floor. The heat is crushing, oppressive, a physical presence that pushes against the skin and desiccates the lungs with each breath.
+
+This realm has never known water. The atmosphere is thick with fine mineral dust and the acrid tang of metal oxides. Any moisture that might have existed was baked away eons ago, leaving only heat-fractured stone and veins of ore that run like frozen lightning through the chamber walls.
+
+The Forge Chamber is sparse in its construction but immaculate in its purpose. Stretching perhaps three hundred meters across, it contains carefully positioned workstations—each a constellation of gleaming brass mechanisms, pistons, and clockwork assemblies that have operated without interruption for centuries. Between these industrial islands lies empty space, the barren floor inscribed with geometric patterns that serve as pathways and instruction manuals both.
+
+And through this mechanical landscape moves the Chamber's true purpose: the Coleoptera. Beetle-like creatures the size of large dogs, their carapaces a midnight blue so deep they appear black except where the magma light catches their edges. Their bodies are partly organic, partly mechanical—exoskeletons augmented with brass fixtures, tiny gears visible through transparent sections of their thoraxes. Their movements create a constant background noise—the clicking of thousands of chitin legs against stone, the whirring of internal mechanisms, the occasional hiss of steam from their spiracles.
+
+The Coleoptera are everywhere, their numbers overwhelming as they attend to the machines. Some carry raw materials extracted from deeper tunnels, others operate the mechanisms with precise movements of specialized limbs, still others maintain their fellow workers—replacing damaged parts with mechanical precision. Their eyes glow a dull amber, providing the only illumination besides the distant magma channels.
+
+What makes this place truly strange is not its existence, but its perfect stasis. The temperature never varies by a fraction of a degree. The machines never slow or accelerate. The Coleoptera never reproduce or die—they simply exist in a perpetual present, performing functions established in some unremembered past. The entire chamber exists in perfect equilibrium, a slice of industrial eternity carved from the living rock.
+
+Sound reverberates oddly here—the constant industrial clamor of the machines combines with the chitinous clicking of the beetles to create a wall of noise that somehow remains precisely the same volume at all times. It's as if the very acoustics of the chamber were designed to maintain this exact decibel level—loud enough to feel in your bones, but never louder.
+
+No vegetation grows here—no life as we would recognize it except for the Coleoptera themselves, and even they exist in a liminal space between organism and machine. The walls occasionally display curious formations—crystalline structures that might be mistaken for mineral growth but reveal themselves, upon closer inspection, to be repositories of information, their lattices encoding instructions that the Coleoptera sometimes pause to read with delicate antennae.
+
+This place was not built; it was grown or perhaps excavated from something larger. The few straight lines visible are mathematical in their precision, but most surfaces curve organically, as if the entire chamber were carved from the inside of some massive geode. The technology here is both recognizable and alien—gears and pistons operate alongside mechanisms that seem to manipulate forces with no moving parts.
+
+The Forge Chamber simply is. It has always been thus, and will remain unchanged until the last heat of this world dissipates into the void—a perfect mechanical ecosystem, operating to inscrutable purpose, beyond the reach of time itself.

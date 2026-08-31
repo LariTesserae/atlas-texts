@@ -1,0 +1,23 @@
+The Hollowed Mills
+
+Steam rises in lazy columns from the flooded districts, where the old industrial quarter has slowly surrendered to water. The settlement sprawls across a shallow basin, its red-brick factories and worker tenements built on what was once fertile bottomland. Over decades, the combination of industrial runoff, seasonal flooding, and the gradual subsidence of over-mined earth has transformed this into something between city and wetland.
+
+The air hangs thick and humid, heavy with the smell of warm water and rust. Temperature hovers perpetually in that oppressive range where sweat never quite dries, where metal grows too hot to touch comfortably in the afternoon sun. The heat radiates up from dark water pooled in abandoned lots, from the miles of brick and concrete that store the sun's energy and release it slowly through the night.
+
+Most of the buildings still stand, their foundations disappearing into murky water that reflects the overcast sky. The water level varies—sometimes knee-deep, sometimes barely covering the old sidewalks, sometimes rising to first-floor windows during the heavy rains that come with seasonal regularity. Pumping stations labor constantly, their rhythmic mechanical heartbeat one of the few sounds that carries across the vast, echoing spaces between structures.
+
+The architecture tells the story of industrial ambition slowly claimed by nature's persistence. Massive textile mills stretch block after block, their broken windows dark as dead eyes. Smokestacks rise like monument pillars, though most no longer smoke. The machinery within has long since seized with rust, but the bones of industry remain—the overhead cranes, the transmission shafts, the great gear assemblies that once drove looms and spindles now serve as roosts and nesting grounds.
+
+For this is where the fauna has made its unexpected kingdom. In the absence of vegetation—the soil too contaminated, the water too variable, the concrete too pervasive—something else has thrived. The abandoned factories pulse with life, but not the life that built them.
+
+Bats emerge each evening in numbers that darken the sky, pouring from the broken mill windows in ribbons that undulate across the water-streets. They've claimed the upper floors entirely, their colonies numbering in the hundreds of thousands. The sound of their wings is like distant applause, the only thing that occasionally breaks the prevailing quiet.
+
+Below, in the flooded basements and half-submerged ground floors, other creatures have adapted. Schools of carp and catfish navigate the drowned machinery, their movements creating subtle wakes in the still water. Rats have learned to swim between buildings, creating an aquatic highway system along the old streetcar lines. Water birds—herons, egrets, cormorants—have discovered that the industrial ruins provide perfect hunting grounds and nesting sites among the girders and catwalks.
+
+The most striking inhabitants are the feral dog packs that have learned to navigate this drowned world. They've claimed the upper floors of the sturdier buildings, moving between them via collapsed walkways and jury-rigged bridges. Their hunting calls echo at dawn and dusk across the water, the only voices in this place that was once full of human noise.
+
+The light here has a particular quality—filtered through the perpetual haze of evaporation, diffused by the overcast sky that seems permanently settled over the basin. Shadows are soft-edged, and the water acts as a second sky, doubling every image in wavering reflections. The red brick glows dully in this muted illumination, and the dark water holds depths that seem infinite despite being only a few feet deep.
+
+Everything moves in slow cycles here. The water rises and falls with the seasons and storms. The animal populations ebb and flow with food sources and breeding cycles. Even the buildings continue their gradual transformation—walls crumbling brick by brick into the water, metal slowly oxidizing into delicate orange blooms, concrete cracking along predictable lines as freeze-thaw cycles work their patient magic.
+
+The pumping stations mark time like metronomes, their diesel engines coughing to life several times a day to push back against the water's constant pressure. Steam rises. Rain falls. The animals hunt and nest and raise their young in the bones of human ambition, creating something neither wild nor tame, neither natural nor entirely artificial—a place where industry has become ecology, where abandonment has become abundance.

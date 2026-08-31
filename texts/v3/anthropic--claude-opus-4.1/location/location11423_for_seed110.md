@@ -1,0 +1,23 @@
+## The Seep Chamber
+
+Deep within the mountain's unfinished heart, where the stone has not yet learned what it will become, there is a cavity no larger than a shepherd's hut. The rock here sweats continuously—not from heat, though the air hangs warm and thick as wool, but from some geological adolescence, some process of becoming that beads the walls with mineral tears that never quite fall.
+
+The chamber exists in perpetual darkness, yet darkness here has texture. The wet stone exhales a faint phosphorescence that dies before it can be called light—a suggestion of green that vanishes when looked upon directly. Your eyes strain and invent colors that aren't there: bruised purples, submarine blues, the ghost of ochre where iron bleeds through virgin rock.
+
+Everything here is too close. The ceiling presses down though it doesn't move; the walls lean in though they're solid. The space is dense with presence—not of living things but of potential, of stone deciding its crystalline structure, of water choosing its channels. Droplets hover in the thick air, neither falling nor rising, suspended in a humidity so complete it feels like breathing through wet silk. Each breath tastes of copper and chalk, of minerals not yet named.
+
+Beneath your feet, if you've found this place at all, the floor is neither solid nor liquid but something between—a yielding carpet of protoclay, warm as blood, that receives footprints then slowly forgets them. Embedded in this nascent floor are fragments of worked stone: a piece of carved obsidian whose edges still weep volcanic glass, the broken handle of what might have been a scraping tool, its wood gone soft and black but somehow not rotted. These artifacts seem less abandoned than unborn, as if someone tried to build here before the mountain was ready.
+
+The sparse vegetation exists as aftermath—pale rootlets that penetrate the ceiling but die before they can leaf, their white threads hanging like the mountain's own nervous system exposed. Occasional patches of cave moss glow with their own fever, too thin to be called growth, more like the idea of moss waiting to remember how to spread. A single fern has found purchase in a crack, but it grows transparent, its fronds like glass, like it's forgotten the sun exists.
+
+Water is everywhere and nowhere. It doesn't flow—there are no streams, no pools—but it permeates everything. It climbs up the walls in defiance of logic, it hangs in the air as mist that never settles, it seeps from stone that should be dry. Sometimes you hear it inside the rock itself, moving through passages too small for light, following laws that haven't been written yet.
+
+The fauna here are accidents. A salamander, pellucid as the fern, presses itself into a crevice and breathes once an hour. Blind beetles move in slow spirals across the ceiling, their shells soft and unfinished, like they're still deciding whether to exist. Once, something larger shifts in the furthest corner—a sound like wet leather dragging over stone—but when you turn there's only a depression in the clay, already filling with seepage.
+
+Sound barely exists here. The constant weeping of the walls creates a white noise so uniform it becomes silence. Your own movements seem muffled, as if the dense air swallows vibration before it can echo. Sometimes there's a deep groaning from somewhere below or above or within—the mountain settling into itself, learning its shape—but these sounds feel geological rather than immediate, like listening to the earth's own growing pains.
+
+This is not a place that changes, yet it's never the same. The configuration holds steady—the same cavity, the same seeping walls, the same thick air—but details shift when you're not looking. The obsidian fragment is always there but never in the same spot. The pale fern faces different directions. The clay floor holds no memory of previous visits, yet sometimes you find footprints that aren't yours, already half-erased, leading nowhere.
+
+The chamber feels like a wound that won't heal, or perhaps like a womb that won't birth. It's a place caught in the moment before becoming, where the mountain's fever dreams take physical form. Time moves differently here—not faster or slower, but sideways, recursive. You could stay for hours or days and emerge to find only minutes have passed, or venture in for a moment and lose weeks.
+
+This is where the earth practices creation, where stone learns to be stone, where water remembers how to flow. It's a rehearsal space for geology, a rough draft of caverns to come, a place that exists in the subjunctive mood—not what is, but what might be, if the mountain ever decides to finish what it's started.

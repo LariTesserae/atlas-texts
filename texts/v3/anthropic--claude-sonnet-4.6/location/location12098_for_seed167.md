@@ -1,0 +1,53 @@
+# The Drowned City at the Warm Shelf
+
+---
+
+The water here is not cold. That is the first thing, and it matters more than almost anything else. Cold deep water has a particular logic — pressure and darkness conspiring together, life compressing itself into something minimal and bioluminescent and strange. But this water is warm, residually warm, the warmth of a shallow tropical sea that was overtaken slowly enough that the heat stayed in the stone. You feel it as a kind of weight against the skin, a pressure that is not quite pressure, more like the attention of something large and patient.
+
+The depth is not extreme. Perhaps thirty meters here, perhaps forty further out, and the bottom is never quite unreachable in the imagination. You are not in the abyss. You are in the middle register, where some ambient light should filter down from above — but it doesn't, not really, not tonight or whatever this is, whatever this time is called when the sky above the surface carries only a thin diffusion of cloud and no moon and the water itself absorbs what little there might have been. So: near-dark. Not absolute. There is a faint, sourceless blue-grey quality to the visibility, the way a room looks when your eyes have been adjusting for a very long time and you begin to suspect you may be seeing with something other than rods and cones. Objects become available at close range. At middle distance they are suggestions. Beyond that: gradients.
+
+---
+
+The city is old in the way that matters — not dated precisely, not interesting as archaeology, but *settled*. It has been under here long enough to have stopped grieving itself, long enough to have become something else. The buildings do not look ruined, exactly. They look inhabited by the rules of this world instead of the rules of the world that built them.
+
+The structures are low. This was not a city of towers. The highest remaining walls reach perhaps four or five meters, and most of what is left rises only to two or three — the height of a ground floor, of a room still remembering its ceiling. The material is some pale, dense stone, limestone or something close to it, and the water has done to it what warm water does over long years: softened all the angles, left the surfaces with a faint scalloping, a texture like the inside of a shell. Corners that were once crisp are now radiused. Thresholds that were once vertical are now slightly curved, slightly concave, as though the doorways are slowly opening their mouths.
+
+The streets — or what serve as streets, which are really just the voids between structures, the negative space of construction — run in patterns that feel deliberate without being perfectly rectilinear. They curve gently. They widen and narrow. There is a logic to the layout but it is not a modern logic; it is more like the logic of a conversation that happened over centuries, each block added when the previous one was already old, accommodating what existed rather than imposing a plan. Navigating through the city, you follow the space rather than a direction, and the space leads you in gentle arcs.
+
+---
+
+Vegetation is sparse here, and that sparseness feels considered, like a desert's sparseness — not absence but selection.
+
+The stone is not bare. A thin, close-cropped turf of algae covers most horizontal surfaces, brownish-green where some faint light reaches, paler and almost cream-colored in the deeper shadow between walls. It does not wave or sway; it simply *adheres*, following every contour, filling every small pit and groove. It makes the surfaces look velvety in the dim. Running a hand across a wall would feel — one imagines — like running it across a cat that has been very still.
+
+Here and there, in crevices where the stone has cracked or where a wall has partially collapsed and left a gap with some grit accumulated in it, there are larger growths: a few stalks of something tube-like and pale, reaching thirty or forty centimeters without branching, capped with a small crown of feeding filaments. They are distributed without apparent pattern, one here, three close together there, a single isolated one in the middle of what might have been a courtyard. They move very slightly — a shift, a recovery, a shift — responding to slow currents that are too subtle to detect any other way.
+
+In one place, in the protected interior corner where two walls still meet at full height, a mat of soft coral has established itself on the stone, low and encrusting, spreading perhaps two meters across. It is the color of old terracotta in the dimness — which means it is probably something vivid in light, something orange or deep red, but here it reads as warm amber-brown. Small fish shelter near it, briefly visible and then not.
+
+---
+
+The fauna is the density here. That is what makes the city feel full rather than empty despite the darkness and the silence.
+
+They move in the walls. Not metaphorically — there are creatures living in every crevice, under every overhang, in every gap where stone meets stone imperfectly. Urchins have wedged themselves into horizontal cracks, their spines extending outward in patient radiating stars. Mollusks of various sizes occupy the lower registers of every surface, some closed, some with their soft parts barely extended. Snapping shrimp work in the gaps; you hear them, occasionally, as a faint irregular tick, like the sound of someone adjusting the position of a book on a shelf in a room two floors above you. It is one of the few sounds. The city is not silent but it is quiet, and the sounds that reach you are close and specific rather than ambient.
+
+Fish move through the streets in small, loosely organized groups — not schools exactly, more like the way pedestrians on a familiar street share direction without coordinating. They are mid-sized for the most part, flattened somewhat, moving with the slightly bored efficiency of animals that know this territory well. They pass through doorways. They navigate corners. They use the architecture the way the architecture was presumably once used, which gives the passage of fish through a former doorway a quality that is not quite eerie and not quite funny but somewhere between them — a recognition without the referent, a grammar without the language.
+
+Larger shapes occupy the greater depths of the open spaces between building clusters. Something moves out there with the patience of something large. It does not approach. It does not flee. It maintains its distance with the casual ease of a creature that does not need to do either, that has simply assessed the situation and found no reason to revise its position.
+
+Octopuses are present here — at least three are visible at any given time if you know how to look, which requires learning that you are not looking for a shape but for an inconsistency, a texture that doesn't quite match its surroundings, a shadow that falls slightly wrong. They are very still. One has settled into the threshold of a collapsed doorway and become, for all purposes, part of the threshold. Another is draped across the top of a low wall, flat and relaxed, one arm trailing down each side. They are alert but undemonstrative. Everything that moves near them is catalogued and considered; the catalogue is not shared.
+
+---
+
+The current is slow but present. It moves in a general direction that is not quite consistent — the layout of the city interferes with it, creates small eddies behind projecting walls, channels it through narrow passages where it picks up speed briefly before spreading out again into the open space of former plazas. The effect is that water moves differently in different parts of the city, which means that small particulate matter — sediment, organic material, the faint suspended life of a warm sea — is distributed unevenly. Some corners are always a little clearer. Some passages have a constant gentle drift that makes the algal filaments lean in one direction.
+
+The sediment on the floors is fine and pale. It has settled over a long time and compacted somewhat but it is not rock; it shifts if disturbed, billowing up softly and then descending again over minutes. Old disturbances have already settled. Everything here exists in a slow dynamic equilibrium, the city and the sea having arrived at a set of arrangements that accommodate each other, that have been tested by time and found workable. A wall that was going to fall has fallen. The rubble from it has been colonized and has become part of the floor. The gap where the wall was has become part of the street. The street has been adopted by a particular species of wrasse that likes open sandy corridors with cover nearby, and the wrasse have been adopted by the city.
+
+---
+
+There is warmth in the stone that exceeds the warmth of the water slightly — ghost warmth, the last retention of a different climate, something the limestone absorbed over centuries of sun that it is slowly, slowly releasing. It gives the city, when you press a hand to a wall, a quality that should not be there: almost bodily. Almost interior.
+
+The darkness is not hostile. This is important. It is not the darkness of deprivation or threat; it is the darkness of *completion*, of a place that has found its light level and settled into it. The fauna here have eyes suited to this — larger, in some cases, or distributed differently, or supplemented by other senses. The navigation happening around you is not impaired navigation. It is the right navigation for this place, the navigation this place selects for.
+
+Above, somewhere, is the surface. The sky. Presumably something like weather, though from here it arrives only as a slow rise or fall of the current's energy, a slight turbidity when storms move through overhead — evidence rather than experience. The city existed under that sky once. Now it exists under this water, and the water has become its sky, and the city does not seem to miss the other thing. It has been doing this for a very long time.
+
+The sounds, again: a tick of a snapping shrimp. The low, almost subsonic frequency of a large fish passing nearby, felt in the chest more than heard. A faint grinding, somewhere, of something being worked — some creature rasping at stone with a radula, slow and methodical, making an inscription that will not be read. The soft percussion of loose rubble settling, fractionally, into a slightly lower position. Then quiet, the dense organic quiet of water full of living things, all of them making their adjustments in near-silence, conducting the city's ongoing business in the warm, patient dark.

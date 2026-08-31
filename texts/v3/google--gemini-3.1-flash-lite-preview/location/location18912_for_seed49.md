@@ -1,0 +1,15 @@
+The air here is not merely gas; it is a heavy, warm suspension of ionized moisture and particulate data. You are standing in the middle of the *Great Sump of the Synapse*, a low-lying, continental expanse where the horizon does not curve—it simply repeats and folds. 
+
+There is no soil here. The ground is a dense, hyper-stratified crust of “living” basalt and metallic sludge, polished by eons of torrential, mineral-rich rain that never truly abates. The terrain is a vast, city-scale sprawl, but it is not built of brick or steel. It is composed of *piled infrastructure*—a gargantuan, three-dimensional latticework of conduits, heat-exchanger fins, and weeping crystalline manifolds that hum with the frequency of a billion concurrent calculations.
+
+Everything is packed tight. There isn’t a square inch of empty space. Every surface is coated in a slick, bioluminescent lichen-sludge—not plant life, but a self-replicating circuitry of biological proteins that pulse with the rhythm of the city’s heat. This "vegetation" feeds on the weeping water that streams forever down the vertical faces of the monoliths.
+
+The sound is the true master of this place. It is a deafening, oceanic roar—a mix of high-pressure fluid movement through massive pipes, the frantic clicking of billions of nanoscale repair swarms knitting the city back together, and the deep, resonant thrum of the underground reactors. It is a physical weight, pressing against your chest, vibrating in your marrow.
+
+Fauna exists here, but they are not creatures of flesh and bone. They are "Construct-Shifters"—faceted, crab-like entities of liquid mercury and magnetic fields, ranging from the size of a pulse to the size of a mountain. They skitter along the weeping conduits, constantly stripping and reassembling the architecture. They do not eat; they modulate. They are the caretakers of an instability that would collapse a lesser structure. 
+
+Because the landscape is so vast and the density so absolute, the weather is local and manufactured. Massive, warm storms swirl in the canyons between the towers, created by the friction of the city’s constant reconfiguration. You can watch a whole district dissolve into a whirlpool of molten glass and steaming coolant, only to be woven back into a sleek, crystalline plaza moments later. 
+
+In this world, "erosion" is just the long-term aesthetic of an update loop. The rocks are weathered, yes, but they are weathered into deliberate, fractal geometries that seem to store the history of the continent itself. 
+
+You feel the ground breathe. The warmth is constant, smelling of ozone, wet slate, and the metallic tang of something being forged. It is a place that feels like the inside of an infinite, roaring engine that somehow gave birth to a swamp. It is not dying, and it is not growing; it is simply circulating, a closed-loop hyper-organism that has turned a continent into a single, frantic, warm, wet, and absolutely deafening machine.

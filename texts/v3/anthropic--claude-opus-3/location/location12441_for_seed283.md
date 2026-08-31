@@ -1,0 +1,11 @@
+In the sweltering darkness, a dense jungle thrums with life. The heavy air is thick with humidity, yet there is little standing water to be found amidst the tightly packed vegetation. Instead, moisture lingers as condensation on waxy leaves and beads of sweat on glistening skin.
+
+Towering trees form a dense canopy overhead, their broad leaves and tangled branches knitted together into an almost impenetrable roof. Shafts of dim light barely filter through rare gaps, dappling the undergrowth in a perpetual twilight. The forest floor is a labyrinth of sprawling roots, fallen trunks, and lush ferns that have never known direct sunlight.
+
+In this oppressive heat, the jungle seems to pulse with its own primeval rhythm. The sounds of life are everywhere - the incessant buzz of insects, the distant calls of birds and primates, the occasional snap of a twig under a heavy foot. Yet somehow the cacophony melds into a muted background hum, as if even sound itself is stifled by the oppressive closeness.
+
+Amidst the timeless trees, relics of abandoned industry haunt the shadows. Rusted hulks of ancient machines loom in small clearings, their purpose long forgotten. Crumbling foundations of vine-choked buildings hint at a failed attempt to tame this wilderness. Now the jungle has reclaimed these decaying artifacts, moss and creepers slowly erasing all traces of civilization.
+
+The creatures here have adapted to thrive in the cloying atmosphere and perpetual gloom. Iridescent insects shimmer in what little light penetrates the canopy. Jewel-bright birds flit through the branches on silent wings. Sleek predators with luminous eyes prowl the undergrowth, while scaly things slither in the damp mulch. Life teems in every crevice, ruthlessly exploiting every niche in the struggle to survive.
+
+Change comes slowly to this place. The cycles of growth and decay are measured in centuries, the jungle's primordial rhythms ponderously churning through the ages. As it was long before the first hapless settlers came with their machines, so shall it remain long after the last traces of their presence have crumbled to dust under the timeless trees.

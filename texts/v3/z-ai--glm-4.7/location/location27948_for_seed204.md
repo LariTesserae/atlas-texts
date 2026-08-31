@@ -1,0 +1,21 @@
+The air tastes like iron and cold stone. It is a biting, crystalline cold that seems to originate not from the wind, but from the surfaces themselves—the floor, the walls, the sparse, jagged structures that rise up like a silent forest.
+
+You are standing in a high, enclosed cavern, but the scale of it deceives the eye. It feels vast, yet intimate; a "pocket-world" contained within a single, massive architectural volume. The ceiling is vaulted, lost in a soft, haze-free illumination that mimics a noon sky without ever showing a sun. This light is flat and shadowless, rendering the distance difficult to judge.
+
+The ground underfoot is uneven, composed of fractured basalt slabs fitted together with impossible precision. The landscape here is raw and young—there is no soil, no dust, and certainly no padding of moss or grass. The vegetation parameter reads near zero, and the place confirms it: this is a mineral world. There is no green, no brown rot, nothing organic. The only color comes from the stone itself—shades of slate, charcoal, and a wet, glistening black that sucks in the light.
+
+The defining feature of this place is the dampness. With a water reading of 1.7, the environment is perpetually weeping. The cold air is saturated with moisture, hovering just at the dew point. Everywhere you look, water is condensing on the vertical surfaces. The towering structures—monoliths of dark, un-weathered glass and composite stone—sweat profusely. Beads of water coalesce, merge, and begin their long descent down the sheer, vertical faces.
+
+These structures are the "city," though it looks nothing like a home for people. It is an urban landscape stripped of biology and comfort. The towers are razor-sharp, their edges pristine, untouched by wind or sand (Erosion 1.1). They rise like obsidian shards from the rocky floor, sparse and widely spaced, leaving vast, empty arenas of open stone between them. There are no windows, no doors, no streetlights; just the smooth, wet geometry of the facades.
+
+It is incredibly quiet (Sound 0.6). The silence is heavy, broken only by the irregular rhythm of the water. A single drop forms at the tip of a spire hundreds of feet above, detaches, and falls. It takes seconds to strike the ground, a sharp *plink* that echoes briefly against the glass. Then, a soft *hiss* as the runoff channels into the invisible seams of the floor.
+
+Despite the silence, the place is active (Dynamic 2.4). The water cycle here is frantic, compressed. The humidity condenses on the cold towers, runs down, and is immediately sucked into vents or pores in the ground, recycled, and re-emitted as vapor from hidden grates. You can see the mist swirling near the floor, the breath of the world. Occasionally, a thin sheen of ice forms on the windward side of a tower, stays for a minute, and then rapidly sublimates or shatters under its own weight, the shards tinkling musically as they fall.
+
+This is a high-altitude cryo-mechanism, perhaps a cooling station for a technology that defies modern physics (Tech 2.7). The "city" isn't housing; it is a heat-exchanger forest. The strange engineering is evident in the materials—they do not corrode, and the water runs off them without leaving a mark, defying surface tension.
+
+Life is rare (Fauna 0.6). You might catch a glimpse of something moving in the periphery—small, metallic, insectoid shapes that scuttle along the base of the towers. They are not biological animals, but maintenance drones, harvesting the condensation or checking the structural integrity of the stone. They move without sound, efficient and ignored by the landscape.
+
+There is a profound sense of isolation here. It is a room that contains a mountain range, a constructed wilderness kept in a state of perpetual, freezing wetness. It feels like the interior of a machine that has been running for a thousand years, maintaining a perfect, sterile equilibrium, waiting for a purpose that has long since been forgotten.
+
+You take a breath, and the cold air hurts your lungs. The water weeps from the black glass above, counting the seconds in a language only the machine understands. It is beautiful in its austerity, a terrifyingly clean testament to a world that chose geometry over biology.

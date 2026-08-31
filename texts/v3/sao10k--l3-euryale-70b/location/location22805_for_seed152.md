@@ -1,0 +1,7 @@
+In this strange corner of the world, an embryonic river system slowly cuts through a half-formed landscape. Trickles of water, seeping from the ground, gather into a narrow cleft carved through the aquiring land. Along its banks, a handful of spreading trees have taken root, their smooth bark gleaning in the low light of this environs. Vibrant moss and lichens carpet the shaded slopes in viridescent swirls.
+
+The air is heavy with humidity, the air thick with the musk of evolving soil. Bioluminescent fungi in the gloom light the cleft with winking patches of foxfire. The little river gurgles along haphazardly shelving sides, its source and terminus not-yet determined. Root-rhizomes and sprouting water plants dimple the surface of glazed, motionless pools. 
+
+The mottled sounds of churring, scurrying, and skittering echo as uncounted tiny insects and animals make their homes along the rivulets's boulder-way, unperturbed by the dirgelight that fails to pierce very deep. Viney creepers twine up the boles of the seedlings, racheting into mats of waxy leaves. 
+
+Higher than has yet turned to forest, here all is a focal point — ecosystem in beginning, plant-animal-stone in earliest phase of elmentary symbiosis. The 'envelop'ing light closing it in protects it in its contitution, as the land unfolds around its first river-artery. Ozone and minerals tinge the petrichor pooled atmosphere as the water cycles over its bed...

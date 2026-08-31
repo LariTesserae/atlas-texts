@@ -1,0 +1,15 @@
+This is the Gutter-City of Ool, a vast, low-lying basin where the architecture is not built of brick or steel, but of accumulation. It is a place of perpetual, tepid saturation. 
+
+There is no vegetation here; the ground is entirely composed of calcified silt, smooth, dark, volcanic-glass shards, and the dense, waxy secretions of the millions of mollusk-like creatures that carpet every surface. The terrain is an embryonic, sprawling urban sprawl that appears to have grown rather than been constructed—a dense, low-slung labyrinth of clay-slicked tunnels, half-domes, and spiraling buttresses, all glistening with the same viscous, warm condensation.
+
+The atmosphere is heavy, thick with a perpetual, self-replicating mist that clings to the skin. Because it never rains, yet everything is constantly wet, the moisture seems to be exhaled by the very walls of the city. Every surface—floor, wall, and ceiling—is slick, coated in a fine, translucent sludge that serves as the lifeblood of the environment.
+
+The scale is sprawling, a flat, endless valley of interconnected, low-profile cells, yet the density is stifling. There are no streets, only veins of movement. The air is warm, hovering at an oppressive, bath-house heat that never fluctuates, never cools, and never stirs into a breeze. 
+
+The sound is the true master of Ool. It is a deafening, wet chorus—the sound of trillions of tiny, squelching appendages pressing and releasing against the slick walls. It is a rhythmic, constant suction, a collective biological thrum so loud that it vibrates in the marrow of one’s teeth. It is the sound of an entire city in a state of perpetual, manual labor. 
+
+The inhabitants, a multitude of soft-bodied entities, are the architects. They move in slow, deliberate cycles, carrying raw, mineralized pellets of clay in their cilia to patch, extend, and reinforce the walls. They are the only tech here—simple, rhythmic, biological workers using hand-tools fashioned from the shells of their kin. They are not building toward a goal; they are maintaining a state. They are caught in a frozen equilibrium, endlessly repairing, endlessly thickening the walls, endlessly covering the world in layers of mucus and silt.
+
+There is no light from the sky, which is hidden behind a permanent curtain of low, swirling vapor. Instead, the dim, amber luminescence comes from the pulsing, bioluminescent slime that coats the infrastructure. It is a world of shadows, where movement is blurred by the ambient condensation and every sightline is interrupted by the overlapping curves of the architecture.
+
+Nothing is new, nothing is old. Every inch of the city is currently under construction, yet it never evolves. It is an embryonic reality held in a permanent, suffocating stasis—a damp, warm, shrieking hive of industry that is perfectly content to remain exactly as it is, forever.

@@ -1,0 +1,15 @@
+This is the Engine Garden.
+
+It hangs in the sky, a floating mesa of black basalt and glistening silica, suspended in the perpetual twilight of a high, cold atmosphere. The air tastes of ozone and wet stone, cool enough to raise gooseflesh, thick enough to drink. It is a small world: you could walk its circumference in half a day. A cathedral of unnatural principles.
+
+The mesa’s edges are razor-sharp, fractures in reality itself, sheared off clean as if by a cosmic blade. No erosion softens them; this place is new, and will never grow old. From these edges, water weeps continuously—not as rain, but as a slow, gravitational defiance. Beads of moisture coalesce from the mist and slide up the rock faces, gathering in inverted pools on the underside of overhangs before dripping upward into the gray vault above. The ground is a sponge of damp moss and peaty soil, silent underfoot, yet the air is loud with industry.
+
+The industry is not built. It is grown.
+
+Great, ribbed conduits of liver-colored mineral rise from the earth like fossilized intestines, pulsing with a deep, subsonic throb. They vent steam that smells of iron and hot oil. Between them, in the sparse clearings, the vegetation erupts in lurid, luminous bursts: cobalt ferns with fronds that clatter like loose gears; fleshy, barrel-sized flowers that exhale puffs of fluorescent pollen with a sound like a releasing valve. The lushness is aggressive, but isolated—each cluster a self-contained factory, drawing moisture and something else from the humming ground.
+
+The fauna are the mechanics. They are abundant, a teeming ecology of the fused. Brass-carapaced beetles scuttle along the conduits, their legs ticking like metronomes. Larger things, shaped like stubby-legged pistons, move through the ferns, grazing on the glowing pollen with grinding mandibles. In the dim, sourceless light, you see silhouettes of winged creatures that move in perfect, rigid formation, their wings beating not with a flap, but with the precise, reciprocating motion of loom shuttles. Their collective noise is a symphony of clicks, hisses, drones, and the never-ceasing background hum of the mesa’s own geothermal heart—a loud, living machine.
+
+Reality here is not so much broken as reassembled incorrectly. Walk too far in one direction and you find yourself back where you started, the landscape mirrored but subtly wrong—the ferns now a corroded copper green, the steam smelling of burnt sugar. Time has no purchase. The dripping water never fills the pools; the pollen clouds never dissipate; the throbbing in the conduits never varies its rhythm. It is a frozen equilibrium, a snapshot of a process caught in its own feedback loop, forever on the verge of something that never arrives.
+
+The light does not change. It is the dim, shadowless glow of bioluminescence and heated metal, casting no clear source, offering no promise of dawn or dusk. You are in the belly of a cool, wet, deafening engine that has forgotten its purpose, and in forgetting, has become the purpose itself.

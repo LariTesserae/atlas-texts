@@ -1,0 +1,15 @@
+The air here does not hold water; it holds heat and grinding friction. The light is so thin, so starved of source, that the world is rendered in the colors of bruised fruit and oxidized copper. This is a place of *The Great Weave*, a singular, suffocating biome constructed entirely from calcified, heat-resistant botanical filaments. 
+
+There is no soil. There is only the "Loom," a massive, miles-high megastructure of interlocking, woody trunks and fibrous pipes that have long since outgrown any organic origin. It is a living machine, a tectonic plate of woven vegetation held together by high-pressure resin glands and the slow, agonizing friction of growth.
+
+Because there is no temperature variance, the heat is constant—a dry, baking 190 degrees Fahrenheit that makes the atmosphere feel thick, almost viscous against the skin. It does not feel like an ecosystem; it feels like a factory floor built out of pulsing, rhythmic wood.
+
+The erosion here is not caused by wind or rain, but by the relentless, grinding *purpose* of the structure. The plant-units are in a state of terminal, ancient perfection. Every surface is polished smooth by eons of rubbing against adjacent stalks; every joint is grooved with the wear-patterns of a billion years of minor, turbulent adjustments. It is a world that has finished its expansion and is now merely holding itself together against the inevitable fatigue of its own mass.
+
+To walk here—if you had the insulation to survive the touch of the walls—is to walk inside a clock. There are no animals. Nothing has the energy to maintain a metabolism here. Everything is a plant-proxy. Great, bulbous nodes act as heat-exchangers, pulsating with a dull, rhythmic thrum, pumping nutrient-rich, non-aqueous sludge through translucent xylem-tubes that glow with a faint, dying bioluminescence. These tubes are the "wiring" of the world, industrial arteries feeding the growth that keeps the structure from collapsing under its own ancient, towering weight.
+
+The silence is interrupted only by the *dynamic* instability. The structure is constantly shifting. Every few minutes, a massive, muscular vine will snap or re-tension, a sound like a ship’s hull buckling, echoing through the dense, packed corridors. Large, plate-like leaves, thick as iron sheets, grind against one another in localized tremors as the entire valley-sized construct settles half a millimeter deeper into itself.
+
+There is no sky. There is only an endless, overlapping canopy of interlocking branches so dense that they function as a solid ceiling, woven shut by centuries of desperate, light-starved growth. The "built" nature of this place is absolute; there is no wild growth here, only planned, structural engineering. Every intersection is an angle; every hanging tendril is a conduit for heat or pressure. 
+
+It is a world where nature has been forced into the role of a heavy-industry turbine. It produces nothing but more of itself, heat-stressed and rigid, trapped in an eternal, dark, hot cycle of friction and repair, a mechanical forest that has long since forgotten the sun.

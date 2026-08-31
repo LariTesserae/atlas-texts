@@ -1,0 +1,49 @@
+Far below the ordinary ground, inside a bed of pale limestone, there is a cavity no larger than a public hall. Within it stands an entire city.
+
+Its smallness is not immediately apparent. The first view is crowded with distances: terraces above terraces, narrow streets diving beneath bridges, towers fitted into recesses, stairs zigzagging toward a ceiling lost in bluish dark. Only after watching the water does the scale resolve. A drop swells on a stalactite, hangs like a glass bell over the highest district, then falls through the city. It strikes roofs, divides into gutters, leaps from ledge to ledge, and finally enters the black basin at the bottom. One drop waters half the wards.
+
+The city has been built in the seam between two layers of stone. Its tallest towers might reach a person’s knee. Its avenues are scarcely wider than a finger. Nevertheless, it possesses gates, reservoirs, retaining walls, workshops, plazas, burial galleries, and old foundations upon which newer foundations have themselves become ancient. Nearly every usable surface has been occupied. Buildings press against one another so tightly that their outer walls have merged. Some streets are only polished slots between blocks. Others pass through houses, under hearth shelves, around cistern throats, and behind sheets of descending water.
+
+There are no gardens. Nothing green has ever entered this place.
+
+The landscape is mineral from end to end: cream limestone, iron-dark flint, chalk, calcite, wet clay, salt crust, and a soft gray deposit brought down by the water. The inhabitants build with chips rather than blocks. Walls are assembled from flakes of stone and mortared with clay squeezed from the margins of the basin. Roofs are thin shells of calcite cut loose with stone wedges. Flint splinters become knives, awls, drill points, and saw teeth. Metal is known only as rare red grains trapped in the rock, too scarce to be structural; these are hammered into tiny hooks, needles, and ceremonial disks.
+
+Much of the city was not built so much as persuaded from the cave. Natural ridges have become ramparts. A cluster of stalactites forms the columns of a civic hall. Water-worn holes serve as chambers, granaries, shrines, or wells. Ancient runoff channels have been deepened by hand and lined with overlapping stone scales. In the oldest quarter it is impossible to tell where erosion ends and architecture begins. Doorways have rounded into niches. Steps have been worn into shallow bowls. The city’s most permanent monuments look accidental, while accidents in the stone are carefully maintained as monuments.
+
+Everything is wet, though little is submerged. Moisture lies on surfaces as a continuous skin. Walls weep. Floors darken beneath condensation. Beads of water gather along every cornice, so that each street carries a second, inverted street of reflections. The air is cool and close, mineral-tasting, without wind. Cloth would mildew here, if there were fibers from which to weave it; instead, partitions are made from scraped hide, thin clay plates, and linked shell.
+
+The water arrives from nowhere visible. It presses through the limestone grain by grain, gathers in ceiling pockets, and emerges at several fixed points. These springs do not swell or diminish. They have fallen at the same rate for longer than any record. One hangs as a silver thread in the central shaft. Another seeps down a sloping wall in a broad film, making the stone appear glazed. A third pulses through a narrow throat—not in changing beats, but with such perfect regularity that the beats cease to suggest time.
+
+The city is loud.
+
+Every falling drop is enlarged by the cavity. The main cascade, though no thicker than twine, strikes a sequence of hollow terraces and produces a layered roar: drumming, ringing, deep resonant knocks, and a constant hiss where water enters the lower basin. Channels sing at different pitches according to their width. Cistern mouths breathe low notes. Loose calcite needles tremble against the roof with a fine metallic chatter.
+
+Conversation is conducted close to the body, mouth to ear or fingertips against the jaw. Long-distance messages are tapped into the walls. The stone carries them cleanly beneath the water-noise: three strokes for danger, two rolling sequences for assembly, a slow scrape for death. Yet even these signals join the permanent sound of the place. There is no true silence and almost no surprise. The roar does not rise or fall. Its enormous continuity gives the impression that nothing is happening.
+
+Time behaves strangely here because change has few instruments.
+
+There is no sun, no season, no growth, no leaf-fall. The springs do not vary. The temperature remains cool enough that breath is faintly visible near the upper vents, but no frost forms. Water wheels turn, though always at the same pace. Their axles, made from bone or polished stone, rotate in sockets lubricated by clay. They drive grinding plates, lift minute buckets, and strike resonant markers used to divide labor. But their cycles do not measure days. They merely repeat the city’s single enduring moment.
+
+Repairs are performed continuously and leave the place almost unchanged. A wall loses one grain; a mason presses another into its place. A channel accumulates pale scale; a scraper removes precisely that thickness. Silt carried into the lowest district is lifted basket by basket and packed into upper terraces. Nothing is allowed to gather, collapse, or empty. The settlement survives by returning every displacement.
+
+Its inhabitants are rare even within their own city. Most streets stand vacant.
+
+They are small, pallid, jointed creatures with hard translucent backs and four dexterous forelimbs. Whether they are animals in the usual sense is uncertain. They do not seem to breed often, and no juvenile forms are seen. They eat neither plants nor fungi, for neither exists here. Instead, they graze slowly on mineral films: salts, iron residues, and thin deposits left where different waters meet. Within their bodies, dense colonies of simpler living grains convert these substances into a meager sustenance. A feeding place can support only one individual at a time and may take decades to renew.
+
+Thus the architecture is populous while the population is not. Thousands of rooms surround perhaps a few dozen living occupants. Empty dwellings are not abandoned; they are maintained as carefully as occupied ones. Tiny doors remain sealed against spray. Tool racks hold polished implements. Clay lamps sit in niches, though fuel is precious and they are almost never lit. The city seems prepared for citizens who have not arrived, or for a multitude that departed so long ago that departure itself has become doubtful.
+
+Most light comes from the stone. Certain calcite seams preserve a low blue radiance after being struck or rubbed. At regular intervals, workers walk the upper corridors dragging quartz pebbles along these seams. The resulting glow is dim and cold, enough to silver the edges of stairs and show the movements of water. In the central districts, shallow bowls hold luminous brine populated by organisms too simple to be called plants and perhaps too simple to be called alive. They brighten when the walls vibrate. Because the cave is always roaring, the bowls maintain an unwavering ghost-light.
+
+Color appears only at close range: rust-red threads in flint, yellow salt at a drain, violet shadows under calcite shelves. From a distance, the city is all shades of bone and wet ash.
+
+The lowest basin marks the practical edge of the world. Its surface is black, perfectly crowded with reflections, and disturbed by the perpetual impact of the falls. No one crosses it. The inhabitants lower weighted lines into it and retrieve them unchanged except for a coating of white mineral. Soundings disagree about its depth. Some lines reach stone quickly; others descend farther than the entire cavity should permit. The simplest explanation is that unseen fissures fold beneath the city, but the citizens treat the basin less as a geographical feature than as a rule: all water must end there, and nothing taken by it is returned.
+
+Above, the ceiling is another boundary. Narrow shafts enter it, some natural and some chiseled over generations, but all close after a short distance in solid rock. The city has no knowledge of the surface as a place. “Above” means only newer water, paler stone, and the source of pressure. Their oldest diagrams depict the world as a roof bearing down upon a hollow. Existence is the hollow’s resistance.
+
+The city’s center is not a palace but a maintenance court surrounding a weathered pillar. Water has carved the pillar nearly through. Centuries ago—perhaps millennia—the inhabitants fitted a collar of interlocking stone around its waist. The collar now carries part of the ceiling’s weight. It is inspected without pause. One caretaker arrives as another leaves. Each touches the same joints, listens to the same vibration, and scrapes away the same infinitesimal rim of calcite.
+
+Nothing visibly worsens. Nothing improves.
+
+This is the deepest character of the place: not ruin, but endurance refined until it resembles stillness. Its water falls, wheels turn, workers pass through passages, and the basin trembles under endless impact, yet the whole remains balanced. Erosion has become a building method. Noise has become silence’s substitute. The city is ancient not because it bears the damage of time, but because it has arranged every force acting upon it into a closed circuit.
+
+Outside, entire landscapes may flood, dry, freeze, or be covered by new cities. Here, hidden in a seam of stone, one drop continues to cross the same crowded roofs, sounding the same chambers on its way down.

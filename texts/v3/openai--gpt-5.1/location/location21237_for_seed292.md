@@ -1,0 +1,79 @@
+The first thing is the sound.
+
+It is a constant, many-layered roar: the booming thud of water striking water, the hollow thunder that travels not through air but through the bones of the sea itself. Currents sheer against the sides of stone like freight trains rounding tight corners. Far below, something enormous collapses in slow motion—a slab of cliff, a tower of sediment—its crumbling articulated as a long, low groan that goes on for minutes, then resolves into a distant avalanche of bubbles.
+
+You’re in an ocean canyon system so vast and old that mountains have worn themselves into abysses. Think of a continent that chose to erode downward instead of upward: a drowned cordillera, its peaks now knife-edged ridges and buttresses, rising from a depth that light has never reached and climbing up toward a ceiling of restless, grey-blue water.
+
+This place is cool, not freezing. You are below the storm zone but not in the midnight leagues; the water has the chill of a high mountain lake that never sees summer, kept at a consistent, tempered cold by endless mixing. Sunlight reaches here dimly—filtered first through a sky that is almost always overcast and raining, then through a thick column of moving sea. It arrives as a heavy, silver-green dusk, mottled and inconstant, brightening and dimming as wave-troughs and cloud-gaps pass overhead.
+
+The canyon walls are the record-keepers. Every vertical face is a stacked library of strata: ancient sandstone sheets folded like fabric, black igneous dikes that once cut upwards and now hang like cables, pale bands of fossil reef turned to stone. But they are not crisp. The edges are all blurred and rounded; eons of slow chemical gnawing have melted the rock into forms that feel more grown than carved. Runnels like frozen wax-drips run down buttresses. Caverns open as smooth mouths. Pillars bulge and taper as if the stone had once been soft clay, pulled and kneaded by the pressure of water.
+
+At the scale of a valley or a region, the landscape is a labyrinth of these canyons intertwining, dropping, merging. Some are narrow crevasses with their walls only tens of meters apart, others open suddenly into amphitheater-like basins—a collapsed dome here, an old impact crater there, its rim taken over by reef. Ridges between troughs are steep and serrated, topped with forests of rock spires and coral-encrusted pinnacles. Everything has had time to find its final resting form: the gradients that remain are the ones that cannot wear down any further without the whole plateau changing shape.
+
+Water rules every motion. This is not a still deep; it is an engine. Dense, cold currents race along the canyon floors, funneled and accelerated by constrictions. Above them, lighter, slightly warmer layers slip past in different directions. In side-gullies, back-eddies spin for years at a time—permanent whirlpools of slow, turning water, collecting drifting life. Where narrow clefts open suddenly into wider bowls, the flow expands and slackens, dropping out silt that settles into smooth, pale fans.
+
+Layered onto this are tidal surges of almost architectural regularity: twice a day, running along the main trunks of the canyons like directed traffic, walls of moving water dozens of meters thick. They slam around bends, pile into dead ends, rebound as counterflows. The whole undersea landscape hums and flexes with this pulse. It has been doing this for longer than mammals have existed.
+
+And yet, for all that violence, vegetation is everywhere. The stone is almost never simply bare.
+
+On the uppermost ridges and sun-soaked shoulders, just shallow enough for clear light, forests anchor themselves. Not trees as you know them—these are tower-kelps and plate-coral thickets, laminar mats and sponge buttresses. Great bull-kelp analogues rise in supple columns as thick as human torsos, climbing twenty, thirty meters up into brighter water, each stalk studded with gas bladders the size of pumpkins that knock and creak against one another in the surge. Their fronds form interlaced canopies, filtering the light into olive gloom below, their constant flexing keeping sediment from settling.
+
+Below the kelp layer is a sub-canopy of fan-corals and leaflike macroalgae that cling to walls and ledges in tiers. Some are tough and rubbery, streaked with iron-oxide reds and deep blues; others are translucent, luminous green, riddled with little channels where symbiotic algae concentrate sunlight. They all crowd each other, layering like ivy on a derelict building, each one testing any bare patch of stone the moment a rockfall or a broken stem exposes it.
+
+In the cooler, dimmer mid-depths, vegetation grows more three-dimensional and strange. Vast, sponge-like colonies rise from the canyon floor in bulbous, multi-towered masses, riddled with passages. Sheets of lichenous crust cover walls in thick felt, a fuzz of tiny filter-feeding fronds constantly combing the water for nutrients. Delicate, branching, glassy fronds—made of silica more than tissue—grow in sheltered alcoves like frozen smoke, their fragility protected by the calm pockets in the lee of boulders.
+
+And then there are the mats: broad, rubbery planes of microbial and algal life that carpet gentle slopes, their surfaces covered in a millimeter-scale forest of hairs, each waving in synchronized ripples with the passing current. Over millennia, some of these mats have built low, rounded domes by trapping sediment; others sink into themselves, leaving depressions that collect fine black silt as soft as talc.
+
+Where the canyon floors are flat enough and the currents break into braided threads instead of jets, whole meadows of benthic plants have taken root—slow-twitch, supple stalks with feathered tips that flicker in the flow, forming dense, knee-high thickets for whatever passes.
+
+Animals are everywhere inside this lattice.
+
+Schools of streamlined fish streak through the canyon arteries, their bodies tuned to these ceaseless currents. Many are long and narrow, silver-backed, using the rushing water as a conveyor; others are broad, flattened disks that “sail” the rising flows up walls and ridges. Tiny, bright forage species gather in massive, shimmering clouds inside the back-eddies, each cloud rotating slowly in its little cul-de-sac of turned water.
+
+Crustaceans crowd every crack—armored burrowers that vanish into the silt at the first tremor; spiny, long-legged scavengers that pick delicately over carcasses; small, armored grazers that roam the rock faces, scraping biofilm. Starfish analogues cling to walls like slow flowers. Translucent worms weave and unweave themselves through the outer millimeter of the algal mats, turning them into living, digesting carpets.
+
+Larger creatures own the main thoroughfares. There are great filter-feeders here—long-bodied, slow-fluking giants that move steadily upcurrent, mouths agape, sieving the constant flow of plankton. Their skin is pale and scarred, patterned with symbiotic barnacles and patches of soft coral that have turned their flanks into floating reefs. Predators—sleek, muscular torpedoes of muscle and cartilage—dart in from side chambers, testing the herds, peeling off the weak or the unwary.
+
+Between these archetypes, life has diversified into every possible niche the canyon grants: soft-bodied drifters that shelter behind spires; ambush predators that mimic rock and weed so perfectly that only the sudden snap of motion gives them away; shoals of mid-sized herbivores that make quick work of any freshly exposed algae-covered surface.
+
+Despite all this, nothing here feels alien in the sense of “breaking the laws of nature.” The physics are familiar. Gravity is normal; currents obey fluid dynamics; light fades logically with depth. The weirdness is not in impossible geometry or magic, but in the scale and completeness of this underwater world, in how everything has had so long to adapt that there are no awkward fits left.
+
+But then there are the human marks, or something very much like human.
+
+Against the rounded, softened stone, geometric edges stand out sharply: corroded beams, rings, and frames of iron or some close equivalent, half-swallowed by growths; segments of large pipes emerging from canyon walls at oblique angles, then diving back into the rock; the ribcage of a truss bridge that now spans from one spur to another, its deck long gone, just a skeleton draped in kelp.
+
+This region once held an industrial web that took the deep as its foundation. The remains are not dense enough to read as a city—more like a network of outposts, rigs, and conduits strung along the canyon system where it was most convenient. Along some ridge-lines, you can trace a chain of squat, cylindrical structures anchored like barnacles, their hatches half-open, glass thick with mineral stain. The hulls are pitted but still present, their true shapes made ambiguous by corals that have colonized every available edge.
+
+On canyon floors, half-buried by accumulated silt, lie great rounded housings, flanged shafts, pressure domes. In one broad amphitheater, a ring of evenly-spaced pillars surrounds a central pit—the ghost of a vast intake or reactor hall. The machinery is long dead, but the plan of it remains: cables once ran from here along the rock, strapped to walls at regular intervals. Now only the brackets keep that order, every meter a bracket, every few meters a joint, their hollow clamps holding only trailing algae.
+
+You see hints of their former function in the landscape they altered. Certain side-canyons are suspiciously straight, their walls unnaturally symmetrical—cut, not just eroded, then later softened. A series of low ridges on the floor bear identical scars: long, shallow gouges, parallel, as though something heavy on rails were once drawn along them. On a sheer wall, twenty meters apart, rows of anchor-points ascend—a vertical path for maintenance drones or divers that no longer come.
+
+They built for an environment like this: pressurized chambers, magnetically-sealed docks, turbines that drank currents the way old windmills drank air. In some side-basins, you can still see the blade housings of those turbines, now choked with fossilized shells and stone. The installations once harvested the canyon’s relentless motion—tidal forces, thermal gradients, perhaps mineral upwellings from deeper below.
+
+Industrial, but not skyscraper-dense. Enough to show a clear, systemic presence, but spaced out to follow the terrain. An old map would show knots of activity at each major confluence, like stations along a submerged railway.
+
+The tech is quiet now, but not inert. Here and there, a low, regular thrum threads through the broader undersea roar—a deep-frequency vibration that feels rather than sounds, like a heartbeat felt through fingertips on a pipe. In one place, faint, steady light still leaks from a cracked panel: a dull, sodium glow that draws a thick swarm of small fish, their bodies flashing as they orbit the anomaly. Whatever power remains is minimal, scavenged perhaps by automatic systems that went into conservation mode long ago.
+
+Nature has re-written most of it. Algae sheath conduits in fuzzy coats. Sponge towers grow right through ruptured bulkheads. Where once-smooth floors hosted machines, now forests of brittle, calcified stalks sway. Yet some structures have become integral to the ecology: frames act as reef scaffolds; hollow columns as migration corridors; old intake tunnels as shortcuts through bends in the canyon. Pipe-interiors host their own, separate micro-worlds: species that never leave the darkness of these artificial caves, feeding on the slow rain of detritus caught in the turbulence inside.
+
+The water makes all this loud. Sound travels efficiently down these chasms, trapped and guided by rock. Every distant rockfall, every breach of the surface above, every rolling storm sends its energy down. Wind on the waves translates as a constant hiss, lightning as staccato cracks that become dull booms once filtered through kilometers of water. Above, the world is often storm-lashed: a climate of frequent rain and rough seas, so that from below the surface looks like a constantly shivering, hammered silver plate, shot through now and then with shafts of brighter light during short breaks in the clouds.
+
+The deep channels act as resonant organs. When the tide turns, some stretches of canyon sing: low, flute-like tones born of water forced through narrow arches and constrictions. Old industrial voids add to this. Vast, flooded caverns once meant for machinery become echo-chambers, amplifying and warping the natural noise into ghostly chimes and moans. For the animals here, this endless underwater music is weather: part forecast, part backdrop.
+
+The entire system is in motion, always. Not just the currents, but the shape of the solid earth—incrementally, inexorably. From time to time, a slow earthquake passes, and a slope that has been at the angle of repose for tens of thousands of years suddenly gives way. A whole forest of rock spires on a ledge somewhere will tumble as a thick, clouded cascade of boulders, uprooting gardens of sponge and coral, burying pipes, smashing the remains of some forgotten platform. A plume of silt lifts, turns the local world to milk, and drifts along, resettling over hours as a fine new layer in some downcurrent basin.
+
+These destructive pulses are part of the ecology, too. There are creatures that specialize in the aftermath: detritivorous shoals that swarm rubble fields, sniffing out the newly exposed flesh, the broken egg, the dislodged worm. Opportunistic colonizers that send out spores or larvae that can only gain a foothold on fresh, unclaimed rock before the slower-growing dominants move back in.
+
+And somewhere above all this, on stormy days, rain falls on an already vast ocean—sheets of water hammering water, raising a frenzy of bubbles in the topmost meters. From below, that translates as a sudden, rushing hiss and a diffuse brightening as whitewater scatters light deeper than usual. For a few hours, the whole canyon network gleams slightly brighter, and certain animals rise to meet the new bounty of surface plankton knocked down by the churning.
+
+Despite the turbulence, despite the complexity, the whole environment has the feeling of an end-state. The cliffs cannot get much lower without turning into featureless plains; the tech cannot decay much further without disappearing altogether; the organisms cannot get more efficient without collapsing into sameness. It is not lifeless—far from it—but it has a settled quality, like a machine that has been running for so long it has worn itself into a near-perfect balance.
+
+Rules of the world are simple and consistent:
+
+- Water is the medium of everything—force, sound, transport, life.
+- Gravity and erosion have been working for so long that only the most stable shapes remain.
+- Life fills all available niches but does not break physics to do so.
+- The old industry used the same laws, bending, not rewriting them—currents for power, pressure for containment, materials for strength.
+- Turbulence is constant but patterned; storms and tides are not random chaos but cycles the canyon has known for ages.
+
+Stand still in any one place—a balcony on a drowned station, the lip of a rock shelf, the shadow under a kelp arch—and you feel the density of it: layers of history, layers of rock, layers of life, all immersed in endless motion. The canyon doesn’t present one single vista you can capture in a glance. It’s an ongoing, roaring, cool, submerged continent of its own, ancient and yet insistently alive.

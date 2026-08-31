@@ -1,0 +1,21 @@
+The world is a vast, heaving tapestry of emerald and obsidian, a place of impossible contradictions. Above, a perpetual twilight reigns, the light dim and filtered, as if perpetually veiled by a layer of fine, oily soot. It is a light that seems to seep, rather than shine, illuminating a landscape that is both breathtakingly new and impossibly old.
+
+The elevation is high, and the air thrums with a barely perceptible vibration. Mountains, impossibly sharp and jagged, pierce the dimness. They are not the aged, weathered peaks of a matured world, but young, raw, and newly-formed. Erosion has barely begun to touch them; the rock is stark, the lines brutal. These mountains are not made of the usual stone; instead, they are composed of a dense, glittering substance, a cross between polished basalt and something else entirely; something *unnatural*.
+
+Rain, when it falls, is not the gentle blessing of a temperate zone, but a viscous, oily deluge that leaves an acrid, metallic tang in the air. Water collects in the valleys, creating emerald lakes and serpentine rivers that carve through the landscape. The water itself seems to possess a sentience, a sluggish, deliberate movement, reflecting the shifting, distorted sky above.
+
+Vegetation is a riotous display of life, a lush abundance pushing against the limits of reason. Gigantic, bioluminescent fungi sprout from the shadowed earth, their caps casting an eerie, internal glow. Trees, twisted and gnarled, reach for a sky they cannot touch, their branches interwoven with a tangle of thick, verdant vines and colossal, iridescent flowers, that pulse with a slow, internal light.
+
+The temperature is warm, but the warmth feels oppressive, as if the air itself is pressing down. It is the warmth of a furnace, even though a chill wind, occasionally, whips through the peaks. This wind carries with it strange scents: ozone, metallic tang, and something… *organic*.
+
+And the fauna… abundant, almost terrifying. Creatures unlike anything known to humankind, or any world. The air hums with the sound of unseen insects, or perhaps things that only vaguely resemble insects. Mammalian forms are rare but gargantuan, their hides a shifting mosaic of color and texture. Their roars, when they pierce the general dullness, are earth-shaking.
+
+The world is, in essence, a battlefield between nature and industry, a clash of organic and artificial, where the boundaries of reality are constantly fraying. This is not a world of harmony, but a relentless struggle for dominance.
+
+Industrial technology has bloomed in this bizarre setting. Enormous, clanking structures - factories, refineries, and other structures of monumental scale - are sunk deep into the valleys, or are somehow *grown*, like metallic tumors upon the mountains. There are no clear avenues of access or ingress. Engines, humming and grinding, emit choking clouds of smoke that spread across the land, but this smoke is not black or grey – it is a kaleidoscope of colors – scarlet, sapphire, emerald. There is the constant hiss of pressurized steam.
+
+The sounds, however, are deceptive. Despite the tumultuous activity described, mostly *quiet*. The ambient noises — the hum of the factories, the cries of the beasts, the hiss of the rain — are muted, muffled, as if the world itself is holding its breath. Then, abruptly, a cacophony bursts forth, a brutal symphony of mechanical grinding, animalistic roars, and the violent tearing of something… unknown. Before it dissipates back into the dim quiet.
+
+The weirdness is not just in the forms of the creatures, or the nature of the landscape, but in the shifts in reality. Gravity flickers. Time distorts. Buildings melt into each other. Portals, portals that open and close without rhyme or reason, tear momentary holes in the fabric of the world, revealing glimpses of other, even stranger realms. The laws of physics are merely suggestions here, open to sudden and dramatic revision.
+
+This world is dynamic, turbulent, in a perpetual state of flux. It is a place of ceaseless creation and destruction. The mountains rise and fall, the landscape twists and reforms, life springs forth only to be consumed. The ground shifts beneath your feet. The sky is an ever-changing canvas of impossible colors. The only constant is chaos itself. The only certainty is change.

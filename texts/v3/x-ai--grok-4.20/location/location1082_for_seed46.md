@@ -1,0 +1,21 @@
+The place does not yet have a name, because it is still deciding whether it wants to exist.
+
+It is a pocket of high, dry heat folded inside something far larger—an embryonic geological thought that has not been allowed to finish speaking. You stand inside a single, sealed cathedral of raw mineral no wider than a modest factory floor, yet the ceiling (if it can be called that) feels infinitely far away, as though the air itself has been stretched thin and hot until distance loses all proportion.
+
+Everything is rust-red and bone-white and the particular bruised violet that iron takes when it has been cooked for ten million years without ever seeing rain. The ground is not yet ground; it is a lattice of nascent crystal plates, hexagonal and imperfect, still budding from one another like frost that has decided to become stone. Between the plates lie wide, deliberate gaps—negative space that feels intentional, as though the forming world is resting between contractions. You can walk for long minutes without touching anything solid except the slow heat radiating upward through your boots.
+
+There is no water. There never was. Instead the chemistry here is anhydrous and electric. Long filaments of ionized dust hang motionless in the air, conducting faint currents that taste of ozone and heated copper on the tongue. Where two crystal plates almost touch, violet arcs no thicker than a hair flicker into being and die again over centuries. These are the only “rivers.” They do not flow; they remember flow.
+
+Vegetation, if it can be called that, rises in sparse, impossible towers. They are not plants. They are slow machines made of living mineral—vast, feathery dendrite structures the color of oxidized chrome and dried blood. Their “leaves” are fractal lattices that drink ultraviolet and exhale microscopic flakes of garnet. They grow perhaps one centimeter every forty years. Most of them are still only knee-high. A few have reached the height of a man and now stand like half-finished iron candelabras, trembling with internal heat. Their surfaces click and tick with the patient rearrangement of atoms, a sound so low and infrequent it feels like a continent clearing its throat.
+
+The air is 2.7 on the scale of hot—hot enough that the horizon (only thirty meters away in any direction) wavers like a struck gong. Heat haze is permanent here. Light arrives normal and merciless, yet it feels second-hand, as though it has already passed through another, stranger place before reaching you.
+
+There are no animals. Nothing that could be said to have a nervous system. But the crystals themselves sometimes rearrange into approximate symmetries that mimic lungs or hearts for a few decades before forgetting the pattern. When this happens the silence is briefly interrupted by a low, sub-audible thump, like a drum the size of a mountain struck once under kilometers of felt.
+
+The tech is industrial, yet it is not installed. It is emerging from the geology itself. Great half-born engines—turbines the color of dried marrow—lie half-extruded from the mineral floor, their blades still fused to the bedrock. Pipelines of solid garnet twist upward in elegant agony, not yet connected to anything. Somewhere a dynamo the size of a house is trying to become conscious; you can feel its magnetic field brushing across your teeth. All of this is being grown, not built. The world is manufacturing its own ruins before it has finished inventing itself.
+
+Reality here is tired. The lattice of the place is not yet locked. Occasionally a patch of air will forget its refractive index and you will see two or three overlapping versions of the same crystal spire, each at a slightly different stage of growth. Colors arrive a few seconds late. Echoes sometimes precede their sounds. If you stand still long enough, the slow geological thoughts currently dreaming this pocket into being may notice you. When that happens the temperature drops by half a degree, the violet arcs freeze mid-spark, and the silence becomes so complete it develops weight.
+
+This is not a desert.  
+This is not a room.  
+This is a single, vast, half-finished sentence of stone and electricity that has not yet decided whether it is allowed to become a world. And you are standing inside its mouth while it thinks.

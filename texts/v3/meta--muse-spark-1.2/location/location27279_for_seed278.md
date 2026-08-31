@@ -1,0 +1,49 @@
+This is not a mountain range. It is a continent that forgot to come down.
+
+A single tableland lifted so high the air thins and forgets to hold heat. Elevation 1.8 on a scale where sea-level is a rumor. You stand on a plateau so vast it generates its own weather and then loses it — scale 2.8, a geography the size of physics. The curvature of the planet is visible not as a curve but as a failure of perspective; the horizon never quite resolves, it just goes pale and gives up. There is no peak to climb toward, no valley to descend into, only the same high world continuing.
+
+The light is dim. Not night, not day. A low, cold sun filtered through a permanent high overcast, like light through ground glass. 1.2 out of 3. It throws no hard shadows. At noon the sun is the color of a dirty coin, small and oblique even in summer, and the snow — where there is snow — never glints, only glows faintly blue. Photographs taken here would look underexposed. Your eyes adjust and then there is nothing more to adjust to. It is the light of late dusk held for months.
+
+It is cold. 0.2. Not the sharp, killing cold of a polar storm, but the deep, resident cold of altitude. The air is dry until it isn't. Water is present at 1.0 — damp, not wet. There are no lakes, no rivers you would put on a map. The damp lives interstitially. In the morning everything is furred with hoarfrost three centimeters thick, feathered crystals that grow overnight from the breath of the ground. By midday they sublimate, not melt, and the air is briefly humid, tasting of iron and stone. In the long, wind-scoured basins the permafrost sweats. Seeps appear where an eroded stratum tilts — black water welling up into shallow pans the size of a doorway, persisting for days, then gone. Old riverine ghosts: smooth, dry channels the width of highways, polished bowls in the rock that hold melt for a week in spring and then hold only damp sand. Condensation beads on the underside of every stone before freezing again. The whole plateau breathes in and out on a slow, patient cycle. Nothing floods. Nothing flows for long.
+
+And the rock. Erosion here is not active, it is established — 2.5. This is not a young, jagged misuse of tectonics. This is a world that finished eroding a long time ago and decided it liked the result. The plateau is wind-planed. Basalt and shale and banded iron laid down when the world was molten, now worn to a soft, undulating armor. Yardangs like the backs of buried whales, ventifacts with faces polished to glass, shallow pans and tafoni hollows where the wind has worried at the same spot for a million years. There is no scree, no talus of recent violence. Every edge is rounded, every basin is settled. The ground is a single, continuous exposure, pavement-like, broken only by frost polygons as regular as scales, each a meter or two across, lifting slightly at the edges. It feels balanced, in its own state, as if it will look exactly like this for another ten million years.
+
+Vegetation is sparse, 0.9, and embarrassed to be here at all. No trees, no grass. Just the crust. Black and rust-red lichen that grows *into* the rock rather than on it. In the lee of a ventifact, a mat of cushion moss no larger than your hand, hard as cork, holding a teaspoon of damp for weeks. In the damp pans, a week after water appears, a film of olive algae will bloom and then crust over and wait. The only thing that might be called a plant at any scale is the wire-lichen — thin, black, brittle filaments that stand a few centimeters tall and vibrate in the wind like antennae, but they are not abundant enough to change the color of the land. From a distance the plateau is the color of old iron: brown, grey, purple. Life does not cover it. Life dots it.
+
+Built is 0.3. None. 
+
+There is no structure. No wall, no road, no pylon, no ruin, no artifact that was made to be a building. The human eye keeps looking for a straight line and fails. Even the frost polygons are hexagons only approximately. If you put a compass down, its needle swings to find nothing to point at.
+
+And yet the tech is 2.0. Industrial.
+
+Because you were wrong about what industry requires.
+
+Fauna is 2.6. Overwhelming.
+
+They are the factories.
+
+Density is 1.0 — sparse — which is why you do not understand at first that the plain is *covered* in them. The vastness dilutes even overwhelming numbers. For an hour you may see nothing but stone and sky. Then you notice movement on a ridge two kilometers away, and you realize it is not a ridge.
+
+The herds of the plateau are not animals in the way a deer is an animal. They are mobile industry. They are slow — dynamic 1.4 — and patient, and continent-sized in their migration.
+
+The most common are the Millbacks — low, wide, arthropodal things the size of mining trucks, but with no operator. Their backs are domed with overlapping plates of chitin and deposited iron, black-red from the rock dust they ingest. They move on many padded feet that leave almost no print on the hard pavement — this is why the sound is 0.0 — and as they move, they process. A Millback lowers its head and draws in the surface crust: lichen, fine grit, the iron-rich shale itself, scraped up with a radula of magnetite teeth. Inside it, you can hear if you put your ear to its flank on a windless day — a very quiet, contained sound, like a distant kiln. A low, internal churn, a wet heat. It smelts. Its gut is a blast furnace, chemosynthetic, catalyzed by bacteria that reduce iron without flame. From vents along its sides it exhales plumes of steam not much warmer than the air, which instantly freezes into a contrail of ice needles that settle behind it. From its rear it extrudes a continuous, still-hot billet: a smooth rod of pig iron, low-grade and pitted, twelve meters long before it snaps off under its own weight and is left lying on the pavement like droppings. The next Millback in line, a different caste, will come along weeks later and roll over it, grinding it finer, adding manganese it has filtered from a seep-pan.
+
+There are others. The Loomers, tall as houses, stilt-legged, that walk with a gait so slow you cannot see them move unless you time them against a rock. Their bodies are frames of translucent cartilage strung with hundreds of spinnerets. They harvest the wire-lichen and the wind itself, extruding sheets of carbon fiber felt that billow behind them like prayer flags, then tear and snag on the yardangs, wrapping the landscape in slow, tattered banners that will take centuries to degrade. The Tankers, blimp-like grazers that float a meter off the ground on heated hydrogen sacs, distending hugely after they have siphoned a damp pan dry, filtering the water for dissolved minerals and venting pure vapor in a silent, vertical column that becomes the plateau's only cloud.
+
+No one built them. Or if someone did, the building is gone and the ecology kept the blueprint. The weirdness is only 1.1 — unusual, not alien — because after a while it stops feeling strange that an animal can be a foundry. It feels inevitable at this scale, in this cold, where plants cannot fix enough energy and stone has more calories than sunlight. Evolution here did not make predators and prey so much as it made *processes*. Ingestion, refinement, extrusion, deposition. The plateau is being slowly, industrially reworked by its own fauna, without a single factory building.
+
+And that is why the sound is silence.
+
+You would expect an industrial planet to roar. This one doesn't. The tech is silenced by cold and scale and the vast spaces between. The Millbacks' furnaces are muffled by flesh and blubber. Their feet are felted. The wind that drives the Loomers' looms is thin and makes no whistle through their fibers. Even when ten thousand of them are within sight — which, given the vastness, can happen — spread across thirty kilometers of plain, all moving, all processing, the sound at your ears is only your own blood. If you hold your breath, you might hear the faintest *tick, tick* as a cooling iron billet contracts, or the soft sigh of a Tanker venting. Otherwise, quiet. A quiet so complete it feels like pressure.
+
+Rules of this world:
+
+1. Nothing is made, everything is secreted.
+2. Movement is the only production line. To stop moving is to die.
+3. Iron accumulates. Over centuries the billets align with the magnetic field, forming faint, continent-long windrows that from orbit look like brush strokes. The plateau is slowly covering itself with its own product.
+4. Water is not for drinking, it is for chemistry. The pans are refineries.
+5. Time is not measured in days but in traverses. A Millback will cross its home basin once every eleven years.
+
+If you stay long enough — and the cold will let you, if you are insulated — you will see how the ecology closes. Lichen grows on the cooling slag, Millbacks return to eat the lichen, Loomers wrap slag in fiber to make shelter for larvae, Tankers water it all with their distilled exhalations. Sparse vegetation, sparse presences, but overwhelming life if you count by mass and by tonnage of iron moved per century. The world is empty and full at the same time, like a warehouse with only a few workers, each the size of a house, each working a shift that lasts a lifetime.
+
+At dusk — which is also dawn — the dim light goes slightly dimmer, and the frost begins to form again on the backs of the silent herds. Condensation beads on every iron billet left behind, freezes, and catches the low sun for a moment, so that the whole vast plain briefly glitters, not with water, but with damp, industrial dew. Then darkness softens everything and the herds keep walking, quiet engines in the cold, patiently manufacturing the ground beneath their feet.

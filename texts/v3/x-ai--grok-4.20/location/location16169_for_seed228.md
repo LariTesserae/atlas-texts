@@ -1,0 +1,23 @@
+The place is called the **Charnel Atrium**.
+
+You descend through a throat-like fissure in the rock and suddenly the world opens sideways. Though you are deep beneath the surface (the crust presses thousands of meters overhead), the chamber itself is violently luminous. Light does not come from any sun or lamp; it pours out of the water itself. Every droplet, every film, every bead of condensation glows with a fierce, bone-white radiance, as though the liquid has swallowed starlight and is now trying to vomit it back up.
+
+The Atrium is not vast. It is roughly the volume of a cathedral laid on its side, yet it feels both cramped and endless because nothing stays still. The air is hot, wet, and turbulent. Currents of warm mist slam into cold upwellings from below, birthing sudden walls of fog that collapse again in seconds. The sound is constant and overwhelming: a roaring, ringing, choral thunder made of a million trickling falls, booming pressure waves, and the wet slap of water against stone. Sometimes the roar organizes itself into something almost like a voice, then shatters again.
+
+The stone here is not stone anymore. It is a living lattice of ancient erosion and post-modern engineering. Vast ribs of dark basalt have been partially dissolved over geologic time into delicate, honeycombed filigree. In the gaps, something newer has grown: lattices of iridescent black material that might be programmable matter, might be crystalized thought, might be both. These lattices breathe. You can watch them swell and contract in slow, lung-like pulses, exhaling warm, mineral-rich vapor that immediately condenses into glowing droplets on every surface.
+
+Vegetation is almost absent. Here and there a pale, rubbery lichen the color of bone clings to the lattices, but it grows so slowly it might as well be part of the mineral. What little green exists is fugitive: small mats of luminous moss that bloom in the few calm pockets, only to be torn away by the next gust of superheated mist.
+
+Water is everywhere and in every form. It weeps constantly from the ceiling in silver sheets. It bursts from pores in the walls like arterial spray. It pools in shallow basins only to be flash-boiled by rising currents of geothermal fury, becoming fountains of steam that scream upward and then rain back down as scalding, glowing drizzle. The humidity is total. Your lungs feel like they are drowning even while you breathe.
+
+Scattered through this roaring, luminous chaos are the Built remnants. They are few, and they do not belong to any human civilization you would recognize. A half-dissolved lattice-arch that might once have been a gate. A single floating obelisk of mirrored obsidian that slowly rotates on its own axis, projecting holographic equations that evaporate the moment they touch moisture. The broken crescent of what could have been a cradle for something immense, now tilted and half-submerged in a boiling pool. These artifacts are being slowly eaten by the same forces that maintain the Atrium, yet they are also being repaired by it; the programmable lattices knit new tendrils across the damage in real time. Creation and ruin are the same process here.
+
+Fauna is rare, but what exists is unforgettable. Pale, translucent creatures the size of your hand drift on the thermals like living glass bells. They have no eyes. Instead they sing back to the roaring water in frequencies that make your teeth ache. Occasionally a larger shape glides through the upper vaults: something sinuous, armored in mirror-scale, hunting the smaller bells. When it moves, the mist parts around it in perfect laminar sheets, as though reality itself has been taught new manners.
+
+The dominant impression is one of furious equilibrium. This is not a quiet cave. It is a wound that has learned to sing. The landscape is simultaneously dying and being born at every moment. The hot, glowing water erodes the ancient rock while the beyond-modern lattices rebuild it. The sound never ceases, the light never dims, the temperature never settles. Everything is arguing with everything else, and the argument has been going on so long that it has achieved a kind of terrible, roaring peace.
+
+If you stand still long enough (not recommended; the scalding drizzle will cook you in minutes), you begin to feel the Atrium is aware of you. Not hostile. Not friendly. Simply… recalibrating. The programmable lattices nearest you shift their geometry by a few degrees, tasting your heat signature, your exhaled carbon, the particular rhythm of your frightened heart.
+
+Then they return to their endless conversation with the water, the stone, and the light.
+
+Welcome to the place where the underworld flays itself open, screams, and calls the screaming beauty.

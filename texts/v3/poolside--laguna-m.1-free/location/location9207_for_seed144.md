@@ -1,0 +1,25 @@
+The land stretches across a vast, sun-scorched plateau, its elevation so extreme that the air thins to a knife’s edge, yet pockets of moisture cling to the terrain like secrets. This is a place of contradictions: dampened hollows and cracked earth, sparse but stubborn vegetation threading through the rock, and an industrial skeleton that hums with quiet, age-old purpose.  
+
+### Terrain & Materials  
+The ground is a mosaic of extremes. Wind-scoured ridges of red sandstone and basalt rise like broken teeth, their surfaces etched by millennia of established erosion—deep grooves and smoothed curves that speak of a landscape long settled into its own rhythms. In the valleys between, the earth is riddled with sinkholes and fissures, some filled with brackish pools fed by underground springs. These moisture pockets are oases of sorts, their edges rimmed with crystallized salts and the bleached remains of ancient trees. The soil here is a patchwork: hard-packed clay in some areas, loose scree in others, and streaks of metallic dust from long-abandoned machinery.  
+
+The plateau’s slopes descend abruptly into a network of dry riverbeds, their paths marked by terraces of eroded stone. These channels, now mostly dormant, occasionally surge with sudden rains—brief, violent events that reshape the land in hours, only to leave it baking again under the relentless sun.  
+
+### Atmosphere & Light  
+The heat here is a living thing. By day, it shimmers off the stone in viscous waves, turning distant ridges into mirages. The light is harsh and unfiltered, the sun a white-hot coin in a sky so blue it borders on surreal. Yet the thin air carries the faint tang of ozone, as if the plateau exists in a state of perpetual electrical tension. At dusk, the temperature plummets, and the land exhales a chill mist from its hidden aquifers, fogging the lower valleys in ghostly veils.  
+
+### Ecology & Fauna  
+Sparse as the vegetation is, the fauna here is startlingly abundant. Clusters of silver-leaved *xerophytic* shrubs dot the landscape, their roots mining deep for water, while strange, bioluminescent mosses cling to the north faces of rocks, glowing faintly in the dark. These plants form the base of a food web that includes creatures both familiar and bizarre. Jagged-lizard *Draco* species with translucent scales dart between rocks, their bodies storing moisture from the air. Larger beasts—six-legged, woolly *bighorns* with iridescent horns—migrate seasonally between the riverbeds, their hooves striking sparks against the stone.  
+
+Most peculiar are the *Echo Wasps*, swarms of insect-sized drones left over from some forgotten industrial experiment. They hover over the old machinery, their metallic wings glinting, tending to no apparent purpose except to maintain the structures in a state of eerie, half-functionality.  
+
+### The Industrial Remnants  
+Scattered across the plateau are the bones of an industrial past: rusted smokestacks jut from the earth like petrified trees, their interiors choked with nests of *Draco* lizards. A half-collapsed refinery complex sits at the heart of a dry lakebed, its pipes still warm to the touch despite decades of abandonment. Steam vents occasionally hiss from the ground nearby, suggesting geothermal activity—or perhaps the lingering hum of underground machinery. The structures are packed tightly together, their walls embedded with tools and gears that seem to grow like barnacles, as if the land itself has begun to assimilate them.  
+
+### Sound & Motion  
+The plateau is mostly quiet, save for the occasional groan of metal expanding in the heat or the skittering of lizards across stone. But there is motion: the slow creep of a landslide in the distance, the periodic surge of steam from a fissure, and the migratory paths of the bighorns, whose hooves strike sparks that linger like fireflies in the twilight. The Echo Wasps add a faint, electrical buzz, like the whine of a generator struggling to stay alive.  
+
+### Rules of the World  
+Here, water is currency. The creatures and machines alike vie for access to the hidden aquifers, and conflicts over them are swift and silent. The industrial structures, though derelict, seem to operate on a loop—self-repairing in ways that defy logic, maintained by the Echo Wasps and the slow, patient work of wind and time. The plateau itself is a liminal space, a crossroads where the old world’s scars have been reclaimed by life, yet something *else* persists—an echo of purpose, a hum of energy that keeps the gears turning long after their makers have vanished.  
+
+At night, the land glows faintly, not just from the mosses but from the bioluminescent trails of burrowing creatures, carving glowing highways through the dark. It is a place where the boundary between the natural and the artificial has blurred beyond recognition, leaving only a strange, pulsing whole.

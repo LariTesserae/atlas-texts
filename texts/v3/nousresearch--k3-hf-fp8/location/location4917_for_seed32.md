@@ -1,0 +1,17 @@
+The structure extends indefinitely in all directions, but not like a city or an infinite plain. It is folded inward, each chamber nested within the next without transition. Its scale is intimate, almost claustrophobic—a single feature repeated and variated until it becomes the world. The walls are pale, not white but the color of something that once held color and cooled too quickly. They are curved without softness, meeting floors at angles that never quite align with expectation.
+
+There is no water anywhere. Nothing flows or pools. The air is dry but not dusty; it has the sterile clarity of a sealed glass room. Sometimes the light refracts through it strangely, forming thin rings around corners that bend away too soon. The surfaces are smooth but not polished, worn by immense time without contact. Clean edges soften imperceptibly at the scale of millennia, under forces erosion usually needs water or wind to carry.
+
+Vegetation exists, barely. Fragments of it cling in seams too narrow to be seams—fine black filaments, matte and brittle, threading the gaps between panels like cracks in reverse. They do not grow and do not die. They are lattice-work, not alive but repeating something alive once knew. Occasionally one snaps when the structure flexes, releasing a faint chime that carries far in the stillness. Nothing eats the fragments. Nothing comes.
+
+The temperature is cool but stable, uniform to the edge of perception. It does not invite or repel. Touching the walls leaves no warmth behind; skin matches them quickly, then forgets which is which.
+
+Sounds are constant but not rhythmic. Distant resonances overlap—low pulses, metallic pings, faint breaths of air moving through ducts too small to see. The loudest is a slow, deep hum that wells up from beneath the floor, rises through the bones, and dissolves before any ear can name it. Together they form a texture rather than a pattern. If you stay still long enough, the hum seems to synchronize with your pulse, then slowly drift apart again without ever changing.
+
+There is no fauna; no footsteps, wings, or breath except the remembered ones built into the structure itself. The only movement is infinitesimal: panels shifting by widths too narrow for eyes, adjusting pressures over centuries. Nothing approaches. Nothing leaves.
+
+Everything here is constructed, even the empty space. There is no point where design lapses into natural chance. The air is filtered, the gravity tuned, the light distributed without visible source or shadow. But there is no visible mechanism either—no panels to open, no seams to pry. The materials themselves are the machines, distributed evenly down to the scale of atoms. It is tech without parts, function without interface.
+
+And yet: it is not perfectly regular. In some corridors the rhythm of arches skips a beat. A step lifts you slightly higher or lowers you too soon. Colors shift between shades that cannot be named, slip sideways in memory. You could map this place forever and the map would never quite fit itself, revealing blank spaces where you stood, corridors that curve through the page instead of across it.
+
+It is a world fully occupied by its own emptiness. A sealed thought, endlessly revised. A single room without edges, bright and loud and never changing.

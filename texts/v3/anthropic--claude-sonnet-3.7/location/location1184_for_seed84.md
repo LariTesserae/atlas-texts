@@ -1,0 +1,21 @@
+# The Undershelves
+
+It's always dusk in the Undershelves, a warm dimness that never brightens nor darkens. The entirety of this realm consists of handwoven structures—thousands upon thousands of shallow, concentric baskets suspended from one another, forming a layered world that stretches out in all directions.
+
+Each woven shelf is made from reeds collected long ago from a world now forgotten. The craftsmanship is primitive but precise, with intricate patterns of loose and tight weaving that create channels where water perpetually trickles. The moisture doesn't pool but travels along predetermined paths, maintaining a constant wetness without flooding. The baskets hang in a vast open space, the distance between levels sometimes narrow enough for a person to touch both ceiling and floor, sometimes opening to cathedral-like chambers where dozens of basket-platforms hang at different heights.
+
+The water comes from nowhere visible, condensing on the higher baskets and working its way down through the woven channels. It gives the air a perpetual humidity, warm and close against the skin. In places, the water drips steadily, creating gentle percussion that only emphasizes the profound quiet of the space. The dripping follows patterns—some baskets receive a drop every seven heartbeats, others every thirteen, creating a subtle, never-repeating rhythm that has continued unchanged for uncountable time.
+
+Vegetation is sparse but deliberate. Small, pale ferns grow from the dampest portions of the baskets, their roots woven directly into the structure. Luminescent mosses provide the only light, glowing a soft amber that barely illuminates the nearest surfaces. These plants never grow larger, never spread beyond their designated places—they seem as crafted as the baskets themselves.
+
+The true masters of the Undershelves are the creatures. They are everywhere—a civilization of small, translucent amphibians that look like a cross between salamanders and shrimp. They move in coordinated waves across the woven surfaces, their bodies faintly luminous, adding to the dim light. They range from the size of a fingertip to as long as a forearm, with the larger ones moving more slowly, deliberately. They tend to the structure, reweaving loose reeds, clearing channels of debris, maintaining this enclosed world with silent diligence.
+
+Between the hanging levels, the air stretches empty and still. Standing at the edge of a basket-platform and looking out, one can see only darkness beyond the nearest structures, giving the impression of islands of existence floating in void. The creatures sometimes leap from one level to another, their translucent bodies briefly visible in the emptiness before landing precisely on another woven surface.
+
+There is no wind here, no seasons, no change of any kind. The woven world persists in perfect equilibrium—the water flows, the creatures tend, the sparse plants provide oxygen and light. Nothing decays, nothing grows beyond its bounds. The temperature remains constant, a pleasant warmth that requires neither clothing nor shelter.
+
+The entire construct feels simultaneously ancient and newborn. The weaving technique speaks of primitive craftsmanship, yet many of the patterns look freshly made, with sharp, defined edges. It's as if this place exists outside normal time, neither aging nor evolving.
+
+Visitors must move carefully across the woven surfaces, for while the construction is sturdy, it has rules of its own. Step too heavily near the edge, and a basket might tilt. Disturb the water channels, and the amphibious creatures will gather around to repair the damage, their silent work both fascinating and unsettling in its coordination.
+
+The Undershelves offer no explanation for their existence, no visible purpose beyond their own perpetuation. They simply are—a warm, damp, woven world hanging in darkness, tended by creatures that never sleep, illuminated by plants that never grow, fed by water that never stops flowing, all existing in a silence broken only by the patient, patterned dripping that marks a time with no beginning and no end.

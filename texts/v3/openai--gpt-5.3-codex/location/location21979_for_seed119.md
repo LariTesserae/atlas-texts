@@ -1,0 +1,29 @@
+At first glance, it looks like a ruined courtyard after rain—just stone, water, and echo—but the longer you stand there, the clearer it becomes that this is not ruin in the usual sense. It is an old made place still doing exactly what it was made to do.
+
+The whole landscape is built.
+
+Not “a settlement in nature,” but a complete ground of laid material: broad plates of dark fired clay, fitted timber grilles blackened with age, stacked river-brick, rope-lashed retaining walls, shell-lime plaster long since pitted and furred with mineral bloom. Even the low rises are artificial, packed embankments with stair-step sides. The hollows are lined basins. The channels have beveled lips where water has worn them smooth over generations. There is no raw soil underfoot unless something has broken open. When that happens, what shows is older construction beneath newer construction—layer after layer of hands.
+
+It is low country, nearly level, enclosed like a shallow bowl no bigger than a small village and its fields, though there are no fields now. The boundary is clear: an outer ring of leaning posts and slat-work flood screens, patched and repatched with simple joinery. Beyond them, mist and flatness. Inside, everything is passage, reservoir, lip, sluice, platform. You can cross the whole place in minutes, but it never feels small because most of it is open water channels and empty paved flats with long sightlines. Presences are rare and far apart. A person at the far end seems like a moving mark on tile.
+
+The light is dim even in daytime. Clouds sit low and thick, and the air is full of suspended moisture that drinks brightness before it reaches the ground. Surfaces shine, but they do not glow. The wet clay reflects a dull pewter sky. Vertical faces sweat steadily. Ropes darken. Wood swells. Stone weeps from hairline seams where cool air meets warmer trapped damp inside old walls. In the early hours, condensation gathers under every beam and falls in patient rhythms: tick, tick, tick into standing water.
+
+Vegetation is sparse, almost decorative by accident. A few hard reeds have found joints where mortar failed. Moss stripes the north faces of retaining walls. Thin liverwort shines in places that never dry. One or two stunted shrubs cling to rooftop gutters where silt has collected over years. Nothing lush, nothing wild enough to reclaim. Roots here have little to grip except cracks.
+
+But life is everywhere else.
+
+The sound hits first: a layered, relentless chorus. Frogs in the channels bark and trill in overlapping tempos. Marsh birds nest in abandoned watch frames and scream at anything moving below. Insects whirr in clouds over every warm patch of water and drum against hollow planks. Somewhere, always, there is the clatter of claws on tile—small otter-shaped scavengers, six-legged gutter runners, broad-backed toads launching themselves from ledge to ledge. Fish slap in cistern mouths. Wings beat under eaves. Predators call from the flood screens at dusk, and all at once the smaller voices shift key.
+
+It is loud not because of crowds, but because every hard surface returns sound. Croaks bounce down channels; wingbeats ricochet under arches; drips become percussion. Even quiet movement acquires an audible edge—sandals scuffing grit, a pole knocking against a post, a latch dropping into place. You hear the place working.
+
+The technology of it is simple and intimate: lever gates, counterweighted shutters, woven fish traps, hand-carved spillways, ceramic valves turned by handspikes, signal rattles made from shells strung on cord. Nothing hidden. Nothing electric. Mechanisms are visible and repairable by anyone patient enough. And they are in constant use, because water never stops pressing. After each rain, crews (or whoever is left of them) walk the perimeter with mallets and wedges, reseating planks, clearing grates, reopening blocked cuts. If they don’t, one basin overtops, then another, then the whole interior becomes a single cold sheet.
+
+That may be the central rule of this place: if unattended, it does not collapse—it rearranges into a different machine.
+
+The strange part is how animals have learned the machine better than people. Certain birds wait by specific overflow slots just before pressure release, knowing fish will flush there. Pale eels thread through ceramic inspection tubes and emerge in upper cisterns no predator can reach. A colony of blind crabs lives inside the hollow feet of old statues and comes out only when fog condenses enough to form rivulets down the carved legs. At night, fox-sized marsh hunters run the dry ridgelines of the embankments with uncanny precision, never slipping, as if they can read the gradient by paw.
+
+When weather rolls through, everything accelerates. Wind drives mist sideways under roofs. Gates thud and chatter. Frogs surge into mating calls so loud they become a physical vibration in the chest. Birds circle in dense, shouting spirals over the deepest basin. Water climbs, spills, finds old emergency cuts in the paving, and for an hour the entire ground is a map of moving silver lines. Then the rain passes. Flow settles. The machine exhales into drip and steam.
+
+In the lingering cool, you can stand on a central platform—a square of worn boards bound with bronze nails gone green—and see nearly all of it: the wet geometry, the empty reaches between structures, the sparse streaks of green, the tireless animal traffic, the dark water held just below every threshold. It feels ancient, but not dead; engineered, but not controlled.
+
+A marsh made by hands, kept alive by weather, inhabited by anything that can listen to water.

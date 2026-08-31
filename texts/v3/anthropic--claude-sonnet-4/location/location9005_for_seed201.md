@@ -1,0 +1,19 @@
+**The Throat of Bellows**
+
+High in the jagged spine of newborn mountains, where the earth still remembers its molten birth, there exists a singular cavity—a geological throat carved not by water but by the planet's own breathing. This hidden amphitheater, no larger than a cathedral nave, pulses with the deep respiration of stone.
+
+The walls rise in pristine bands of cooling basalt and obsidian, their surfaces mirror-smooth where they've been polished by centuries of wind-song. These are not weathered cliffs but fresh-broken faces, still sharp-edged and gleaming, as if the mountain cracked open yesterday to reveal this secret chamber. Veins of copper and silver thread through the black stone like frozen lightning, untarnished by moisture that has never existed here.
+
+The floor is a carpet of volcanic glass fragments, ranging from sand-fine to palm-sized shards, all singing in endless harmonics as they shift and resettle. Between the glittering debris, sparse tufts of metallic-blue grass emerge—not growing from soil, but somehow rooted directly into the crystalline substrate. These hardy spears catch what little light filters down and throw it back in prismatic flashes.
+
+Above, the cavity opens to a slice of sky so narrow it appears as a bright crack in the darkness. The walls lean inward, creating a natural resonance chamber that amplifies every sound into thunderous reverberations. The constant movement of glass fragments creates a low, crystalline susurrus that builds and fades in waves. Occasionally, thermal vents hidden in the wall crevices release sudden hisses of superheated air, each exhalation setting the loose stones to chattering like wind chimes.
+
+The temperature here holds at the edge of comfort—warm enough that the air shimmers slightly, heated by the mountain's deep furnace but cooled by altitude winds that whistle through the throat's opening. No moisture condenses on these walls; the air drinks thirsty from any breath that enters.
+
+In the shifting carpet of glass, things move. Not often, but when they do, they move with purpose. Creatures like living mercury, no larger than mice, slip between the fragments with liquid grace. Their bodies catch and scatter light as they hunt for microscopic minerals, leaving temporary trails of disturbed glass that chime softly in their wake. They are the only fauna this place tolerates—beings more mineral than flesh, existing at the boundary between life and geology.
+
+Scattered throughout the chamber, half-buried in the glittering debris, stand remnants of some previous presence. Smooth pillars of worked stone, too regular to be natural, rise at irregular intervals. They show no tool marks, no joints—as if they condensed from thought itself. Some lean at impossible angles, others have cracked and begun to sink into the restless floor. Their purpose remains opaque, but they resonate when the mountain breathes, adding deeper notes to the chamber's eternal song.
+
+The space pulses with constant motion. Glass cascades in tiny avalanches from ledge to ledge. Thermal currents spiral up the throat, carrying glittering motes in helical dances. The very walls seem to expand and contract slightly, as if the mountain's heart beats somewhere far below. Light shifts moment by moment as clouds pass over the distant opening, sending waves of brightness and shadow racing across the prismatic surfaces.
+
+This is a place of pure becoming—too young for erosion, too isolated for intrusion, too strange for easy understanding. It exists in its own temporal pocket, a throat through which the mountain speaks in languages of light and stone and endless, tumultuous song.

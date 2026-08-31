@@ -1,0 +1,21 @@
+The district breathes through its pores. 
+
+Water seeps from every surface here—not flooding, but perpetually weeping. The old industrial quarter has become a vertical wetland, its brick and iron bones colonized so thoroughly by vegetation that the distinction between building and plant has dissolved. Vines have replaced mortar. Root systems thread through steam pipes. What were once factory walls now exist as suggestions beneath curtains of moss thick as mattresses.
+
+The air tastes green and mineral. It's warm enough that the constant moisture never quite condenses, instead hanging as an almost-mist that softens edges and makes distances uncertain. The smell is overwhelming: composting leaves, rust becoming earth, the sweet rot of fruit from the canopy level where old fire escapes support orchards that no one planted.
+
+This is still a working district, though its industry has changed. The factories that once processed textiles now process water. Their great wheels, wound about with kelp and flowering vines, turn slowly in the current that runs through what used to be streets. The water moves languidly at ankle depth, tinted amber by tannins, carrying seeds and spores between the root-buttressed buildings.
+
+The sound is constant but layered—a industrial hum has been replaced by ten thousand small drippings, the gurgle of water through living pipes, the creak of branch-beams adjusting their loads. Steam vents still whistle, but now they feed aerial root systems that hang like chandeliers in the green-filtered light. Somewhere deeper in the district, a pump station chugs steadily, its rhythm almost biological.
+
+The residents adapted rather than fled. Walkways span between buildings at the second story, woven from living branches trained across the gaps. Windows have become planters. Balconies sag under the weight of productive gardens. The old loading docks serve as boat launches for the shallow-draft vessels that navigate the flooded streets. Power still flows through cables wrapped in bark, feeding grow-lights in the deeper recesses where natural light can't penetrate the canopy.
+
+At the district's heart stands the old turbine hall, its roof long since collapsed. A tree grows there now—or perhaps it's many trees fused into one—its trunk thirty feet across, its crown spreading over the surrounding blocks. Its roots run through every basement, every foundation, binding the whole quarter into a single living mass. The turbines still turn in their housings, but now they're powered by the tree's circulation, their motion pumping nutrients through the district's green veins.
+
+Birds are rare here, and mammals rarer still. The ecosystem runs on invertebrates—beetles processing deadwood, worms aerating the root-mass, clouds of gnats rising from the water at dusk. Occasionally something larger moves through the middle canopy, but whether animal or animated plant, no one can say for certain.
+
+Time moves differently in the district. Changes happen, but slowly, as living architecture adjusts itself, as channels shift their courses, as the balance between decay and growth finds new equilibria. The human inhabitants have learned this patience. They tend their machines with the same unhurried care they give their gardens, understanding that in this marriage of industry and jungle, both partners must be allowed their rhythms.
+
+The edges of the district are sharp. Where the root-mass ends, the dry city begins abruptly. But each year the boundary creeps outward, one building at a time learning to weep, to breathe, to grow. The civic authorities have long since stopped trying to contain it. Instead, they've zoned it as critical infrastructure, understanding finally that the district's vast biological machinery processes more water, cleans more air, produces more food than any conventional system could manage.
+
+In the early morning, when mist rises from the warm water and the grow-lights haven't yet kicked on, the district reveals its truest nature. Neither natural nor artificial, neither forest nor city, but something entirely itself—a place where the industrial age learned to decompose gracefully, feeding something stranger and more generous than anyone could have planned.

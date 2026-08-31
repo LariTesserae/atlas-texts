@@ -1,0 +1,23 @@
+The air hits the skin like a cold, wet cloth. It is a cool dampness that settles into the joints, a pervasive humidity that lacks the mercy of rain. Here, the moisture does not fall from the sky so much as it exhales from the ground itself. The world feels heavy, suspended in a perpetual twilight where the light is scarce and the shadows are long, smudging the edges of perception until there is no clear line between the solid earth and the dark air above.
+
+You stand in a vast, low basin, a geological bowl stretching miles into the gloom. The scale is open and regional, yet the atmosphere presses in, making the horizon feel intimate and claustrophobic. There is no wind to speak of, only the shifting of heavy, wet air.
+
+There are no trees here. No grass, no ferns, no green veil to soften the bone structure of the world. The vegetation score is effectively zero, stripping the landscape of the chlorophyll backdrop that usually defines life. Instead, the ground is a riot of geology—ancient, settled, and eroded. The terrain is composed of a dense, intricate lattice of rock. It looks like a petrified sponge, or a city frozen in the moment of its collapse. The stone is dark, perhaps a porous basalt or a heavy, waterlogged limestone, worn smooth over eons into rounded, tumescent shapes that fit together with terrifying density.
+
+This is the "Established" erosion at work. Nothing here is sharp or new; every edge has been caressed by time into a dull, tactile curve. The ground is a labyrinth of hollows, cups, and channels, each one filled with a few inches of stagnant, black water. It is a landscape of pockets, a dampness that hides in the creases of the earth.
+
+But the silence of the plant world is shattered by the noise. The sound parameter is deafening—a wall of static that vibrates in the chest. It is not the roar of a waterfall or the howl of wind; it is the biological noise of a billion tiny bodies.
+
+The fauna is overwhelming. Because there are no plants, the ecosystem has turned the stone itself into a larder. The ground moves. What looks like a carpet of wet, grey gravel is actually a shifting mass of chitin and carapace. The "density" here is terrifying; the open spaces between rocks are choked with life.
+
+The creatures are small, mostly, ranging from the size of a fingernail to that of a small dog. They are pale, translucent things in the darkness, lacking pigment because the sun rarely touches them. They have evolved to exploit the dampness and the mineral nutrition of the stone. They are grazers, scraping algae-like bacterial films from the wet rocks, or detritivores, filtering the sludge that collects in the water pockets.
+
+There is a weirdness to their movement. They move in waves, a rhythmic, pulsing migration that flows over the rocks like a single, liquid organism. When a food source—a rare patch of luminous bacteria—is found, the ground boils with activity.
+
+And because there is so much prey, there are predators. Larger, spindly horrors that stalk the top of the rock formations. They move with a slow, clicking deliberation, their long legs tapping rhythmically on the stone, adding a percussive element to the constant hiss and chitter of the swarm. They do not hunt by sight—light is too scarce for that—but by vibration. To stand still is to disappear; to run is to invite the pounce.
+
+The dynamic of the place is one of frantic, blind consumption. It is an active ecosystem, but accelerated. The turnover of life is visible. Carcasses are stripped of nutrients in minutes, their white husks adding to the geological layer of the ground. The air smells of ozone, wet iron, and the sharp, acrid tang of ammonia from the dense waste of the swarm.
+
+There are no structures, no tools, no technology. This is pure, raw biology overlaid on ancient geology. The "rules" of this world are simple but brutal: stay low, stay damp, keep moving, and make noise. Silence is the only signal of death here, and death is the one thing that creates a gap in the deafening choir of life.
+
+Navigating this place means walking on a shifting, crunchy carpet of living things. The water in the pockets is warm from the heat of decomposing bodies. The light level is just high enough to catch the glint of a million wet eyes and shells, turning the open landscape into a shimmering, writhing mosaic in the dark. It is a valley of entombed life, a cool, wet, screaming oven of existence, cooking in its own juices under a black sky.

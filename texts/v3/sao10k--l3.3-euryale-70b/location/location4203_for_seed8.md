@@ -1,0 +1,11 @@
+In this vast, ancient landscape, the land has been worn smooth by the relentless passage of time. The terrain stretches out as far as the eye can see, a seemingly endless expanse of low-lying plains and shallow depressions. The ground is spongy beneath the feet, water oozing up from the surface to soak into the thirsty earth. Tiny rivulets form and disappear, leaving behind a network of glistening trails that reflect the bright sky above.
+
+Despite the abundance of water, vegetation is scarce. Tough, wiry grasses and succulent cacti are the only plants hardy enough to survive in this harsh environment. They grow in scattered clumps, often surrounded by a ring of barren earth where their roots have sucked the soil dry.
+
+The air is thick with the smells of damp earth and ozone. Thunder rumbles in the distance, a constant presence that vibrates through the air, a hum that seems to emanate from the very earth itself. Every so often, a bolt of lightning will illuminate the dark sky, casting an ethereal glow over the landscape.
+
+In this primordial world, time moves slowly. Erosion wears down the rocky outcroppings, grain by grain, over millennia. Ancient riverbeds, long since dried up, stretch out like bony fingers, a testament to the patient power of water. Even the sparse vegetation seems to be in a state of suspended animation, as if waiting for some signal to burst forth into new life.
+
+The only signs of life come from the abundant fauna that roam this desolate landscape. Giant, lumbering beasts with scaly skin and massive claws plod across the plains, their footsteps causing the ground to shudder. Birds with iridescent feathers and razor-sharp talons ride the wind currents high above, their piercing calls echoing across the vast expanse.
+
+In this timeless world, the laws of nature are simple and unyielding. Water flows downhill, seeking out the lowest points to collect and stagnate. The sun beats down relentlessly, evaporating the surface water into the air. The cycle repeats, day in and day out, as the land slowly, imperceptibly, wears away.

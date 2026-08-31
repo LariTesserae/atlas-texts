@@ -1,0 +1,17 @@
+The Brackish Expanse. It sprawls, not with empty grandeur, but with the suffocating completeness of a forgotten god’s overgrown garden.
+
+The light barely penetrates the canopy. Not a forest canopy of individual trees reaching for the sun, but a woven, tangled mat of living things – broad, fleshy leaves overlapping like shingles, stalks thicker than any terrestrial tree trunk knotted together with vines that gleam like wet copper. It's close to pitch black, save for the bio-luminescent fungi that cling to the thicker stems, casting a sickly green light that barely reaches the saturated ground.
+
+That ground... is hard to define. It’s not solid earth. It’s a dense mat of root systems, decaying vegetation, and a unique form of moss-analog that drinks the constant condensation from the air. The air is thick, heavy with humidity and the metallic tang of the numerous processing facilities submerged in the surrounding marsh. Each step sinks into the mire, soaking boots and legs in tepid, oily water.
+
+Everywhere towers plant life. Giant stalks rise 100s of feet, covered in a thick skin of plant fiber. Steam vents riddle plant stalks that have died, allowing internal plant gasses to vent into the atmosphere. The stalks closest to the ground are hollowed out and filled with a black ichor that is most likely a food source for other forms of plant life.
+
+The silence is almost as oppressive as the darkness. The only sounds are the drip, drip, drip of condensation falling from the leaves above and the rumble of some kind of engine far away. No rustling, no chirping, no croaking. Just the unblinking, unnerving stillness of a world teeming with plant life but utterly devoid of animal presence.
+
+The rivers running through The Brackish Expanse are brown and sluggish. They move with the steady, implacable pace of geological ages. The water is surprisingly warm, almost bath-like, and coated with an iridescent sheen – the runoff from the factories embedded deep within the marsh. Occasionally, a bubble of methane rises to the surface with a wet *plop*, releasing a foul, marshy odor that catches at the back of the throat.
+
+The factories are... odd. Not built structures, but more like enormous, hollowed-out seed pods, their fibrous husks reinforced with riveted metal plates. Steam hisses from corroded pipes that burrow deep into the surrounding vegetation. There is an ordered chaos about them. They seem grown more than *built*, seamlessly integrated into the ecosystem. They don't seem to be producing anything. Instead, they seem to be maintaining a state of equilibrium, a frozen snapshot of an industrial process long forgotten.
+
+The air itself is subtly electrified. The phosphorescent fungi glow brighter near the metal components of the plant-factories. One can feel a faint tingling on the skin, a static charge that raises the hairs on the back of the neck. The nature of such an energy is unknown to us, but may play an important role in the ecosystems of The Brackish Expanse.
+
+The most unsettling part of the Brackish Expanse is its unchanging nature. Days blur into nights under the perpetual twilight. The plants do not seem to grow or wither. The rivers do not rise or fall. The factories hum with a monotonous, unwavering rhythm. It’s as if the entire place is trapped, like a fly in amber, suspended in a single, eternal moment. The stagnation is so profound it is weird.

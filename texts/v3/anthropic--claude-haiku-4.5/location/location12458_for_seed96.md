@@ -1,0 +1,31 @@
+# The Tarn-Works
+
+You stand on a shelf of layered stone at what might be called afternoon, though the light here never sharpens into a true sun-position. The sky is uniformly bright—not white, but the color of overexposed bone—and it maintains its brightness whether you look directly up or at the horizon. There are no shadows. No directional light. Just this constant, sourceless illumination that makes depth difficult to judge.
+
+The ground beneath your feet is entirely constructed. What you walk on is a pavement of fitted slate, so precisely jointed that you can barely fit a fingernail into the seams. This pavement extends in both directions, following the contour of the high plateau you're standing on, perhaps 2,000 meters above whatever lies below. The elevation is notable but not shocking—the air is cool, maybe 8 or 9 degrees Celsius, and carries a perpetual faint moisture, a condensation that beads on the stone without pooling, as if the air itself is slowly, patiently sweating.
+
+But the real feature—the thing that dominates everything—is the water.
+
+It's everywhere, yet nowhere obvious. The entire landscape is saturated with it. Water runs in engineered channels carved into the stone, a network so dense that you couldn't walk thirty meters without crossing one of the narrow, methodical runnels. The channels don't flow dramatically; they move with glacial patience, some barely perceptible, others moving at the speed of spilled milk across a kitchen table. The water is clear but not colorless—it has a slight mineral tint, almost pale blue, and where it pools in shallow basins at regular intervals, the light catches it and creates a rhythm of glints, like breathing.
+
+The channels form patterns. This becomes clear as you look outward across the region. They don't branch randomly. They fork in deliberate angles, meet in constructed confluences where three or four channels join into wider gutters, and those feed into slightly larger troughs that run toward the plateau's edge. It's a system. A built thing. Hand-made and maintained, though you see no one working on it.
+
+The water seeps, too. It doesn't just run in the channels—it rises from the stone itself. The entire plateau is damp, visibly damp, the surface of the slate darkened in patches where capillary action draws moisture upward from reserves you can't see. Your clothes grow slowly heavier as you stand. Condensation beads on any metal you're wearing. The air tastes faintly mineral, slightly metallic, like the smell that precedes rain.
+
+There are structures here. Not buildings exactly, but constructed forms—low walls of stacked stone, perhaps a meter or so in height, organized into rectangular compounds. They're frequent, dense, packed together in patterns that suggest they were built to maximize the amount of structure relative to the available space. Between them, more channels. More wet stone. More of the patient, inexorable moisture.
+
+Some of the compounds have basins in their centers—collected water held in stone reservoirs, their surfaces still, the reflected light from above creating perfect inverted copies of the pale bright sky. The water in these basins is darker, more saturated with whatever mineral or sediment collects there. You can see algae-like staining on the sides, but it doesn't move, doesn't seem alive. Just discoloration. Mineral deposit. The record of slow accumulation.
+
+The tools here are simple—copper chisels left in crevices, stone hammers, wooden scaffolding of ancient design used for maintenance or adjustment of the channel system. Everything speaks of hand-work, of a civilization that understands water the way an expert understands a written language, but who has access only to hammers, chisels, and patient labor. No pumps. No sophisticated plumbing. Just gravity, angle, patience, and carved stone.
+
+The sound is minimal. Not silent—silence would be easier to bear. Instead, it's the sound of water. Dozens, hundreds of tiny sounds layered beneath each other: the whisper of flow in narrow channels, the occasional *plink* of a drop hitting still water in a basin, the subtle *shhhhh* of water seeping through stone. But these sounds are quiet, almost subliminal. You have to listen for them. They create an acoustic landscape that seems to exist just at the threshold of perception, a presence you feel through attention rather than through volume.
+
+The erosion here is minimal. Everything is young, or maintained as if young. The stone is sharp-edged, the channels clear-walled, the basins unsilted. There's a sense that this place was created recently—within the last few centuries, perhaps—but more than that, there's a sense that it's *maintained* in a state of freshness. As if someone is always recarving, always re-laying the stone, always removing the accumulated detritus before it can take hold. Whatever this civilization is, it's devotional about this work. Obsessive. Patient in the way that only obsession can sustain.
+
+You see no life. No plants—the conditions wouldn't allow them, and besides, there's no soil, nothing but stone. No insects. No birds. No animals at all. Just the water, the stone, the structures, the light, and the slow passage of time.
+
+Looking outward across the plateau, the landscape extends for what seems like many kilometers—the density of compounds and channels is so consistent that it fades into a kind of visual texture rather than becoming smaller. A city of water-works. A civilization of hydrology. Somewhere below the plateau's edge, you know, there must be a drop—a cliff, perhaps, or a sloping descent where all this collected water eventually releases into the world below. But from here, the plateau seems to extend endlessly, a gridded country of wet stone and patient channels, built by hands that are no longer visible, maintained by something you can't quite perceive.
+
+The temperature is steady. Not comfortable, but not harsh. You could survive here. You're already becoming accustomed to the moisture. Your initial sense of displacement is fading, replaced by a kind of resigned understanding: this is how things are done here. This is the world. Water, stone, channel, pool, repeat. The slow work of moving water through a built landscape, with no clear purpose beyond the movement itself.
+
+Or perhaps the movement is the purpose.

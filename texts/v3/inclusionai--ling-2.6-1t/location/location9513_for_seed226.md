@@ -1,0 +1,29 @@
+The bowl is cupped between shoulders of new stone, a high shelf at breath-cool temperature, where the air settles like a rinsed linen over skin. At this elevation the sky is not a backdrop but a pressure, thin and clear enough to make every edge brittle-bright, while the ground beneath is still deciding how to lie. The place is only a little larger than a town might need, yet it feels excavated more than built, an airy cavity that hums with its own throat.
+
+Water is everywhere and nowhere at once, a frequent guest that has not yet learned its routes. It condenses on stone collars overnight and drips in bright counted beats by morning. Shallow runnels braid into moss-cushioned troughs and vanish into fist-wide sinkholes that exhale vapour like sleepy mouths. There are no rivers, only proposals for rivers—thin silver seams that hesitate across ribs of bedrock, pooling in pans that were empty yesterday. The wet is a kind of grammar here, revising the stone as fast as it can read it.
+
+Vegetation is lush but polite, as if it has agreed not to crowd. Fronds unfurl from crevices in arrangements that look deliberate, like sentences half-written. Mosses build velvet staircases up the inside of hollows; pale lichens sketch maps on surfaces too new to have names. Small thickets of wiry stems cluster where water lingers longest, each leaf tipped with a bead of captured sky. The greenery is dense in patches, generous in its making, yet it stops short of closing the space, leaving room for air to move.
+
+Temperature is a constant low note, not biting but enough to sharpen scent and sound. It keeps things from blooming too quickly, lends patience to decay, and makes the vapour breathe in visible layers. The cool encourages thresholds—doorways that are not quite doors, curtains of root and stone you pass through rather than open.
+
+Erosion is an afterthought. The land is embryonic, still folded in places, as though the earth here has not yet decided whether it is ridge or basin. Raw faces gleam with a mineral freshness, edges unblunted, striations still showing the memory of folding. In sheltered hollows, stone begins to soften, not from wear but from the slow attentions of water and root. The process is audible: faint clicks and shifts, like a potter testing the temper of clay.
+
+Scale is intimate. This is a hamlet-sized hollow, a stone room with neighborhoods inside it. A few clearings could each hold a courtyard; the tallest spire of new rock is only as high as a tower that keeps its bells in its throat. Boundaries are felt more than seen—rimlines where the air tightens, where the hum deepens.
+
+Density is the inverse of clutter. Space stretches between things like held breath. You can stand in the middle and hear your own pulse returned from three directions. The emptiness is not sterile; it is expectant, a stage that has not yet grown accustomed to actors.
+
+What has been built is a town of almost nothing, an urban lattice sketched in stick and stone, rope and spit. Walls are low, more suggestion than obstacle, following seams in the rock as if reading aloud. Shelters lean together like listeners, roofs layered with bark and shale, gutters of folded leaf that carry last night’s rain into cisterns carved from single knots in the bedrock. There are paths paved with flat, careful fragments, and bridges that are really just agreements between outcrops. No metal shines; tools are of flint and bone, wood shaved to purpose, cord twisted from stem and sinew. Smoke rises in patient threads from small vents, smelling of damp combustion and green things learning to burn.
+
+Technology is simple and thorough. People—few but distinct—work with weight and angle, balancing stones the way you balance a cup on a knee. They shape without hurry, testing each addition by hand, repairing with the same care given to a story told twice. There is no rush to finish. The town is a process more than a plan.
+
+Light is normal, full, and impartial. It arrives across the bowl’s rim and breaks into patches on the floor, shifting slowly. By afternoon the air is bright enough for color to mean what it says; by evening the light withdraws like a tide, leaving surfaces articulate in shadow.
+
+Fauna is rare but expressive. You hear a single bird practicing its scale from a cleft, or see the deliberate stitch of a many-legged thing crossing a warm stone. Tracks appear overnight, neat and deliberate, and are gone by noon. Presence is punctuation, not paragraph.
+
+Weirdness is modest but persistent. Sometimes a patch of water runs uphill for a stride before remembering itself. Certain stones sing when struck, not with tone but with a word-shaped thud. The air above one shallow pool sometimes shows a second pool, upside down and silent, that blinks out if you stare too long. The unusual here is not spectacle but cadence.
+
+Sound is loud because there is so little to absorb it. Footsteps drum like soft knocks on hollow ground. Water declares itself in crisp impacts, in the slapping of drops into tinier drops. Conversation travels as a physical thing, rounding corners and returning with the smell of wet stone. The hum of the place is not mechanical but structural, as if the space itself were tuning its ribs.
+
+Change is slow, as if the landscape is conserving its decisions. Water lowers a grain at a time; stone thickens its skin in thin, patient layers. Seasons are less a swing than a leaning, a gradual tilt of light and damp. The town grows by accretion, not explosion, each addition weighed against the silence it will inhabit.
+
+As you walk the lanes—really just compacted ribbons between stone and intent—you feel the place becoming. It is a hollow that is also a vessel, high enough to be cool, wet enough to be alive, empty enough to be honest. The built things are careful parentheses around an unwritten middle, and the loudness is the sound of beginnings insisting, quietly, that they be heard.

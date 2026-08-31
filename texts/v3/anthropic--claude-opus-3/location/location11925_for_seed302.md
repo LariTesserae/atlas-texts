@@ -1,0 +1,11 @@
+A vast expanse of hard, jet-black volcanic glass stretches to the horizon, forming a surreal and alien landscape. The obsidian plateau is cracked and fractured into countless shards and fragments that glisten like dark mirrors beneath a blinding sun. Despite the brightness, the air is cool, chilled by constant winds that howl across the razor-sharp terrain.
+
+Condensation forms on the glossy surfaces, creating a slick sheen and ephemeral rivulets that evaporate before ever pooling. The glass crackles and chimes as thermal stresses splinter it into ever finer pieces. Jagged spires thrust from the plateau at chaotic angles, like the scales of some petrified leviathan breaching from a sea of solid night.
+
+In the distance, a range of snow-capped peaks scintillates beneath the stark light, their slopes armored in the same impenetrable volcanic glass. Massive rifts cleave the land between here and those far mountains, evidence of cataclysms long past.
+
+No plants take root in this barren world of silicate blades. No soil exists to nourish them. Only the most resilient of creatures could eke out an existence here - obsidian-carapaced beetles that drink the scant dew, or transparent flying things that ride the frigid gales and subsist on windblown motes. The fauna are as crystalline and austere as the land itself.
+
+It is an environment of exquisite hostility - a place of diamond-pure elements reduced to their most uncompromising forms. Black glass, white light, chill wind. A static tableau that has persisted in mineral solitude for eons, weathered but unchanging, the end-state of some prehistoric paroxysm now locked in adamantine stasis.
+
+The shrieking of the ceaseless wind across the glassy crags fills the world, a banshee-keen that pierces to the bone. That hollow dirge, the glitter-scatter of light across infinite dark facets, the knife-edge cold - these are the only constants in this haunting and unforgiving corner of existence, a place at once wondrous and inimical to life.

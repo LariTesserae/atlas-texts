@@ -1,0 +1,15 @@
+A vast marine plateau stretches beneath permanent day. The water here is peculiarly clear - almost invisible save for the way it refracts the endless light from above. This clarity extends for hundreds of kilometers in every direction, creating an effect of suspended animation, as if everything is held in an impossibly pure crystal.
+
+The cold is constant but not bitter, regulated by ancient currents that move so slowly they might as well be still. These currents, though barely perceptible, have carved the plateau into a series of gentle terraces over millions of years. Each terrace hosts dense forests of pale vegetation - ghostly kelp forests that grow in perfect, unwavering columns, their translucent fronds barely moving in the negligible flow.
+
+Between these forests stretch great empty spaces, where the light penetrates uninterrupted to the seafloor. The bottom is covered in a carpet of tiny, phosphorescent organisms that have evolved to harvest the abundant light, creating a mirror effect - as if the sea has two skies, one above and one below.
+
+The silence is profound but not complete. It's punctuated by the deep, low-frequency songs of vast filter-feeding creatures that drift through the water columns. These beings, neither quite plant nor animal, have developed over eons to exist in perfect homeostasis with their environment. They trail long, gossamer appendages through the water, collecting sustenance with methodical patience. Their bodies are semi-transparent, adapting to the perpetual brightness, and they move with such slowness that they appear frozen in place.
+
+Smaller creatures swarm in massive, geometric schools that look like living architecture. They maintain their formations with mathematical precision, creating shapes that seem almost industrial in their regularity - spheres, cylinders, and complex helixes that extend for kilometers. These formations never break or shift; the creatures are born into their positions and remain there for life, part of a system so ancient that it operates like a machine.
+
+The light never dims or brightens, but rather maintains a constant, piercing clarity that seems to illuminate every molecule of water. This illumination reveals particles suspended in the water - not dirt or debris, but tiny crystalline structures that hover in place, neither sinking nor rising, part of the perfect equilibrium that defines this place.
+
+There's a sense of timelessness here, as if evolution itself has reached its end point. Nothing decays or dies in any conventional sense - matter simply transforms from one state to another in an endless, perfectly balanced cycle. The cold preserves, the light sustains, and the vast scale of the plateau ensures that this system will continue indefinitely, unchanging and self-contained.
+
+The most striking feature is perhaps the absolute efficiency of the ecosystem - no energy is wasted, no motion is unnecessary, no space is truly empty though it may appear so at first glance. It's an industrial system created by nature itself, operating with the precision of a cosmic machine, yet maintaining the organic fluidity of a living thing.

@@ -1,0 +1,79 @@
+Below the surface, where one expects stone, there is a valley of living dryness.
+
+It lies under a continent of pale crust: not a cave exactly, because caves are made by absence, by hollows eaten through rock, and this place seems not carved but grown outward from an idea. The ceiling is low in some districts and impossibly high in others, a raw mineral sky of salt, basalt, mica, and compacted ash. It glows with a steady ordinary light, neither dawn nor noon, shed by sheets of translucent root-tissue pressed against the overhead rock. The light is the color of old parchment and warm bone. It makes shadows. It allows distance. You can see far enough to understand that the place is large: not a chamber, but a buried region, an under-valley extending for miles, subdivided by ridges of root, towers of cellulose, mounds of husk, and young geological folds still soft enough to bruise.
+
+There is no water here. Not hidden, not trapped, not dripping from the ceiling, not stored in secret pools. The air is warm and utterly dry, carrying dust, pollen, spores, powdered mineral, and volatile plant oils that sting the nose like crushed pepper and resin. Surfaces do not glisten unless they are waxed, lacquered, or alive. Nothing trickles. Nothing seeps. Decay happens as brittleness, flaking, fermentation without dampness, tissues converting into paper, cork, amber, soot, and aromatic smoke.
+
+And yet everything is vegetation.
+
+The ground is not soil but layered plant matter: mats of root-leather, fibrous plates, springy lattices of woody vein. Some areas are tough and smooth, like the backs of gigantic leaves cured into walking paths. Others are shaggy with fine pale hairs that rise and fall in waves, sensing footfall. The walls are braided trunks fused into buttresses, their bark split open to reveal inner colors: saffron, black-purple, red like dried blood, green so dark it seems blue. There are no conventional trees, because there is no sky, but there are columns, fans, hanging curtains, ribbed domes, cork chimneys, thorned arches, seed-vaults, root-cities, and immense horizontal stems that run the length of districts like buried rivers made of wood.
+
+The plants do not drink. They mine.
+
+Their root-mouths grip seams of salt and metal. They rasp minerals from the understone with slow, toothless insistence. They breathe through membranes, exchanging gases with vents in the rock. They store heat in wax bulbs and use it at nightless intervals to cook their own chemistry. Some feed on dry lightning conducted through fungal wires. Some distill nourishment from the breath of animals. Some unfold thin silver leaves toward the ceiling-light and close them with a clap when shadow passes over them. Many are not green. Photosynthesis, if it exists here, is only one dialect in a much older language.
+
+The entire place is under construction.
+
+You can feel it. Nothing has settled into landscape yet. Hills are being inflated by root pressure. Ridges split as stems force themselves through them. Chambers collapse and are immediately netted by fresh tendrils. The ground puckers, wrinkles, rises, subsides. It is raw geology conducted by plant muscle. There are young cliffs that still smell of sap. There are fault-lines sealed with amber before dust can enter them. There are gullies that have not been eroded by water but by migration: millions of feet, claws, pads, hooks, and dragging bellies grinding paths through the vegetable floor.
+
+Some slopes are made of pale compressed spores that crunch like snow. Others are fresh growth, translucent and warm beneath the skin, veined with orange pulses. In one district, the ceiling has sagged downward and the plants have responded by growing pillars into it, crooked supports with living knots as large as huts. In another, a cavern wall has recently opened, exposing virgin black stone. Already roots have found it. Fine white threads cross the dark mineral like cracks in porcelain, but the cracks are alive, exploratory, impatient.
+
+The sound is overwhelming.
+
+It is not a single roar. It is a civilization of noises without rulers.
+
+Leaves snap open and shut. Seed pods detonate like thrown pots. Bark plates grind against each other. Hollow trunks boom as hot air rushes through them. Wings clatter in swarms. Chitin scrapes on bark. Calls rise, collide, echo, become indistinguishable. Something enormous lowing from far off is answered by ten thousand small ticking mouths. The ceiling clicks. The floor hums. Dry fronds rasp in a constant wind generated not by weather but by respiration: the vast breathing of the plant-mass, drawing and expelling warm air through its pipes and chimneys.
+
+At times the whole under-valley enters a convulsion. A pressure front moves through the roots. You hear it before it arrives: a deep wooden knocking, then a tearing, then a thunder of seeds and dust. The ground heaves. Stems twist. Foliage changes direction all at once, as if the valley has remembered a different shape. Animals scatter, climb, burrow, or leap into hanging nets. New passages open. Old ones close. A grove folds itself flat and becomes a ramp. A ramp bristles and becomes a wall. A wall splits into fragrant red chambers full of insects and ivory grubs.
+
+The fauna is everywhere, more numerous than the leaves in places, and difficult to distinguish from the vegetation until it moves.
+
+There are pale burrowing mammals with shovel faces and skin like suede, dusted yellow by pollen. They travel in herds through the root-mats, leaving shallow troughs behind them that seal within an hour. There are lizards with bark-patterned armor who sleep vertically on trunks, mouths open to catch drifting mites. There are soft-bodied grazers the size of cattle, but jointed like larvae, that browse on cork and excrete pellets of concentrated mineral salts. Their backs host gardens of parasitic moss-like growths, and smaller animals graze those gardens in turn.
+
+In the upper layers, where branches mesh into aerial streets, the dominant creatures are not birds but gliders: membrane-ribbed, hot-skinned animals with long fingers and masks of cartilage. They launch themselves from hanging root bridges and ride the updrafts from plant vents. Their calls are piercing and metallic. When the valley convulses, they rise in panicked sheets, blackening the steady light for minutes at a time.
+
+The insects are beyond counting. Mantid things with flower-shaped jaws. Beetles that polish bark until it mirrors. Ant-colonies large enough to redirect paths. Winged termites that pour from cracks like smoke. Pale bees that do not seek nectar but scrape wax, carrying it in baskets on their hind legs to build freestanding comb-towers under the ledges. Some insects cultivate plants; some plants cultivate insects. There are seed pods that will not open unless bitten by a particular jaw. There are larvae raised inside fruit that is not sweet but warm, dry, and full of powdered protein. There are vines that shake themselves to summon grazers, then shed outer skins for them to eat.
+
+Predators are present but often indirect. A thorn-maze may close around a herd not to digest it, but to trap the panic-scent that attracts mites, which feed the maze’s root nodules. A flat velvet plant on the ground may be safe to step on until a certain rhythm of footfalls convinces it that a migratory animal is passing; then it rises in a net of hooked fibers. There are also hunters with eyes: thin cats with winglike shoulder membranes, blind cave-raptors that hunt by the tremor of seedfall, and segmented coil-beasts that mimic hanging roots until prey brushes against them.
+
+The atmosphere is warm, crowded, and restless. Breathing feels like taking in ground spice. The air scratches the throat. Lips crack quickly. Sweat vanishes almost as soon as it forms, leaving salt on the skin. Every surface has a texture that catches: velvet, thorn, husk, hair, scale, powder, rib, grain. There is no open bare earth where one can stand outside the system. Even the clearer plazas are merely areas where the living substrate has decided, for now, to lie flat.
+
+Scattered through this underworld are signs of people, though they seem less like masters of the place than tolerated parasites.
+
+Their structures are small, handmade, and provisional. Low huts of woven root-rib stand on stilts above migratory paths. Ladders of bone and vine climb to storage baskets hung from ceiling tendrils. Windbreak screens made of pressed leaves are patched with hides and translucent insect wing. There are cairns of chalky stone, carved with repeated marks: warning spirals, tally cuts, maps that must be updated every few days because paths are never reliable. Some shelters have been engulfed by growth, leaving only doorways visible in bark. Others have been abandoned after the ground lifted beneath them and tilted their floors into walls.
+
+Technology here is practical and old. Knives are flaked obsidian, horn, tooth, and sharpened shell-like plant plates. Needles are thorn. Cordage is everywhere: twisted fiber, dried tendon, root hair braided into rope. Fire exists but is dangerous, almost religious. Flames are kept in mineral-lined pits and fed with dense resin cakes that burn smokelessly if tended correctly. A careless spark can awaken defensive chemistry in the surrounding vegetation: leaves curling away, pods cracking, choking clouds released from swollen glands. So firekeepers are respected, and ash is stored like medicine.
+
+The inhabitants, if seen, move with an intimate caution. They wear masks packed with aromatic fiber to filter dust and spores. Their clothing is layered hide, barkcloth, and lacquered leaf. They speak in gestures when the noise rises, which is often. They do not build roads; they negotiate routes. They listen to the floor through staffs. They mark safe stems with cuts, then return to find the marks healed or translated into knots. They know which fruits are food, which are bait, which are unborn animals, which are the organs of something larger and best not touched.
+
+Their settlements are not villages so much as pauses: clusters of platforms around stable columns, tool caches hidden in hollow knots, sleeping hammocks strung high above the trampling level. Children learn the changing grammar of the place before they learn names. A fresh pale tendril across a path means wait. A warm wind from a bark-mouth means passage will open. A sudden silence among the insects means climb immediately. A smell of bitter almond means the grove is about to shed.
+
+There are rules, but they are not human laws.
+
+Nothing dead remains simple. Every corpse is contested within minutes: by mites, root hairs, fungal dust, carrion flowers, bone-boring beetles, and scavengers with delicate hands. Waste becomes architecture. Shed skins become nests. Nests become fruiting shelves. Fruit becomes animal. Animal becomes path. Path becomes scar. Scar becomes doorway.
+
+Shade has weight. Repeated shadow can provoke growth. A camp left in one place too long will find roots thickening beneath it, leaves turning toward it, seed pods forming in its eaves. The living substrate notices patterns and answers them. A person who sleeps in the same hollow for seven nights may wake on the eighth to find the hollow shaped more comfortably around the body—or sealed halfway shut.
+
+Sound is also a force. Certain calls open flowers. Drumming can calm a thorn wall or enrage it, depending on tempo. The huge booming trunks are used like public bells by people and animals alike, though no species fully controls the messages. During turbulent hours, when the valley rearranges itself, the noise becomes so dense that it seems visible: pollen shaking from fronds, dust lifting from paths, small animals frozen in place with their mouths open, unable to add anything to the roar.
+
+Light follows its own schedule. The luminous root-sheets overhead brighten and dim not by day and night but by flows of energy through the ceiling growth. Sometimes entire districts flare to a clean white brightness, revealing details usually hidden: transparent insects clustered under leaves, old tools embedded in bark, the silhouettes of vast slow organisms moving behind membranes in the walls. Sometimes the light warms to gold and every plant surface opens pores, releasing scent until the air becomes nearly solid with it.
+
+In the far reaches of the under-valley are the nursery fields.
+
+They are not gentle. They are places where the world is visibly making more of itself. The ground there is soft, swollen, and veined, divided into hexagonal plates that rise and fall. New plant-forms push up in minutes, pale and folded, then darken, split, harden, or are eaten before they finish becoming. Animals gather in insane numbers, drawn by heat and edible tissue. Grazers bellow. Insects swarm so thickly they form moving curtains. Predators wait on the edges, overwhelmed by choice. Whole architectures appear and fail: a tower of reeds collapsing into dust; a bridge grown between two root-cliffs and immediately chewed through; a field of sensory hairs leaning toward the sound of footsteps like an audience.
+
+Here the rawness of the place is unmistakable. It is not ancient in the way caverns are ancient. It is young, or constantly young, or trapped in the act of beginning. The stone itself seems undecided. Mineral blisters emerge from the floor and are wrapped by root. Bark plates fossilize almost as soon as they form, then crack and become substrate for new growth. The boundary between geology and botany is not yet stable. A column may be half basalt, half lignin, with veins of amber conducting heat between them. A cliff face may shed bark. A tree may ring when struck like ceramic.
+
+And always, dryness.
+
+Dry petals falling in drifts. Dry tongues tasting mineral. Dry spores bursting underfoot. Dry thunder from splitting pods. Dry heat rising from vents. Dry bodies adapted not to conserve moisture but to live without the concept of it: wax-sealed, salt-blooded, resin-fed, breathing solvents and volatile oils, laying eggs in husk, nursing young on powdered secretions, drinking nothing because there is nothing to drink.
+
+The strangest places are the quiet pockets, rare and unnerving. A person may stumble into a chamber where the plant-mass has grown thick enough to muffle the valley’s roar. The floor is smooth green-black cork. The air is still. No insects. No calls. No movement except the slow inflation of bladder-like organs along the walls. In the center might stand a single handmade object: a stool, a mask, a ring of stones, a flute carved from hollow thorn. Offerings, perhaps. Or traps. Or measuring devices left by people who understood something about the valley’s moods and did not survive to explain it.
+
+Then the quiet breaks. A hairline crack races across the floor. Warm air punches upward. A million seed husks rattle in the walls. Somewhere nearby a herd starts running. The chamber flexes, not collapsing but reconsidering its purpose. The exit narrows. Another opens above shoulder height, lined with fresh white root-teeth. The whole landscape is doing this always: revising itself, loudly, violently, with the innocence of growth.
+
+To travel here is not to cross terrain but to enter metabolism.
+
+You walk on organs. You shelter inside ribs. You eat from wounds. You navigate by scars that heal behind you. The underworld is open and vast, but it is also intimate, pressing close from every side, touching with tendril, thorn, antenna, breath, fur, and heat. It has no rivers, no rain, no damp refuge, yet it is more alive than any forest. It is a buried, deafening, vegetable engine; a dry green furnace; a valley before erosion, before stability, before landscape has separated from creature.
+
+It is still becoming ground.

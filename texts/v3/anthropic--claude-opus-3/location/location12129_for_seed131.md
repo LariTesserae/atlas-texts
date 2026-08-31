@@ -1,0 +1,9 @@
+In a hidden corner of a vast industrial complex, there is a small, forgotten room. It is a pocket of stillness amidst the ceaseless thrumming and clanking of machinery that permeates every other space. The room is entirely constructed, floor to ceiling, of dull metal plates bolted together. Pipes and conduits snake along the walls, converging in one corner where they plunge through the floor into unseen depths.
+
+The space is lit by a series of bare bulbs in wire cages, casting stark shadows. The air is warm and dense with humidity, almost hard to breathe. Moisture beads on every surface, runs in rivulets along seams in the metal walls, drips from the ceiling in slow steady plunks into shallow puddles on the floor. It is as if the room is silently weeping.
+
+In the center stands a large, inscrutable piece of machinery. A dense tangle of pipes, valves, and pressure gauges twists through its core, wheezing out gouts of steam. Levers and dials of unknown purpose protrude haphazardly from its surface. The damp seems to emanate from this device, as if it is sweating out some strange industrial process, laboring alone and unattended for decade upon decade.
+
+The room has a tomblike stillness, an atmosphere of abandonment and yet also of a process still occurring, entombed and hidden away. Tiny spores of mold mottle the damp surfaces with flecks of fuzzy green and black. In one corner, a snaking tendril of some pale vine has crept in through a gap, finding meager nourishment in this metal womb.
+
+The ancient machine shudders and clanks, then issues a burst of steam and falls still once more, as it has done in its slow rhythm for longer than anyone remembers. Its purpose is long lost to time, but still it labors on, an artifact of an industrial age, cradled in its womb of humidity and patinated metal, toiling until it or its hidden task falls finally into rust and silence.

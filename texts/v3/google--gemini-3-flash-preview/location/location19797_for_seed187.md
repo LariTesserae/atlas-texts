@@ -1,0 +1,17 @@
+This is a place defined by the heavy, rhythmic labor of an ancient, botanical factory. It is a world distilled into a single, vast interior: the **Ventral Chamber of the Moss-Engine**.
+
+The terrain does not consist of earth or stone. At an elevation so low it feels subterranean, the ground is a spongy, infinite mat of compacted peat and cellulose. Everything here is organic. The walls are braided trunks the girth of skyscrapers, and the ceiling is a dense interlocking of waxy, dark-green leaves that span acres. There is no sky, only the "canopy-vault," which filters a consistent, neutral light—as if the sun were permanently trapped behind a thick sheet of jade glass.
+
+The air is cool and carries a constant, bracing dampness. Moisture doesn’t fall as rain; it weeps. Condensed droplets bead on the undersides of gargantuan ferns and fall with heavy, metronomic thuds into shallow moss-cups. This intermittent hydration keeps the substrate slick and dark, though the drainage is perfect, as the entire floor is a living, thirsty sponge.
+
+Despite the "Industrial" parameter, there are no gears of steel or humming wires. The industry here is biological, yet its scale and noise are terrifyingly mechanical. This is a factory of the primordial. 
+
+Deep within the hollows of the trunk-walls, massive, subterranean bulbs—the size of locomotives—pulse with a slow, grinding force. They act as "pistons," drawing nutrient-rich slurry from the lightless depths up into the canopy. The sound is immense: a continuous, low-frequency thrumming that vibrates the marrow of the bones, punctuated by the shrieking hiss of high-pressure sap being forced through woody valves. It sounds like a steam works, but the smell is crushing—sweet rot, fresh-cut grass, and wet ozone.
+
+Evolution here reached a final, stable equilibrium eons ago. The erosion is "ancient" in the sense that the landscape has long since stopped competing with itself. The plants have grown into their final, most efficient shapes. There is no decay that isn't immediately repurposed. The "emptiness" of the space is its most striking feature; between the gargantuan pillar-trunks, there are vast, hollow voids of air. The density is nearly zero because the plants have maximized their architecture to leave massive, cathedral-like halls where nothing grows but a thin, velvet powder of spores.
+
+The fauna are the "operators" of this green machine. They are abundant but specialized. Imagine insects the size of hawks, their carapaces mimicking the dull brown of bark, moving with clockwork precision along the sap-lines. They don’t hunt; they maintain. They scrape excess fungi from the valves, they clear the weep-holes of debris, they move in rigid, unchanging patterns. 
+
+Time has no meaning here. The "dynamic" of the world is a frozen equilibrium. The light never dims or brightens. The temperature is held at a constant, chilly 55 degrees by the transpiration of the leaves. The sound never ceases its industrial roar. It is a masterpiece of biological engineering that has forgotten its purpose, continuing to manufacture atmosphere and sap simply because its ancient, eroded programming knows no other state. 
+
+You stand in a hollow that feels miles high, on a floor of wet moss, listening to the scream of a million gallons of water traveling through the wooden pipes of a world that is its own engine. It is a lonely, deafening, and perfectly ordered cathedral of green.

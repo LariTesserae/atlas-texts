@@ -1,0 +1,15 @@
+In the depths of the liquid-metal sea, the currents sing. Their resonance builds and breaks in crushing waves of sound, a constant roar that shapes everything that survives here. The liquid is not water, but something heavier - a mercury-like substance that remains perpetually warm, its heat drawn from the geological engines far below.
+
+Vast schools of crystalline creatures pulse through the metallic depths, their glass-like bodies somehow withstanding the pressure. They move in mathematical patterns, their formations creating interference patterns in the endless song of the currents. When they pass, the liquid seems to shimmer with refracted darkness, as if they're bending what little light manages to penetrate from above.
+
+The seafloor is a sparse landscape of towering metallic formations - not quite plants, not quite mineral growths. They emerge from the sediment like ancient industrial relics, their surfaces etched and smoothed by eons of current-flow. Some pulse with dim bioluminescent rhythms, while others seem to act as vast chemical processors, filtering the liquid medium through their latticed structures.
+
+Scattered across this terrain are the remnants of some long-lost civilization's attempts to harvest or study this environment. Pressure-worn habitation pods, their surfaces long since adapted into homes by colonies of mechanical-organic hybrid creatures that scuttle and swim through the metal sea. These beings seem to incorporate both biological processes and technological components - perhaps evolved, perhaps engineered, now thoroughly native to this strange ecosystem.
+
+The darkness is nearly complete, save for the occasional burst of light from predatory creatures using electromagnetic pulses to stun their prey. These flashes illuminate brief tableaus of the landscape - glimpses of vast mechanical organs that might once have been pumping stations, now serving as skeletal cathedrals for schools of living machines that nest in their chambers.
+
+Every few cycles (measured by the shifting intensity of the current-song), massive shapes pass overhead - creatures so large their movements create pressure waves that cause the metallic trees to sway. They might be whales, or they might be submersible vessels, or perhaps the distinction ceased to matter long ago in this environment where biology and technology have become inextricably fused.
+
+The liquid itself seems alive with microscopic organisms that process the metals and minerals, their collective activity contributing to the background roar. They form shifting clouds that sometimes coalesce into larger forms before dispersing again, like thoughts trying to achieve consciousness.
+
+This is a place where the boundaries between natural and artificial, living and mechanical, have dissolved in the warm, heavy sea. The pressure and the perpetual song have, over time, shaped everything into forms that can withstand both, creating an ecosystem that operates like a vast, living machine, or perhaps a machine that has learned to live.

@@ -1,0 +1,19 @@
+# The Crystal Athenium
+
+Here, among the high peaks of a young mountain range, the Athenium rises—a city not built but grown. From a distance, it appears as if the mountaintop itself has been sculpted into perfect geometric forms, a natural impossibility that glints in the relentless sunlight. But this is no human construction.
+
+The city consists entirely of mineral formations—quartz-like crystals that have extruded themselves from the mountain's core in perfect hexagonal prisms, forming towers, arches, and vast halls that catch and refract the bright light. The crystal structures are warm to the touch, maintaining a constant, pleasant temperature despite the high elevation. Some formations are clear as glass, others have a milky translucence, and still others display bands of gold and copper inclusions that spiral through their structures.
+
+Water is the lifeblood of this crystalline metropolis. It seeps from the mountain's heart, emerging from fissures to form shallow channels that run across the crystal surfaces in perfect geometric patterns—never random, always following invisible mathematical laws. These waterways converge in tiered pools that cascade down through the city's levels. The water itself has an unusual viscosity, flowing with deliberate slowness, as if time itself is stretched within its depths. In places, it collects in perfect hemispherical droplets that cling to crystal ceilings, refracting light into countless tiny rainbows.
+
+The atmosphere is dense with moisture, creating a perpetual haze in the distance. At regular intervals, the water vapor condenses on the crystal spires and runs down in synchronized rivulets, a rain that occurs without clouds. The droplets make a soft, musical tinkling as they fall—one of the few sounds in this otherwise silent place.
+
+There is no true vegetation here—no leaves unfurling toward the sun, no roots seeking purchase in soil. Instead, the surfaces of some crystal structures are covered with a thin film that might be mineral, might be alive—a bluish-silver coating that shimmers when the water touches it. It grows with imperceptible slowness, taking centuries to cover even a small area.
+
+The Athenium is largely devoid of fauna, though occasionally small, translucent creatures can be glimpsed moving through the water channels. They resemble nothing so much as living droplets themselves, with no discernible organs or features. They appear and disappear with no pattern, leaving no trace of their passing.
+
+What makes the Athenium truly remarkable is its perfection and stability. Nothing erodes here beyond the most superficial wearing of edges. Nothing changes position. The water flows in exactly the same patterns, day after day, year after year. The light refracts at precisely the same angles. It is as if the entire city exists in a state of suspended animation—a moment of crystalline perfection stretched indefinitely.
+
+The Athenium is vast, covering the entire mountaintop and extending partially down its slopes. From its highest spire, one can see for miles across the empty peaks of the range, making the city feel like an island of order in a sea of chaotic, newly-thrust stone. The mountains themselves are sharp-edged and raw, evidence of their recent emergence from the earth's crust.
+
+Scientists who have studied the Athenium believe it to be impossible—a violation of known physical laws. Some theorize it is a massive silicon-based life form, others that it represents an ancient technology so advanced it appears to be natural. But the city offers no answers, only the quiet music of falling water and the endless play of light through crystal.

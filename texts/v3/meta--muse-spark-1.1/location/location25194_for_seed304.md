@@ -1,0 +1,29 @@
+It is not a valley. It is a wound.
+
+Low country, flat for miles around — peat bog and thin pasture and cold clay, the kind of land where water never really leaves, just hides. And then, abruptly, the ground gives way. Not wide. You could walk its rim in fifteen minutes if you didn't have to step over houses.
+
+They call it The Cut, though no one remembers who cut it.
+
+The edges are too sharp for this soft country. Black rock, not bog-stone — a basalt that shouldn't be here — snapped and lifted in clean, vertical plates maybe thirty feet high, still showing the chisel-marks of its own birth. No rain has had time to round it. Geologically it is yesterday. Water weeps from every seam between the columns. Not in springs, not in streams, but as a general perspiration. The rock sweats. You can watch it bead and run in a hundred slow lines.
+
+All of that water has to go somewhere. It goes down.
+
+The bottom of the Cut is never dry. It is not a lake either. It's a floor of that same dark stone, slick, with a shallow, restless sheet of water that braids and re-braids itself, ankle-deep, cold enough to ache. In the cool air — late October cool all year — it steams faintly in the mornings. Mist condenses on the undersides of things and drips and condenses again.
+
+And because the bottom is the only place that is flat, and dry-ish if you work hard enough, this is where they built.
+
+It is urban in the way a beehive is urban. Hamlet-sized, yes, you can cross it in a hundred steps, but there is no spare inch. Primitive does not mean simple. It means everything is made by hand, from what is at hand, and there are too many hands.
+
+Houses are not built *on* the rock, they are wedged *between* the rock. Wattle and daub panels soaked black by the constant damp, frames of water-stained alder and pine hauled from the bog edge, roofs of split reed that never really dries. But there is no order of street and house; there is layering. A ground floor is also another family's ceiling. A wall is shared by three homes. Walkways are planks laid over the ankle-water, then built over with a second story, then braced with poles because the first story is sinking. Ladders, not stairs, go up the inside of the basalt columns — rungs hammered into cracks where lichen is only just beginning to grip. Near the top, where the columns flare out, they have lashed outrigger platforms that hang out over the bog, like nests.
+
+It is packed to the point of being watertight. From the rim above, the Cut looks paved with roofs. Moss would like to grow here, but there is no light that reaches it for long. Vegetation is sparse to the point of absence. A few stunted birches cling to the outer lip of the Cut, roots white and exposed, leaves small and always dripping. Inside: a line of green-black algae along the waterline, tufts of rush forced into thatch, and, here and there, a coaxed potato or onion growing in a box of imported peat set on a roof, tended like a holy thing. The wood itself grows a soft white fungus at the joints that the inhabitants scrape off every morning with flat stones.
+
+That is the strange part. The weirdness is quiet, not dramatic. The rock is young and still learning how heavy it is. Every few days, without sound, a new hairline crack opens in the basalt and water finds it, and for an hour that crack runs faster than all the others. The stones are porous and they hold the water up against gravity for a long time before letting go. So after a rain, the walls will drip upwards for a little while — or seem to — as pressure equalizes and the films run sideways and around bulges. Children sit and watch a single drop climb six inches before deciding to fall. No one thinks it is magic. It is just how The Cut is young.
+
+No animals live here willingly. Too cold, too cramped, too little to eat. That's the rule of the place: if you are alive, you are working. Sometimes a crow will come down to steal an onion top and be shouted at by twenty people at once. In the standing water at the lowest corner, where the inhabitants have dug a sump a foot deeper with antler picks and bare hands, blind white eels live, too thin to be worth eating until winter, but they are there, moving.
+
+Sound is a held breath. Water does not roar here, it ticks. Drip from rock to roof, from roof to plank, from plank to standing sheet. Wood creaks as it swells. People move constantly — bailing with carved wooden buckets, re-tying thatch cord, hammering a loose ladder rung back into place with a river stone — but they work without much talk, because talk makes vapor which makes more damp in your house. You hear the scrape of a stone adze all day, and the occasional soft splash of someone stepping wrong.
+
+It is always active, never still. The water cycle here is not weather, it is infrastructure. In the morning the communal buckets go up empty on ropes to the bog outside and come down full of dry-ish peat for the central hearth. In the afternoon they go down full of Cut-water to be thrown out onto the bog. The walls shed flakes of basalt under the pressure of their own seepage, and those flakes are collected immediately and stacked to make a new foundation for someone's cousin. Everything that enters the Cut is immediately used as a wedge, a patch, a shim.
+
+If you stand on the outer bog and look down, you do not at first understand that it is a town. It looks like a dark, wet knot of material that the earth is trying to close over. And then a shutter, made of four crossed sticks and a stretched skin, opens between two roofs, and a face looks out at the sky — which is a normal, flat, northern sky — just for a moment, to see if it is raining again.

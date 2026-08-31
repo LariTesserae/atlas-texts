@@ -1,0 +1,71 @@
+The sky is not blue but soft white, a seamless dome of luminous air that keeps the high plateau rinsed in brightness all day. The light is not harsh but wears at you after an hour or two, as if gravity itself is slightly heavier than you expected. You feel the altitude in your chest: the wind is thin but warm, always moving from the west over the stone, and the smell of it is clean — nothing growing, nothing rotting, just the faint scent of dust and sun-heated rock.
+
+You are walking on what is technically a mountain but not like any you’ve seen before. This high plateau is ancient, settled into its own form so long that the idea of change feels like a foreign language. The ground under you is not rough but worn to a smooth, gently undulant surface, as if the stone itself remembers millennia of footsteps. The erosion is old and finished: the world’s edges are soft. The cliffs are not jagged; they flow into valleys and back into uplands in long curves. Time has been at this place for a long time, and then it has stopped.
+
+The plateau is open at every scale larger than a body. You can see for kilometers, but not much is actually happening in that space. Low humps of stone and tumbled fields of broken flat rock form the only terrain features — occasional shallow bowls where water might have once pooled, a few long grooves where the ground dips slightly. The space is sparse with the grace of something that has been distilled by aeons of thin wind. There is no clutter. There are no trees.
+
+You are at the upraised edge of a continent-wide highland, and the sky itself is the color of the sky because of the atmosphere-engineering filaments that hang there invisibly, kilometers up, curating light and weather and ozone. The filaments are physics that is just beyond your own time’s science: space organized itself to help the world remain stable, and someone’s ghosts are still paying the computational bill.
+
+The plateau is mostly dry stone, but the dryness is not absolute. There are no rivers, no lakes, but there is memory of water. In the first hour of walking, nothing appears to be living, except that you notice the rock underfoot is not exactly uniform. At certain angles you catch tiny sheens of color, and then you realize they are small organisms: not lichens but their more distant, stranger cousins.
+
+They are iridescent patches of fine-scale tessellation, no bigger than your hand, each a near-perfect hexagonal lattice that follows the curve of the stone. The edges are slightly darker than the center, where the cells are transparently thin and you can see, below their surface, a slow, internal circulation of silvery fluid that is not water but something else that has learned to hold water the way magnets hold iron. Each patch is a self-contained microclimate, harvesting the faint humidity that the warm wind brings from far lower continents where rain still falls.
+
+They are the world’s answer to the sparse vegetation parameter. You walk over them without doing damage, because evolution is not that careless here. The patches are not exactly plants but not not plants; they are more like architecture that has taken to the sun. The inside of each cell is a semi-liquid lattice of protein that looks like glasswork; you are not aware of it, but you wouldn’t be able to see with your own, unaided eye the tiny machines that swim within that fluid, maintaining chemical gradients and keeping the temperature of the patch within a range that supports life. The world’s tech is at that level: self-repairing, invisible, civilized.
+
+And you are not alone in seeing that. This is not a world where you walk alone — there is fauna, more than you expect, but it is not the kind that moves with you. It moves with the sun.
+
+The sun is not exactly the sun. It’s a local name for a curated object, whose output is dialed by the filaments above. The plateau is tuned to be always just warm enough to keep the stone’s carrying capacity of organisms at a high but not chaotic level. Animals thrive here, but quietly. The sound of this place is not much louder than your own breath if you stop listening. You hear the thin wind but not much more.
+
+The animals are mostly not animals you can see without standing still for several minutes.
+
+The first time you notice one is when you pause to drink from a hollow in the rock where the last of the morning’s condensation has pooled into a shallow lens of glass-clear water. The water is not quite water. It tastes slightly heavy, as if it has extra dissolved geometry. You drink anyway; nothing else will drink it.
+
+Your movement stops the wind from passing over your body, and a small shadow detaches itself from the stone behind you and becomes a bird about the size of your hand, but not quite birdlike. Its body is a dark shimmer of tightly folded petals that open when it flies, and when you are not looking, it is not actually bird-shaped but mostly like a small gap in the world where light gets slightly confused by optics. This is the camouflage: the bird’s skin is smart at a level beyond your century’s. It is a device that has been bred by the world, not manufactured.
+
+It tilts its head at you, then lifts silently and flits to the next patch of tessellation on the rock. It lands not with the sound of claws on stone but with a faint click that is somehow more accurate than sound should be, a precise note that means you just heard the local equivalent of a bird calibrating its landing gear. Its eyes, when you look closely, are not exactly eyes but arrays of glass that are not entirely opaque, and inside you see the small wavering of optics that you know are not organic but have been built by evolution and then by later generations of gods who got better at building.
+
+This bird is not unique. There are others.
+
+The plateau is alive with them but carefully, so as not to disturb the silence. The most common species is not a bird but a low, flattened shape that you keep mistaking for shadows in the grooves of the rock. You notice the pattern of the ground seems to move slightly when you stand still; the dark stones edge to the left by the width of two fingers as you breathe, then you realize that these are not stones at all but living organisms that are imaging the texture under them so perfectly that the difference between the real and the image is below the threshold of your own eye’s resolution.
+
+They are like the birds but not winged: slow-moving things that live at the speed of tectonic plates, grazing by allowing the tessellation on the rock to grow into parts of their body and then dissolving them again into new energy. The world’s abundance of species is mostly hidden within the interstices of the landscape, layered in the same way that quantum fields are layered in your own world’s physics: most of the energy is not where you think it is.
+
+The environment is not completely without human-scale structure, but what is built is in the same way that the “bird” is built: quietly and with the insistence of organisms that don’t need to show off.
+
+You first see the structures as irregularities of light that seem to bend the air above one particular shallow bowl of the plateau. It is only when you get closer that the shape resolves itself. You climb the gentle slope down into the depression and your feet are suddenly not on the same level as the rest of the world; you feel the slight difference in the gravity of the place as you walk the last few meters into what is in effect a small settlement of four buildings, but calling them buildings misses the point.
+
+They are growths, not constructions.
+
+Each building is a low dome of what looks like the same tessellation that the stone organisms use, except at a larger scale. The cells are not millimeters but hands-wide across their hexagonal faces. The edge of one dome overlaps the edge of another, and you watch the tessellation remake itself at the boundary; you see the boundaries of humans and not-humans being negotiated by nanoscale architecture that is also life.
+
+This is not modern technology but beyond it. The world’s tech is not about bigger screens but about the domestication of complexity. The domes are not occupied by anyone in the sense you would expect from a city in the old style of your world.
+
+There is no door; you don’t need one. You approach the first building and the wall in front of you becomes ghostly for the span of one breath, and then you are inside.
+
+The interior of the dome is not a room at all but something like a cross-section of reality itself. You don’t see walls but a field that goes to the edge of your perception and then keeps going. This is not the virtual reality of goggles but environment surface that reaches into your senses and offers itself as a truthfulness rather than a trick.
+
+The floor is not actually floor-shaped but an undulating surface of the same tessellation, now in three dimensions rather than two. The depths of the cells go below your feet like wells of light, and you are not afraid of falling because the world does not need that kind of architecture; its safety is not like that. The air is not humid but softly damp, as if the entire dome is one large organism breathing the faint humidity of the plateau into itself and then expiring it again at the correct temperature.
+
+The domes are not exactly homes. They are more like nodes in the same atmospheric network that keeps the sky luminous and the temperature at the level of warm rather than hot or cold. The plateau is stable but not dead; there are weather cycles, but you are in the quiet of one of them.
+
+The dome ecology you glimpse inside is not strictly visible with your eyes alone but the dome’s environment is happy to show you what you are looking at. You ask the question with the wrong sense — the one of the body you have brought from your own time — but the world’s tech is polite enough to answer in the form of images that appear to you not as illusions but as if reality had just reconsidered its own configuration.
+
+You see that the plateau is not actually as high as you thought but higher than your scale’s biology allows you to understand without help. You are not at the top of a mountain but on the inside of the world’s crown, which is not exactly the same as being on the surface of the planet. The crown is not metal but structured air that has been folded into permanence, and filaments above you are not only in the sky but also the deep roots of the same growth that makes the domes.
+
+The world’s weather is gentle but dynamic beyond the aesthetic of bright warmth and faint wind. You see the weather system of the plateau as a network moving across the open, multi-feature landscape of the highlands: temperature gradients that shape not wind but slow fields of force that shift the position of life; not storms but slow rearrangements of the humidity patterns that give the microorganism patches on the rock their niches. You see the slow cycle of the animals that you are not likely to meet head on: the shadow-gray forms that migrate across the stone under the night’s dark, moving the nutrients of the world from the valleys to the heights and then back again.
+
+The domes are not empty but occupied by intelligences that are not exactly human but more than. Their bodies are not the same as yours, but you are allowed to see them as they are, not as you might expect them to be. They are small shapes, not buildings but minds that live mostly in the physics of the world, maintaining the filaments that keep the light from being too bright or the temperature too high, and the plateau from drifting into the wrong phase of erosion.
+
+They are the ones who have orchestrated the “established” atmosphere of the place: the long-existence, the weathered balance of the highland with the sky and the stone. The world’s erosion is not in motion but in its own state, as if the future of the planet has been made into a garden that is not allowed to change but not allowed to die either.
+
+You ask the question without using the words of your language, but the world’s environment is not language-bound. The domes are not literal but experiential; you ask the question of where you are in the world and the dome shows you the answer in the form of the continent itself.
+
+You see the plateau as one node among a thin, scattered network of others that are similar to this but different enough in each case to be not copies of a pattern but variations on a theme that is itself a variation. The continent is not crowded with cities but with the occasional building like this one: small, each attached to a particular kind of environment that is in itself a small world of animals and weather and light and stone.
+
+At the edge of the continent, the plateau descends into something else — not lower elevations but another kind of height that you get not by climbing but by changing your sense of what “height” means. The world’s geometry is strange that way; it is not strange for the sake of being strange but because the physics that makes it possible is not exactly the same physics that made your own world.
+
+Your eyes are not enough for the multiplicity of species that live in the dome and on the plateau outside, but the dome is willing to show you. In the light of the world’s bright day that you see beyond the not-door of the structure, you watch the wildlife of the place — not crowded but abundant in the sense that there are many layers of living being at each point of the ground, but they are also not all at once in the place of your body.
+
+The fauna of this plateau are not predators in the way of tigers and mice but in the way of self-maintaining gradients of mathematics that are sometimes embodied by animals that look like shadows of stones. You see the equivalent of predator-prey relationships stretching across the now of this world, but it is more like the relationship between one equation and another, than between animals that you already know.
+
+The world of this plateau is not made of stories but of itself. You are not supposed to understand it, but you are allowed to stand here in the quiet of its high, bright, stone sky and listen to the sound of your own breath, which is the loudest thing in the world for now.

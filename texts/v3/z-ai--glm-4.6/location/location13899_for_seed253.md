@@ -1,0 +1,21 @@
+Here, the weight of the world is not felt in the stones beneath one’s feet, for there are no stones—only the slow, crushing embrace of the deep.
+
+The parameters describe a sunken cathedra.
+
+To exist here is to be suspended in a chill that is not bite, but a pervasive, heavy presence. The water is absolute (2.9), a medium so thick it feels less like a fluid and more like a translucent atmosphere. This is the "High Abyss," a region of extreme elevation (3.0) underwater—perhaps the submerged peak of a planet’s tallest mountain range, where the ridge tops are yet miles below the true surface. It is cool (0.8), a cold that slows the blood, carrying the clarity of glacial melt diluted by eons of pressure.
+
+The darkness is nearly total (0.3). There is no sun here, and if there is a surface above, it is a myth. The only light comes from a sparse, delicate constellations of bioluminescence—faint, ghostly blues and sickly greens that cling to the megastructures like mold on a forgotten tome. The visual field is dominated by silhouettes and the suggestion of vast shapes disappearing into the gloom.
+
+The landscape itself is a contradiction resolved by time. It is entirely "built" (2.6) yet possesses "no tech" (0.5). It is a verdural metropolis, a city constructed by biology alone. Imagine titan stalks of petrified-kelp and calcified coral that have grown not in chaotic tangles, but in disciplined, architectural majesty. These are the Pillars.
+
+Towering thousands of feet high, these plant-forms are the substrate. They rise in perfect isolation from one another, spaced with mathematical precision across the ocean floor (Density 0.8). It is a sparse forest of giants, a colonnade of biological skyscrapers. The ground is not sand or silt, but a vast, interwoven mat of ancient root-matter, hardened into a paved floor by the pressure of ages.
+
+This architecture is ancient (2.6). The "built" environment is the result of a primordial, collective instinct—a hyper-evolved coral that learned to build arches and domes to better direct the currents, eons before a single fish evolved a spine. Every surface is smoothed by erosion (2.6), worn down to a rounded, featureless perfection. There are no jagged edges, no sharp angles; everything has been polished by the ceaseless flow of water until the city feels like a soft, seamless dream.
+
+And it is static (0.4). The dynamic here is one of stillness. The water moves, yes, but the ecosystem is in a state of frozen equilibrium. The plants grow imperceptibly, perhaps a millimeter every millennium. They are end-state entities, having reached their final form. Nothing is born, and nothing dies in the traditional sense; the ecology is a closed loop of perfect maintenance.
+
+The soundscape, however, is loud (2.0). Because of the rigid, hollow nature of the Pillars, the ocean currents do not simply flow past—they are channeled. The water is forced through vast, trumpet-like apertures in the plant-structures, creating a deep, resonant acoustics. It is a constant, low-frequency thrum, a bass note that vibrates in the chest of any creature drifting near. It is the sound of a giant organ playing a single chord that has held for ten thousand years.
+
+The fauna is abundant (2.4) but invisible to the casual glance. Life here has adapted to the dark and the hollow structures. Thousands of creatures live *inside* the Pillars—filter feeders that line the interior walls, blind eels that patrol the vascular systems of the giant plants. Externally, massive, slow-moving rays glide silently between the towers, their bodies muted and dull, camouflaged against the dark water. They do not dart or flee; they drift with the confidence of beings at the top of a food chain that has calcified into stability. The weirdness (0.8) lies in their behavior: they move in synchronization, great leviathans turning in unison, as if directed by a collective consciousness or the magnetic pull of the planet itself.
+
+To drift through this place is to float through a submerged, holy ruin that was never built by hands. It is a factory of life, turning the currents into energy, silent in its processes yet deafening in its ambient roar. It is a place where the distinction between a building and a tree has long since dissolved, leaving only the form, eternal and unyielding, standing in the dark.

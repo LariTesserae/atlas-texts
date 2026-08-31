@@ -1,0 +1,15 @@
+A crystalline greenhouse rises from bedrock, its geometric panels catching the perpetual noon-bright light. The structure is small - perhaps forty paces across - but soars upward in sharp triangular planes that fragment the sunlight into precise patterns on the ground. This is not a human greenhouse, though human hands have left their mark: copper wire stitches together hairline cracks, and hand-carved wooden braces reinforce joints where the original structure has settled.
+
+Inside, the air is cool and still. Impossibly still. Nothing has ever stirred it, save the slow drift of spores and seeds that found their way in through the minutest gaps before the structure sealed itself completely. Now it is a closed system in perfect stasis, neither gaining nor losing a molecule of air.
+
+The interior teems with life that has adapted to the absolute absence of water. Plants that appear lush and leafy are actually colonies of crystalline structures that branch and layer in complex fractals. They catch the bright light and channel it through their translucent forms, creating an ever-shifting play of colors despite the total stillness of their forms. What looks like moss spreading across the ground is actually a dense carpet of tiny mineral formations, each one precisely positioned to capture light and nutrients from the air itself.
+
+Small creatures move through this crystal forest - if "move" is the right word for their careful redistribution of mass through the static air. They resemble insects made of living glass, their bodies growing and shrinking as they extend themselves through space rather than truly walking or flying. They leave behind trails of crystalline filaments that become part of the forest's architecture.
+
+The whole scene is nearly silent, save for the occasional high, clear tone when two crystal formations grow into each other - a sound like a wine glass being played with a wet finger, but softer, purer. These notes hang in the motionless air for hours or days before finally fading.
+
+At the center stands what appears to be a tree, though it's clearly never seen a drop of water in its existence. Its "trunk" is a spiral of interlocked mineral needles that twist upward to support broad, flat planes that serve as "leaves." The planes are nearly transparent but fragment light into colors that shift depending on viewing angle. Small crystal "fruits" grow at regular intervals, each one containing a perfect geometric pattern that might be this species' method of reproduction.
+
+The greenhouse's floor is irregular, with crystalline growths emerging directly from the bedrock. These formations appear young - their edges still sharp, their patterns still forming. They push upward with geological patience, adding perhaps a molecule's width of growth each year.
+
+This place feels both ancient and new - a mature ecosystem frozen in eternal stasis, yet with structures that are still emerging from the rock itself. It is an experiment in life without water, sealed away in its geometric bubble, perfecting itself in infinite slowness under the constant light.

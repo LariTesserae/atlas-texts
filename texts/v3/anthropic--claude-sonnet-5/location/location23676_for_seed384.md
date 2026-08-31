@@ -1,0 +1,29 @@
+# The Sunken Works at Holverbrack
+
+The water sits at the height of the third-story windows, has sat there long enough that the tide-line is no longer a tide-line but a material fact — a band of pale calcification running the brick like a wainscot, marking where air used to be. Below it: black water, cold enough to ache, still enough to mirror. Above it: the upper stories of an industrial settlement, dense-packed, chimney-stacked, going up into a darkness that never quite resolves into sky.
+
+It is not flooded. That word implies something temporary, an accident waiting on correction. Holverbrack has been like this for longer than anyone living can attest to, and the place has settled into its submersion the way a body settles into a chair — completely, without complaint, as a structural decision rather than a disaster. The brickwork has made its accommodations. Iron has rusted into lace in some places and sealed itself into stubborn black plate in others, depending on what alloys the old foundries favored. Glass has clouded into something like soapstone. The water itself has the faint mineral taste of dissolved machinery — copper, coal-tar, a ghost of lubricating oil that should have dispersed a century ago and instead persists, thinned to a film on the surface that catches no light because there is so little light to catch.
+
+## Geography of the drowned
+
+It is small as these things go — a single settlement's worth of structure, not a city, more like a thick hamlet of mills and tenements and one slumped cathedral-shaped thing that may have been a refinery hall, all crowded into a tight low basin so that nothing has far to fall and everything leans on its neighbor. The density is the first thing a visitor (there are no visitors) would notice: chimneys near-touching across narrow waterways that were once streets, gantries reaching from one rooftop to another like the place was built by something that disliked open space. Whatever vegetation exists is sparse and strange — not the cheerful green overgrowth of a ruin reclaimed by nature, but black-stemmed reed-things growing up through windows, pale fungal shelves on the wood pilings, a kind of waxy floating moss that gathers in the eddies behind chimney-stacks and never seems to spread further than that.
+
+The elevation barely varies. This was always a low place — a river-bottom settlement, maybe, or a drained marsh that industry built on and the water eventually reclaimed its due from. The erosion is old and finished in the way erosion gets when it stops being an event and becomes a condition: every edge that was going to soften has softened, every angle that was going to slump has slumped into its final angle, and the result is a townscape that looks less like ruin and more like a geological formation that happens to have window-frames in it.
+
+## What still runs
+
+This is the part that makes Holverbrack strange rather than merely sad: the industry didn't entirely stop.
+
+Below the waterline, in chambers that should be flooded through and aren't — sealed by some accident of engineering or some less explicable accommodation — things still turn. A sound, when there is sound at all, comes up through the water itself rather than through the air: a slow mechanical pulse, felt in the sternum before it's heard, the heartbeat-thud of a turbine or press that has not stopped in longer than is reasonable. Pipes still run warm in patches — you can feel them as a temperature gradient in the cold water, a held breath of heat bleeding out into the black, and these patches are the only places anything like fauna gathers. Rare, pale things. Something eel-shaped that avoids being seen properly. A crustacean analog that has adapted to cling to warm iron, white-shelled, blind, numerous only in those few square meters of warmth and absent everywhere else.
+
+Smoke — actual smoke, or its underwater equivalent, a slow ribboning discharge of fine dark particulate — sometimes rises from a stack that by every visible measure should be drowned solid. No one feeds these fires. No one minds these engines. They run on something that outlasted the people who built them, or on nothing at all, sustaining a process that has forgotten what it was for and simply continues, the way a struck bell continues after the hand is gone.
+
+## Texture and light
+
+Light here is a rumor management agrees to allow in small doses: a graphite dimness up near the original roofline where some ambient glow filters down through whatever sits above the water (storm-cloud, smoke-ceiling, another layer of architecture, it's never been clear), and true black below the fourth course of brick. Things are sensed by displacement before they're seen — a deeper darkness moving against a dark field, the suggestion of a gantry-arm where your hand finds cold iron.
+
+Sound is nearly absent, which makes the industrial pulse, when it comes, enormous by contrast. Otherwise: the small percussion of settling masonry, the long sigh of water moving through a structure too slowly to call current, the occasional wet collapse of something that has finally, after decades of erosion, given up its shape and folded into silt.
+
+## The rule of the place
+
+Nothing here is being rescued, and nothing here is asking to be. Holverbrack is not a tragedy in progress; it is a tragedy that finished and then, against expectation, kept doing something with the time left over. It produces — what, exactly, is unclear. The smoke goes somewhere. The warm patches persist for a reason no visible logic explains. The settlement maintains itself in a holding pattern between ruin and operation, neither rotting cleanly away nor functioning as it once did, occupying instead a long stable strangeness: a factory that drowned and decided, with the patience peculiar to machines and water both, to continue.

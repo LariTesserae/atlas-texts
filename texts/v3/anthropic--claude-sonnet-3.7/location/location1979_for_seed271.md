@@ -1,0 +1,19 @@
+# The Microcosm Beneath Frond Station
+
+The old ventilation shaft drops deep beneath the primary filters of Frond Station. Most workers never venture here—they stay in the upper levels where the enormous industrial air processors churn and hum, pulling moisture from the jungle air to feed the station's needs. But beneath the official schematics lies this forgotten pocket, a place where the station's lower maintenance tunnels open into something unexpected.
+
+The darkness here is almost complete. Your headlamp cuts a narrow cone through it, revealing walls that glisten with condensation. The air is warm—warmer than it should be this far below ground—and carries an organic scent that the station's filtration systems were designed to eliminate.
+
+As your light plays across the floor of the chamber, it reveals a miniature landscape emerging from the floor and walls: a dense forest in microcosm. Countless tiny stalks, no taller than your finger, grow in tight clusters from the damp concrete. They're not plants, not exactly. They pulse with faint bioluminescence when your light passes over them, then fade back to darkness—a defense mechanism or a form of communication. The stalks grow so closely together they form a continuous carpet broken only by tiny rivulets of moisture that trickle down the sloped floor.
+
+The chamber is young—perhaps only months old. The industrial sealants that once protected this section have failed recently, allowing something from outside to creep in. The edges where this micro-jungle meets bare concrete are sharp and clearly defined, the boundary of an ongoing invasion.
+
+Movement catches your eye. At first you mistake it for the shifting shadows cast by your light, but then you see them clearly: thousands upon thousands of tiny creatures swarming through the stalked forest. Some no larger than grains of sand, others the size of small beetles, they move with purpose. They climb the stalks, burrow between them, carry minuscule fragments from place to place. The fauna here is overwhelming in its density and variety—a complete ecosystem operating at a scale that makes you feel like a giant observing an alien world.
+
+The warmth, you realize, comes from their collective metabolism—thousands of tiny bodies generating heat in this enclosed space. Though the creatures are numerous beyond counting, they move in near silence. The loudest sound is the occasional drop of water falling from the ceiling, creating ripples through their ranks that are visible but barely audible.
+
+Near one wall stands the remnant of human presence: a small monitoring station, its screens dark and housing partially dismantled. Thin cables snake from it into the micro-jungle, their ends disappearing into the growth. Not abandoned, you realize, but repurposed—the creatures have incorporated these artifacts into their domain, using the metal and plastics as scaffolding for their own constructions.
+
+Most striking is how active this tiny realm is. Patterns of movement flow through the stalked growth like currents, gathering around certain nodes then dispersing again. The creatures appear to be farming, harvesting, building—conducting industrial processes at their minute scale. When you remain still long enough, you detect a faint rhythmic pulsing throughout the chamber, as if the entire ecosystem operates to some shared cadence.
+
+This pocket-world exists just beneath the station's awareness, unseen but thriving, quietly conducting its business in perpetual darkness. The station above unknowingly provides everything it needs—warmth, moisture, and the occasional organic matter that falls through the cracks of human engineering.

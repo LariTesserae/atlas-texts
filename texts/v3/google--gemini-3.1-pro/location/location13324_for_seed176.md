@@ -1,0 +1,19 @@
+We are suspended at the roof of the world, yet the air is thick, balmy, and smells of hot iron and crushed ferns. 
+
+This is a single, room-sized shelf of rock, thrust up into the stratosphere by some recent, violent shudder of the earth. The stone itself is brutal and young. Black, glassy intrusions of basalt fracture upward in jagged, unweathered splinters, their edges razor-sharp and unblunted by wind or time. The ledge juts out over a staggering void; a blanket of white cloud moves sluggishly miles below, and the sky above is a darkening, unfiltered cobalt. We are high enough that the curvature of the horizon curves visibly away in the bright, harsh sunlight.
+
+Yet, this exposed, dizzying pinnacle is a hothouse. 
+
+Bolted directly into the fresh-sheared stone is a heavy, mechanized installation. It is not a sprawling compound—just a scattered array of three massive, brutalist engine blocks and a chaotic tangle of thick, rubberized arterial cables and copper pressure-pipes. Their purpose is obscure, but they are fiercely alive. The machinery emits a deafening, bone-rattling thrum, a massive industrial bass-note that never wavers. Every surface vibrates with it.
+
+From the joints of these great machines, heat and water bleed in perpetual excess. High-pressure steam vents hiss continuously, atomizing massive volumes of hot, mineral-rich water into the air. The shelf is permanently bathed in a warm, weeping drizzle. Droplets condense on the cold, sharp edges of the young rock, pooling in fresh tectonic cracks and spilling over the precipice in slow, steaming rivulets. Sunbeams shear through this perpetual mist, creating bright, static rainbows that hang in the tight space between the engines.
+
+Because of this unintended geothermal bath, a lush, hyper-dense micro-jungle has violently annexed the machinery. It is a pocket of tropical fury floating in the freezing upper atmosphere. Giant, broad-leaved epiphytes with waxy, dark-green surfaces cup the falling hot water, their overlapping leaves creating a dense, layered canopy barely head-high. The engine blocks are muffled under thick pelts of sodden, emerald moss. Thick, vascular vines coil tightly around the vibrating copper heat-exchanges, their roots working into the very grilles and exhaust ports of the machinery. 
+
+The space feels intensely crowded. The sheer density of the vegetation trying to swallow the hot, sweating metal means you cannot step anywhere without brushing against a rubbery leaf or ducking under a dripping bundle of electrical cables overgrown with hanging ferns. It is a humid, claustrophobic grove perched on a needle-point of rock.
+
+Despite the punishing volume of the engines and the hissing spray, the landscape is locked in an extreme, patient slowness. The heavy analog dials on the rusted control boxes move, but only by fractions of a millimeter over the course of weeks. The machinery’s roar does not crest or fall; it is a permanent drone. The vines advance over the galvanized steel with glacial determination, baked by the intense, unfiltered high-altitude sun, constantly weeping from the mechanical rain. 
+
+There are no birds here, and no animals. The altitude is too extreme, the shelf too isolated. Perhaps a single pale, translucent insect occasionally navigates the wet labyrinth of the moss, but otherwise, the ledge is perfectly devoid of animal biology. 
+
+It is a place of profound and loud contradiction. The fresh, violent genesis of the mountainside cradling a localized machine-age tropics. The hot spray weeping down raw, black rock into the freezing abyss below, while the engines grind on, humming their endless, deafening chord to an empty sky.

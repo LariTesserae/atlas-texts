@@ -1,0 +1,13 @@
+Deep within the hollowed-out spire of a crystalline needle—a jagged rock-tooth protruding from a planet-wide expanse of frozen ammonia—lies a pressurized pocket of absolute stillness. This is not a landscape of air, but of solid, electrified hum. 
+
+There is no water here; the physics of this space operate on ionic exchange and thermal conductivity. The "vegetation" is a dense, suffocating carpet of fungal-wire and copper-veined lichen. These growths do not photosynthesize; they draw their vitality from the constant, low-frequency electromagnetic pulse that radiates from the embedded ruins of a forgotten industrial age. The lichen is thick, piled in tangled, mossy heaps that feel like heavy felt, pressing against you from every direction. It is a world of tight corners, where the "flora" is so saturated that it occupies every cubic centimeter of the cavern, leaving no gap for movement.
+
+The temperature is perpetually cool, set by the ambient decay of the heat-exchangers that run deep beneath the floor.
+
+The "built" aspect is subtle—remnants of nickel-alloy scaffolding, oxidized control panels fused into the cavern walls, and thin, rigid pipes that serve no clear purpose. These artifacts are not being reclaimed by nature; they are integrated into it. The lichen grows *through* the circuits. The metallic, rhythmic pinging of expanding and contracting metal, layered over the low, constant drone of a stalled generator, provides a permanent, loud acoustic backdrop. It is a sonic industrial chant that has played, note for note, for eons.
+
+Because the environment is frozen in a state of absolute equilibrium, the light never shifts. It is provided by localized, dim luminescence from the lichen itself—a bruised, cobalt glow—and the flicker of ghost-currents still running through the wiring. There is no decay, no growth, no wind, no breath. 
+
+It is a pocket universe of industrial taxidermy. Everything is finished, everything is accounted for, and everything is permanently in place. 
+
+If you were to step into this space, you would find no room to maneuver. You would be pressed against the velvet-soft, metallic moss, held upright by the density of the growth. You are a static object in a static room. There is no hunger, no survival instinct, no biological drive; the "fauna" are absent because there is no gradient—no difference between here and there, no movement to be made, no change to be sought. The silence is loud, the cold is steady, and the world is a single, packed, finished thought that has stopped thinking.

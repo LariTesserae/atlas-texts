@@ -1,0 +1,23 @@
+Here, in the absolute absence of light, sight is a useless sense, and so the world reveals itself through the skin, the ears, and the humidity of the breath.
+
+You are standing within a pocket. It is not a vast cavern, nor an open plain; it is a compartment, a geologic cyst embedded high in the flank of a range you cannot see. The elevation is evident in the thinness of the air, despite the oppressive heat that sits against the skin like a heavy, wet wool blanket. The air is rarefied yet impossibly dense with water, a paradox of the atmosphere that suggests this place exists in a state of perpetual, feverish exhalation.
+
+The darkness here is total (0.0/3). It is not merely the absence of the sun, but a physical weight, a black velvet that presses against the eyelids. To move, one must extend a hand and encounter the boundaries of the room.
+
+The walls are close. They feel raw (0.1/3). Under the fingertips, the rock does not feel ancient or weathered; it feels newborn. There are no smooth curves worn by millennia of flowing water, no patina of dust or moss. Instead, the stone is sharp, jagged, and aggressive. It possesses a "virulent" texture—crystalline edges that have not yet had the time to blunt against the universe. It is geology in the moment of its creation, still cooling, still screaming silently into the dark.
+
+And it is wet (2.3/3). The water is everywhere, but it does not flow in rivers. It weeps. The rock is saturated on a microscopic level, sweating warm droplets that condense instantly on your skin. The humidity is near 100%; every inhalation provides less oxygen and more fluid, a thick, drinkable fog that hangs suspended in the stagnant air. The water tastes metallic, like battery acid and iron, sharp on the tongue.
+
+Despite the claustrophobia of the space, the volume feels incredibly crowded (2.4/3). The "density" here is not of life, but of texture. The walls are not flat planes but chaotic topographies of needle-like crystal formations and porous, sponge-like stone. They jut inward at odd angles, creating a forest of mineral obstacles that makes movement a careful negotiation. To step forward is to risk grazing a shoulder against a serrated outcrop of stone that feels harder than steel.
+
+The silence (0.8/3) is deep, but it is not empty. It is a steady-state hum. The dominant sound is the rhythmic, heavy *plip* of condensation falling from the unseen ceiling to the floor. It falls with perfect consistency—once every four seconds. It has likely fallen this way for eons. *Plip.* A pause. *Plip.* The sound resonates briefly against the raw walls and then dies, swallowed by the damp air.
+
+There is life here, but it is rare (0.7/3) and hard-won. In one corner, where the water accumulates in a shallow, slick depression, a single, pale organism clings to the rock. It feels soft and mucilaginous to the touch, like a liver or an exposed fungus, lacking any shell or carapace. It does not move. It vibrates slightly, a low-frequency thrum that is felt in the teeth rather than heard. It is the only other living presence in this micro-world, a solitary entity feeding on the slow seepage of minerals from the fresh stone.
+
+Signs of intelligence are scattered (1.0/3), primitive (0.6/3), and heartbreaking in their simplicity. On a flat-ish slab of rock, worn smooth not by nature but by friction, someone once sat. Nearby, the dark reveals—through touch—a crude tool. It is a river rock, unassuming, wrapped in a handle made of woven dried grass that has somehow withstood the damp. It is a simple scraper, likely used to harvest the soft organism in the corner, or perhaps to cut through the dense mats of algae that occasionally slick the floor.
+
+The place feels caught in a moment of frozen equilibrium (0.2/3). Nothing changes. The water falls, the air sits heavy and warm, the sharp stone remains sharp. The temperature (2.4/3) never fluctuates; it is a sweltering, incubator-like heat that never breaks into a sweat, only a simmer. Time does not seem to pass here; it pools.
+
+The weirdness (1.3/3) of the environment is subtle but unsettling. It is the specific arrangement of things: the high altitude combined with the tropic heat; the raw, un-eroded stone that suggests the mountain is forming around you right now, entombing you in fresh granite; the sense that this small, wet, dark room is a "spare part" of the world, a pocket where the usual laws of erosion and time have been paused.
+
+To be here is to be inside the lung of a sleeping giant, warm and wet and dark, waiting for a breath that never comes.

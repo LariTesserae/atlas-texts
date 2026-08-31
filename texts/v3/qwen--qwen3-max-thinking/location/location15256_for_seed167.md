@@ -1,0 +1,25 @@
+The world here is not drowned—it *is* water.  
+
+Not in the way of a flooded city glimpsed through murky glass, but as a condition of being. What was once ground is now memory held in silt, compacted into beds so ancient they’ve forgotten their own names. The elevation is low because there is no “up” to speak of—only depth gradients in a liquid continuum that stretches for leagues in all directions, bounded only by the slow curvature of a submerged sky.  
+
+This is not the ocean as humans once knew it. There is no surface to breach, no violent churn of waves under storm. The water is warm—2.3 on the scale—and holds that heat like a living thing: thick, viscous in its movement, laced with dissolved minerals that lend it a faint golden hue when light dares to penetrate. But light rarely does. At 0.1 on the scale, darkness is not absence—it is substance. Not pitch, but a velvet indigo that swallows outlines, reduces form to suggestion, and turns every distant motion into a ghost of itself.  
+
+Yet the place teems. Fauna at 2.2 means life pulses everywhere. Not in schools or swarms, but in a distributed hum of presence. Soft-bodied filter-feeders cling to the skeletal remains of drowned architecture, their translucent tendrils fanning in slow currents. Blind crustaceans, armored in pearlescent chitin, scuttle through alleyways now paved with sediment, their legs clicking faintly against ceramic tiles half-buried in ooze. Above them, gelatinous medusoids drift—bioluminescent only in distress—trailing filaments that taste the water for chemical whispers.  
+
+Vegetation is sparse (0.8), but not absent. What green exists is spectral: pale kelp-like strands anchored to rusted rebar, swaying with the rhythm of a forgotten tide. They don’t photosynthesize—there’s no light for that—but instead absorb nutrients osmotically through pores, feeding on the slow decay of the built world. Mosses, fungal in nature more than plant, coat the undersides of collapsed overpasses, glowing faintly with chemiluminescent enzymes.  
+
+And the built environment—2.1—persists, though transformed. This was once a coastal metropolis, perhaps, or a delta city that refused to retreat. Now its bones remain: towers lean like exhausted giants, their upper floors long dissolved or collapsed inward. Bridges arch uselessly over channels that never dry. Streets are canyons filled with silt, punctuated by the occasional upright lamppost, its glass long gone, its iron stem now a perch for barnacle colonies shaped like cathedral spires. The construction is layered—subways below plazas below residential blocks—each stratum compacted by time and pressure into a single, waterlogged geology.  
+
+Erosion at 2.0 means the violence of submersion is over. The city has settled into its aquatic fate. Concrete has softened into porous reef. Steel rebars weep rust that feeds bacterial mats. There is balance here—not harmony, but a kind of exhausted truce between collapse and persistence.  
+
+Density (2.0) makes the space feel intimate despite its scale (1.5). You are never alone, never truly in open water. Even in the widest submerged avenues, something brushes past—a fin, a trailing root, the ripple of a predator’s wake. The water itself feels *occupied*, thick with organic particulate, with the scent of brine and decomposition and something sweetly metallic underneath.  
+
+Sound is mostly quiet (0.8), but not silent. The dominant note is the low, resonant thrum of water moving through hollow structures—a kind of planetary breathing. Occasional pops from snapping shrimp. The groan of shifting metal deep below. The soft, wet rustle of something dragging itself over sediment.  
+
+Dynamic at 1.9: life here is active, but slow. Predation happens in pulses—a sudden lunge from shadow, a cloud of bioluminescent alarm, then stillness again. Nutrient plumes rise from thermal vents disguised as old sewer outlets. Tides still move, though they’re driven now by lunar pull on a fully aquatic planet, creating gentle, continent-wide sloshes that redistribute silt and spawn.  
+
+Weirdness (0.9) isn’t flamboyant—it’s subtle. The way certain fish have evolved to mimic discarded objects: a flounder shaped like a license plate, a squid whose tentacles coil like power cords. The fact that some buildings hum at specific frequencies when current flows through them, attracting mating swarms. The occasional human artifact that shouldn’t survive—a child’s shoe, preserved in anoxic mud, still bright red—now serving as a nesting cavity for blind gobies.  
+
+There are no tools here. No tech (0.0). Everything is biological, chemical, hydraulic. Intelligence exists—not human, but diffuse: in the hive-mind navigation of plankton clouds, in the memory held by sediment layers, in the way the water itself seems to *remember* the shape of streets.  
+
+This is not a ruin. It is a new ecosystem built on the corpse of a city, breathing water instead of air, lit by inner glows instead of sun, thriving in the dark with a quiet, liquid patience. The flood didn’t end the world—it just changed what the world was made of.

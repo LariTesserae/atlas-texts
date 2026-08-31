@@ -1,0 +1,21 @@
+The place is called **Cleft Hollow**, though no one now living remembers who first named it.
+
+It is a high, cool basin no larger than a modest cathedral, cupped inside the weathered shoulder of an ancient plateau. The scale feels both intimate and immense: stone walls rise steeply on three sides, yet the open fourth side drops away into a pale, hazy gulf far below, so the eye is forever caught between enclosure and vertigo.
+
+The rock itself is the color of bone left in rain—gray-white limestone, heavily pitted and rounded by long centuries of patient erosion. Every surface has settled into its final, balanced form; there is no feeling of ongoing collapse, only the quiet certainty that this shape has already outlived every creature that ever walked it. Water moves through the place like a shy visitor: it does not flow in rivers or gather in lakes. Instead it condenses. At night the temperature drops just enough that mist beads on the cold stone, runs in slow silver threads along natural gutters, and collects in a dozen small, perfectly round basins worn into the rock over millennia. By mid-morning most of these pockets have emptied again through hidden fissures, leaving only damp rings and the faint mineral smell of wet limestone.
+
+Vegetation is sparse and disciplined. A few stunted black-needled junipers cling to ledges, their trunks twisted like arthritic fingers. Between them grow cushions of pale moss and tough, wire-thin grass that never grows taller than a man’s knee. Nothing crowds. Each living thing keeps its distance from the others with the politeness of long neighbors who have already said everything worth saying.
+
+The settlement itself is almost invisible until you are inside it. Thirty-seven low buildings—stone, mud, and timber—huddle against the curve of the western wall, half-sunk into the natural shelves of the rock so that their roofs lie level with the paths above them. Their walls are the same bone-colored limestone as the cliffs; only the narrow doorways and smoke-blackened chimneys betray them as human work. Narrow lanes, worn ankle-deep by centuries of the same feet, wind between the structures. There are no grand squares, no towers, no palaces—only the patient geometry of a place that has learned to stay small and endure.
+
+The people use only the simplest tools: bronze sickles, wooden spades shod with iron, stone hammers, and rope. Everything is handmade, repaired by hand, and expected to outlive its maker. Their fires are small and smokeless. Their voices rarely rise above a murmur. Even the children learn early that loudness is a form of waste.
+
+Sound here is mostly the sound of absence. The wind barely reaches the bottom of the hollow; when it does arrive it moves in slow, cool sighs across the stone rather than howling. You hear the soft drip of condensation into the rock basins. The occasional metallic ring of a hammer shaping a new sickle head. The dry rustle of juniper needles when a rare breath of air stirs them. Nothing more. Birds avoid the place. The only regular fauna are small pale lizards that bask motionlessly on the sun-warmed stone and a colony of quiet brown bats that return every dusk to the same high crevices.
+
+Light is ordinary, almost stubbornly so. The sun passes overhead in a slow arc, striking the eastern wall first, then sliding across the basin floor in a widening wedge of clear, cool daylight before vanishing behind the western cliffs. There are no strange colors, no unnatural glows. Only the honest light of a highland afternoon and the long, blue shadows that follow it.
+
+And nothing changes.
+
+Season after season, the same pockets of water fill and empty at the same hours. The same lichen grows in the same cracks. The same thirty-seven roofs shed the same thin rain. The same paths are swept by the same hands. The people here do not speak of eternity; they simply live inside a place that has already reached it. Even memory seems to have settled into equilibrium—stories are told only once in a lifetime, then never repeated, as though repeating them would disturb the balance.
+
+Cleft Hollow is not abandoned. It is not dying. It is finished. A small, damp, high, quiet, stone settlement that has weathered itself into a perfect equilibrium and now simply persists, like a single clear note held for a thousand years.

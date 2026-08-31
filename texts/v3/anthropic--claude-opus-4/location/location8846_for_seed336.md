@@ -1,0 +1,17 @@
+**The Furnace Grove**
+
+Deep within an industrial complex, where steam pipes snake overhead like metal canopy branches, lies a forgotten cavity in the machinery—a void between boilers where condensation has created something impossible.
+
+The space is no larger than a modest warehouse floor, but it yawns empty between the thrumming mechanical walls. Heat radiates from every direction, turning the air thick and tropical. Condensation beads perpetually on the ceiling pipes, creating a constant gentle rain that patters onto the metal grating below. Through the grating, darkness suggests depths, but the water disappears into the industrial labyrinth beneath.
+
+What should be barren has become absurdly fertile. In the pockets where metal joints fail and rust has eaten through, soil has accumulated—blown in as dust through ventilation shafts, enriched by decades of bird droppings, composted leaves that somehow found their way inside. From these breaches, vegetation explodes with tropical vigor. Vines cascade from overhead pipes, their leaves broad and waxy, adapted to the constant moisture and artificial twilight. Ferns unfurl from every crevice, their fronds reaching spans that would be impossible in nature, fed by the mineral-rich condensation and the constant warmth.
+
+The brightness comes not from sunlight but from banks of industrial lighting that were never shut off—mercury vapor lamps that burn eternal, their blue-white glare creating a perpetual noon. The light reflects off the water droplets, off the wet leaves, off the condensation-slicked metal, creating a shimmering, almost underwater quality to the air.
+
+And the life—the space thrums with it. Insects have colonized this accidental greenhouse by the millions. Beetles with shells that gleam like oil slicks scuttle across the pipes. Moths with wings adapted to the industrial light flutter in clouds. Somewhere in the tangle of machinery and vegetation, generations of birds have made their homes—sparrows and pigeons at first, but now strange variations, their calls amplified and echoed by the metal acoustic chamber until the space rings with an alien chorus.
+
+The sound is overwhelming. The background roar of the boilers provides a constant bass note, while steam releases create rhythmic hisses and shrieks. Water drips in a thousand different tones as it strikes metal, leaf, and pool. The insects drone. The birds call. Metal expands and contracts with creaking protests. It is a symphony of the industrial and the organic, neither natural nor purely mechanical.
+
+Everything here moves. Steam curls. Water runs down surfaces in ever-changing patterns. Vines grow visibly in the hothouse atmosphere, their tendrils exploring new pipes daily. Insects swarm in shifting clouds. Birds dart between the pipes in elaborate territorial dances. Even the metal seems alive, sweating and breathing with the temperature changes.
+
+This is not a place built for life, yet life has claimed it utterly. In the gap between machines, in the void where engineers never intended anything to exist, a pocket ecosystem thrives—loud, bright, empty of human purpose but full of its own urgent being. The industrial feeds the natural, and both have become something neither could be alone.

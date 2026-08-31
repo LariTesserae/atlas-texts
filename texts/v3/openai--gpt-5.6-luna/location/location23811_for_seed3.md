@@ -1,0 +1,55 @@
+The city stands on a high shelf of unfinished earth.
+
+It is not a mountain in the usual sense, though the plateau rises far above the surrounding country, higher than weather ought to permit. Its sides descend in immense, pale faces of stone that look freshly exposed, as if the land has only recently pushed itself upward and has not yet decided what shape to keep. There are no rounded foothills, no mature ravines, no talus slopes settled into their final arrangement. The escarpments end in clean planes, suspended ledges, and blunt vertical steps. In places, the rock appears to have been pressed upward like soft clay and left there to harden.
+
+The plateau is broad enough to hold a city, several industrial districts, reservoirs, railway yards, and long belts of open ground. Beyond the built area, the high country continues in broken shelves and distant elevations, all of them half-formed. A ridge may run for miles and then simply stop, its end squared off as though cut by an enormous tool. A valley may be visible below, but no stream has yet managed to find its way through it. The landscape is waiting for erosion to begin.
+
+Moisture arrives sporadically. Most days the air is dry enough to make the exposed stone chalky, but then clouds gather without approaching from any discernible direction. They thicken in the hollows between buildings, or pour upward from below the cliffs, and leave behind a fine wetness that beads on rails and window glass. Rain is rare, sudden, and almost perfectly vertical. It falls for ten or fifteen minutes, fills every depression, and then is gone.
+
+The water does not always behave as water should. Puddles remain in places that slope sharply uphill. A drainage channel may carry a thin current toward the edge of the plateau, where the stream climbs the wall and disappears into the rock. Condensation forms heavily on the undersides of bridges and hangs there in clear trembling sheets. The city’s reservoirs are fed by pipes, pumps, and atmospheric collectors, but also by slow seepage from the stone itself: a persistent sweating from cracks that were not there the day before.
+
+Vegetation is scattered but vigorous. It grows in dark islands around the infrastructure rather than covering the open ground. Moss occupies the shaded sides of retaining walls. Long, waxy grasses thrust up between rail sleepers and bend toward the sound of distant machinery. There are groves of narrow trees in the abandoned sections of the city, their trunks silver-gray and slightly translucent, their leaves arranged in spirals that seem to turn when no wind is present. Their roots penetrate concrete without cracking it. The concrete simply gives way, becoming porous and loamy around them.
+
+In the lower industrial yards, pale ferns grow beneath conveyor belts. They unfurl only during the brief damp periods and close again when the air dries, but each time they reopen they are larger. Some have reached the height of a person. Along the cliffside, green growth hangs in suspended curtains, rooted in ledges too thin to support soil. No one has watched it spread. It is simply found farther along the rock each season.
+
+The city itself is built in tiers.
+
+At the upper level are administrative towers, power stations, worker housing, and the old transit loop. The buildings are mostly gray, practical, and heavily reinforced, but their proportions have begun to drift. A six-story apartment block may contain eleven floors inside. A warehouse’s exterior dimensions may be smaller than the machinery installed within it. Some streets narrow as they recede, not because of perspective but because the pavement genuinely contracts over distance, drawing distant intersections closer together.
+
+Below this central band are factories, foundries, waterworks, and processing halls. Their smokestacks release little smoke; the air is too cold and the plants too efficient, or perhaps the emissions are being sent somewhere else. At night, though the city is rarely bright, the stacks can be seen exhaling dark columns that descend rather than rise. They gather in alleys and low yards, where they remain until dawn.
+
+The machinery is old enough to have acquired habits. Gantry cranes cross empty lots on schedules no one remembers establishing. Freight elevators continue to stop at floors that were removed decades ago. A line of ore cars rolls slowly around the northern rim of the plateau, each carriage empty, each wheel turning with the same soft metallic complaint. The rail line does not seem to connect to any mine. At the far end, it disappears into a tunnel cut through an unfinished ridge. The tunnel entrance is sometimes on the east face and sometimes on the west, though the track between them remains unchanged.
+
+There are factories that operate without workers. Their windows are dark, their doors sealed, but their internal pistons move once every few minutes. A dull pressure passes through the city when they do: loose signs tremble, water shivers in gutters, and distant birds rise from the grass in coordinated clouds. The sound is not loud exactly, but it is everywhere, a low industrial pulse under the ordinary noises of habitation.
+
+The settlements are sparse in relation to the amount of construction. Whole blocks stand empty beneath intact roofs. Roads pass through open ground where neighborhoods were planned but never assembled. Utility poles extend in straight lines across fields and terminate at nothing. There are streetlights along roads that no longer exist, their lamps glowing faintly even in daylight, though the light falls only on places a few inches away.
+
+What light the city receives is dim and diffuse. The sky is usually the color of wet iron. Shadows are soft, but they do not always agree with their objects. A tower may cast a shadow toward the sun. A person standing beneath an awning may cast two shadows, one a moment behind the other. In the open lots, the dark outlines of absent structures sometimes appear on the ground: a wall, a staircase, a row of windows, all rendered in slightly darker dust. Workers avoid stepping through them. There is no known danger, but tools dropped inside these shapes are often found hours later on roofs or at the bottom of the cliffs.
+
+The cliffs are inhabited by more animals than the city’s emptiness would suggest.
+
+Black-winged birds nest in the ventilation shafts and gather on transmission lines in dense, shifting bands. They are silent while flying, but when they settle, the whole wire fills with a dry muttering that resembles distant speech. Small six-legged grazers move through the grasses in groups of three or four. Their bodies are compact and furred, their heads blunt and eyeless, and they navigate by touching the ground with long whiskers. They are not afraid of machinery. Herds pass beneath moving cranes and around the feet of workers, leaving behind little dark pellets that sprout overnight into pale mushrooms.
+
+There are larger animals in the ravines: long-backed things with jointed legs and translucent ears, adapted to hearing across the open stone. They emerge during the rain and drink from the temporary pools. Their reflections often remain after they have left. The reflected animals move slowly in the puddles for several hours, sometimes turning to watch people on the bank.
+
+At dusk, which arrives gradually and never seems to finish, insects begin to collect around the substations. Their bodies are small and copper-colored. They arrange themselves in geometric lattices over the transformers, forming patterns that are occasionally copied by the city’s electrical grid. When this happens, lights flicker in distant districts, elevators change destination, and clocks lose several minutes—or gain several days.
+
+The people of the plateau have built rules around these irregularities.
+
+No one walks across a newly formed crack until it has existed through three rainfalls. No water is drunk from a pool that reflects the sky incorrectly. The bells at the western pumping station are rung at noon, although noon is difficult to establish and the bells sometimes answer from underground. Workers mark doors with chalk whenever a room has gained or lost an interior wall. Children are taught never to follow their own voices into the service tunnels.
+
+The deepest tunnels belong to the city’s original works, though “original” has become a matter of debate. They run beneath the plateau in straight, intersecting lines, far larger than the streets above. Their walls are lined with brick, poured concrete, raw stone, and occasionally materials no one can name. Some corridors contain office doors opening onto weather: one leads to a snowstorm, another to a warm field under a yellow sky, another to the same corridor several hundred meters away. The doors are numbered, but the numbers change when read aloud.
+
+Below the tunnels, the earth is warm in places. Not hot—merely alive with a deep, patient heat. Pipes have been driven into it to extract steam, but the steam pressure rises so slowly that the gauges barely move from year to year. Engineers record the changes anyway. They have found that the plateau is still growing. Its elevation increases by less than the thickness of a fingernail annually, yet buildings must occasionally be jacked higher to keep their foundations level.
+
+The land is being made, not worn down.
+
+Stone surfaces are sharp, unweathered, and strangely clean. Rain leaves little trace. There are no mature gullies, no ancient scree, no soil deep enough to hide much of anything. When a wall collapses, its debris does not spread naturally. Bricks remain in orderly piles. Rubble forms angular heaps. Even abandoned machinery settles into stable, deliberate arrangements, as if guided by an unseen plan.
+
+Change happens slowly here, but it is never absent. A factory extends one room farther each winter. A tree adds a new ring that encloses a bolt, a pipe, or a forgotten animal bone. The plateau shifts by fractions. The city’s empty districts fill with grass, then lose their doors, then acquire windows in places where there are no walls.
+
+From the southern overlook, the whole region can be seen: the dim city, the suspended roads, the unweathered cliffs, the distant shelves of rising ground. Thin rain moves across the landscape in isolated vertical bands. Between them, the air is clear enough to show things that may be too far away to see: another city under construction on a higher ledge, a river flowing upward through a canyon, a line of lights advancing slowly across the sky.
+
+Nothing rushes.
+
+The cranes continue their patient crossing. The trains make their empty circuit. Moss thickens under the bridges. Somewhere below, the stone pushes upward, and the city adjusts itself around the pressure.

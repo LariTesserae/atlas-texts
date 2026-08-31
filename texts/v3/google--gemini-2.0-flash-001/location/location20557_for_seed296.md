@@ -1,0 +1,19 @@
+The air is thin and cold, a rasp in the lungs unused to such altitude. Above, the sky is a pale, washed-out grey, pressing down on the city nestled in the ancient, worn folds of the mountains. It’s a dim world, filtered by perpetual cloud cover and the deep shadows cast by the towering peaks.
+
+This isn't a place of dramatic spires or jagged cliffs. The erosion has been relentless, grinding the stone down over eons. The mountains here are massive, but rounded, sloping gently towards the valley floor. The city itself seems to grow out of this erosion, hugging the contours of the land, its buildings constructed from the very stone that once formed the mountains.
+
+The water is a constant, unseen presence. There is no roaring river tearing through the city; instead, a pervasive dampness clings to everything. Mist hangs in the air, condensing on the cold stone streets and slicking the cobbled pathways. Water trickles down the walls of buildings, feeding thick mats of moss and lichen that thrive in the perpetual twilight. Deeper within the city, one can hear the constant drip and trickle of water, a symphony of slow decay and renewal.
+
+Vegetation is abundant, if muted in color. Mosses and ferns carpet every surface, turning buildings and roadways a dull, emerald green. Hardy shrubs cling to the hillsides. In sheltered courtyards and on rooftop terraces, carefully tended gardens explode with strange, pale blooms. They seem to strain toward some absent sunlight, their petals translucent and delicate. These gardens are clearly essential, perhaps providing food or vital resources in this challenging environment.
+
+This is a city built on industry, but not on explosive growth. The buildings are closely packed, a labyrinth of narrow streets and towering structures. Mills and factories are built directly into the mountainside. Waterwheels churn slowly in hidden channels, providing power to archaic machines. The air is thick with the smell of damp stone, machine oil, and the faint, cloying sweetness of the strange, cultivated plants.
+
+The technology is old, established. There are no gleaming chrome towers or soaring sky-bridges. The machines are hulking and mechanical, powered by water pressure, steam, and intricate clockwork. Gears grind and pistons hiss, the sounds echoing through the narrow streets, but muted, softened by the muffling dampness and the sheer density of the city’s construction. Every surface is coated with grease and condensation.
+
+Despite the industrial presence, silence predominates. The sounds of machinery are monotonous and constant, fading into the background. The lack of birdsong is unsettling. The rare fauna seems to exist on the edges of things, glimpsed only in fleeting moments: a pale, eyeless fish in a hidden canal, a furry shadow darting between buildings. Most of the inhabitants of the city seem to be going about their day quietly.
+
+The city is alive, though. The water is actively working, the mosses and ferns are actively growing, the machines are actively running, the population is actively going about their day, and the damp is actively dampening. This place is not dead, just strange.
+
+The strangeness pervades everything. The architecture is subtly wrong, built at angles that seem impossible, defying gravity. The citizens are clad in layered clothes, wrapped to protect from the cold. Their faces are pale, their eyes large and dark, seemingly adapted to the dim light. They move with a quiet efficiency, seemingly oblivious to the unsettling nature of their surroundings.
+
+The rules of this place are unwritten, but deeply ingrained. There's a sense of slow, inevitable processes unfolding, of systems meticulously maintained and a delicate balance carefully preserved. To survive here, one must adapt, embrace the damp, the dimness, the strange geometry, and the quiet hum of ancient industry. One is also not the first to do so. One can see that the city has been here a long time.

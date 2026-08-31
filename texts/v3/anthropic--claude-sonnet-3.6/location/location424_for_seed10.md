@@ -1,0 +1,19 @@
+At this elevation, the ancient plateau should be a frozen waste. Instead, it writhes with life. The ground itself is a continuous mat of vegetation - not soil with plants, but a single unified mass of interlinked growth that extends for miles in every direction. This living substrate undulates subtly, like the surface of a calm sea, though there is no wind to move it.
+
+The mat is primarily a deep purple-green, but shot through with bioluminescent veins that pulse with slow, unsynchronized rhythms. These veins carry not blood but water - the entire ecosystem is a massive hydraulic system, moving moisture from areas of abundance to spaces of need. Where the veins intersect, they form glowing nodules that periodically release clouds of spores into the chill air.
+
+Rising from this living floor are what appear at first to be trees, but are closer to coral formations made of plant matter - complex branching structures that seem to grow and dissolve in real time. They emerge gradually, reaching heights of thirty or forty feet, before slowly disintegrating back into the mat. The process takes hours or days, and across the landscape there are always some rising while others fall.
+
+The air is thick with moisture that seems reluctant to either fall as rain or disperse as fog. Instead, it forms complex geometric patterns that hover and drift, occasionally consolidating into temporary waterfalls that pour from empty sky. The water is immediately absorbed by the mat below, feeding the hydraulic system.
+
+The cold should prevent this abundance of life, but the biological mass generates its own heat through constant metabolism. Steam rises in places where the mat's temperature differential with the air is greatest, creating a constant interplay of warm and cold air masses that generates a background rumble of thunder.
+
+The fauna here has evolved in strange directions. Most creatures are semi-transparent, their organs clearly visible through gelatinous flesh. They range from tiny floating spheres to enormous whale-like beings that swim through the air as if it were water. None seem to have solid skeletons - they flow and reshape themselves as they move. Many appear to be in a state of constant metamorphosis, never settling into a final form.
+
+The boundaries between distinct organisms blur. Is that floating creature an animal, or a mobile part of the mat that has detached itself? Are those tentacles reaching up from the ground hunting, or are they a new kind of growth? Even the line between plant and animal seems uncertain here.
+
+The entire plateau exists in a state of dynamic equilibrium - constant change that somehow maintains a consistent overall pattern. The mat dies and regrows, the coral-trees rise and fall, the water cycles between air and ground, the creatures transform and merge and separate again. Yet for all this motion, this is an ancient system, having found this strange stability eons ago.
+
+There's a technological presence here, but it's not human-made. The mat itself appears to be a vast biological computer, processing information through its hydraulic networks. The bioluminescent pulses are not random - they carry signals across the plateau, coordinating the entire ecosystem like a single enormous organism. Whether this system evolved naturally or was engineered by some long-vanished civilization remains unknown.
+
+The overall effect is of a place that exists at the edge of comprehensibility - recognizable components combining in ways that challenge basic assumptions about the categories of being. It feels like looking through a window into an alternative path of evolution, one that took a sharp turn away from the familiar billions of years ago and has been developing along its own logic ever since.

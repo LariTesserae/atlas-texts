@@ -1,0 +1,23 @@
+The mesa breathes.
+
+Not with lungs, but through ten thousand chitinous spiracles that pock its weathered sandstone surface. Ancient bore-holes, each no wider than a child's fist, exhale the day's heat in barely audible sighs. The plateau stretches for perhaps twenty kilometers, its edges worn to such perfect smoothness they seem melted rather than eroded—as if time itself has polished away every sharp angle, every memory of violent uplift.
+
+This is where the beetles come to die.
+
+They carpet the warm stone in drifts three layers deep, their jeweled carapaces catching the afternoon light like scattered coins. Emerald scarabs the size of dinner plates. Midnight-blue crawlers with legs like articulated needles. Golden things that might be beetles or might be something else entirely, their wing cases fused shut eons ago. Most are still alive, moving in achingly slow processions toward nowhere in particular, climbing over and under one another in a continuous, nearly silent rustling that sounds like dried leaves, like whispered prayers, like the earth settling into sleep.
+
+The vegetation persists in defiance—lone acacia trees growing from cracks where morning condensation pools, their roots threading down through the mesa's honeycombed interior. These trees have evolved backward somehow. Their leaves are too few, too small, but their bark weeps a clear resin that hardens into amber chambers. Inside each chamber: a single beetle, perfectly preserved, still moving its legs in microscopic increments. The trees feed on time itself, on the slow decomposition of moments.
+
+Stone cisterns dot the plateau, carved by no human hand—or rather, carved by hands that were human so long ago the distinction has ceased to matter. They catch the rare rains, the heavy morning dews. Around each cistern, concentric rings of beetle paths have worn grooves into the rock, spiraling inward like fingerprints. The water, when it comes, tastes of copper and distance.
+
+The fauna density defies logic. Besides the beetles: translucent geckos that have evolved to be nearly two-dimensional, sliding between the compressed layers of sandstone. Moth populations that exist primarily as probability clouds, only occasionally collapsing into actual moths. Birds that forgot how to fly and now swim through the thick air near the surface, their wings modified into temperature-sensing organs. Everything here lives at a different speed—some creatures moving so slowly they seem like minerals, others flickering through their entire lifecycles in the space between heartbeats.
+
+At the mesa's heart, where erosion has carved a shallow bowl perhaps three kilometers across, the remnants of structures suggest themselves without quite manifesting. A line of stones too regular to be natural. A depression that might have been a foundation. Ceramic shards worn so smooth they've become part of the geological record, their glazes still faintly iridescent with colors that shouldn't exist in this spectrum.
+
+The warm air shimmers not with heat mirages but with something else—a temporal density that makes distances uncertain. What looks like a ten-minute walk might take three hours. What seems like three hours might pass in seconds. The beetles understand this; it's why they come here, to this place where duration itself has grown soft and negotiable.
+
+When the rains arrive—perhaps twice a year, perhaps twice a century—the entire mesa transforms. The spiracles reverse their breathing, drawing water down into the hollow spaces below. The beetles lift their wing cases in unison, revealing underwings that are actually gills, or prayers, or both. For exactly seventeen minutes, everything here remembers what it was like to be young, to be sharp-edged, to exist in regular time. Then the moment passes, and the mesa returns to its ancient patience.
+
+Sound barely exists here. The beetle-rustle. The occasional crack of thermal expansion in the rock. A wind that doesn't blow but rather seeps across the surface, too tired to properly howl. Sometimes, from deep in the cisterns, a sound like singing—but it's only the echo of rainfall from three thousand years ago, still bouncing between the stones, growing quieter with each century but never quite reaching silence.
+
+This is a place that has already ended but continues anyway, where life persists not through struggle but through a kind of cosmic forgetfulness, as if the universe simply forgot to stop things from living here. The beetles know. They've always known. That's why they come here to die, and why, despite their best efforts, they keep on living anyway, slowly, slowly, slowly, in the warm density of a world that has worn past its own conclusion into something altogether stranger.

@@ -1,0 +1,21 @@
+Beneath a jagged fissure in the dry upper crust of the earth lies a hidden, collapsed dome—a subterranean glasshouse without glass, known only to the creatures that crawl its damp floor. 
+
+This is a pocket of deep, sweltering heat. The air inside the dome is heavy and thick, hanging at a constant, feverish warmth that feels less like weather and more like the breath of some great, buried animal. It is a wet heat, though there are no running rivers or wide pools. Instead, moisture exists as an omnipresent film: a silver sweat clinging to the undersides of leaves, fat droplets gathering at the tips of limestone stalactites, and tiny, perched basins of calcium carbonate—no larger than bowls—filled with water so still and clear it looks like liquid ice. 
+
+A single shaft of dim, emerald-tinted light pierces the ceiling from the fissure far above. It does not illuminate the entire space; rather, it cuts a dusty, diagonal cylinder through the gloom, lighting up drifting fungal spores and the slow, heavy dance of gnats. The rest of the chamber, roughly eighty yards across, remains in a perpetual warm twilight.
+
+The walls are made of ancient, water-worn marble, smoothed by ages of slow-dripping condensation until they resemble melted wax. There are no sharp edges here. Every surface has been softened, rounded, and claimed. 
+
+Vegetation grows with a crowding, silent ferocity. Because there is no wind to stir them, the plants have grown in eccentric, structural ways. Pale, broad-leaved monocots, nearly translucent in the dimness, overlap one another like the scales of a fish, maximizing their exposure to the faint daylight. Thick carpets of liverwort and velvet-textured mosses coat every rock, absorbing what little sound exists in the cavern. Strangling figs and air-plants with fleshy, pink roots hang down from the upper lip, forming a dense, tangled curtain that partitions the chamber into smaller, private alcoves.
+
+In the center of this grotto, half-swallowed by the creeping green, are the remains of a single, simple structure. It is a low, circular terrace made of heavy, damp basalt blocks. There is no mortar holding them together; they have survived through shear weight and the binding grip of root systems that have wormed into their joints. The stones are worn flat, their tops grooved with shallow, concentric channels that catch the dripping water from above and channel it toward a small, central depression. It is a ancient, silent monument, devoid of any tool-marks or inscriptions—a place where someone once sat, or perhaps where water was gathered, long before the ceiling collapsed.
+
+Despite the thick, suppressive quiet, the grotto is teeming with life. The density of living things is dizzying, but it is a world that operates on a hushed scale. 
+
+There are no birds, and nothing here possesses a voice. 
+
+Instead, the silence is composed of a thousand minute, organic processes. A large, flat beetle, its shell patterned like lichen, moves across a rotting log with a faint *scritch-scritch* of its tarsals. Soft-bodied, pale frogs sit motionless on the rims of the calcium basins; they do not croak, but communicate through the rhythmic, visible pulsing of their amber throat-sacs. Heavy lepidopterans with wings like dry grey leaves flutter listlessly through the low canopy, their wings making no more sound than a falling feather. 
+
+The dynamics of this place are constant and swift. Because of the heat and the moisture, decay is nearly instantaneous. A leaf falls, and within hours it is webbed over with white mycelium, dissolving back into the rich, black loam that feeds the giant ferns. Small, blind centipedes hunt even smaller springtails through the layers of detritus, their interactions silent and lethal. Every few minutes, a heavy droplet of water will let go of a hanging root, landing with a distinct, hollow *plop* into one of the basalt channels—the loudest sound in the entire valley.
+
+It is a self-contained engine of growth and rot, perfectly balanced, utterly hidden, ticking away in the warm, green dark.

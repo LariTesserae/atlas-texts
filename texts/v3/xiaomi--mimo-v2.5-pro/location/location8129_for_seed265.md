@@ -1,0 +1,49 @@
+# The Inlet
+
+There is no sky. There was a sky once — or something like it — and there are people here who remember a word for it, but the word has come loose from its meaning the way barnacles come loose from a hull that has finally, after long years, begun to sink. Above you there is not darkness in the sense of an absence of light. There is darkness in the sense of a substance. It has texture. It has weight. If you raise your hand — you can barely see your hand — the darkness curls around your fingers like something that would prefer you kept still.
+
+---
+
+The ground is new. This is apparent even in the dark. Not new the way a field is new after plowing — new the way an island is new, fresh-thrust from a volcanic seam, still warm with its own formation. The mud beneath your boots is not the ancient silt of accumulated millennia. It is young mineral:ite, calcium-dark, smelling of sulfur and iron and something else, something that has no name because the thing that made it was not part of any mineralogy you were taught. The ground exhales. Not metaphorically. Press your palm flat against it and you will feel warmth and a slow, tidal pulse — not a heartbeat exactly, more like the rhythm of something breathing in its sleep.
+
+The terrain is flat and low. You are standing — everyone here is standing, always — at an elevation of perhaps four meters above what might, in some former configuration of hydrology, have been called sea level. There is no sea. There is water. Water is everywhere. It does not flow so much as *accumulate* — in the shallow depressions between the mud-ridges, in the hollows where industrial foundations have settled and cracked, in the cupped shapes of rock that emerged sharp-edged and geologically infant and have not yet learned to erode. The rocks are too young to have been worn down. Their edges are cruel. They cut. Things crawl across them and are cut and do not seem to mind.
+
+Water seeps up through the ground itself. The surface glistens. You can hear it if you are very still — a faint, almost subliminal trickling, like a faucet in an adjacent room that no one will ever turn off. The air is saturated. It is warm — not oppressively so, but in the way of a greenhouse at night, humid and close, the kind of warmth that adheres to skin and never quite evaporates. Condensation forms on every surface. The metal structures weep continuously. Rust is not the right word for what happens to iron here. The iron changes, yes, but it changes into something that is not quite iron and not quite rust and not quite alive, though it moves — very slowly, on a scale of months — with a faint peristaltic contrition, as though the metal is trying to digest itself.
+
+---
+
+The structures are scattered across this plain at irregular intervals, half-sunk in the mud like the ribs of some enormous creature buried face-down. They are industrial in origin — or they were, once. You can identify the grammar of factories, the syntax of refineries, the parenthetical additions of pipes and conduits and storage vessels. But whatever process they were built to enact, that process has become ambiguous. The pipes do not connect to anything that remembers being connected to. The smokestacks rise at slight angles — not fallen, not tilting, simply *aslant*, as though the geometry of the place has drifted slightly from the geometry they were built to inhabit.
+
+There is electricity. Not much. Not reliably. A single bare bulb hangs from a junction box on a pole near what might have been a pump station, and it glows with a light that is not quite the right color — too amber, too slow, as though the photons themselves are reluctant to propagate. When it flickers, which it does, the darkness does not simply reassert itself. It *returns*. You can feel it arriving, the way you can feel weather changing. The bulb illuminates a circle of perhaps three meters radius, and within that circle the mud is slightly more visible, and the water is slightly more visible, and you can see the faint outlines of structures receding into the dark in every direction, dozens of them, more than you thought, their shapes indistinct and overlapping, dense as a graveyard, silent as one.
+
+---
+
+The fauna.
+
+You hear them before you see them, if you see them at all. The sound level is low — the parameters would call it mostly quiet, and they are technically correct — but the quiet is textured. It is the quiet of a place that is full of things being quiet. The darkness moves. Not with wind. With bodies.
+
+They are abundant. They are *everywhere*. The species — if that word even applies; taxonomy has become a matter of opinion here — are adapted to the lightless warmth and the standing water and the young, sharp geology. Most of them are soft-bodied. Many of them are colonial — you encounter not individuals but masses, networks, cooperative tangles of organism that spread across the mud like living carpets, each unit small enough to fit in your palm but the aggregate extending for meters, for tens of meters, pulsing faintly with their own bioluminescence, which is not bright enough to illuminate anything but is visible, if you let your eyes adjust, as a faint blue-green mottling across the surface of the water, like foxfire, like the memory of light.
+
+Something moves through the shallow water on many legs — or on something that functions as legs, articulated and jointed but too numerous and too thin, like a centipede drawn by someone who has never seen a centipede and is working from a description in a language they do not fully understand. It is perhaps a meter long. It does not react to you. It does not appear to have eyes.
+
+Birds — no. Not birds. Things that fly. The darkness above you is occasionally textured by wingbeats, leathery and slow, and you hear their calls at the margins of perception: not songs, not cries, but sounds like the creaking of old machinery, like gears that have not been oiled, like a door opening very slowly in an empty house. They roost on the smokestacks. You know this because sometimes, in the deepest quiet, you hear their droplets falling from above — a patter of something that is not quite rain hitting the water that is not quite a lake.
+
+In the deepest depressions, where the water is deepest — perhaps half a meter, perhaps less; depth is hard to judge when you cannot see the bottom — things surface and subside. Great slow shapes. They might be fish. They might be something that used to be fish and has since renegotiated its relationship with vertebral structure. When they break the surface, the water ripples outward in circles that take a long time to reach the edges of the pool, and the bioluminescent mats shiver, and then everything is still again.
+
+---
+
+The vegetation is sparse. This is a place that should be choked with plant life — the warmth, the water, the nutrient-rich mud — but something about the soil or the water or the lightless air resists chlorophyll. What grows here is not what you would recognize as plants, though they photosynthesize after a fashion, drawing energy from chemical gradients rather than light, feeding on the difference between the warm mud and the cool air, on the sulfur compounds that rise from below, on the slow industrial seepage from the ruined structures. They are low to the ground. They are dark — black or deep violet, the color of organisms that have no use for the visible spectrum. They grow in patches, colonizing the bases of pipes and foundations, threading through cracks in concrete, forming mats and crusts and occasional tall, thin stalks that sway without any wind, as though responding to frequencies you cannot perceive.
+
+There are fungal structures — enormous, slow-growing shelves and brackets erupting from the submerged wooden beams of what might once have been a dock or a loading platform. They glow faintly. They smell sweet and chemical, like acetone and vanilla, and if you touch one it is warm and yields like flesh.
+
+---
+
+Reality is breaking down here. This is not a metaphor. The weirdness parameter is almost at maximum, and you can feel it in the way distances behave — the far structures seem nearer than they should be, or farther, depending on something you cannot identify, perhaps the angle of your attention. Shadows fall in directions that do not correspond to any light source. The water, when you look at it directly, sometimes reflects things that are not above it. Your reflection is occasionally present. It is occasionally accurate. When it is not accurate, the discrepancies are small — a tilt of the head you did not make, a hand you did not raise — and you learn, over time, not to look.
+
+Time is slow here. Change is glacial. The industrial structures have not visibly deteriorated in the years — or is it decades? — since they were abandoned. The mud does not build up. The water does not recede. The fauna moves in cycles that span seasons you cannot track because there is no sun, no moon, no visible sky — only the darkness above and the faint luminescence below and the warm, wet, rusting silence between.
+
+Sometimes the darkness *shifts*. Not brightens — shifts. As though something very large has moved between you and something very far away. You do not look up when this happens. Everyone here has learned not to look up.
+
+The slow, deep pools hold your gaze if you let them. They hold other things too, if you let them. You can feel the water wanting to be deeper than it is, as though it remembers an older geography — a sea, perhaps, a vast and lightless sea — and is waiting, with infinite patience, for the land to remember that it was once the bottom.
+
+The land is remembering. Slowly. Slowly.

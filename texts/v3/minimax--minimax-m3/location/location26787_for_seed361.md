@@ -1,0 +1,43 @@
+# The Hollow at Pillar Bend
+
+You find it because you are listening. The sound pulls you off the ridge path, down a slope so worn by centuries that your boots barely disturb it — the rock has been polished by rain and foot and root into something almost soft, almost welcoming. The path is more suggestion than path. A memory of the rock's own grain.
+
+The first thing that tells you the place exists is the change in air. The ridge was dry, bright, bone-warm under an indifferent sun. Here — twenty meters lower, around a shoulder of stone — the air becomes something else. It sticks. It drinks. It enters your lungs already half-exhausted, carrying the smell of green rot and cold stone and a faint metallic sweetness that you cannot place but cannot forget.
+
+A hollow opens in the mountainside. Not a cave exactly — more a scooped-out concavity, the way a thumb presses into wet clay. The roof curves overhead at the height of a tall room. The floor is not flat. It descends in worn steps, each one the height of a fist, each one softened by moss so dark it is almost black. The light comes in diffused, indirect, filtered through a fissure in the roof you cannot see from below — a slash of cloud-forest sky that rains steady brightness into the hollow without ever letting direct sun touch the floor.
+
+The walls breathe water. Condensation gathers on them in beads that swell, hold, then run down in slow vertical lines, tracing paths the moss follows. The moss is thick. It is the kind of moss you only find where time has stopped negotiating — three inches deep in places, deep enough that your foot sinks and the green closes around your ankle with a small wet sound. Ferns uncurl from every crack, fiddleheads the color of bruised plums. A climbing vine has rooted somewhere unreachable overhead and has sent pale exploratory arms down the wall, each tip a tightly clenched fist waiting for the next inch of purchase.
+
+But it is the sound that makes the place.
+
+The sound is the first thing and the last thing. It enters before you and does not leave after.
+
+It begins with the insects. Thousands of them. A wall of small voices that does not so much throb as *hold* — a continuous texture, like fabric being torn very slowly somewhere far away. It is not cricket-song or cicada-buzz. It is something between. A sawing. A whir. A susurrus that you feel in your sternum more than you hear in your ears. Then the frogs enter, lower, throatier, less continuous — a sort of damp knocking, two notes, then three, then the same two notes from somewhere else. Then the birds — high, liquid, three-part calls that arrive, overlap, and do not quite resolve. A bird that does not sing so much as laugh. A bird that sings one note and stops, and waits, and sings it again, as if testing the acoustics of the hollow.
+
+Somewhere — far back, deeper in, where the rock curves inward to a place your eye cannot follow — something larger is moving. You do not see it. You hear its weight: a slow displacement of air, a pause, a slow displacement again. The insects briefly hush when it passes, the way a room of voices briefly hushes when a door opens, and then resumes.
+
+The creatures are everywhere and they are small. The hollow is a thousand lives compressed into a pocket you could walk across in forty paces. They are the moss's tenants. They are the condensation's harvesters. Moths as wide as your palm press against the wet rock with their furred legs, drinking. Lizards the color of old copper hold themselves motionless on the ferns, waiting, and their waiting has the quality of mathematics. A beetle the length of your thumb drags a strand of something luminescent behind it, leaving a thin trail that does not fade. Small frogs sit on the moss in rows, like notes on a stave, and each one is slightly larger than the last, and none of them blink.
+
+There is no stillness. The hollow is in constant small motion. The ferns adjust. The moss exhales. A leaf falls from somewhere above and is intercepted, mid-air, by a spider you did not see until it moved.
+
+And then — the structures.
+
+The first you notice is the pillar.
+
+It stands at the back of the hollow, half-swallowed by the moss. It is not stone. It is not metal. It has the color of bone that has been buried and unburied many times — a yellowed, faintly luminous gray. It is roughly the height of a person and roughly the width of a person's shoulders, but it is not carved into the shape of a person. Its surface is smooth in a way that rock never is and metal never is, smooth in a way that suggests it was not made by removing material but by *deciding* what shape to be. Where the moss touches it, the moss dies — not brown, not rotten, but simply *gone*, a perfect greenless circle around the pillar's base, as if the pillar's presence is a question the moss cannot answer.
+
+The pillar hums.
+
+Not loudly. You do not hear it so much as feel it — a low vibration that sits in the back of your teeth and makes your fillings ache, if you have them. When you put your hand on it — if you put your hand on it — the hum is warm, and the warmth is not heat but something more like attention. The pillar is doing something. You cannot tell what. You cannot even tell what *kind* of thing it is. It has been here longer than the moss. Longer than the ferns. Long enough that you half-suspect it is the reason the hollow exists — that the mountain simply wore away around it, the way a river wears around a stone too hard to move.
+
+Near the pillar, half-buried in the moss, are other things. A disc, flat, the size of a serving plate, that is neither concave nor convex but somehow both — that changes its profile when you walk around it, so that its center is always the highest point of its surface no matter which side you view it from. A rod, broken, that ends in a fractured edge so clean it looks cut, not broken, and that interior — visible in the fracture — is hollow, and inside the hollow there is a light. The light is not bright. It is the color of the sky just after the sun has gone. It has been there since before you arrived. It will be there when you leave.
+
+You do not understand these things. This is fine. They were not made to be understood by anyone now alive. They were made — if *made* is even the word — by hands that thought in timescales you do not have access to, or by processes that did not involve hands. The hollow was, perhaps, a workshop. Or a temple. Or a landing. Or a place where someone left something they could not carry anymore and walked away into the older mountains.
+
+The creatures do not care what the pillar is. The beetles walk over its base without hesitation, their legs clicking faintly on its surface. A frog sits on the broken rod and does not flinch when the faint interior light passes through its translucent throat. The pillar has been here so long it has become a feature of the ecosystem. The ferns grow toward it but do not touch it. The moss dies around its base but flourishes on every other surface. The frogs seem to gather there at certain hours, though you cannot tell what hours, because the light in the hollow does not change and the day outside is the only clock you have.
+
+The hollow is loud. The hollow is alive. The hollow is small enough that if you stood at its center and turned slowly, you could see every wall, every creature, every structure, in a single rotation. But you will not turn slowly, because the sound will not let you. The sound pulls your attention outward in every direction at once — to the moth above your left shoulder, to the lizard three feet to your right, to the bird calling from the unseen fissure above, to the hum of the pillar below, to the slow moving weight somewhere behind you in the dark. The sound is a rope that holds you in the center, taut, trembling.
+
+You will not stay long. You will climb back up to the ridge. The path will be the same worn rock under your boots. The sun will be the same indifferent sun. The air will dry on your skin as you climb, and the moss will give way to lichen, and the lichen to bare stone, and the bare stone to the wider mountains, and the mountains to the wider world.
+
+But you will carry the sound with you for days. And sometimes, when you are very still, you will feel a faint hum in the back of your teeth, as if the pillar has marked you, or has remembered you, or has simply continued doing what it has always done, indifferent to whether you ever come back.

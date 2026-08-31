@@ -1,0 +1,21 @@
+You stand in a basin the size of a world.
+
+The ground beneath you is not ground. It is a seamless, slightly yielding lattice of a dark, resin-like material, warm to the touch and etched with hexagonal patterns that recede into the haze of distance. There is no soil, no stone, only this manufactured floor, and it is everywhere. From its surface, at precise intervals, rise structures—not buildings, but perhaps the bones of buildings, or the roots of them. They are pylons and arches of a blue-gray alloy, pitted and textured like coral, rising only a few meters before spreading into flat, table-like plateaus or intertwining with their neighbors to form low, vaulted ceilings. The entire landscape is a single, interconnected architecture, a three-dimensional maze at a colossal scale.
+
+Water is not a feature here; it is a condition. It beads on every surface, a clear, slightly viscous fluid that catches the diffuse light. It drips in slow, heavy globules from the edges of the plateaus, forming permanent, shimmering curtains that never quite fall, as the air itself is saturated. The atmosphere is a warm, heavy mist, not of water vapor alone, but of lubricants and coolants that carry the scent of ozone and hot metal. Pools of the fluid gather in the hexagonal depressions of the floor, perfectly still, their surfaces reflecting the endless repetition of the pylons above. There are no streams, no rivers—just this ubiquitous, weeping condensation.
+
+The air moves, but it does not blow. Warm currents rise from the lattice floor, carrying the mist in slow, columnar eddies. There is no weather as you know it, only the steady-state climate of a vast, functioning machine: warm, humid, and utterly stable.
+
+And it is alive.
+
+This is the overwhelming fact. The space between the pylons, the surfaces of the plateaus, the very air in the mist—it is dense with *presence*. Not life, but activity. They are the fauna.
+
+Some are vast, silent things like manta rays made of woven wire and glass, gliding on thermal updrafts through the vaulted spaces, their undersides a lattice of sensory filaments that trail through the mist. Others are clustered on the pylons: spider-like entities of articulated brass and copper, meticulously cleaning the alloy surfaces with synchronized, polishing motions, their many limbs moving in a quiet, rhythmic *tap-tap-tap* that is one of the few distinct sounds. Schools of small, darting things—like fish made of polished obsidian—flicker through the denser pools of coolant on the floor, leaving no ripples.
+
+There are no plants. There is no biology. Yet every entity has a function. Some crawl along the hexagonal seams of the floor, extracting and re-sealing the resinous material in an endless cycle of maintenance. Others hang from the high plateaus, thin as threads, vibrating at a frequency you feel in your bones, tuning the atmosphere. Their movements are precise, repetitive, and eternal. They are not eating or breeding or dying; they are operating. This is a world not of organisms, but of self-perpetuating, mobile subsystems.
+
+The light is normal, but it has no source. It emanates uniformly from the mist itself, a soft, directionless glow that eliminates shadows and flattens perspective. It makes judging distance a challenge; the next pylon always seems closer than it is, and the vastness of the place is felt more than seen.
+
+Sound is submerged. The dominant note is a deep, sub-audible hum that permeates everything—the vibration of the world-engine. Over this, you hear the drip of coolant, the soft tap of the cleaning-spiders, the occasional chime of two wire-mantas brushing past each other. It is a soundscape of immense activity rendered in near-silence, as if the scale is so large that individual noises are swallowed before they can fully form.
+
+Nothing here is born, nothing grows, nothing decays. Nothing changes. The condensation falls at the same rate, the polishing spiders tap in the same rhythm, the gliders trace the same thermal paths. It is a system in perfect, frozen equilibrium—a vast, warm, wet, and densely populated machine-ecosystem that emerged from some forgotten process, or perhaps from no beginning at all. It simply *is*, and will continue to be, a continent-sized terrarium of constructed fauna, performing their functions in the warm, weeping dark, forever.

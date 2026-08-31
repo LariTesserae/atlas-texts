@@ -1,0 +1,19 @@
+The city spreads across the high plateau like a vast coral reef of stone, its buildings grown rather than built. Water seeps everywhere through this metropolitan organism—trickling down mineral walls that have wept for millennia, pooling in the carved hollows between structures, condensing from the thin mountain air onto every surface until the entire settlement glistens perpetually wet.
+
+The streets are rivers of polished stone, worn smooth by centuries of water flow rather than foot traffic. Buildings rise in organic terraces, their walls fused together where mineral deposits have accumulated, creating a single continuous architecture that breathes moisture through ten thousand pores. Channels and gutters form natural highways through the city, carrying the constant trickle of water down through neighborhoods that cascade gently toward the plateau's edge.
+
+This is architecture without architects—a city accreted over geological time from the marriage of water and stone. The original inhabitants, if there were any, left no other trace. Now only the water moves here, flowing through apartments where doorways have become waterfalls, through plazas that are shallow lakes reflecting the normal sky above, through towers whose hollow cores echo with the whisper of falling drops.
+
+Sparse vegetation clings to the moisture—thin films of moss on north-facing walls, occasional ferns sprouting from cracks where organic matter has collected, pale fungi in the perpetual shadows between buildings. The few animals are small and secretive: transparent salamanders in the deeper pools, moths that drink condensation from walls at dawn, beetles that navigate the vertical water-roads.
+
+The scale defies comprehension. What seems like a neighborhood reveals itself as a single building; what appears to be a building becomes, on closer inspection, an entire district. The city extends to the horizon in every direction, its own weather system generating the mists that roll through its streets each morning, the light rains that fall from clouds caught in its tallest spires.
+
+The silence is profound, broken only by water-sound: the plink of drops, the gurgle of hidden streams, the soft sigh of moisture moving through stone. Even these sounds are swallowed by the vast spaces, absorbed into the wet walls until the city seems to hold its breath, waiting.
+
+Yet it lives—not with biological life, but with the slow pulse of erosion and accretion. Minerals dissolve and redeposit. Structures imperceptibly shift as their foundations settle. Water finds new paths, abandons old ones. The city rebuilds itself constantly at a pace measured in centuries, each district gradually migrating across the plateau like a slow-motion wave.
+
+In some quarters, the buildings have grown so densely together that they form labyrinths of damp corridors, lit only by shafts of light from gaps stories above. In others, vast courtyards open to the sky, their floors covered in centimeters of clear water that perfectly mirrors the clouds. Everywhere, the sensation is of being inside something living—not alive, but not quite dead either.
+
+The cool air carries a mineral tang, the smell of wet stone and ancient time. Sound behaves strangely here, sometimes carrying whispers for kilometers through the water-carved acoustic channels, sometimes dying immediately in the absorbent surfaces. The city has its own circulation system—water rising through capillary action in certain towers, falling as perpetual indoor rain in others, creating convection currents that ventilate the deep interior spaces.
+
+This is a place between states—neither fully natural nor artificial, neither inhabited nor abandoned, neither growing nor dying. It simply persists, a vast testament to the patient work of water on stone, a metropolis that built itself and now maintains itself in perpetual, almost-silent, thoroughly wet equilibrium.

@@ -1,0 +1,9 @@
+High in the bone-dry crags, a city sprawls vast as continents across an entire planetary rim. It is a mineral world, lifeless except for the overwhelming scuttling fauna that blankets every surface in the city above. The place weeps: condensation weeps, frequent rockfalls and landslides weep, and great bronze pipes in the city above weep thousands of years of slow and inevitable mineral leakage. The air here hangs thick and warm, wheezing with a low thrum and drip like the distant thrum of great engines.
+
+Below the city, the high crags weep constantly from cracked aqueducts and steaming fumaroles. A tangle of ducts and power lines drips like stalactites, condensing out of the warm air. Great geothermal sinks gurgle with pipes, and slow mineral-rich ooze seeps through the eroding cliffs. Locked in slow chemical reaction, colossal honeycombs of forgotten industry exhale warm mineral dew into the air.
+
+Here, only hot springs and condensation sustain the environment. The sound of dripping water is constant. The atmosphere hangs thick with vapor, solidifying in great crystalline outcrops that drip like candle wax down the cliff faces. Dense salt crusts pile in windless coves below every outlet and pipe.
+
+The air settles into a dense labyrinth of salt and corroding metal, abandoned infrastructures forming impossible sculptures. Below, formations accumulate like the slow accretions of glittering hoarfrost, though formed from warmer vapors. Pipelines, ducts, and vast engines still hum with patient, scaled processes of condensation and corrosion.
+
+Above, the city's overwhelming fauna scuttles and chatters across the platforms and walkways. Below, in the grottos and coves, the silence is broken only by the constant, resonant drip of condensing air.

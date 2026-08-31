@@ -1,0 +1,15 @@
+A cathedral chamber takes shape in the high dark, its boundaries still uncertain, still becoming. The walls rise in layers of translucent mineral, each sheet as thin as paper, each waiting for the next to form above it. The process is visible now - droplets of saturated solution seeping from hairline cracks, spreading in films across the existing surfaces, then crystallizing in the warm air. The new layers catch what little light filters down from above, creating a dim opalescence.
+
+The floor, where it exists, curves gently upward toward the walls. In places it's still incomplete - gaps open onto older chambers below, their depths lost in shadow. The air carries a faint mineral scent, like wet limestone or hot springs, but sharper, with an unfamiliar metallic edge.
+
+Small geometric structures dot the floor, their purpose unclear. They appear to be growing rather than built - clusters of copper-colored crystals forming into regular polyhedrons, some complete, others still emerging from the crystalline ground. A few have toppled, scattering fragments that slowly dissolve back into the mineral soup that seeps through the chamber.
+
+The ambient sound is mainly the quiet patter of drops, but occasionally there's a soft chiming as new crystal sheets form and settle. The acoustics are strange - sounds seem to travel sideways rather than up and down, creating phantom echoes that circle the chamber's perimeter.
+
+Near the center, a formation like an inverted spire descends from above, its tip almost but never quite touching a corresponding rise from the floor. Both surfaces are wet, perpetually on the verge of connecting. The gap between them occasionally sparks with tiny arcs of static electricity, generating brief flashes of blue-white light that illuminate swirls of mist in the warm air.
+
+The chamber feels both ancient and newborn, as if it's been forming for millennia but is still in its first moments. There's an organic quality to its growth despite the absence of life - or perhaps this is life of a different kind, mineral processes that have found their own path to complexity. The whole space pulses almost imperceptibly with slow waves of crystallization and dissolution, like breathing.
+
+Time moves differently here. What looks like a finished structure might dissolve away over hours or days, while new forms emerge with geological patience. The warmth and moisture create a greenhouse effect, trapping heat and water in cycles that drive the chamber's gradual evolution. The few signs of external intervention - crude tools left against walls, rough-carved steps in steeper sections - seem almost offensive in their crude immediacy.
+
+It's a place that invites witness but resists intervention, growing itself according to laws that remain just beyond comprehension.

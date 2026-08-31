@@ -1,0 +1,35 @@
+There is a place at the top that does not belong to the top.
+
+You have to climb to understand how impossible it is. The mountain is not finished.
+
+It is still being made, still hot from the making. Not a mountain in the old, weathered sense — no scree, no smoothed shoulders, no rivers having cut their arguments into it. It is embryonic. Raw. A blister of new basalt pushed straight up through the cold skin of the sky, a tower that forgot to stop. Its sides are sheer and glassy in places, still curing, and where they cracked in cooling they hiss. This is extreme elevation in the truest sense: you are above weather. The clouds are below you, a flat white sea that thunders quietly, distantly. The air up here should be thin and killing cold, but it isn't. It is hot. It is wet.
+
+Near the summit — maybe ten meters below where the point should be — there is a seam that inhales. You would miss it if you didn't know to press your palm to the warm rock and feel it weeping.
+
+It's a pocket. A hidden room.
+
+And it is completely, impossibly built.
+
+Nothing in here is natural. That is the first shock. The mountain is new raw geology outside, but inside this little hollow, every surface is made. Floor, walls, ceiling, all of it is thatch and weave and lashing. Not metaphorically. Literally. Split cane and blackened rattan lashed with gut, sheets of hammered barkcloth that have swollen with moisture, wicker trays stacked on wicker trays, baskets turned inside out and stitched together to make a dome. Primitive work — you can see the hand of it, the uneven tension, the thumb-prints in the pitch used to seal the seams. Some sort of mud-and-char brick, still warm, forms the lip at the entrance where the builders tried to mate their work to the living rock and the rock kept growing around it.
+
+The pocket is small. If you lie down you can touch both walls. If you sit up your head brushes the low thatch. Intimate-room scale. Single-feature contained. And yet it is packed.
+
+That is the second shock. There is no room between things. Lush does not begin to cover it.
+
+Everything is growing. Fat, hothouse vegetation has been planted, or trained, or woven directly into the built walls until you cannot tell where building ends and plant begins. Broad taro-like leaves, black-green and slick with condensation, burst from the basketry. Vines as thick as a wrist, pulsing with water, corkscrew through the thatch, in and out, in and out, stitching the structure tighter. Aerial roots hang like wet string, dripping nonstop. Moss — or something that has decided to be moss — has been plastered like mortar into every gap, and it glows faintly with its own damp respiration. Flowers, waxy and too heavy, open right against your face. The air is saturated with their yeasty, peppery perfume and with rot, because there is no space for anything to fall. Dead leaves are caught immediately by new leaves. The whole room is a saturated, shoulder-to-shoulder crowd of plant bodies breathing on each other. You have to push leaves aside to breathe.
+
+And it is wet. Not like a swamp. Like a body that sweats because it is in a sauna. The heat is tremendous — 2.8 hot — a low, smothering, kiln-heat coming from the embryonic rock itself, from the fresh basalt of the mountain's birth. The rock sweats. Water beads on every surface that isn't leaf, and condenses on every surface that is. It doesn't rain, it condenses. The dim light is full of static droplets that never fall until you disturb them. The walls weep in continuous thin sheets that run inward, impossibly, along the weave, gathering in the aerial root tips and dripping from there. There are tiny, perfectly built gutters of folded leaf and grooved bone that catch this water and duct it, because someone tended this place with great care. The water goes around and around.
+
+You hear it before you see anything else. Loud. For such a tiny place, it is deafeningly active. Drip, trickle, plip, slosh. The hiss of hot stone under a wet basket. The creak of swollen cane under tension. The vegetative rustle that never stops because everything is growing so fast you can hear it — a soft, insistent pop and unfurl, leaf against leaf, with nowhere to go so it pushes. And underneath all of it, a low, arrhythmic thump, like a heart, or like the mountain taking a deeper breath and not being able to let it out because the pocket is in the way.
+
+Light is scarce and wrong. Dim. There are no windows. The thatch was built to be lightless, but the builders couldn't stop light from leaking because they didn't understand how light works up here. In between the weave, pinpricks of brutal high-altitude sun knife in, and where they hit the wet air they do not make beams. They hang, nailed in place. Solid bars of lit dust and steam you can bump. Some of the bars are cold. Some are yesterday's light still hanging around, late.
+
+This is where the weirdness lives, in the packed, hot, dripping dimness. Reality broke here because there was no room for it.
+
+The pocket is inside the mountain, but it is also bigger than the mountain. If you press your eye to a gap in the thatch, you don't see sky. You see another wall of the same thatch, on the other side of the pocket, seen from the outside. If you hold very still, you see your own back. In the corner, where the density is greatest, a cluster of taro leaves have started growing leaves that are also small woven baskets. They drip real water. Water runs uphill along one vine in plain sight, because down is crowded at the moment.
+
+The rule here seems to be: what is built must continue being built. The embryonic mountain pushes new hot rock into the room centimetre by centimetre a day. The builders — who are not here now — knew this. That's why everything is primitive, hand-lashed, pliable. The room is designed to be re-woven continuously. When the rock intrudes, you unpick a basket, weave it larger around the intrusion. The plants do most of that work now. They are learning basketry.
+
+Fauna is rare, but not absent. There is one. It lives here because there is nowhere else. A frog, or something that agreed to take the shape of a frog when it got trapped. As big as your two fists together, translucent skin the color of boiled barkcloth, packed in so tightly among the leaves that it doesn't hop; it is held in place by vegetation and it pulses. Its throat is full of water that does not belong to this elevation. Every few minutes it lets out a sound far too loud for its size, a deep, woody *bonk* that vibrates the whole pocket and shakes a fresh burst of condensation loose from the ceiling, and everything gets wet anew.
+
+The pocket is working. It is sweating and dripping and creaking and growing and re-building itself every second, a tiny, total, handmade world at an altitude where there should be no world, no air, no heat, no wet, no green, no sound — and because it knows it shouldn't exist, it has folded itself over twice to make just enough room to keep on existing.

@@ -1,0 +1,17 @@
+The world is not a world, but a high-pressure secret held within a single, lightless membrane. 
+
+Imagine a glass marble, no larger than a human eye, lost at the bottom of a glacial trench. Now, step inside that marble. This is a universe of 2.9-density water—a medium so heavy and saturated with dissolved minerals that it feels less like a liquid and more like a cold, gelatinous diamond. It does not flow; it presses.
+
+Because the scale is so intimate—a pocket of existence barely three feet across—every inch is packed to the point of structural collapse. There is no "open water." Instead, the space is a solid, suffocating riot of vegetation. This is the 1.9-lushness of the deep: giant, translucent mosses that have the consistency of wet felt, and thick, ropey kelp-structures that coil around one another in a desperate, slow-motion struggle for space. Everything is cool, holding steady at the precise temperature where water almost forgets how to be liquid.
+
+The terrain here is young. The "floor" of this pocket is a jagged collection of basalt shards, their edges still razor-sharp, having only recently been birthed by some microscopic tectonic quiver. There is no silt here, no ancient dust. Everything is crisp, new, and terrifyingly dark.
+
+The light is 0.2—a darkness so absolute it feels tactile. It is a thick, velvet blindfold. To "see" this place is to feel the vibration of cold leaves brushing against your skin. However, weirdness has begun to bleed through the seams of reality. Because there is no sun, the plants do not photosynthesize; they *radiate*. Occasionally, a vein of sap in a leaf will pulse with a brief, sickly ultraviolet stutter—not enough to illuminate the room, but enough to burn a ghost-image of a serrated edge onto the back of your retinas. 
+
+In this cramped, lightless garden, there are ruins. They are not made of stone or wood, but of a singular, calcified bone-like material. They are scattered: a tiny, skeletal archway no bigger than a finger; a series of geometric silver plates embedded in the basalt, etched with lines that suggest a language of geometry. There is no tech here, no humming wires or glowing screens. These "buildings" feel like biological cast-offs, the discarded shells of some intelligence that grew tired of existing in three dimensions.
+
+Fauna is nearly non-existent. Once every decade, a creature—transparent, boneless, and blind—might drift through the thicket. It moves with the agonizing slowness of a glacier. You can hear its heartbeat, a sound like a wet stone being dropped into a well, once every few minutes. 
+
+The sound of the place is a heavy, pressurized silence. It is the sound of miles of water pushing down on a single point. Occasionally, there is a *tink*—the sound of a young rock cracking under the weight, or the muffled friction of two moss-covered surfaces sliding against each other.
+
+Time does not function correctly in such a dense, drowned space. Gravity feels multidirectional. Because the water is so saturated, you do not sink or float; you are pinned in place by the environment itself. The world is a slow, cold, emerald-dark knot. It is a cathedral built inside a teardrop, where the plants grow in the shape of mathematical errors and the only witness is the crushing, indifferent weight of the deep.

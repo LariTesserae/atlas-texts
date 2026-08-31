@@ -1,0 +1,9 @@
+In the depths of a hidden industrial pocket, water seeps and condenses, creating a breathing landscape of mechanical wetness. This is not a conventional marsh, but a contained ecosystem where moisture accumulates between massive mechanical structures — pipes sweating, metal surfaces beading with perpetual condensation, thin rivulets tracing the contours of industrial architecture.
+
+The terrain is low-lying, almost sunken, with vast hollows between towering infrastructure. Darkness dominates, but not an absolute darkness — instead, a twilight defined by occasional electrical glimmers, the pulse of distant machinery, phosphorescent fungal growths clinging to pipe junctions. Sparse vegetation exists not as plants, but as strange bio-mechanical hybrids: wire-root systems, silicon-infused lichen, organic-synthetic growths that pulse and communicate in near-silence.
+
+Fauna proliferates in impossible density — not conventional animals, but mutation-dense creatures. Mechanical insects with biological components skitter through condensation channels. Soft-bodied entities that seem part hydraulic system, part living tissue drift through the humid spaces. Their movements are synchronized with unseen rhythms, a complex choreography between organic and manufactured.
+
+The landscape breathes with a sense of profound unreality. Boundaries between mechanical and living blur. Water doesn't just flow; it negotiates. Structures don't just stand; they metabolize. The entire environment feels like a contained experiment where reality's rules have been systematically dismantled and rebuilt according to alien logic.
+
+Occasional sound-pulses emerge — not loud, but resonant. Mechanical heartbeats. Hydraulic whispers. The soft click of unknown systems adjusting themselves.

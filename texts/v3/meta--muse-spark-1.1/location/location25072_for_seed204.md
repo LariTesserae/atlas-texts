@@ -1,0 +1,31 @@
+It is high.
+
+Not high like a hill. High like the air has been thinned out and forgotten to come back. You are near the top of something that should not have a top. Outside — beyond the pocket — is wind and white, a scarp of young black rock that hasn't learned how to be mountain yet. It's too sharp. The basalt is fresh, glassy in places where it cooled too fast last winter, or the winter before. Twenty thousand feet up, give or take. The stone is still angry from being born.
+
+But you are not outside. You are inside. Contained.
+
+It's a pocket. A single room, if a room can be a city.
+
+The fissure is natural — a cooling joint in the flood basalt, three meters long, maybe two wide, nowhere more than four tall — but everything in it is built. Not built *in* like someone put a shed in a cave. Built *as* the place. The walls are the city. The city is the infrastructure.
+
+From floor to ceiling the cleft is racked out with infrastructure, layered back centuries deep though nothing here has had time to erode. Balconies the size of your hands, avenues the width of a finger, deep-set habitation lattices, reservoirs, switching yards. It's urban in the way a circuit board is urban, or old Tokyo seen from a satellite at night. Thousands of right angles. It is sparse though — there is a lot of empty air between structures, and that emptiness is intentional. A lot of scaffolding holding up nothing yet. Platforms that stop before they connect. Antennae that listen into the gap.
+
+The material of it is not stone. The stone weeps, and the city drinks the weeping.
+
+Because it is always wet in here. Not flooded — 1.7 — but saturated. The cold — a tooth-aching cold, minus six, minus ten — meets the relatively warm breath trapped in the rock stack and wrings it out. The air in the pocket is always at the dew point. Water beads on everything, on every basalt edge, on every nano-grown strut. It gathers, it runs. The upper vaults of the pocket are hung with stalactites of clear ice that never quite grow long enough to meet the lower spires before they melt and re-freeze and melt again. The walls themselves sweat. Black rock slick, weeping constantly, a hundred tiny springs. You can hear it if you hold your breath. The tick. Tick. Tick. Of droplets gathering and falling three feet onto a collection membrane that shivers when it is struck.
+
+That membrane is the floor, or one of the floors. It's not solid. It's a field. The technology here doesn't read as technology until you look too long. You think the air is holding the water up, and then you realize the air *is* holding the water up. The droplet falls half an inch and stops, suspended, perfectly spherical, and then is pulled sideways — not down — into a bright channel that runs along the north wall, a channel made of nothing you can touch. Light catches it wrong. The city runs on gravitic knitting and surface-tension engineering; it folds space just enough that water thinks downhill is sideways. The engineering is beyond passive. The pocket dries and wets itself. Where ice would choke it, heat bleeds up from nowhere, a bloodless warmth that doesn't make the air warmer but keeps the mechanisms liquid. The place is older than the rock's fresh edge and it knows how to keep itself alive.
+
+There is no green. 0.1 means zero. Not lichen, not moss. No brave alpine grass. The mineral world is the whole world. Basalt black, andesite grey, the matte white of rime, the amber of the city lattice where it has been stained by mineral water. When a flake of stone falls from the raw ceiling it lands and stays, because even bacterial film can't get a foothold here — the field sterilizes it, or the cold does. It is a clean place. The only non-mineral color is the rust-red of dissolved iron in the trickle that goes nowhere.
+
+Light gets in. That's the strange part. The pocket is enclosed, but it is not dark. Normal daylight — 2.2 — soft, overcast, high-altitude noon, pours in from the opening to the outside, a jagged slit barely wider than your shoulders. It doesn't directly illuminate the depths though. The city's walls take that light and pipe it. Edges glow. The tiny avenues have daylight caught in their corners, bouncing twenty times, not dimming. It is bright enough to read by, bright enough to see the condensation of your breath hanging.
+
+Mostly quiet. 0.6. The wind outside never quite gets its arm in — it hums at the lip of the slit, a low flute note, but inside the air is still. So you hear the place working. That endless ticking of water. The faint *pik* when an ice needle snaps off. A longer, deeper sigh when the collection membrane cycles and dumps a load. Sometimes a high, almost inaudible whine when the field corrects itself. Otherwise, quiet enough that your own swallowing is loud.
+
+It is active despite the quiet. Dynamic — 2.4. Things are happening constantly at the speed of weather. Water condenses, freezes, moves, evaporates, condenses. The ice grows and retreats. The city micro-adjusts. A service spar, no larger than a matchstick, detaches from a wall and traverses the empty air on nothing at all, inspecting a strut, then slots back in somewhere else. The whole pocket is breathing water and light. It's a lung at the top of a mountain.
+
+Rare fauna. Once in a while you are not alone. A mountain moth has found the slit — suicidal high — and beats its wings once and dies against the membrane, and is absorbed, not decayed. Or a snow flea, black dot, leaps across the wet. Or you hear a larger thing outside, a chough or a raven turning far below, but its call is thinned by altitude and comes in as a ghost.
+
+You crouch at the mouth of it, too big for it, your back to the drop and the whole terrible young range knifing away under you. Your shoulder blocks half the sky. And in front of you, below your chin, is a complete town built for inhabitants you never see, or inhabitants the size of water droplets, or inhabitants that are the water droplets, endlessly moving through its streets to keep the mountain from flooding, to keep the mountain from drying, a pocket-sized city that manages the weeping of high rocks.
+
+If you put your hand in, the field will hold your fingertip dry. The water will route around you.

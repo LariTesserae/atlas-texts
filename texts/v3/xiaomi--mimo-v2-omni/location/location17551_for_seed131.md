@@ -1,0 +1,31 @@
+# The Humming Floor
+
+You are inside a floor.
+
+Or rather, you stand in the service space between two vast constructed plates — the walking-surface above, the structural abyss below — in a gap perhaps four meters tall and extending in every direction farther than you can see. The ceiling is the underside of a world. The floor is the top of nothing. Between them: emptiness so pronounced that your eyes struggle with it, the way they struggle with a clear sky at night, searching for something to resolve.
+
+The sound is the first thing. Not loud the way a sudden noise is loud. Loud the way the ocean would be loud if you were standing inside its throat. A **hum** — mechanical, deep, without rhythm because it has too many rhythms — that fills the space the way water fills a glass, right to the edge, meniscus trembling. It is not painful. It is too constant for pain. You stop hearing it as sound after a while and begin hearing it as the absence of silence, which is a different and worse thing.
+
+Everything is made. The floor beneath your feet is a porous industrial composite, dark grey, faintly warm, textured like stone that never knew a quarry. It has a slight give — not softness, but the engineered resilience of something designed to bear weight across millennia without complaint. Running through it in shallow channels: **water**. Not flowing exactly. Seeping. Weeping upward from somewhere below, condensing on the cooler upper plate and dripping back down in a cycle so slow and so total that every surface is wet. The water is clean. Mineral. It catches the light — normal light, even, sourceless and flat, emanating from the ceiling-plate in a diffuse glow with no visible fixture — and makes the whole chamber glimmer faintly, like the inside of a damp shell.
+
+The walls don't exist. There are no walls. You could walk in any direction for a very long time and find more of this: the floor, the ceiling, the height between them unchanging, the hum unchanging, the seep and drip and condensation unchanging. It has been like this — the evidence suggests — for longer than the concept of "long" is useful.
+
+And then there is the growth.
+
+**Everything that isn't the structure is alive.** Or appears to be. The vegetation — and it is lush in the way that the word should be used, extravagant, unashamed, almost aggressive in its thoroughness — covers the floor in thick mats and climbs the ceiling in trailing curtains and fills the intermediate air with hanging filaments that sway in air currents you cannot feel. It is not grass. It is not moss, though it is mossy. It is a constructed substrate — you can see this in the regularity of its root-nodes, in the way each frond emerges from a small raised disc in the floor that is clearly manufactured — that behaves like a plant. It photosynthesizes, or something adjacent to photosynthesizes, drawing on the diffuse light and the constant mineral moisture and the warmth that radiates from the structure itself. It is green in fourteen colors. It is soft to walk on. It does not grow toward the light because the light is everywhere; it grows in all directions, omnidirectional, patient, filling volume for the sake of filling volume.
+
+You push through a curtain of it and it brushes your arms and it is warm and wet and the texture is like velvet that is breathing.
+
+The fauna is almost absent. You might, if you stand still for a long time — and there is nothing to do here but stand still, because the space never changes and there is nowhere to go that is different from where you are — see something small move in the vegetation. A creature the size of a thumbnail, pale, eyeless, moving with the slow deliberation of something that has never needed to hurry. There are not many of them. Perhaps there were, once. The space supports them the way a very old, very stable aquarium supports the last few fish: adequately, but without enthusiasm.
+
+The warmth is even. Not body-temperature — slightly above. Tropical in the way that a machine is tropical, producing heat as a byproduct of its function, which function you cannot identify because nothing here appears to do anything. The humidity is near total. Your skin is wet within moments. The vegetation glistens. Droplets form on the ceiling in slow constellations, grow heavy, fall with a sound you cannot hear over the hum, and rejoin the seepage in the floor.
+
+**Nothing changes.**
+
+This is the part that takes longest to understand. Not that things change slowly. Not that the rate of change is nearly zero. That the rate of change *is* zero. The water cycle is closed so perfectly that not a single molecule is lost per century. The vegetation grows at exactly the rate it decays, every frond replaced by its exact successor, the mats maintaining their depth to the millimeter. The hum does not fluctuate. The light does not dim. The few creatures persist at their fewness. You could set a clock by this place and the clock would run forever without needing adjustment, because the second hand would never need to advance.
+
+It is ancient beyond ruin. It has passed through every state that a constructed environment can pass through — the era of purpose, the era of maintenance, the era of abandonment, and whatever era comes after abandonment, where the thing continues not because anyone tends it but because the equilibrium is so perfect that no force exists to disrupt it. It is a system that has become its own argument for continuation. The factory is still running. The factory has been running so long that running is indistinguishable from resting.
+
+You sit on a mat of the constructed vegetation and it compresses beneath you like a wet cushion and releases a small breath of warmth. The water seeps through the floor beneath your hands. The hum fills you — your chest cavity resonates with it, your bones conduct it, your inner ear accepts it as gravity.
+
+This is not a ruin. Ruins change. This is a **continuation** — the longest word for the smallest motion — a place that solved the problem of existing so thoroughly that it will exist forever, lush and wet and empty and roaring and warm and still, a living machine dreaming vegetally in the dark between two plates of forever.

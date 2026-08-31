@@ -1,0 +1,31 @@
+It is a low country. Not low like a dip in high ground — low like the world gave up on the idea of height here. A broad, shallow bowl a few meters above sea level, or below it, it's hard to tell because the sea is everywhere anyway, just thinned out and spread wide.
+
+This is an old wet. Not a flood, which is young and violent. This is a wet that has had time to negotiate its terms with gravity and has settled them. Water has been here so long it has sculpted manners. The land is black peat and blue-gray clay, iron-panned and humus-soft, cut through with meanders that have meandered so many times they have become calligraphy — oxbows cut off into perfect black mirrors, levees so low and smooth they look like the pressure ridges of a sleeping animal. Every surface weeps. The rocks here are not rock but concretions of root and mineral, and they weep continuously even under cover. Cutbanks weep. Moss weeps. The air itself weeps.
+
+The atmosphere never quite clears. It's not fog, exactly. The air is cool — late-October cool, breath-showing cool — and saturated to the point where water is not falling but becoming. It condenses on everything. On your eyelashes, on every hair of sphagnum, on the undersides of leaves. The light is dim the way deep water is dim, not from night but from diffusion. There is no sun, or there is a sun far above a vault of pearl-white cloud that never breaks. The light that reaches the valley floor has been bounced ten thousand times. Everything glows faintly from its edges.
+
+And everything is crowded. This is a dense place, impossibly dense for how open it is.
+
+You can see across the valley for a mile or more — a flat expanse of fen and carr and quaking mat — and in that mile there is no empty space. On the ground: sphagnum in hummocks like lungs, liverworts sheeted over them, cranberry and bog rosemary threading through, the wiry black roots of stunted alder and willow knitting it all, and over that, films of water. Not puddles — films, skins, lenses of water a few molecules thick stretching between leaf-tips and holding. Above that, a second vegetation of droplets. The air is full of them, suspended, not falling. A fine static rain that has decided to stay in place. Each bead holds the dim light. Each bead holds another bead's reflection. The density of presences is so high your hand passes through layers — cold vapor, droplet lattice, cobweb of fungal hyphae fine as smoke, a traveling scent of iron and sweet rot — before it ever touches leaf.
+
+It is loud.
+
+For a place with almost no animals — you may go an hour and see nothing move except water — it is deafening. Water speaks in every octave. The high, ceaseless ticking of condensation forming and dripping and forming again. The low suck of peat breathing, exhaling methane in soft belches that ripple the pools. The creak of the mat itself as it floats and flexes over deeper water. And underneath that, a hum, which is not wind. The valley is too low for wind; the air moves only as convection, cold sliding over cold. The hum comes from the water lattice.
+
+That is where the other thing lives.
+
+There are no buildings. No cut stumps, no paths, no stone alignments, nothing made. Even the idea of made feels wrong here, like trying to plant a right angle in a throat. But this place is engineered beyond any making.
+
+The water computes.
+
+Not metaphorically. The suspended droplets hold position without support. They are spaced too evenly. If you watch for a long time, with your cool breath making its own small cloud, you see them jitter and swap places — not drifting, but exchanging, as if an invisible hand is sorting them. Light passing through one is delayed more than it should be. A droplet on the left of your vision and a droplet thirty feet to your right extinguish at the same instant. The peat beneath holds charge.
+
+The physics here are tired, or have been rewritten locally by long use. Distance is not reliable. You walk toward a solitary alder that is two hundred meters away and you arrive too soon, and the tree is on your left although you did not turn. You leave a footprint in black ooze and you watch it fill with water that fills from the bottom up, and the water in it is clearer than the water around it and shows stars, despite the overcast and the daytime dim. If you stand very still, you can see the moments pool. The valley has puddles of time the way other valleys have puddles of water — low spots where duration collects, ankle deep, where a dragonfly's wingbeat takes a full minute and the droplet above it hangs unmoving, refracting a previous hour.
+
+The vegetation knows how to use it. The alder and willow have learned to root not just in peat but in stable logic. Their leaves are lush, improbably lush for this cold — broad, dark, waxy leaves the size of hands that should belong in a jungle, beaded with water that never falls off. On the underside of each leaf there are not spores but writing. Or not writing — interference patterns. Tiny dark lines that rearrange when you are not looking directly at them. The plants are not communicating. They are being read.
+
+This is an active place, despite its slowness. Water is moving everywhere, though rarely fast. Sheet flow across a mat a mile wide. The slow closing of an oxbow. The growth of sphagnum at a pace you can almost hear. The condensation cycle that lifts a lake into the air every few hours and puts it back down. And the deeper process: the sorting, the calculation, the soft correcting hum as the valley runs some vast, cold, wet operation that has been running since the land settled into its final shape.
+
+That shape is established. Nothing here is raw. Every bank is rounded, every channel is where water has proven it wants to be. The land is not eroding; it has finished eroding. It has achieved its perfect, watery, logic-worn form. It will stay exactly like this until the clouds stop weeping, or until the calculation finishes.
+
+You get the strong sense, standing in that dim, loud, crowded openness, in the chill that smells of iron and green, that you have interrupted nothing. That whatever rare fauna there once was — a heron, a water vole — learned long ago not to interrupt either, but to step lightly through the lattice where the drops are not.

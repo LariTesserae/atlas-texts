@@ -1,0 +1,15 @@
+**The Drowned Spire**  
+
+A city of black glass and drowned light, half-submerged in a slow, creeping tide. The streets are narrow canyons, walls slick with condensation, their surfaces etched with spiraling glyphs that hum faintly when touched. The air is cold, sharp with the scent of ozone and wet stone. Above, the sky is a bruised violet, streaked with filaments of something that might be clouds—or might be fractures in the firmament itself.  
+
+The water here is not a flood but a presence, a patient intruder. It seeps up through grates in the pavement, pools in the hollows of collapsed roofs, drips from the undersides of bridges that no longer lead anywhere. The liquid is thick, almost syrupy, refracting light in odd ways—sometimes appearing shallow, sometimes bottomless. It does not obey gravity so much as negotiate with it, clinging to surfaces in defiance of angles, forming impossible menisci at the edges of steps.  
+
+The buildings are dense, stacked like vertebrae, their facades a lattice of crystalline growths and corroded metal. Some structures are intact, their interiors lit by floating motes of bioluminescence; others are hollowed out, their skeletons exposed, ribs of rebar jutting into the air. The architecture suggests a logic beyond human need—angles that don’t quite meet, stairways that spiral into solid walls, doorways that open onto blank surfaces. The city was built for something, but not for you.  
+
+Life is scarce but not absent. Occasionally, something moves in the water—a flicker of translucent limbs, a coil of filament-thin tendrils retracting into a drain. The air carries whispers, not voices but the echoes of processes: the hum of unseen machines, the creak of stressed geometries, the occasional subsonic pulse that vibrates in the teeth.  
+
+Time here is sluggish. The water rises and falls in increments too small to notice day by day, but over decades, it has worn grooves into the stone, carved channels through the streets. The city is eroding, but not in the way mountains wear down—it is being unmade selectively, as if the water is following a script, dissolving only what it has been instructed to.  
+
+And then there are the moments when the rules falter. A wall shivers like a mirage, revealing a glimpse of another place—a corridor that stretches into impossible distance, a chamber where the air is thick with floating symbols. A step on the wrong patch of pavement might send you sinking through it, not into water but into a space that shouldn’t exist. The city is not just decaying. It is unraveling.  
+
+You could stay here for years and never see another living thing. Or you could turn a corner and find yourself face-to-face with something that should not be. The Drowned Spire does not care. It is waiting for something. Or perhaps it is what remains after whatever it was waiting for has already come and gone.

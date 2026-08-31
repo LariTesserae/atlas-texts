@@ -1,0 +1,31 @@
+Beneath thirty meters of cold harbor water lies a single enclosed yard, no larger than a village square. It was built as the intake court of a tidal power station, though from inside it resembles the nave of a drowned cathedral. Concrete walls rise on four sides toward a ceiling of black water. The open top is crossed by maintenance bridges, pipe racks, and heavy steel grilles, so that even the patch of sea overhead appears manufactured.
+
+There is no natural ground. The floor is poured concrete laid over deeper foundations; every ledge is a bracket, every hollow an access pit, every apparent cliff the side of a caisson. Even the sediment is largely made: rust scales, powdered cement, paint flakes, coal dust, glassy welding slag, and pale grains worn from sacrificial limestone blocks. It has drifted into low dunes around the bases of machines.
+
+Everything has been underwater for a very long time.
+
+The court’s original corners have softened. Concrete steps have become shallow ramps beneath centuries of abrasion. Lettering cast into the walls survives only as blunt shadows. Iron handrails, once tubular, are split and feathered with corrosion; some have dwindled to red seams held together by mussels. Water passing continually through the intake gates has polished the lower walls to a dark, almost waxy smoothness. At the throat of each conduit, the stone aggregate stands exposed in rounded constellations where the cement has been eaten away.
+
+Three intake mouths occupy the northern wall. They are immense compared with the yard but not limitless: circular tunnels enclosed by riveted collars, each screened with bars thick as tree trunks. Two are sealed. Their gates remain shut beneath layers of mineral crust and shell. The third still draws water.
+
+Its machinery is old but active. Somewhere beyond the grille, a slow turbine turns. The pull is steady, broad, and inescapable rather than violent. Loose debris creeps toward it along the floor. Long streamers of shredded rope lie aligned with the current. Every few minutes the pitch of the turbine changes, and the entire chamber answers with a low industrial bellow. Bolts tremble in their sockets. Chains knock against the bridge supports. Small bubbles shake free from ceilings and race upward like quicksilver.
+
+The noise never stops. Water carries the deep thudding of pumps from adjoining chambers, the metallic chatter of check valves, and the remote hammer of cargo moving through the harbor above. Near the working intake, the sound becomes physical: a pressure in the ribs, a vibration passing through concrete and bone. Over it comes the hiss of current through bars, the clack of shells, and the brief dry crack of shrimp hidden inside corroded junction boxes.
+
+Light descends through the overhead grilles in narrow, diluted shafts. On clear days they are green-gray; during storms they disappear almost entirely. Lamps still burn at several maintenance stations, protected behind thick glass. Their housings are brass turned dull brown, and their weak amber circles illuminate little more than drifting particles. Fish pass through these circles one at a time, briefly becoming silver and complete before dissolving again into the dimness.
+
+Plant life is scarce. A few mats of dark green algae cling where daylight reaches the upper beams. Fine red weed grows from cracks in the western wall, never more than a hand’s breadth long before the current crops it back. There are no forests of kelp, no waving meadows. The working water and the lack of sun favor animals instead.
+
+They occupy nearly every usable surface.
+
+Mussels pave the sheltered recesses in tight black layers. Barnacles crowd valve wheels and inspection plates. Pale anemones flower along the intake bars, all leaning in the same direction as they strain food from the flow. Tube worms fill old bolt holes. Crabs patrol the sediment between cable trenches, lifting flakes of rust and setting them down with grave precision. Clouds of small fish hang behind columns where the current weakens; when a larger pollock enters the yard, they fold aside as one body and reform behind it.
+
+Conger eels live in the dead conduits. Seals sometimes descend through the roof grilles and hunt among the beams, their pale undersides appearing and vanishing above the lamps. They know not to approach the open intake. The younger fish learn this boundary less reliably. At intervals the shoals scatter, there is a flash against the bars, and scales spiral away into the tunnel.
+
+The yard has its own tide despite being permanently submerged. When the outer harbor rises, pressure builds against the sealed gates and thin jets burst through their seams. When it falls, drainage valves open automatically, coughing clouds of cold, mineral-tasting water from the lower walls. The currents reverse in side passages. Feeding animals close, turn, and open again. Crabs retreat into cable ducts. Sediment lifts in brown veils, travels several meters, and settles into nearly the same ancient hollows.
+
+Nothing here is pristine, but very little is truly ruined. The place has passed beyond collapse into a durable final condition. Weak parts disappeared long ago. Thin plates rusted through; exposed masonry was ground away; paint and labels and human-scale fittings vanished. What remains is oversized, rounded, and load-bearing: foundations, turbine throats, gate housings, bridge piers. The station continues not because it has been preserved, but because erosion has already edited it down to the pieces hardest to destroy.
+
+From the center of the court, the boundaries are always visible. Four walls, three mouths, the barred square of water overhead. It is a small landscape, entirely fabricated and entirely inhabited. Its weather is pressure. Its wind is current. Its soil is the residue of its own wearing away.
+
+And through all of it, louder than the animals and older than any living thing in the chamber, the surviving turbine turns—slowly drawing the sea through a machine that has become part of the sea.

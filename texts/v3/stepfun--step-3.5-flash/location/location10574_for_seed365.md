@@ -1,0 +1,37 @@
+**Name:** The Silent Weald of the Whispering Mesa
+
+**The First Ascent: The Basin of Damp-Leaf and Stone**
+
+You do not approach the Weald; you *descend* into it. The surrounding high plains are dry, wind-scoured, but here the land buckles, a great, shallow, circular depression a few miles across—the "small scale" made manifest. The air is perpetually cool (0.7/3), thick with a silent, misty breath that condenses on every surface. This is the damp (0.7/3): not raging rivers, but a universe of moisture. Every rock beads with perpetual sweat. A fine, silty mud sucks at the boot, yielding only to reveal darker, slicker clay beneath. Pockets of true water exist in the hollows of black, glassy volcanic rock—young erosion (1.2/3) is everywhere. The Mesa’s flanks are raw, sharp-edged, and stratified, as if the world cracked open only yesterday and this wet, green scar is the fresh wound beginning to heal.
+
+**The Vegetation: A Lush, Shadowed Tangle**
+
+Vegetation (2.5/3) is not a forest in the sunny, open sense. It is a **vertical explosion of shade-tolerance**. Giant, umbrella-like fungi with caps the span of wagons blot out the sky, their gills dripping a constant, quiet *hiss* onto the moss below. Between their colossal stems climb vines that look like knotted, woody rope, draped in carpets of tiny, heart-shaped leaves that drink the mist. True trees are rare, stunted things—black-barked, twisted, their branches hosting entire ecosystems of glowing lichen and nest-building insects. The ground is a dense, spongy mat of clubmoss, feathery cryptograms, and succulent, water-storing rosettes. It is lush, yes, but the density (0.7/3) is deceptive. The giant fungi are spaced like cathedral pillars, creating vast, shadowed chambers of emptiness between them. You can see for fifty yards, but what you see is a compressed world of epic scale within that small, bounded basin.
+
+**The Built: The City That Grew, Not Was Built**
+
+The urban (1.6/3) element is not a city of streets and plazas. It is **Hearthstone**, a settlement that is more geological than architectural. Dwellings are carved into the living rock of the Mesa’s lower slopes, or built from the black, glassy scoriae of the young eruptions, mortared with a cement of compressed moss and clay. Platforms and bridges are not nailed, but *grown*—guided, over decades, from the living,弯曲 branches of the great fungi, now stiffened and habitated. Terraces cling to the rock face, holding gardens of fat-rooted tubers. There is no central square; life happens in the sheltered clefts, around hot springs that steam in the cool air, under the overarching fungal caps. The tech level (0.8/3) is pre-metal: stone tools, bone needles, pottery fired in pit-kilns. But their craft is intimately tied to the biology of the Weald—they weave baskets from vine-fibers that are watertight, shape living wood with fire and constant pressure, harness the slow drips for hydroponic gardens. Infrastructure is the subtle, human-guided mycelial network itself.
+
+**The Weirdness: A World Alive in Stone and Spore**
+
+The weirdness (2.5/3) is not in monsters, but in **processes**. The rock of the Mesa is not inert. In places, it is a fine, sedimentary conglomerate that *breathes*—expanding and contracting minutely with the condensation cycle, emitting low, sub-audible hums that you feel in your teeth. Certain pools of still water reflect not the sky, but a star-field unfamiliar to this world. The dominant life-form is not animal or plant, but a kingdom of **symbiotic fungi and slime-molds**. The overwhelming fauna (2.8/3) is almost entirely invertebrate, fungal-assisted, or avian. Swarms of iridescent, six-winged insects, no larger than a thumb, move in silent, hypnotic clouds, pollinating the giant fungi. Transparent, jelly-fish-like floaters drift in the mist, trailing filaments that tap into the nutrient-mist. Predation is a silent, fungal business: a grazer, a slow, armadillo-like beast with a carapace of living bark, will brush against a spore-dusted fungi and, within a day, be overgrown by a carnivorous mold that dissolves it from within, leaving only a nutrient-rich patch for new growth.
+
+**The Silence and the Sounds**
+
+Sound (0.3/3) is the most defining feature. The sheer biomass (lush vegetation, overwhelming fauna) exists in a state of profound quiet. The giant fungi absorb sound. The thick moss deadens footfall. The predators and prey communicate in subsonic rumbles, chemical puffs, or bioluminescent flashes seen through the mist. The dominant sounds are: the *hiss-hiss* of a million descending droplets; the rare, deep *thrum* of the breathing stone; the wind, which only sighs at the very crown of the Mesa, muted by the time it reaches the basin. This enforced quiet makes the sudden *crack* of a breaking branch (a startled grazer) or the sharp chirp of a startled insect feel like a thunderclap.
+
+**The Atmosphere and Light**
+
+Light (0.9/3) is dim, polarized. The giant fungal caps filter the sun into a perpetual, emerald-tinged twilight. What light exists is directional, slanting, and full of drifting spores that catch it like glitter. The air is cool (0.7/3) and saturated, clinging to skin like a second, damp epidermis. Smells are profound: loam, sweet decay, ozone from the young rock, the metallic tang of the hot springs.
+
+**Rules of This World:**
+
+1.  **The Water Cycle is King:** Everything depends on the mist-condensation-drip system. Growth is radial from drip lines. Settlement clusters where the drip is heaviest.
+2.  **Symbiosis Over Competition:** Survival is achieved by integration. The human settlements are not conquerors but guild-masters of existing symbiotic relationships (guided fungi, trained grazers, cultivated spore-fields).
+3.  **Slow Time, Fast Death:** Geological and biological processes are visible. A rock face may visibly mineralize over a season. A grazer can be alive one hour, a fungal garden the next.
+4.  **Silence is Safety:** Noise attracts the silent, efficient predators. Language is often gesture, touch, and low hums. Loud tools are forbidden near the dwellings.
+5.  **The Mesa is a Organism:** The entire basin is treated as a single, conscious entity by the inhabitants—a "Living Stone." They practice a form of animism where they petition the Mesa for stable drip lines, warn it of fires (a terrifying, rare event that consumes the dry, upper slopes), and interpret its breathing hums as moods or portents.
+
+**The Emerging Whole:**
+
+The Silent Weald is a paradox: a place of staggering, overwhelming life that feels silent and sparse. It is a small, wet wound in a high, dry continent, where the world is young enough that rock stilldreams and life speaks in whispers. The scale is intimate—you can walk from mist-drenched fungal cathedral to sun-starved rocky spire in an hour—but the processes within that space are epic. The inhabitants are not primitive in intellect, but in material; their genius is biological and ecological, reading the language of the living rock and the silent swarms. It is a place where you feel watched not by eyes, but by the attentive, consuming patience of the green and the grey, where every shadow might be a predator, every drip a blessing, and the very stone beneath your feet is slowly, silently, inhaling.

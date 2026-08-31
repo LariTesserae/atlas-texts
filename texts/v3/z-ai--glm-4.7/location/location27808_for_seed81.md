@@ -1,0 +1,21 @@
+The sky here is not a ceiling, but a suffocation. It hangs low and heavy, a bruised and slate-colored firmament lit only by a diffuse, failing gloom. It is late afternoon, or perhaps early morning, or maybe the sun simply never wins against the thickness of the clouds. The light is a dim, grey nutrient, barely enough to cast shadows.
+
+You stand on a plateau, a high-altitude shelf carved from the spine of a mountain range that pierces the perpetual wet fog. The air is thin, yet paradoxically heavy with humidity; it tastes like licked iron and warm ozone. It is hot—an oppressive, wet heat that feels like breath on the back of your neck. The temperature sits just below the boiling point of patience, a steady 2.9 out of 3, turning the world into a slow-cooking kiln.
+
+This is a city without citizens.
+
+The scale is open and regional, a sprawling urban skeleton that stretches to the vanishing point. It is an industrial maze, a metropolis designed for giants or for a populace that has long since evaporated. The built environment scores a 2.5, but the density is a perfect 0.0. There is almost nothing here. The structures are vast, monolithic ziggurats of brick, rusted iron, and poured concrete, separated by avenues so wide they feel like canyons.
+
+Because of the water parameter (1.9), the city is weeping. It is a marsh-edge landscape built of stone. Water does not fall in rain so much as it precipitates out of the air itself, a constant, oily condensation. Every surface slick with moisture. Icicles of rust hang from the girders of elevated train tracks that snake between the hollow towers. The ground is uneven, a fractured pavement of cracked tiles and slick shale, pooling with black, standing water that reflects the dim light like mirrors of ink.
+
+There are no plants. The vegetation score is 0.5. You might expect moss or lichen in such a wet, hot climate, but the biology here has been arrested, outcompeted, or perhaps poisoned by the industrial residue. Instead of green, there is white: a dry, crusty mold of salt and mineral deposits that cakes the base of the buildings. Wherever a pipe leaks, the ground has been calcified into strange, stalagmitic growths. It is a mineral world, a post-biological garden of sharp edges and crystalline corrosion.
+
+The silence is profound (Sound 1.1). It is a "mostly quiet" that rings in the ears, broken only by the distant, rhythmic groaning of the city itself.
+
+The technology is industrial (1.6), but it is a dormant, breathing beast. Massive chimneys rise from the centers of the great blocks, belching steam that merges instantly with the fog. The machinery is not electronic or digital; it is analog and heavy. Flywheels the size of houses sit locked behind rusted grates. Great pistons, half-buried in the slick mud, extend and retract with a glacial slowness, moving with the Active (1.6) dynamic of the world. This is not human motion; it is geological. The city inhales and exhales.
+
+The ecology is rare (Fauna 0.8) and strange (Weirdness 2.1). There is life here, but it is solitary and highly adapted. You might see a "Stilt-Walker," a crane-like biomechanical construct that patrols the rooftops, its legs rusted through, picking at the mineral crust with beak-like pliers. Or perhaps a "Heat-Skimmer," a flat, ray-like creature that glides through the humid air just above the puddles, feeding on the algae that grows in the warm water of the cooling vents. They do not call to each other. They do not flock. They exist in isolation, perfect and alone in the hollow.
+
+The erosion (1.8) gives the place a sense of settled despair. Nothing is crumbling rapidly; rather, everything is worn smooth. The sharp corners of the buildings have been rounded by centuries of dripping water and wind. The rust is not a flaky disaster but a stable, thick patina that protects the steel beneath. The city has reached equilibrium. It is no longer dying; it has simply transitioned into a state of wet, hot, mineral stasis.
+
+It is a place of vast, empty halls where the air shimmers with heat haze. It is a place where you can stand in the center of a six-lane avenue, look up, and see nothing but the dripping, skeletal ribs of a thousand factories, all quiet, all wet, all waiting. The rules of this world are simple: endure the heat, respect the silence, and do not drink the water.

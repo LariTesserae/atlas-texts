@@ -1,0 +1,21 @@
+# The Frostmoss Warren
+
+Three meters below the surface of some forgotten meadow, in a pocket no larger than an orchard, there is a city being grown by the cold.
+
+You enter through a root-breach — a place where an old elm's taproot gave out and left a chimney down into the warren. The light that comes down with you is not sunlight, or not only. The cavern floor is covered in a pale bluish moss that glows of its own accord, soft as snow-light, and the ceiling is hung with what look like frozen lanterns: cave-pearls of ice with threads of luminous algae trapped inside. The light is clean and even. You could read by it. You could not warm your hands by it.
+
+It is cold here — the breath-fogging cold of an unheated stone church in winter, held steady by the earth above. And yet everything is green. Or rather, everything is green-and-white and green-and-silver and green-and-lichen-gold. The warren is packed with vegetation that has made its peace with the cold: cushion-moss in fat pillows, thread-lichens draped in curtains, pale ferns whose fronds are stiff with a wax that glitters when you brush them. There is no water anywhere. The plants drink the cold itself — they pull moisture from their own slow exhalations, recycle it through cuticles thick as fingernail, and drop leaves that dissolve back into the mossbed without ever rotting wet. The whole ecology is a closed circuit of frost-sweat.
+
+And in among all this greenery: the city.
+
+It is a city, unmistakably. Not a ruin, not a burrow — a worked settlement, layered and deliberate. Little towers of stacked flat-stones, no taller than your knee. Alleys paved in slate chips no bigger than fingernails. Archways the width of a teacup. A plaza perhaps the size of a dinner plate, ringed with what must be benches. You can see the tool-marks: every stone has been chipped by hand, patiently, with something harder than itself. The masonry is dry-stack, no mortar, but tight — the builders understood weight and fit. On some of the taller structures, roofs have been thatched with single lichen-fronds, pinned in place by slivers of bone.
+
+You do not see the builders. The warren is mostly quiet. A slow drip that is not water but condensation of colder-onto-cold, somewhere. The tick of an ice-pearl contracting in its thread. A faint high humming from the moss itself — or from something moving through the moss too small to see. Once, far down one of the green avenues, a pale shape crosses a gap and is gone: quadrupedal, long, low, the color of frost-on-bark. You cannot say if it was an animal or one of the builders themselves. Fauna here is rare and shy and may not distinguish itself from its architects.
+
+The strangeness is in the slowness. Watch any single spot for long enough and you'll see that this place is still being made. A tower that looked finished has a new stone on it when you look back — though you heard no work. A path that ended at a wall now continues through an arch. The moss has advanced a hand's breadth up a column. Nothing ever happens while you are watching it. But the warren grows. It grows at the pace of groundwater finding its level, at the pace of a tree adding a ring. A human lifetime here would see, perhaps, one new district completed.
+
+The geology under all this is raw — pale, unweathered stone with the pink bloom of mineral still fresh from whatever pressure extruded it. The warren is younger than its city. The builders are building on rock that has not yet decided what it wants to be, and perhaps this is why they hurry, in their slow way: to finish their streets before the floor beneath them chooses a different shape.
+
+There are rules, you sense, though no one has told you them. Do not step on the paved places. Do not touch the ice-pearls; they are not decorative, they are how the warren remembers light. Do not speak above the hum of the moss. If you see one of the pale shapes, do not follow it — and do not let it know you saw.
+
+Leave a single grain of something hard before you go. A chip of bone, a fleck of shell, a splinter of your fingernail. The builders will find a use for it. You will have contributed, by that much, to a city that will be complete long after the meadow above has forgotten it had a warren at all.

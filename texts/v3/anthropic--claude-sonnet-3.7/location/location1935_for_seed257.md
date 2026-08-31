@@ -1,0 +1,25 @@
+# The Interwoven Basin
+
+Stretch your gaze across the impossible breadth of the Interwoven Basin. What strikes you first is the light—brilliant, relentless, pouring from a yellowed sky where twin suns hang like watching eyes. Their glare picks out every detail of the landscape in stark relief, casting almost no shadows, for there is nowhere shadow could find purchase in this dense, intricate world.
+
+The Basin extends beyond any horizon you could imagine, a continental depression whose far edges curl up into distant violet haze. The air is thick, hot, and clingy. It wraps around your skin like a living thing, leaving a perpetual sheen of moisture that never quite develops into sweat before being reabsorbed into the atmosphere. You breathe deeply and feel the weight of it fill your lungs.
+
+This is a landscape completely fabricated, yet nothing here resembles what you might call architecture. The Basin is a living construction, built by its inhabitants over countless generations. Every surface, every structure is composed of woven plant matter—living and dead fibers twisted together in a continuous, planet-spanning tapestry. Thick ropes of crimson vines intertwine with golden grasses and silver-blue creepers to form the base layer. Upon this foundation rise countless variegated structures: domes, spires, tunnels, and platforms, all woven so densely they merge into one continuous, habitable terrain.
+
+The plant-weavers—six-limbed creatures the size of large dogs—move constantly across their creation. Their scaled bodies reflect the omnipresent light in iridescent flashes as they work with primitive bone and stone tools, splitting, bending, and binding vegetation with remarkable dexterity. They communicate through resonant hums that vibrate through the plant matter itself, adding to the landscape's overwhelming soundscape.
+
+And what a cacophony it is! The Basin roars with life. The plant-weavers' workings produce a constant background of creaks, snaps and rustles. Swarms of finger-sized flying creatures emit piercing trills as they dart between the woven spaces. Larger beasts—some serpentine, others like great translucent slugs—call to each other in booming, echoing cries that reverberate through the dense air. Water drips, sap flows, fibers stretch and contract with audible tension. All surfaces amplify and transmit sound, turning the entire Basin into one vast, living instrument played by millions of performers simultaneously.
+
+The vegetable matter is ever-growing, ever-dying. New shoots push through older layers, their growth accelerated by the twin suns and the peculiar properties of the moist, hot air. As they grow, the plant-weavers incorporate them into existing structures, while simultaneously dismantling sections that have begun to decay. Nothing is wasted—dead material becomes binding fiber, mulch for new growth, or fuel for the smoking fire-pits where communal activities take place.
+
+Water exists here primarily in pockets—bladder-like reservoirs cultivated from specialized plants that store rainwater from the intermittent downpours. These brief storms arrive with little warning, turning the Basin momentarily quiet as all creatures seek shelter in the woven tunnels. The rain comes in warm, fat drops that thud against the plant matter, producing a temporary percussion before being quickly absorbed.
+
+Small rivers thread through the deepest parts of the Basin, appearing and disappearing beneath the woven terrain. Their courses shift as the landscape itself shifts, constantly being redirected by the plant-weavers to nurture new growth zones or flush away accumulations of waste.
+
+This world is in a perpetual state of becoming. Areas that were dense living quarters might, within weeks, be transformed into cultivation fields, then into ceremonial spaces, then into breeding grounds for the flying creatures whose secretions harden into the resin used to waterproof critical structures. The geography refuses fixity, operating instead on principles of transformation and adaptation.
+
+At night—a brief period when one sun sets slightly before the other rises—bioluminescent patches throughout the woven landscape glow in pulsating patterns, coordinating the nightwork of certain plant-weaver castes. These patterns are said to form a vast mathematical language, incomprehensible to outsiders but containing the accumulated knowledge of generations.
+
+The Basin is both ancient and embryonic, a civilization constantly remaking itself from its own substance. It exists at the intersection of the made and the grown, where technology means the patient guidance of living materials rather than their conquest. It is a single vast organism comprising countless smaller organisms, each with purpose and agency, yet part of a whole so vast that none can perceive its entirety.
+
+Those who dwell here do not conceive of themselves as separate from their environment. They are threads in the weave, drops in the downpour, notes in the endless symphony. The Basin makes them as surely as they make the Basin.

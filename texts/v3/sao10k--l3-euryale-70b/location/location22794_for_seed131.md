@@ -1,0 +1,15 @@
+You find yourself immersed in an ancient, industrialized pocket environment that seems frozen in time. The air hangs heavy with moisture - not so much humidity as the breathy exhalation of countless mechanisms. Steam hisses from vents and exhausts, coalescing into droplets that cling to every surface, weeping into puddles in the micro-crevices of the uneven metal floor beneath your feet.
+
+The space is contained, a single vast chamber that feels room-sized despite its many meters of diameter and verticality. Shafts of pale light cut through the murk, shining like organ-pipes from overhead, making nebulae of the steam. Ribbed arches and undulant catwalks trace curving geometries that evoke bone and tooth. The crisscrossing pipes look organic too, more like dew-strung fungal hyphae than any mechanistic plumbing. Peeking through clouds of vapor, you spot small luminescent lichen-like growths clinging to sides and crevices, soft phosphorescent pulses rippling across their spongy surfaces.
+
+Every surface is mottled, crusted over with patches of lime-green algae and downy viridescent mold. Tendrils of feathery moss and wispy lichen filter through slats and ventilation grilles. Even the metal feels overgrown rather than built, like the pipes have calcified into porous stone.
+
+The only signs of life, though, would be easily missed in a more vivacious environment. A twitching, blind molt-like insect at the base of a different lichen-growth type. The oilslick sheen of likely toxic moisture-puddle contents as they drip from weep-holes. If you watch long enough, you might see a vent's cream-width flaps shiver open at the subtle touch of a grub-like creature crawling across its surface.
+
+Cacophony assaults you at all frequency ranges - sub-bass thrums, the pritch-krrrrrr of shredding gears, diner-kitchen spritzes of operated mechanisms, the oboe glissando of gas-main-venting steam, squeak-tap-shiver-squawk, whir-whir-tssst-KRZZZılığahck, wizzle-rruzzi'-kreppl-krritz, ssswwwweeee-bZZZZZTTTZZZTTZZ
+
+But beneath, an almost-auditory presence lurks, something that translates to sound but comes from senses beyond the blind, deaf, basically muzzle-like restrictions of human anatomy - a wave of strange energies curling and uncurling, pressing on the surface of the skin, attendant to every gurgle and hiss, gravity itself almost loud, the crosstalking of time's lines and details of space creating an insanely febrile stasis picture that seems to tremolo the world around it
+
+Despite the initial impression of timeNESS, parts of this landscape seem to change. You're never sure if THEY changed or you just forgot what happens. A total glimpse of forward-movement at times, dripping slimehouse failure, susurrations of a presence on just the other side of the chamber-wall, sometime flickerbirds of shadow-moving silhouettes
+
+So what do you need to know about this place? The world in a pressure-cooker.

@@ -1,0 +1,15 @@
+In the deep warm dark, the Living City breathes. Not a city as we know it, but rather the patient work of countless generations of termite-analogues, who over millennia have cultivated and shaped a vast forest of fungi into chambers, corridors, and cathedral spaces. The fungal architecture has grown so ancient it has developed its own geology - layers upon layers of compressed mycelium forming strata as distinct as sedimentary rock.
+
+Water seeps constantly through this living maze, not in streams or drops but through the semi-permeable walls themselves, maintaining the perfect humidity. The moisture moves through osmotic gradients that have remained unchanged for epochs, each chamber maintaining its precise moisture level through the steady respiration of the fungal mass.
+
+The builders themselves are everywhere and nowhere - tiny iridescent creatures that tend to their fungal architecture with chemical secretions and careful harvesting. Their movements are so slow and coordinated they're almost impossible to detect unless you watch for hours. The entire civilization operates at a pace that makes glaciers seem hasty.
+
+The "rooms" range from intimate spaces barely tall enough to crouch in, to vast halls where the ceiling vanishes into darkness above. Everything is rounded, organic, with surfaces that seem to flow into each other. The walls pulse faintly with bioluminescence - not enough to truly illuminate, but sufficient to create a constant twilight state that never varies.
+
+The fungal architecture is host to countless other species - translucent amphibians that swim through the moisture-rich walls as if they were water, colonies of blind birds that navigate by echolocation through the larger chambers, iridescent insects that farm smaller fungi in carefully maintained gardens. All move with the same deliberate slowness as the builders, as if time itself flows differently here.
+
+There's no sense of decay or death - everything that dies is immediately reabsorbed into the living walls, processed by the fungal mass. The entire structure is one vast organism, or perhaps many organisms so intertwined they can no longer be separated. The boundaries between species have blurred over the millennia of coexistence.
+
+The air is thick with spores that drift like motes in what little light exists, carrying chemical messages between distant parts of the city. These spore-messages maintain the equilibrium that has existed here since before the surface world's current continents formed. The whole place operates as a single vast metabolism, every species and space playing its role in maintaining the eternal stability of the whole.
+
+Sound is muffled by the fungal walls, creating a perpetual quiet broken only by the occasional soft calls of the blind birds or the whisper of spores settling. The temperature never varies, maintained by the metabolic processes of the vast fungal mass. There is no day or night here, no seasons, no change - only the eternal present moment, extending backwards into deep time and forwards into the unknowable future.

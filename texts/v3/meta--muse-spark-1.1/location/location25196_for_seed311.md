@@ -1,0 +1,27 @@
+It's not on the ocean floor. It's *in* it.
+
+You find it by following the maintenance seam — a low place where the world-plates don't quite meet. The seam is a kilometer long and only a man wide, a young crack, its basalt lips still sharp enough to cut gloves, unsoftened by time. The water above it is heavy and cold and endless, normal noon light filtering down through it in flat, clean columns that should not reach this deep but do. There is no silt. There is nothing swimming in those columns. No fish, no krill, no bacteria bloom to cloud them. Just cold, clear ocean pressing down.
+
+And then the floor gives way into a pocket.
+
+It is an intimate wrongness, a hidden room in the planet's basement. Maybe forty meters across. An inverted blister, a bubble that refused to pop. You drop into it and you are suddenly not crushed. You are submerged still — completely, utterly submerged — but differently.
+
+This is a city intersection that someone forgot to scale up.
+
+The water is still here, but it has been convinced to behave. It doesn't flow so much as it *occupies*. It is packed. Every cubic centimeter of this pocket is full. Full of water, full of city, with no room left between the two, like the water was poured around the city after it was built. There is no surface. There is no air to break. You are breathing water that has been taught to carry oxygen like air, cool on the inside of your throat, 11 degrees Celsius and tasting of clean iron. Your ears roar with it.
+
+The city itself is dense beyond any logic of streets. It is urban the way a circuit board is urban. Four or five buildings — or one building that decided to be five — crammed edge to edge inside the blister, wall to wall to wall. Layered construction, balconies that become the foundations for the next block up, stairwells that turn and become alleys, alleys that turn and become plumbing. Fresh concrete, new ceramic, sharp rebar ends that haven't rusted yet, all of it recently emerged, recently printed. This whole neighborhood looks like it was extruded last week. The corners are still crisp. The color hasn't leached.
+
+And it is saturated with itself. There are windows in places windows shouldn't work, doors that open onto other doors. Laundry lines strung between fire escapes that are only a meter apart, hung with white sheets that never billow because the water holds them perfectly still — except where they shudder in time with the sound.
+
+The sound is loud here. In the open ocean it's silent and dead, but in this pocket the world is working.
+
+A low, relentless, all-body thrumming, like standing inside a bell while it's being struck. The buildings *are* the pumps. The tech holding this place open — holding the water from being water — is not in the buildings. It *is* the buildings. Their walls are thick with black lattice that drinks light and spits it back out as structure. You can see the field when you look at an angle: the rain of the ocean outside trying to fall in, stopping at the old seam line and then sliding *around* this room, a wall-of-rain that curves. On this side of the wall, water is still, structured, colloidal. A liquid scaffolding. It holds you up a little. It pushes gently on your shoulders from all sides, reminding you it is there.
+
+Light is normal here, and that's the strangest part. Not bioluminescence, not submersible flood lamps. Daylight. Flat, overcast, 2pm-on-a-Tuesday daylight, with no discernible source. It comes from the water itself, or from the air that the water thinks it is. It falls on the packed facades and makes their shadows sharp and short, like they are sitting on a street in a low-elevation town somewhere inland, not in a cavity under an ocean.
+
+There is almost no green. A sparse dusting of something that tried to be vegetation — white-green lichen crust on the shadiest concrete, a single engineered kelp string growing from a drainpipe, its fronds trimmed obsessively short by something, not growing, not dying. Not needed. Nothing lives here except the place itself. No gulls. No rats. No cockroaches. No fish stray in even when the wall flickers. The water inside is too busy, too occupied, to host any other life.
+
+And it is active. Violently, bureaucratically active. Every few minutes the whole pocket cycles. You hear it first: the thrumming climbs to a whine. Then the water clenches. The pressure swings cool to colder. The sheets on the laundry lines snap taut. The drain-kelp flattens. The buildings exhale — actual bubbles of perfect, silver, empty vacuum that form on their sides and zip upward, through the structured water, and vanish into the rain-wall, carrying heat away. Then release. A soft hammer-blow felt in your molars. The light flickers. The water goes slack again, for a little while. The city settles.
+
+It is a town built to do one thing: keep this pocket from ever emptying or flooding. A dense, packed, young, loud little municipal engine that does nothing else. A utility closet the size of a city block, hidden in the low seam of the world, full of cold clear water that holds itself apart from the ocean by sheer engineering persuasion, lit like a normal day, and utterly, utterly empty of anything but itself, working.

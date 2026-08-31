@@ -1,0 +1,5 @@
+The landscape you are describing is a warm, low-elevation area with a dense, urban presence. The water in this landscape is abundant, with frequent marshes and wet areas. The vegetation is minimal, either mineral or fungal in nature. The temperature is warm, and the erosion is just emerging, giving the landscape a raw, unsettled feel. The scale of this environment is open and extends past the immediate, with multiple features and regions to explore.
+
+The density of presences in this landscape is high, with many different forms of life and activity present. The built environment is urban in nature, with organized construction and high infrastructure density. The technology is primitive, with simple tools and manual craft being the main methods of fabrication.
+
+The light in this landscape is dim, giving the area a dim and dusky feel. The fauna is abundant, with a wide variety of creatures inhabiting this rich environment. The sound in this place is deafening, with a cacophony of creature calls and other sounds filling the air. The dynamic of this landscape is constantly changing, with no stable equilibrium and ongoing shifts and transitions.

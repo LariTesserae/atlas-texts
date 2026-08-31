@@ -1,0 +1,19 @@
+In the depths of an ancient cavern system, a hidden industrial metropolis thrums with life and noise. This subterranean city, known as Echopolis, exists in a vast chamber where the ceiling disappears into darkness hundreds of meters above. The air is cool and damp, with a constant mist hanging in the lower levels, fed by unseen underground streams and the condensation from countless machines.
+
+The city is a marvel of vertical engineering, with structures of corroded metal and stone stretching upwards like inverted skyscrapers, their foundations anchored to the cavern floor and their highest levels lost in the perpetual gloom above. Bridges, walkways, and elevated railways crisscross the space between buildings, creating a three-dimensional maze of urban sprawl.
+
+The darkness is punctuated by the warm glow of bioluminescent fungi that carpet the walls and ceilings, their soft light mingling with the harsh, artificial illumination from countless steam-powered lamps and crackling electrical arcs. The contrast creates a surreal chiaroscuro effect, casting long shadows that dance and shift with the movement of the city's inhabitants.
+
+Vegetation thrives in this unusual environment. Lush gardens of pale, leafy plants grow on every available surface, fed by carefully managed hydroponic systems. Vines with leaves as large as dinner plates drape over balconies and wind around support pillars, their tendrils seeking out pockets of moisture in the air.
+
+The soundscape of Echopolis is overwhelming. The constant background roar of massive steam engines mingles with the clanking of gears, the hiss of pneumatic tubes, and the rhythmic pounding of giant pistons. Voices echo strangely in the cavernous space, creating a disorienting cacophony that seems to come from everywhere and nowhere at once. The city's inhabitants have developed a complex system of gestures and light signals to communicate over the din.
+
+Fauna is abundant but strange. Eyeless fish swim in clear tubes that serve as both transportation for water and a living decoration. Bats with wingspans of several meters roost in the upper reaches, diving down to snatch insects from the air. Colonies of pale, blind rodents scurry through the lower levels, keeping the city's waste systems clean.
+
+The city is in constant motion. Conveyor belts move goods between levels, while elevators transport people up and down the towering structures. Steam vents periodically release clouds of vapor, momentarily obscuring entire sections of the cityscape. In the agricultural districts, massive rotating drums house verdant crops, turning slowly to simulate day and night cycles.
+
+Despite its industrial nature, Echopolis has achieved a delicate balance with its environment. The waste heat from the engines is captured and used to warm hydroponic gardens. Water is endlessly recycled, purified by beds of specialized fungi and algae. Even the exhaust from the factories is filtered through living walls of pollution-eating plants before being released back into the cavern's atmosphere.
+
+The inhabitants of Echopolis are as diverse as their city. Some appear almost human, while others have clearly adapted to the subterranean environment with pale skin, large eyes, and an ability to navigate by echolocation. Many augment themselves with steam-powered prosthetics or wearable gas lamps.
+
+At the heart of the city lies the Great Resonator, a colossal machine that harnesses the acoustic energy of the cavern itself, converting the endless echoes and vibrations into a power source that helps drive the city's industry. Its low, persistent hum underlies all other sounds, felt as much as heard, a constant reminder of the strange symbiosis between the natural cave system and the mechanical marvel of Echopolis.

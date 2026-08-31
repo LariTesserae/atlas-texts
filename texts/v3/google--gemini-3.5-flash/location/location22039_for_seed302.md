@@ -1,0 +1,21 @@
+On the high, cold shelf of the world, where the horizon lies far away and flat beneath an unblinking dome of white light, there is no green. There is no soil, no rot, no leaf-fall, and no seed. 
+
+Instead, there is a forest of mineral. 
+
+The landscape is a colossal, high-altitude terrace of calcium carbonate, silica, and iron sinter. It is packed so densely with vertical structures that from a distance it looks like a solid block of pale, striated cheese, but close-up it is a maze of infinitely repeated fissures. Millions of wet, ribbed columns—each no wider than a man’s torso but rising thirty feet into the cold, bright air—stand inches apart. Squeezing between them is a physical trial; the stone is slick, cold, and wet, coated in a constant, microscopic film of flowing water.
+
+This is a weeping world. It does not rain, but water is everywhere, issuing from the very crown of every pillar. It does not bubble or fountain; rather, a pressurized subterranean sea miles below forces cold water upward through the microscopic capillary networks of the stone. Each pillar heads a capillary fountain, constantly sweating a transparent sheath of water that glides down its flanks. The air is cool—sharp and thin with altitude—but it is so saturated with this perpetual, fine spray that a brilliant, shadowless glare is cast over everything. The light is blinding. It bounces from wet surface to wet surface, refracting through the mist until the air itself seems to glow like a ground-up pearl.
+
+And the sound is absolute.
+
+It is not the sound of wind or of crashing waves, but a static, high-pressure roar that never changes. Because the water is forced through millions of tiny, whistle-shaped apertures at the tops of the stone columns, the plateau behaves like a gargantuan, steam-driven pipe organ. The noise is a deafening, white-noise hiss combined with a deep, bone-rattling drone that vibrates the marrow. It does not rise or fall. There are no gusts, no pauses, no lulls. The pressure from below is so perfectly balanced against the gravity of the high plateau that the volume remains identical at noon, at midnight, and across millennia. It is a physical weight. To stand in the maze is to feel your chest cavity vibrate in sympathy with the cold, whistling stone.
+
+Because the system is in a state of terminal, frozen equilibrium, there is no decay and no progress. The water has carved its channels over thousands of years and now flows down them with the absolute efficiency of a machine. It does not erode the stone further; instead, the minerals dissolved in the water deposit themselves at the exact same rate that the friction of the flow wears the stone away. The columns are not growing, and they are not shrinking. They are locked.
+
+In the narrow, wet gaps between these columns, life is almost nonexistent, but not entirely. 
+
+Where the water pools in tiny, flat basins at the base of the pillars, there are small, flat creatures. They are the color of lard, completely blind, and shaped like ribbed coins. They have no ears, but their entire bodies are composed of highly sensitive membranous rings that read the vibrations of the stone. They do not hunt; they cling to the wet sinter, absorbing the calcium and sulfur compounds that precipitate from the water. They do not move unless pushed by the slow, inexorable slide of another of their kind. They have lived this way, unchanged, since the basalt basement of the plateau first cracked open to release the deep water.
+
+There are no trees to fall, no leaves to rustle, no birds to cut through the glaring sky. If you were to climb one of the taller columns and look out across the plateau, you would see nothing but a sea of glistening, white-and-ochre needles stretching to the horizon, all of them smoking with a cold, luminous vapor. 
+
+The heat of the sun never warms this place enough to dry it; the cold of the high air never freezes it enough to halt the pressure of the rising spring. It is a monument of wet stone, roaring endlessly into an empty, brilliant sky, perfectly satisfied with its own static eternity.

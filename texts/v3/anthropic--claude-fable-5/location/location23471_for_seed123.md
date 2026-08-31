@@ -1,0 +1,38 @@
+The slag fields behind the works are not old. Thirty, forty years at most — black pours stacked on black pours, a low plateau of cooled industrial rock spreading out from the foundry like a glacier in negative. From above it looks dead and sealed. It is neither.
+
+Walk the pour from autumn 1989 — the locals know it by the year, the way farmers know fields — and you'll find a fissure where the cooling skin tore as the mass settled. Two hands wide at the surface. Below it, the slag did what lava does: it trapped a gas bubble the size of a small chapel, and the bubble never collapsed. You drop through the fissure onto a floor that is faintly, persistently warm, and you are inside the only room in the world shaped like a held breath.
+
+**The room.**
+The walls are glass, more or less — vitrified slag in long frozen drips and sags, black at first glance, then not black at all: oil-sheen blues, bronze, a peacock iridescence where dissolved metals came out of solution as the bubble cooled. The geometry is young in the way only fresh rock is young. Nothing is rounded by time. Every edge is a fracture edge, sharp enough to open skin, and the ceiling still carries the exact texture of gas pressing against cooling liquid — dimpled, taut, like the underside of a setting custard. There is no sediment older than the room itself. The floor is the room's own breakdown: spalled glass chips, mineral dust, and three decades of accumulating life.
+
+Light comes down through the fissure in a single hard blade and then the walls take over, scattering it everywhere. The room is brighter than it has any right to be — a dim day outside reads as a steady silver glow inside, every iridescent surface a poor mirror multiplying the rest. At noon in summer the light blade swings across the floor like a slow clock hand, and things move out of its way, or into it, depending on what they are.
+
+**Heat and water.**
+The pour beneath is still cooling. Not molten — nothing dramatic — but the deep slag holds an enormous thermal mass and bleeds it upward at a few degrees above the air, year-round. The floor is warm like a sleeping animal. Meanwhile the fissure breathes: cool damp surface air sinks in at night, hits the warm interior, and the room sweats. Every morning the ceiling beads over completely and begins, around mid-morning, to rain — not a drizzle, a *schedule* of drips, each dimple in the ceiling delivering to its own dark-ringed point on the floor, the same points for thirty years. Some drip-points have built infant stalactites already, soft white mineral straws growing with un-geological speed, a finger-length per decade, because the water is saturated with leached calcium and silica and doesn't have far to fall. The youngest cave formations anywhere, growing in the youngest cave.
+
+There is one standing pool, shin-deep, in a sag of the floor near the warm wall. It never dries and never overflows. Its surface carries a fine metallic film that reforms within hours of being disturbed.
+
+**What's packed in.**
+Here is the thing the fissure doesn't prepare you for: the room is *full*. Warm, humid, lit, predator-poor at first — it was an empty niche advertised by a thread of warm air rising from the crack, and everything that could find it, found it. There is no unoccupied surface. The ecology has sorted itself into bands by temperature, the way life sorts around a deep-sea vent, and you can read the bands like strata:
+
+— The warm floor belongs to the **slag snails**, a population of common door snails gone strange in isolation. Their shells are wrong. They graze the mineral bloom off the glass — a fine pale crust of leached salts and bacterial film — and the leached metals go into their shells, which come out banded in bronze and faint green, heavy, slightly conductive. Empty shells don't decay here; they accumulate in drifts against the cool wall, a midden of small metal-glazed spirals, thousands deep.
+
+— Above them, the **cricket band**: pale cave crickets in numbers that make the wall texture seem to shiver when your light moves. They are the room's main protein, and they are nearly silent — generations in a resonant glass chamber have selected against song. They communicate by tremor, drumming the wall so faintly you feel it through your palm before you hear it.
+
+— The drip-points belong to **midges and their larvae**, which live in the mineral straws themselves, in the thread of water inside each growing stalactite, and emerge in soft grey pulses when the morning rain begins.
+
+— The light-blade is the territory of two resident **wall lizards**, descendants of a colonizing pair, that follow the sun-clock across the floor all day, basking and ambushing in a slow circuit. They are glossier than their surface kin, as if the room's sheen were contagious.
+
+— And the ceiling, in the warmest cupola, holds a tight colony of **bats** — maybe sixty — packed wing to wing in the gas-dimples as though the rock had been formed to receive them, which, in a sense that took thirty years to come true, it was. Their guano feeds the floor; the floor feeds the crickets; the crickets feed the lizards and the bats; the room runs on itself, plus the daily ration of light and the slag's old industrial heat, the foundry still paying out energy decades after the pour.
+
+Vegetation is the one sparse thing. A single hart's-tongue fern grows where the light blade rests longest, leaves glassy and oversized. A skirt of moss rings each drip-point. A few pale threads of something — etiolated seedlings that arrive through the fissure each year, grow desperately toward the crack, and fail. That's all. This is an animal room, a mineral room. Green is a guest here.
+
+**Artifacts.**
+The slag did not pour clean. Embedded in the walls, half-swallowed like fossils, are the foundry's accidents: a length of chain frozen mid-drape, now mineral-crusted and grown into the wall's chemistry; the toothed rim of a gear emerging from the floor like the dorsal fin of something diving; a steel rod that crosses the room diagonally, caught in the pour, now serving as the bats' flyway perch and the lizards' bridge. Near the pool, a hard hat — its plastic shell intact, its interior a snail nursery. These are the room's only architecture, and the inhabitants treat them as geology, because here they are.
+
+**Sound and motion.**
+Mostly the room is quiet — but it is the quiet of a full theater, not an empty one. Drip schedule. The dry-paper rustle of the cricket mass repositioning. The lizards' claws on glass, audible because nothing else is. At dusk, the bat colony pours up through the fissure in a two-minute hush of wings, the loudest the room ever gets.
+
+And underneath everything, twice or three times a day, the sound that reminds you what this place is: a deep, structural *tick* from somewhere in the surrounding slag — the mass still cooling, still settling, the room still being made. The walls have moved measurably since anyone first dropped in. The bubble is contracting, a millimeter a year, slow as a closing eye. New hairline fractures appear; the snails find them within days and graze the fresh mineral that weeps out.
+
+The whole place is a clock running fast — formations growing at speeds caves shouldn't allow, an ecosystem assembled in a single generation, packed to its glass walls, inside a rock younger than the people who poured it. A pocket of accelerated world, breathing once a day through a crack two hands wide, in the middle of a black field everyone above believes is dead.

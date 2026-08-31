@@ -1,0 +1,33 @@
+# The Abyssal Deepening
+
+You descend through layers that have already forgotten the sun. The water is not ocean—not quite. It is *older* than ocean, denser, with a mineral charge that makes your skin feel filmed. The pressure here has weight beyond physics; it accumulates in the chest, in the spaces between thoughts.
+
+The darkness is complete, but not empty.
+
+What you see, you see because bioluminescence is woven into the very substrate. Not from animals primarily, though there are creatures—sparse, enormous, moving through their territories with the inevitability of continental drift. A shadow-shape passes at the edge of recognition every few minutes. Its light drags behind it like a comet's tail of spoiled gold. You do not know what it eats. You do not know if "eats" applies here.
+
+The stone beneath—and you realize you're walking on something, or standing in something too dense to fully fall through—is ancient in a way that exceeds geological time. It has been worn not by water or wind but by *itself*, by the weight of its own existence. The texture is smooth, almost organic, like the inside of something digested. There are no edges here. Everything has rounded into conformity over eons. The rock is the color of old bruises: purple-grey, veined with minerals that faintly pulse with their own exhausted light.
+
+The terrain is not flat, but it refuses to be dramatic. There are rises and depressions, valleys the size of kingdoms that you cannot cross because they are *full*—packed with something between water and sediment, a suspension so dense it resists motion. You navigate the narrow spaces between these saturated chambers. The passages are tight. You learn to move sideways.
+
+Life exists here, but it does not sprawl. It is packed dense as a hand's clenched fist—entire ecosystems compressed into spaces the size of boulders. You find a shelf of stone perhaps three feet wide and six feet long, and it is a *world*. Fungi in colors that have no names outside this place rise like cities, pale and branching, perhaps two inches tall. Around them moves a community of small pale things—not quite shrimp, not quite worms—thousands of them in constant, purposeful motion. They farm the fungal towers. They harvest. They leave traces of phosphorescence where they've been. A few hours' observation suggests civilization, or something close to it. You find the recognition disturbing.
+
+You do not eat. There is no food here for you, and something about consuming the life of this place feels like consumption of a relative, a cousin species at best.
+
+The sound is not silence, but it approaches silence the way prey approaches a predator. There is a thrumming—a very low frequency that you feel through bone and water, a pulse that might be the world's own heartbeat or might be something vast moving in an orbit you cannot perceive. Sometimes there are creaks: stone settling further into its final form, or ice—yes, there is ice here, in places where the temperature (which hovers at degrees Celsius well below freezing) has allowed it to form—cracking as it expands infinitesimally. The water itself seems to make no sound. It is too heavy for sound. Sound requires space between atoms.
+
+The cold is the cold of stone that has never known warmth. It enters through the suit (a simple thing, woven from plant fiber treated with oils your people have used for generations; you are a deep-drowned culture, your technology the result of ten thousand years of survival in darkness) and settles into the joints first. Then the skull. Eventually the idea of warmth becomes theoretical.
+
+Movement here—and you notice this with creeping unease—is never stable. The suspended sediment parts and reforms. Currents you cannot see or feel push you in patterns that seem almost directed. The fungi-tower on that stone shelf has changed position, you realize, since you last looked three hours ago. Or was it six? Time becomes strange in the absence of light-markers. The creatures around it seem unconcerned, adjusting their routes with what appears to be automatic plasticity, as if the geometry of their world shifts regularly, and they have evolved the flexibility to move with it.
+
+There is, you come to understand, a turbulence to this place that has nothing to do with storm. It is chronic. Geologic forces shift in deep time, but here, in this compressed, saturated, ancient-beyond-ancient basin, geological time runs at a perceptible speed. Over days or weeks, you might watch the stone itself *flow* like something between solid and liquid—not melting, but yielding to pressure that has accumulated over millions of years and finally, finally is redistributing itself.
+
+The scale is regional. You have been descending and moving horizontally for long enough that your sense of geography has inverted; "above" is now some impossibly distant concept, and "below" is infinite. The depression you're in extends for what might be a hundred kilometers in one direction, fifty in another—you cannot be certain, because the darkness has made distance a measure of faith rather than observation. But there are *features*: a ridge of stone that rises perhaps fifty meters, creating a false plateau; a pit so deep that even the sparse bioluminescence doesn't reach its floor; a chimney where warmer water (still brutally cold) rises from the planet's guts, carrying minerals that settle into crystalline formations the size of houses.
+
+The vegetation is sparse not from want but from fundamental hostility to growth. The fungi-gardens exist, but they are discrete, separated by zones of inert stone and sediment. There is something that might be kelp or seaweed in certain currents, but it grows so slowly that you cannot observe it changing even if you remain in one place for weeks. Life here is not about expansion. It is about holding position. About *not dying*. The ecosystems are the most conservative you have ever seen—every species present is redundant, interlocked, essential in a way that suggests the loss of even one form would cascade into collapse.
+
+You find yourself thinking of this place as the bottom of something. Not the bottom of the ocean, but the bottom of history. The ultimate depth, where all erosion ends in smoothness, where all turbulence settles into micro-adjustments, where ancient things can still move—are *always* moving—but only in the slowest geometries imaginable, rearranging themselves according to rules written in cooling stone and the decay of radioactive elements deeper still.
+
+It is hostile in the most fundamental way: not through aggression, but through utter indifference. You exist in it on sufferance. The place does not care if you remain.
+
+But it *allows* you to see.

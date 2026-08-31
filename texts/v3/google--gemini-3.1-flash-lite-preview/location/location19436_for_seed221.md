@@ -1,0 +1,13 @@
+You have to pull yourself into a narrow, vertical crevice between two sweating, metallic plates to truly see it. It is a pocket-dimension of industry, a "room" of impossible density, trapped within the chassis of something titanic and ancient that has forgotten how to move.
+
+Everything here is built. There is no dirt, no soil, no rock. The "ground" is a honeycomb of gritted, extruded carbon-mesh that serves as a weeping floor, perpetually slick with a cold, ionizing dew that drips from the ceiling plates above. The water—if it can be called that—is a chemical distillate, a heavy, frigid condensate that clings to everything. It doesn't flow; it pools in the crevices of gears that will never turn again, turning the landscape into a series of interconnected, icy basins.
+
+The temperature is absolute. It is a dry, biting cold that preserves the state of the room in a static, crystalline perfection. Nothing changes here; the condensation forms at the exact rate it evaporates, creating a shimmering, frozen-equilibrium fog that clings to the air.
+
+In this pocket-space, the density of life is claustrophobic. It is not vegetation, but a sprawling, mechanical-biological hybrid growth—think of it as "wire-moss." It consists of tangled copper filaments, fiber-optic frayed ends, and translucent, gelatinous husks that pulse with a faint, rhythmic vibration. They are everywhere, pressing against one another, layering themselves into a thick, carpeted wall of artificial ecology. 
+
+The fauna is the most overwhelming element. Tiny, semi-autonomous clockwork parasites—barely the size of a fingernail—skitter over the surfaces. They move in swarms, thousands of them, clicking and buzzing in an incessant, deafening chorus of grinding metal and whining servos. The sound is a solid thing here, a physical weight that vibrates through the metallic floor. Because the space is so small and the machinery so resonant, the noise has nowhere to dissipate. It echoes off the weeping walls, turning into a singular, high-pitched mechanical shriek that never modulates, never falters, and never ends.
+
+There is no light, save for the sickly, bruised violet glow bleeding from the exposed circuitry buried deep within the wall-plates. It is a dim, flickering luminescence that casts stuttering shadows over the weeping carbon-mash. 
+
+It is a world under construction that never finishes its debut. It is a pristine, frozen factory floor populated by a billion tiny, shivering, screeching things. If you were to touch the wall, you would feel nothing but the intense, vibrating chill of a world that is perfectly made, entirely trapped, and screaming in a frequency that only the metal understands.

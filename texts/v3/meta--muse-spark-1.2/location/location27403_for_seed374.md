@@ -1,0 +1,33 @@
+It is low country.
+
+Not sea-low, not below sea level, but the kind of low that holds heat and water and does not let them go. A broad basin, a valley so wide its far rim is only a smudge in the haze. You can stand on any roof and see the whole of it at once — the town filling the bowl edge to edge, and that's the scale of it: not infinite, not a wilderness, but regional. A single organism of a place, a town the size of a valley, a valley the size of a town.
+
+The ground here is new.
+
+That is the first thing you feel under your feet. This is not old earth, not rounded hills or softened river bends. The basalt came up raw and recent, a dark, sharp, bubble-pocked sheet that cooled too fast and has not yet learned to be soil. There are no true river valleys, no canyons, no talus. The rock is still angular where it broke. It is still stepped where it flowed. The quarry faces at the edge of the settlement are clean vertical cuts, black glass glittering with olivine, without the patient weathering that makes cliffs crumble. Rain has not yet had time to carve it. Wind has not yet had time to round it. Even the alleys and the foundations feel quarried yesterday, edges still too crisp. The world here is embryonic — under construction by geology itself — and the city has grown up to match it.
+
+Because the city is everywhere.
+
+It is dense. Not dense like a modern core with towers, but dense like a hive built by hand. Low, flat-roofed structures of sun-baked mud brick and basalt block, of woven reed and lashed timber, pressed shoulder to shoulder with only narrow, crooked gutters between them. Courtyards inside courtyards. Terraces layered over terraces, so that from above the rooftops form a second ground, continuous and traversable. You can walk for a mile without touching the actual earth, stepping from roof to roof, ladder to ladder. Every surface that can be built on has been built on. Every gap has been filled with an addition, a shed, a lean-to, a wall. Scaffolds of raw pole timber — still pale, still sapping — stand against half-finished walls everywhere, not because the city is expanding, but because it is always being remade in the same shape. The technology is primitive: adze and chisel and mallet, rope and kiln, hands. You see the marks of stone hammers on every block. You smell the lime pits, the charcoal fires, the hardening clay.
+
+And it is wet.
+
+Not drowned. Not a lake town. Wet in the way a sponge is wet. The water table sits just under the black rock, pressing up. Any hole dug more than a forearm deep begins to weep. The gutters between houses never fully dry — they run with a slow, warm seep that reflects the dim sky. The basalt itself sweats. In the mornings the undersides of every lintel and the ceilings of every ground-floor room are beaded with condensation that never quite falls. After the short, daily rain — warm, heavy drops that hammer the flat roofs for twenty minutes and then stop — the whole basin steams. The air is thick enough to feel on your skin, warm, close, mineral. Low clouds hang perpetually at the rim of the valley, the light filtered through them so that even at noon it is a kind of late-afternoon dim. Not darkness. A pearlescent, amber-tinged half-light that makes colors muted and shadows soft. Fires and kilns glow brighter for it.
+
+Nothing grows.
+
+That is the strange, quiet truth after the noise and the press of bodies. For all its humidity and warmth, there is no green. No trees, no grass, no fields. The basalt is too fresh, too glassy to hold soil, and whatever soil was carried in is immediately built over, packed down, inhabited. On the edges of the basin you find only a thin, slippery biofilm — dark algae and fungal mats, black-green and rust-colored, slicking the stones where water runs constantly. It is not vegetation, not really; it is the barest living stain, pre-plant, the kind of life that comes before leaves. The city has no gardens, no parks, no cultivated plots. All fiber comes from reeds cut from the marsh edge far outside, carried in on backs. All fuel is carried. The town feeds on itself and on what it imports, not on what grows here.
+
+And yet it teems.
+
+Fauna is everywhere, abundant to the point of saturation. Because the niche plants would have filled is filled with animals that have learned to live on stone and people. The air at dusk is black with them — bats that pour from the eaves in a single rippling sheet, swifts and swallows that nest by the thousands in the holes left in every mud-brick wall. The gutters boil with small fish and tadpoles and water beetles whenever it rains. The walls rustle with geckos and skinks. And the insects — the insects are the dominant vegetation. Clouds of midges hang over every seep. Armored cockroaches the size of a thumb scuttle in the thatch. Water striders skate the standing pools on the roofs. Cicadas, countless, cling to every timber scaffold and scream.
+
+You cannot hear yourself think here.
+
+The sound is deafening and it never stops. It is not a single noise but a pressure. The cicadas are the base note, a metallic, sawing roar so loud it seems to come from the rock itself. Over it, the bats and birds shriek and chatter. Beneath it, the human city adds its own primitive chorus: a thousand hand-hammers tapping stone, mortars grinding, children shouting, dogs barking, the endless slosh and drip of water moving through gutters, the crackle of kilns. Because the basin traps heat, it traps sound too. It reflects off the low cloud and the flat roofs and comes back. You have to shout to be heard by someone next to you, and even then your voice is half-lost.
+
+And none of it changes.
+
+This is the rule of this place, the thing you understand after a day or a lifetime. It is in equilibrium, frozen not in ice but in stasis. The rain comes at the same hour. The seep rises to the same level. The cicadas never die off, the bats never leave, the scaffolds are never finished and never collapse. Walls are patched with the same mud, blocks are cut to the same shape, fish spawn in the same gutters and are eaten in the same numbers. The fresh basalt does not weather further. The city does not grow larger. The dim light does not brighten or dim with seasons. It is warm, wet, loud, crowded, and raw, and it will be warm, wet, loud, crowded, and raw tomorrow and a hundred years from now, as if time here has been poured and set like the basalt itself — still sharp, still new, and already eternal.
+
+If you live here, you learn to move on the rooftops to avoid the seep. You learn to sleep through the roar by feeling it as a weight, not a sound. You learn to scrape the algal slick from your doorway every morning, knowing it will be back.

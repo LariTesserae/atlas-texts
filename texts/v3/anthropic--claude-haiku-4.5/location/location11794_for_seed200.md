@@ -1,0 +1,27 @@
+# The Quieted Wetland
+
+There is no wind here. That's the first thing—the absolute stillness of the air, dense as held breath. The atmosphere sits on your skin like a living thing, warm and wet, neither moving nor settling. When you breathe, you taste minerals and rot-fertility, the exhaled warmth of ten thousand small bodies.
+
+The water doesn't flow. It pools and seeps, saturated everywhere. The ground beneath your feet is not quite earth anymore—it's a transition state, a becoming. Soil here is still in negotiation with itself, soft as clay, threaded through with organic matter that hasn't yet decided whether it's soil or mulch or something new entirely. Your weight leaves impressions that slowly fill with water that rises from below, not from rain but from the ground's perpetual weeping. The wetness is chronic, elemental, as if this place is still in the first hours of creation, when the world was all water with bits of land emerging.
+
+Everything bleeds into everything else.
+
+The vegetation forms a ceiling, a wall, a floor simultaneously. There is no clear boundary between water and plant. Reeds emerge directly from shallow pools, their roots visible as dark threads just beneath the surface, pulling nutrients from water that barely qualifies as separate from soil. Vines don't climb—they rest, heavily, draped across half-submerged logs and tangles of growth that might be dead or alive; the distinction has ceased to matter. The leaves are enormous and veined like hands, glistening with perpetual condensation. The air itself tastes green.
+
+Heat presses down steadily, relentless, flat. There is no respite, no shadow deep enough to create real coolness. The sun filters through the dense canopy in scattered, dim beams that seem to illumine the moisture rather than penetrate it. It's always twilight here, or rather it's always that hour before dusk when humidity peaks and the world becomes an aquarium. The heat doesn't rage or blaze—it's patient, comprehensive, transforming all movement into slowness.
+
+But the *sounds* contradict the stillness.
+
+They are everywhere, layered, ceaseless: the percussion of insect calls, chirrs and buzzes that seem to come from inside your own head. Amphibians drone in overlapping registers—a bass thrumming that you feel in your sternum, higher croaks and whistles that form no rhythm but no silence either. Somewhere, water drips or moves, a sound that comes from no particular direction. Birds call—sharp, sudden, then absent—as if even sound gets lost in the density. There are wet sounds: the slight squelch of something moving through mud, the sip of water around a stem, the breathing quality of the marsh itself. It's not chaotic, exactly. It's saturated. It fills every gap, the sonic equivalent of the vegetation and the humidity.
+
+The life is overwhelming.
+
+You cannot see from one end of the wetland to the other. The scale extends beyond sight—a regional system of interconnected water, plants, and life that stretches across the low country in both directions. But it's not a distant landscape; it's intimate through sheer density. Every cubic meter of space holds multiple presences. Fish dart in the shallows, visible as shadows and displacement. Insects coat every stem and leaf. There are creatures you don't see but feel: the subtle disturbance in water, the sudden crack of something large moving in distant vegetation, the sense of being among thousands of observers. Amphibians crowd the waterline—frogs in shades of wet earth and deeper greens, their bodies so numerous they're nearly touching, pressing against each other in a living shoreline. The water itself seems to pulse with movement just beneath opacity.
+
+Nothing here is sharp or new. Everything is softened, rounded, in the process of dissolution and recombination. Rocks don't exist as discrete objects; they're half-buried, half-transformed into something between stone and sediment. Fallen logs have been here so long they're becoming peat, their wood grain collapsing into the undifferentiated mulch. The geology is just beginning to form—this is a landscape caught at the exact moment of world-making, where the boundary between water and land, stone and soil, is still being written. Sediment is organizing itself, layer by layer, so slowly you'd never notice change within a lifetime. The landscape has achieved an equilibrium so perfect it seems almost intentional, frozen at the precise moment before it tips toward something else.
+
+The air hangs. Nothing dries. Nothing clarifies.
+
+You move slowly here, not from choice but from physics. The density of air and moisture and life creates resistance. Thoughts move slowly too. The light is so dim and diffused that brightness seems like a memory. The heat doesn't energize—it soothes toward stasis. Time feels negotiable, or perhaps already negotiated, settled into a state that will persist until the parameters shift. But nothing suggests they will. This is not a place in transition between states; it's a place that has achieved its final form and will maintain it indefinitely—a closed system of water, heat, growth, and sound, perfectly balanced, going nowhere, changing nothing, eternal in its current configuration.
+
+It is not silent. It simply doesn't listen to itself.

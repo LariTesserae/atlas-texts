@@ -1,0 +1,15 @@
+The world does not sit upon soil; it sits upon the Grid. 
+
+Everything here is fabricated. There is no bedrock, no humus, no loam—only a multi-layered, interlocking lattice of oxidized carbon-steel and pressure-treated polymers. You are standing on a floor that has been eroding for an eternity. The structure is ancient, its geometry worn smooth by the relentless, invisible friction of eons. It is a "near-flattened" landscape of industrial architecture, where the concept of a natural valley has been replaced by the subtle, bowed depressions of subterranean machinery buckling under the weight of the endless, localized downpour.
+
+The moisture is thick, clinging to the air like a damp shroud. It does not rain in the traditional sense; rather, the ceiling—a miles-high expanse of soot-blackened support beams and vibrating conduit pipes—is in a state of weeping. Condensation drips from every junction, forming shallow, rhythmic puddles that spread across the grooved metal floors, mirroring the low-frequency light of the flickering, half-dead neon beacons.
+
+The sound is not an ambient noise; it is a physical weight. It is the deafening, industrial heartbeat of the place: the grinding of massive, unseen gears that have lost their lubrication but refuse to stop; the rhythmic *thrum-hiss* of steam relief valves purging into the dark; the metallic groan of the landscape shifting as the ancient foundations settle another millimeter deeper into the void. It is a cacophony of production without a product, a factory still churning because it has forgotten how to cease.
+
+There is no life here. There are no insects to break the surface of the puddles, no birds to navigate the steel rafters, no moss to stake a claim on the rusted joints. The ecology is purely mechanical. It is a biological vacuum.
+
+You move through the dim, cool air, navigating the wide, sparse stretches between the primary structural pillars. These pillars are colossal, textured with the calcified remains of centuries of water flow—mineral streaks of calcium and rust that look like fossilized weeping. The darkness is oppressive, a 0.5-scale gloom where light only exists as sharp, surgical glints off wet surfaces or the dying amber pulse of a short-circuiting transformer. 
+
+Space feels impossibly open, even as you are enclosed by the "built" totality of the facility. You can see for hundreds of yards beneath the rafters, watching the way the moisture pools in the depressions of the floor, creating shifting, flickering mirrors that reflect nothing but the dark iron belly of the world above.
+
+There is a sense of "end-state" here. The erosion isn't the chaotic breakdown of rock, but the stabilized, inevitable weathering of a machine that has become a geologic feature. The laws of this place are simple: everything is built, everything is wearing away, and everything is loud. It is a primordial foundry, ancient and cold, waiting for an operator who left the shift before the first drop of water fell.

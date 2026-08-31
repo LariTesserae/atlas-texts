@@ -1,0 +1,25 @@
+To stand in the basin of the Genesis-Yard is to experience a profound dislocation of the senses. 
+
+Your eyes register a maelstrom of catastrophic heavy industry. Before you, a mechanized drop-forge the size of a cathedral plunges downward, slamming high-carbon steel against unyielding rock. Vast chains violently whip across gear-tracks to haul away the crushed debris. A refinery stack suddenly ruptures, venting a colossal geyser of pressurized vapor into the air. 
+
+Yet, your ears perceive only the hushed, velvet intimacy of a snowfall. 
+
+The devastating impact of the forge registers as a soft, dull *whump*. The thrashing chains whisper like rustling bedsheets. The explosive vent is muffled into a long, gentle sigh. 
+
+The air in the basin is bitterly cold and saturated with a clinging, localized dampness. Plumes of your breath hang thick in the chill. Constant, heavy condensation beads on every exposed surface of pipe and stone, tracing slow, shivering lines downward. 
+
+Beneath this sprawling, hyper-dense metropolis, the earth is not a passive foundation. It is embryonic, violently alive, and in a state of rapid, Solaris-like gestation. The valley floor is continually fracturing, birthing massive thrusts of raw geology from the planetary mantle. There is no soil here, no weathered gravel or smooth riverbeds. The rock that punches up into the cold air is unblemished, glossy, and razor-sharp—monolithic extrusions of midnight silicate and pale, crystalline quartz, thrusting upward like jagged ice-heaves. 
+
+The city built upon this churning crust is an endless, suffocatingly packed expanse of mechanized infrastructure, extending outward for miles to fill the entire valley beneath a crisp, normal daylight. Because the ground is fiercely unstable, the metropolis exists in a manic, hyperactive state of perpetual reconfiguration. It is a chaotic architectural bazaar that never rests. 
+
+Suddenly, a sixty-foot spine of obsidian glass shatters upward through the floor of a sorting-yard. Before the new geologic spire has even stopped rising, the city attacks it with frantic, anthill energy. Hydraulic factory-platforms automatically unlock and slide away on heavy tracks to avoid being crushed. Mechanical crane-arms, operating with terrifying, jerky speed, swing in to strap the fresh stone with steel tension-bands. Automated lasers slice mounting-ledges into the razor-sharp rock, and within minutes, the spire is fully integrated—thick copper piping is routed through it, and a new centrifuge hangs suspended from its peak. Everything shifts, expands, and consumes. There is no empty space. If a void opens, steel, fresh stone, or flesh immediately fills it.
+
+The secret to the valley’s profound, eerie quiet lies in its lush, aggressive vegetation. Thriving in the frigid damp, a weird, hyper-vascular ecosystem of sound-eating flora blankets the chaotic industry. It has evolved to feed entirely on kinetic vibration and condensation. The louder a machine tries to be, the faster and thicker the vegetation grows around it. 
+
+Massive, fleshy ferns with fronds like heavy acoustic foam curl fiercely around the groaning pillars of sliding rail bridges. Deep-cyan and violet mosses—impossibly thick and plush—carpet the factory floors, swallowing the footfalls of a million moving parts. Distillation vats, high-tension lines, and chugging engines are deeply entombed in blooming, succulent velvet, leaving only their internal moving components exposed. The plants are so saturated with moisture that they bleed continuous, silent droplets into the frigid mist.
+
+Abundant life moves quickly through this hushed, shifting labyrinth, perfectly adapted to the cold genesis. Huge, pale, moth-like beasts, the size of draft horses, flutter between the layered distillation towers. Their bodies are covered in thick, insulating down, and their wings beat heavily without a sound as they haul sledges of refined ore through the air. 
+
+Along the catwalks and freshly cleaved stone faces, the workers of the city scatter like quicksilver. They are vaguely arachnid, clad in heavy, insulated ceramic shells, moving rapidly on numerous padded limbs. They communicate not with sound, but through rippling bioluminescence—flashes of stark white and warning-amber that strobe through the damp mists. They weave high-tension wire, weld fractured pipes, and harvest the newly birthed minerals with frantic, clicking mandibles, all entirely swallowed by the absolute hush of the flora.
+
+Under the cold, even light of a pale sky, the valley is a saturated tapestry of glossy black stone, grey steel, and lush, blue-green life. It is a landscape of violent planetary birth and frenzied mechanization, locked together in a perpetual, high-speed arms race. New earth arrives, sharp and sudden; the industry scrambles to colonize it; the dense flora rushes to silence it. You stand shivering in the damp, watching a world tear itself apart and rebuild itself ten times a minute, enveloped in the beautiful, terrifying quiet of a padded room.

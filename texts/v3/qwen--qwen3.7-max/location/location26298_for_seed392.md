@@ -1,0 +1,25 @@
+The ground is an argument against nature, won by a million patient hands. 
+
+You stand in a vast, low-lying basin, a shallow depression that stretches for miles in every direction. There is no dirt here, no bedrock, no natural substrate of any kind. The entire regional expanse is paved in interlocking, hand-chiseled tiles of pale, porous stone. The scale is open and sweeping, yet the density of features is sparse; enormous plazas of empty, blindingly bright tiling separate widely scattered clusters of structures and flora. 
+
+Because the environment is locked in a state of absolute, frozen equilibrium, the masonry is impossibly young. The edges of the stone tiles are razor-sharp, bearing the crisp, unweathered peck-marks of stone hammers and bone chisels. There is no mortar. Every joint is a masterwork of primitive, pre-metal dry-stacking, fitted together with such severe precision that a blade of grass could not slip between them. The tool marks are as fresh as the second they were struck, preserved in a stasis that forbids decay, erosion, or the softening touch of time.
+
+The light is absolute. A shadowless, blinding glare beats down from a sky that seems less like an atmosphere and more like a solid dome of white luminescence. Despite the oppressive, sweltering heat—a thick, physical weight that presses against the skin—nothing casts a shadow. The bright light simply wraps around the sparse, towering obelisks of dry-stacked stone and the wide, shallow basins carved into the floor. 
+
+Water is everywhere, yet it behaves entirely wrong. 
+
+The air is heavily saturated, holding the thick, suffocating humidity of a post-rain marsh, but the moisture never condenses into droplets that fall. Instead, the water manifests in the shallow, geometric depressions of the paved floor. It pools in perfect, convex mounds, rising above the lip of the carved stone basins in shimmering, surface-tension-defying lenses. The porous stone "weeps," beading with moisture that clings to the sharp, unweathered edges but never drips. When you touch the water, it feels wet, it registers as cold against the sweltering heat, but it does not make your skin wet. It is a Platonic ideal of water, locked in a permanent, un-evaporating state.
+
+Rising from this pale, wet expanse are isolated, lush explosions of vegetation. Because the ground is entirely built, the plants do not grow in soil; they are rooted in massive, hand-woven baskets of petrified reed and colossal, hollowed-out stone urns integrated seamlessly into the tiling. The flora is vibrantly, violently green. Broad, waxy leaves and thick, dripping vines spill over the edges of their primitive planters. The vegetation is thick and thriving, yet it is entirely still. No leaf trembles. No vine curls. The hot, wet air is utterly devoid of wind.
+
+The stillness is mirrored by the abundant fauna. The landscape is teeming with life. Brightly plumed birds perch on the sharp-edged stone obelisks; iridescent insects hover over the convex mounds of water; heavy, scaled reptiles rest in the sparse shade of the giant ferns. But the world is profoundly, oppressively quiet. 
+
+A bird throws its head back and opens its beak in a complex, trilling song, but the air remains utterly silent. A heavy beetle drops from a woven trellis into a pool of water, and there is no splash, no ripple, no sound of impact. The abundance of life is entirely divorced from acoustics. The silence is not merely an absence of noise; it is an active, heavy presence, a thick blanket that muffles even the sound of your own breathing. 
+
+As you walk across the sharp, unweathered tiles, the reality of the place begins to fracture. The weirdness of the landscape seeps into your perception. The primitive technology used to build this colossal space—simple levers, stone adzes, woven ropes—seems fundamentally inadequate to the task, suggesting that the tools were not used to shape the stone, but to shape the physics of the space itself. 
+
+You notice that the distance between the sparse, towering stone monuments does not decrease as you walk toward them. The geometry of the basin is subtly non-Euclidean; the open scale stretches infinitely, yet you can see the curving, polished edge of the basin's perimeter just a few miles away. The heat does not make you sweat. The bright light does not make you squint. 
+
+You stop and watch a single, heavy drop of condensation form on the tip of a lush, green leaf. It swells, catching the blinding, shadowless light, growing heavier and heavier until it detaches. But it does not fall. It hangs in the air, exactly one inch below the leaf, suspended in the frozen equilibrium of the world. 
+
+This is a landscape that has been finished. Built entirely by hand, saturated with water, baked in heat, and filled with life, it has reached its final, perfect state. The builders laid down their stone hammers and bone chisels, and the world simply stopped. It is a sweltering, silent, blindingly bright terrarium of reality, waiting for a tomorrow that the rules of this place will never allow to arrive.

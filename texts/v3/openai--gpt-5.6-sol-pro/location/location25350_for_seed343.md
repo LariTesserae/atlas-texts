@@ -1,0 +1,55 @@
+The land stands very high, though almost none of it resembles a mountain.
+
+It is the worn remainder of mountains: an immense elevated country pared down by such long erosion that cliffs have lost their sharpness and summits have become broad, low undulations beneath the sky. The whole region is carried on pale stone thousands of meters above the distant plains. Seen from below, it appears as a nearly continuous wall, green at the rim and honey-gray beneath. Seen from above, it is an open expanse of vegetation interrupted by chasms so old and wide that they seem less like wounds in the land than spaces the land has always agreed to leave empty.
+
+The stone is deeply aged. Water and wind have passed over it beyond counting. Loose surfaces are rare; whatever could crumble has already crumbled. The remaining rock has been reduced to rounded ribs, shallow basins, fluted columns, and long, bare inclines with the smoothness of handled bone. Ravines descend through the plateau in enormous steps. Some end in open air, their rivers having vanished ages ago. Others narrow into shafts whose lower reaches never receive direct sun.
+
+Yet there is almost no exposed ground on the heights. Vegetation has taken over the function of soil, road, shelter, and architecture.
+
+A close-grown mat of interlocking plants covers the plateau, commonly three or four meters thick. Its upper surface resembles heathland from a distance, but underfoot it is a layered living structure. Tough, warm leaves form the outer skin. Beneath them lie woven runners, storage bulbs, pale breathing chambers, and old rootwood hardened into lattices. The mat bridges cracks and creeps over ledges. It can span gaps wide enough for a person to fall through, though the youngest portions sag and tremble under weight. In some places one walks not on earth but on centuries of living stems stretched above empty air.
+
+Trees are present, but they do not stand close together. Each is a territory.
+
+They rise at long intervals across the green—huge, low-crowned organisms with trunks broadened by wind into buttressed platforms. Their roots travel hundreds of meters through the vegetative mat, surfacing as ridges that can be followed like roads. A single tree may support gardens of ferns, fruiting vines, pitcher leaves, nest mosses, and smaller trees that never touch stone. Its limbs reach outward rather than upward, held close to the plateau against the perpetual high-altitude wind. From afar, these trees look like dark green islands scattered over a paler green sea.
+
+This gives the country its peculiar emptiness. Plant life fills nearly every available surface, but distinct objects are far apart. There are no dense woods, no thickets in the familiar sense, no clutter of trunks. Between the great trees lie kilometers of low living carpet, open to the sky. Between one mesa and the next lie still greater intervals of air. A traveler can see far and yet see almost nothing that might serve as a destination.
+
+The climate is warm despite the elevation. Days carry a mild, sun-soaked heat, moderated by wind. The stone beneath the plants stores warmth and releases it after sunset, so nights rarely become bitter. Moisture comes inconsistently. Rain arrives in short, muscular bursts, often from clouds that form against the plateau’s windward escarpment. The showers may last only minutes. Water drums on the leaves, floods the shallow basins, and pours over the rims in hundreds of temporary silver falls. An hour later the sky is clear and the falls have weakened to chains of droplets.
+
+The vegetation is made for this rhythm. Upper leaves funnel rain into cavities in the mat. Thick roots hold it in translucent bladders. Great trees collect cloud condensation along comb-like twigs and send it down grooved bark. Thus the country remains damp without being lush with streams. Water is everywhere in pockets and nowhere in abundance: held in leaf cups, sealed in root cisterns, trembling in shaded stone bowls, or descending one drop at a time inside the chasms.
+
+Permanent pools occur in the deepest hollows. They are dark, warm, and crowded with life. Their surfaces are rarely still.
+
+Animals dominate the senses long before they are seen.
+
+At dawn, the plateau begins to sound from below. The chasms act as resonating chambers, gathering calls from nests on the cliff faces and sending them upward in magnified waves. Millions of cliff-birds leave their roosts at once. Their wings make a continuous rushing sound like a river in flood, though the sky may remain blue and dry. Broad columns of them spiral up from the gorges until they spread across the plateau, hunting the insect swarms that lift from the plant mat with the sun.
+
+The insects are beyond counting. They occupy layers of air as vegetation occupies layers of ground. Tiny silver midges hover over condensation hollows. Heavy pollinators, furred and thumb-sized, move between the distant trees with a slow mechanical drone. Cicada-like creatures live deep inside the root lattice, where the whole mat amplifies their calls. When one colony answers another, kilometers of ground begin to vibrate. The vibration can be felt through bare feet before it becomes audible.
+
+At midday, the noise is immense. Wings hiss. Breeding calls pulse out of water pockets. Nut-cracking animals hammer on hollow limbs. Flocks quarrel over fruit. Something unseen is always scraping, drumming, chattering, or shrilling. The open country offers no wall or dense foliage to soften these sounds. They travel across the plateau and return from distant cliffs. Conversation is conducted close to the ear or by hand signals.
+
+Large animals are less numerous than the insects and birds, but they are everywhere in evidence. Long-legged browsers cross the living carpet in loose herds, spreading their weight on four splayed toes so they do not break through young growth. Their bodies are lean and their rib cages deep, adapted to the high air. They crop only the fresh upper leaves, leaving the structural runners intact. Smaller animals follow in their paths to feed on torn stems and exposed larvae.
+
+Predators hunt along the margins between vegetation and void. Some are swift, ground-running creatures that drive prey toward weak sections of mat. Others glide from tree to tree on membranes stretched between forelimb and flank. The largest nest on isolated stone pinnacles and ascend only when heated air begins to rise from the cliffs. Their shadows can cross the ground several seconds before the animals themselves come into view.
+
+Nothing dead remains visible for long. Carrion draws clouds of scavengers. Fallen wood becomes substrate for new growth. Dung is dismantled by beetles before it cools. Even bone is carried away, gnawed for minerals, or enclosed by roots. The ecosystem’s abundance does not accumulate into clutter; it is continually consumed, translated, and woven back into the thin green world.
+
+Fire is nearly absent. The plants are too damp within, even after weeks without rain. Lightning may blacken the upper leaves, but the burn seldom penetrates the living mat. Its main danger is structural. A strike can kill a broad patch at once, and months later, when the supporting runners rot, the entire section drops into the chasm beneath. Such collapses happen without warning. A meadow may buckle, fold, and disappear, taking animals and paths with it. The void is then slowly crossed again by exploratory vines.
+
+The few human structures stand on exposed stone rather than vegetation. They are modest and widely scattered: low huts of fitted slabs, wind screens woven from dead root fiber, platforms built around the bases of the great trees. Metal is uncommon. Most tools are chipped from the plateau’s glassy nodules, carved from bone, or made of cured rootwood. Needles, hooks, and narrow blades may be hammered from soft copper gathered where green seams emerge in the cliff.
+
+No large settlement can remain in one place. The plant mat changes its load-bearing paths, water pockets fail, and nesting colonies make some districts uninhabitable for seasons at a time. People move among a chain of small shelters, each perhaps several days from the next. Their routes follow the oldest root ridges, marked by stones tied into the vegetation with bright cords. A path is not considered permanent until it has survived three mat-falls.
+
+Buildings are kept low because of the wind and roofed with overlapping leaves that close their pores when cut. Doorways face away from the morning migration, when the pressure of passing wings can scatter loose belongings. Near each shelter stands a forked sounding post. Travelers strike it and listen to how the vibration returns through the ground. A clear, low answer means the mat beneath is thick and well anchored. A hollow flutter warns of a hidden cavity.
+
+The inhabitants gather rather than farm. Farming would be difficult in a country where the ground itself is already a complete organism. They tap water from swollen roots, cut fruit from the solitary trees, collect eggs from accessible cliff shelves, and trap migrating insects in enormous gauze funnels. They prune certain runners to encourage safe bridges but never sever all the strands of a plant at once. To do so is both dangerous and taboo: the mat is not thought of as many plants but as one old, dispersed body, sleeping lightly across the stone.
+
+Travel near the rim follows different rules. One does not approach an edge during the midday updrafts, when gliding predators and vast streams of birds rise from below. One does not trust a patch of unusually bright flowers, because flowering often precedes the shedding of an old section of mat. One does not drink from a silent pool. Healthy pools click, chirp, bubble, and hum; silence means something has entered that all smaller life is avoiding.
+
+Toward evening, condensation gathers before the air visibly cools. It beads on the underside of leaves and along the fur of animals. The plateau begins to shine in small points. For a brief time the noise diminishes—not into quiet, but into separate, intelligible layers. Day insects sink into the mat. Night singers begin in the stone basins. Herds move toward the great trees, whose roots give off stored warmth. Birds return in black spirals, funneling downward into the chasms.
+
+Then the cliff colonies receive them, and the entire high country roars.
+
+The sound rises out of the ancient emptiness as if the eroded mountain itself were full of lungs. It moves across the open green, shakes droplets from the leaves, and travels beyond the last visible mesa. Far away, temporary waterfalls flash in the late light. Between them hang immense reaches of warm air, nearly empty except for wings.
+
+The land seems at once finished and ceaselessly occupied: stone worn into its final forms, vegetation covering all that remains, and animal life spending itself in such abundance and noise that the plateau never has to move to feel alive.

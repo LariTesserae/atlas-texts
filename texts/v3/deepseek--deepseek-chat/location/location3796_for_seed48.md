@@ -1,0 +1,13 @@
+**The Drowned Furnace**  
+
+A city of blackened iron and salt-crusted stone rises from the marsh, its foundations sunk deep into the mire. The air is thick with steam, the heat oppressive, clinging to the skin like a second layer. The sky is a bruised gray, not from clouds but from the constant haze of evaporating water, the light diffused into a dull, metallic sheen. The streets are canals more than roads—shallow, sluggish water seeping up through the cracks in the pavement, reflecting the dim glow of smoldering foundry stacks in the distance.  
+
+No plants grow here. The ground is too sodden with brine and industrial runoff, the soil long since poisoned or paved over. What little isn’t submerged is coated in a fine layer of ash, stirred into slurry by the passage of countless feet. The buildings themselves seem half-dissolved, their edges softened by corrosion, their surfaces etched with the marks of decades of damp and heat. Rust weeps from every rivet, staining the walls in long, bleeding streaks.  
+
+And yet, the city teems with life—not plants, not greenery, but creatures adapted to this drowned, metallic world. Schools of finger-length eels writhe in the flooded gutters, their scales iridescent with oil-slick colors. Armored crabs the size of dogs scuttle along the submerged walkways, their claws strong enough to crack open the valves of ancient, half-buried pipes. Above, flocks of leather-winged things circle the chimneys, their bodies lean and angular, their beaks needle-sharp, adapted for picking scraps from the machinery.  
+
+The sound is a low, constant hum—the groan of engines buried deep in the waterlogged earth, the hiss of steam escaping corroded vents, the occasional distant clang of metal on metal. Voices are rare, and when they come, they’re muffled, absorbed by the wet air. The people here move like shadows, wrapped in waxed cloth and rubber, their faces obscured by goggles and scarves. They know better than to linger in the open. The water is always rising. The heat is always pressing in. The creatures are always watching.  
+
+This is a place of industry without growth, of motion without progress. The machines still turn, but they turn slower now, fighting against the weight of the water. The city was never meant to last this long. It was built for dry land, for solid ground, but the earth beneath it softened, gave way, let the sea creep in. Now it stands—half-drowned, half-melted—a monument to persistence in the face of entropy.  
+
+And still, the furnaces burn.

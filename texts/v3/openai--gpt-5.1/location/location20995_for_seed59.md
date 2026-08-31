@@ -1,0 +1,83 @@
+The air is cool and wet enough that your skin never quite dries. Every breath tastes faintly of leaf and clean rot, like a forest floor lifted toward your face.
+
+You stand on a height, but not on rock. The “high ground” here is a living mass: a ridge of braided roots and buttressed trunks, a long vertebra of forest that has grown itself into a plateau. Beneath it, unseen but steadily audible, water moves—deep channels inside the root-body, rain and mist drawn in, filtered, redirected. The whole place feels less like a hill and more like a patient, sprawling organism that decided, long ago, to be a mountain.
+
+Everything is plant.
+
+The ground is a mat of tissues: spongey mosses, low “carpets” of leaf that yield underfoot like thick felt, rhizome-knots that form steps and ramps. No bare soil shows; when you push a toe into the surface, pale, hairlike rootlets cling to your boot. Here and there, structures rise—towers, walls, covered walkways—but they are not built from stone or timber in the usual sense. They are trained.
+
+A lattice of giant, pale vines has been bent and braided over generations into arches and ribs, fusing where they cross into continuous, load-bearing growth. Where another culture might have masonry, this place has grafts: branch into branch until they become column; column into column until they become vault. Leaves cluster as shingles; broad, waxy fronds overlap to form eaves. The “streets” are narrow, weaving corridors between living walls, shaded by overhanging foliage and hung with loops of aerial roots like bead curtains.
+
+Water is everywhere, but rarely in open pools. It sweats from smooth bark in slow, patient weeping, gathers along the undersides of leaves in trembling rows of droplets, sinuously threads through channels in the root-plateau. In some places, the channel mouths open—a slit between roots, a hollow where a trunk spirals inward—and from these emerge constant, low cataracts: thin fans of water spilling into basins woven from living roots. Mist flares up from these falls and curls like breath through the lower levels, so that ankles and shins are always passing through a cold, luminous gauze.
+
+It has rained recently, and may rain again at any moment; the clouds overhead move fast. They are not thick enough to darken the place, but dense enough to keep the light diffuse, soft-edged. The canopy, high above, is broken into layered sheets and domes instead of one continuous plane. It allows light to fall in pale shafts that pick out seed-fluff in the air and the glints of insect wings. In some courtyards, a gap in the foliage makes a rough circle of sky; over the course of the day these bright discs slide slowly across the layered architecture, bringing warmth in patches rather than evenly.
+
+Despite the wetness and the altitude, the temperature stays cool, pleasantly so—enough that breath shows in faint ghosts when you exhale hard, but not enough to sting fingers. The wet surfaces moderate the chill, as if the whole place were an enormous evaporative lung.
+
+Erosion here is not the gnaw of water on stone, but the slow sag and subsidence of living bulk. Old buttresses hollow out and become tunnels. Fallen vines rot down into dark, crackling mats that sink when stepped on, revealing under-layers of younger growth. You can see this history in the cross-sections: along some vertical walls, layers of old bark, sealed knotholes, and embedded leaf-stems stripe downward like sedimentary rock. There are places where long-dead, darkened wood—drier, almost brittle—is sandwiched between new growth, creating natural ledges and balconies that ring central courtyards. This is an old place, not in the sense of ruins, but like an established reef: accreted, adjusted, in balance with its own slow collapses and re-formations.
+
+The settlement is not large—perhaps the scale of a compact town—but it is dense. Nearly every surface above knee height is occupied or used. The “streets” rarely run straight for more than a dozen steps before turning around some massive bole or plunging beneath a low arch. Verticality replaces breadth. Platforms and walkways hang between trunks at several levels; suspended paths are grown from thick fusions of branch and root, braided outward from the trees that anchor them like spokes from a hub.
+
+Some of the trees are no longer trees in any simple sense. Their original trunks have been multiplied into buttresses and galleries, their crowns divided and reattached at different heights. One might have a ring of balconies grown from it like shelves around its midsection, each with its own outer rail woven from young shoots. Another has hollowed its center into a great interior shaft, where a dim green light falls from a roof-hole ten meters above, and a spiral of stepped protrusions winds around the inside: a staircase grown instead of carved.
+
+Here and there, woven into this green density, are pockets and voids—rooms, courts, niches. Some are barely the size of a hut, just enough for two or three people to crouch; others open into long, narrow halls under arcing trunks, like the nave of a sylvan cathedral. By some subtle consensus, the place knows its boundaries: at the edges of the plateau, root-architecture gives way to open, steep drop-offs—mist-veiled chasms where you can see, through gaps in the canopy below, the hint of more forest descending in terraces of leaf. The settlement clings to the crest and upper slopes of this living ridge, a band of intensified growth among an already riotous world.
+
+There is human craft here, but it is simple and close to the hand. Tools glint: stone blades with polished edges, bone awls, copper or dull bronze knives whose patina matches the green around them. Rope is everywhere, but never loose fiber; it is living or freshly cut vine, trained to loop and knot, then left to thicken and set. Nets woven from flexible branches catch falling fruits between platforms. Ladders are not built but coaxed: sets of side-by-side climber plants whose rungs are the cross-shoots allowed to survive while others are pruned away.
+
+Infrastructure is a pattern of agreements between people and plants. Water flows along channels notched into the outer layers of roots; these channels were started by human hands, then reinforced by the plant’s own growth thickening around them into permanent gutters. Sometimes they run openly along walls, making the whole settlement speak in trickles and splashes; sometimes the water vanishes into darkness, taken up by some inner tissue and carried elsewhere. You can see it re-emerge as a steady seep in a communal basin, or in the constantly damp floors of certain workshop-niches where fiber is softened and cleaned.
+
+Everywhere, there are baskets—woven from thin, still-living twigs that have been coaxed into loops and meshes before they lignify. Over years, some baskets grow into the wall itself, their contents permanently held. Others remain removable, the severed stem at their handle regrowing from a scar on the parent plant.
+
+The loudness of the place is a layering, not a single roar. At any given moment:
+
+– A chorus of insect sounds, not only the high whine of wings but the dry rattle of leg-plates and the crackle of beetle armor against bark.
+
+– The calls of arboreal mammals, most of them unfamiliar—the throaty bark of something leaping between distant branches, the rising whoop of a troop communicating across platforms, the chitter of small, many-limbed things that seem half-monkey, half-squirrel.
+
+– Birdsong in dense competition. There are little fluting phrases, abrupt metallic clacks, rolling trills that bounce between trunks like thrown stones. Some birds seem to specialize in mimicking—snatches of human whistle-work, the creak of woven wood, even the thud of fruit hitting a platform.
+
+– Water, constantly. The hiss of thin falls. The liquid chuckle where it drops onto leaves. The deeper, muffled rumble from somewhere below, where the main channels barrel through the interior of the ridge.
+
+– The animal noise of the settlement itself: conversation, work, laughter, the percussive rhythm of a hand-tool striking wood, the slap of wet fiber on a smooth root-floor, the rustle of woven curtains being pushed aside.
+
+Where the density is highest, all of these sounds compress into a continuous presence that fills the gaps between thoughts: not unpleasant, but insistent, like standing at the edge of a very busy river.
+
+Fauna abound at every scale. On the level of inches, small things own the surfaces: bright beetles with mirror backs, line-trains of ants carrying azure petals, translucent, shrimp-like arthropods that live in the water-channels and flick themselves upstream against the current. Leaf-edges vibrate with caterpillars and other larvae whose colors mimic fungus, moss, or the mottling of bark. Tiny frogs—no larger than a fingernail—cling to drip-lines, their skin the same deep green as the leaves they hide upon, punctuated with small, luminescent specks that flash when they call.
+
+At hand-scale, there are climbing mammals whose fingers have fused with soft pads, making them soundless as they move along underside limbs. Some wear natural “masks” of fur; others have naked, pink, grippy tails they use like extra hands, plucking insects from the air. There are birds with leaf-shaped tails that turn broadside when they brake, flaring like banners. Some have evolved translucent windows in their wings, so that when they beat past, they flicker with sky-color in the green gloom.
+
+Bigger shadows move along the higher platforms: herbivores with long, reaching mouths that can strip leaves faster than any human hand. Their spines bristle with hair that looks like secondary foliage, and they have grown symbiotic moss on their backs. Predators follow, but their dominance is limited by the architecture: it is hard to sprint or pounce in such a tangled, three-dimensional maze. Instead, they loom quietly, long-limbed and patient, taking advantage of missteps near edges.
+
+The ecology here has settled into a fierce, busy balance. Nothing stands unused. Fruit that falls is scavenged almost instantly—by birds, by animals, by humans. Dead matter rarely lies still long: fungal blooms rise from it overnight, white or ochre “flowers” of spore-flesh that are grazed down by dedicated feeders before they can erupt into clouds. When they do release spores, you see it as a slow, dignified exhalation from cracks in the bark or tears in the fungal skin, a faint golden dust that drifts and catches in the downdrafts under eaves.
+
+Though the technology is simple, the organization is intricate. Ropes strung at waist height along certain routes signal main arteries of movement; everywhere else is more improvised. Suspended bridges—from plaited vines stretched taught over years—connect important platforms. Underfoot, small notches and grooves are cut into the living wood to give grip; in some steep places, humans have carved crude, shallow steps into buttress-roots, their edges worn smooth by countless bare feet.
+
+There are no metal rails or motors, but there is infrastructure in the management of living things. Certain vines are always kept at a specific length, tendrils pinched when they threaten to choke a walking space. Certain fruiting bodies are carefully pruned so that they ripen in sequence, not all at once. These acts of tending are continuous; the line between “wild” and “built” is less a border and more a negotiated blur.
+
+The dynamic energy is tangible. Nothing holds still for long. A quiet corridor can become, in minutes, an arterial throng as a group moves through, carrying woven trays of berries or long, dripping coils of fiber just pulled from a soak-basin. Animals adapt to these pulses: small climbers scuttle upward when humans flood an area, then flow back down into vacated niches when the wave has passed.
+
+The weather adds another layer of turbulence. The altitude means the settlement sits in the path of quick, low clouds. You can watch them strike the ridge: one moment the air is clear, the next a white wall folds in, smudging the distances and beading on every surface. In these moments, sound is muffled but not diminished—it feels closer, as if every chirp and call is happening right behind your ear. Then, with almost no warning, a wind gust will shear the mist away, sending it racing downhill in curls, and the world snaps back to longer sightlines and silver light.
+
+Rainstorms come fast and hard. You hear them first, as a spreading hiss on the higher leaves. The canopy intercepts the worst of the impacts; by the time the water reaches the levels where people move, it is already organized into streams and curtains. The settlement is built—grown—to accept that. Overhangs divert cascading sheets away from living spaces. Window-like openings are placed just under the lips of natural gutters, where spray cools but does not flood. When the downpour peaks, the whole place becomes a chamber for water-sound: everywhere, drumming, rushing, impact, the staccato bursts of drops hitting hollow spaces, the sustained roar where all those threads converge into the main channels. Underfoot, you feel faint tremors as the interior conduits fill, flex, and swell.
+
+In these wet surges, creatures behave differently. Ground-level mammals retreat upward, clinging to the undersides of larger branches. Arboreal birds slip into the lee of big trunks, where eddies keep them dry enough to preen. Humans work continues, but shifts: more inside the deep hollows, around fires built in carefully vented pockets where the rising smoke is drawn into special chimneys—hollow, vertical growths that act like flues, wicking vapor up and out through porous bark high above.
+
+When the rain slackens, a different moment begins. The air fills with new smells—crushed green, fresh earth-analog, the sharp tang of certain fruit skins split open by impact. Steam rises from the darker, denser areas, and the white noise of water gives way to a brief lull. It never becomes silent; life here doesn’t grant that. But there is a recognizable dip in the intensity, a hand’s breadth of quiet—like inhalation before another sentence—before the calls and clicks and wingbeats swell again.
+
+Rules of the place present themselves gradually:
+
+– Nothing is truly static. Any flat, empty surface left alone will sprout, creep, or be colonized.
+
+– Water is not an enemy to be kept out, but a partner. Structures are made to accept saturation, to redirect, to drink, not to resist.
+
+– Height is safety as much as risk. The denser, more used places are raised, but never so high that a fall would be inevitably fatal; terraces are layered, catchments for bodies as much as for water.
+
+– Tools adjust to the hand and to the plant. They are made to cut without killing when possible—slitting bark, not severing trunks; scraping growth back without erasing it.
+
+– Sound is how presence is known. Visual distance is often short here, curtailed by green and mist; calls and rhythms carry information about work, movement, danger.
+
+– Civilization is measured not in the hardness of its materials but in the fineness of its relationships: what grows where, how pathways preserve both human passage and animal migration, which plants are allowed to fruit, which are perpetually kept young, in the constant state of supple usefulness.
+
+By late day, the light changes character but not intensity—still diffuse, but tinged with a warmer note as the sun angles through thicker air. The living walls respond: some leaves fold slightly, shifting the quality of shadow; some flowers, previously neutral, deepen in color or close entirely. No lamps flare; light here remains the uncomplicated cast of sky. Darkness doesn’t fall as a single event so much as seep upward from the lowest layers, climbing root-by-root until, at last, only the higher platforms and canopy edges remain limned, and below becomes a nest of sound with only occasional glimmers: bioluminescent insects tracing loops, half-seen eyeshine in a passing branch, distant glimpses of the red coals of small, well-concealed hearths in deeper hollows.
+
+Even then, the place is not at rest. Night simply rearranges the chorus, summons a fresh set of voices and movements. The constant is this: a dense, living architecture, cool and dripping, holding its small, busy settlement like an organ in a ribcage of wood and leaf, old enough to be sure of itself, active enough that no moment here will ever feel exactly like the last.

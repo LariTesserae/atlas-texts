@@ -1,0 +1,37 @@
+It is high. So high you should be cold, but you are not.
+
+The plateau is the highest thing left. Not a peak — peaks were ground down a long time ago. This is what is left after mountains get tired. A continent-sized blister of basalt and ironstone, worn until its edges are soft as old soap, its top planed down to a tolerance of a few meters over kilometers. On old maps it would have been white. Here, it is the color of unglazed pottery and dried blood. There are no sharp lines anywhere. Every boulder is an egg, half-buried. Every scarp is a long, tired dune of stone.
+
+The air is thin and warm. Not hot. Warm the way a machine that has been running all night is warm, or the inside of a lung. 34C, 37C, something like that, with no sun to explain it. The warmth comes up from below, through the rock. If you place your palm flat on the ground, you feel it after a minute — not heat, but a refusal to cool. The wind, when it moves at all, is the same temperature as your skin, so you only know it by the dust it carries.
+
+There is no water here. Has not been for geological ages. The air has a humidity you could round down to zero. Your lips crack in an hour. The stone itself is thirsty. In the low places between the round hills, where on any other world a lake would be, there is only salt — not white salt, but a black-red salt, nitrates and perchlorates laid down in hexagonal plates as wide as manhole covers, that chime faintly when the pressure changes. You can walk across them and they do not break.
+
+And the dark. This is not night. Night implies a day that was taken away. This is an older, deeper dark, the dark you get at altitude when the stars are too far and too thin to matter. The sky is not black. It is a very dark brown, like oil, like the inside of a sealed box. There is no moon. There are a few stars you can see straight through the thin air, but they give no light. They do not twinkle.
+
+Against that, the City.
+
+It covers the middle of the plateau for as far as you can follow with your eyes — maybe fifteen, twenty kilometers across. Not dense. That's the first strange thing about it. It is urban the way a circuit board is urban: organized, intentional, with streets and blocks and districts, but most of it is empty space. Broad avenues a hundred meters wide with nothing on either side for half a kilometer. A factory standing alone. Then nothing. Then a row of worker tenements, five stories, brick, all windows dark, then nothing again for a long while. A power station. A tram depot. A water tower that has never held water. It is all there, all connected by rails that still shine faintly and by power lines that still hum, but spaced out as if land were infinite and no one wanted to be neighbor to anyone else. Sparse. Shy.
+
+It is all industrial in style and in date. Everything is rivets and cast iron and refractory brick and sheet steel. Smokestacks — hundreds of them — but none smoke. Gantries. Chain-driven elevators. Dynamo halls the size of cathedrals, full of machines the size of houses, all turning slowly. You expect dereliction. Rust. You expect a dead city. It is not dead.
+
+It is in equilibrium.
+
+Nothing is rusting. The iron is dark and oiled looking. Nothing is collapsing. The brick has not spalled, even though it should have in this air. The great flywheels in the halls turn at exactly one revolution every nine seconds. They have been turning at that speed since before anyone can remember, and they will continue. The motors are warm. The bearings do not squeal. In the factories, assembly lines move — slowly, endlessly — carrying the same blanks from station to station where press-heads stamp them, where arms weld them, where they are lifted and stacked and then, by another line, carried back to the beginning and unmade. Production without product. Work to keep the warm going.
+
+There is no one inside most of the buildings. Sometimes you find traces — a coat hung over a chair that has never gathered dust because there is no dust here that is not salt and salt does not settle. A lunchbox with nothing organic left in it, just a perfect cube of clear minerals.
+
+The sound is the City's own breathing. It is mostly quiet. If you stand in one of the great gaps between districts, you can hear your own blood. If you listen for a minute, you hear the City under that: the deep 60-cycle thrum of the dynamos, conducted through the rock into your feet. The tick of cooling metal that never actually cools. The faint, high whine of wires in wind that isn't moving.
+
+Light is forbidden here by physics, not by law. Any bulb, any arc, any fire, burns dim. The city has thousands of streetlamps, industrial floods, sodium lamps over yard gates — they are all on. They glow like dying coals. A filament at full power gives out the light of a single match behind frosted glass. It makes little halos in the warm, thin air, extending maybe a meter. You can get around by them if you go slowly, from pool to pool. It is warmer directly under them.
+
+Fauna. Rare. Not because they died. Because they never evolved to live here and almost nothing has found a way. But a few things have.
+
+There are the cranewalkers — tall, stilt-legged things with joints like a drafting compass, made of the same ash-colored stuff as the salt plates. They are not animals, but they move like them, grazing on the temperature differential between ground and air, stepping from factory roof to factory roof, never touching the avenues. You might see one in a whole day, far off, against the dark sky, moving so slowly you think it's a piece of construction scaffolding until it's gone.
+
+In the machine halls, there are things that live in the oil. Not in it — of it. Small, black, flat ribbons that cling to the sides of gearboxes and bask in the magnetic field. When a flywheel passes you can see them lift a little and flutter, then settle again.
+
+The strangeness is not in the creatures. The strangeness is this: the city is a heat engine with no source and no sink. It warms the whole plateau, but nothing is consumed. The coal yards are full of coal that has never shrunk. The oil in the sumps never lowers. Work is being done everywhere and no where simultaneously. Time passes here, you can feel your watch tick, but nothing accumulates. You cannot make a scratch in the ironstone with a hammer — it rings, and the mark is gone by the time you look again. You cannot get lost, because the avenues, no matter how you turn, tend to bring you back to higher ground.
+
+People who stay long enough understand the rule without being told: this place has already eroded as far as it can. It has reached the bottom of what change can do. It is an old, old system that has found its final shape — warm, dark, high, almost empty, almost quiet, working forever at nothing, needing no water, no light, no plants, no animals, no progress.
+
+If you sit on the soft, round curb outside a silent bag factory and turn off your own light, the darkness becomes complete enough that you can see the faint red glow of the rocks themselves, and the hundred, hundred dim streetlights of the city spread out across the plateau like a constellation that forgot how to be bright, extending past sight, working and working, all open and alone together in the never-cold night.

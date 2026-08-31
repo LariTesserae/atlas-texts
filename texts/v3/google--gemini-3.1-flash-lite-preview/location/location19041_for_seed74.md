@@ -1,0 +1,18 @@
+This is the Basin of the Clockwork Orchard, a sunken, shelf-like lowland nestled in a depression of limestone. It is a place where the distinction between forest and factory has long since dissolved, leaving a landscape that is both botanical and industrial.
+
+**The Landscape as Architecture**
+The "buildings" here are not built; they are grown and reinforced. Gargantuan, prehistoric ferns with trunks as dense as teak serve as the structural columns for the settlement. These trunks have been hollowed and fitted with brass, lead-lined conduits, and rusted steel gears that hum with a low, rhythmic vibration. The vegetation is absolute; vines weave *through* the machinery, their chlorophylled veins pulsing alongside the ticking of copper clockwork. The city is a series of suspended, moss-covered platforms connected by walkways of interlocking, living roots that have grown around rusted iron armatures.
+
+**The Atmosphere and Moisture**
+It is cool here—a perpetual, damp chill that smells of wet pine needles, ozone, and scorched oil. Because the area is low and sunken, condensation is the primary water source. Fog clings to the underside of the canopy, dripping in slow, melodic intervals onto the brass-filigreed floors. There are no rivers or lakes, only the "sweat" of the giant plants—a slow, viscous amber sap that beads on the heavy leaves and drips into the machinery’s lubrication reservoirs, fueling the gears that keep the city’s ventilation fans turning.
+
+**Density and Scale**
+The space is surprisingly sparse. Much of the Basin consists of high-ceilinged, cathedral-like "rooms" formed by the arching fronds. You can walk for minutes without encountering another living soul, and the distance between the primary hubs—the Boiler-Ferns and the Piston-Groves—is vast, filled only by ferns and silent, rusted mechanisms. It is a quiet place; the soundscape is dominated not by speech or movement, but by the *thrum* of a piston firing once every ten seconds and the soft *drip-drip* of condensation hitting brass plates. 
+
+**Erosion and Industry**
+The city is in a state of "settled erosion." Nothing looks new; the industrial components have been subjected to decades of botanical takeover. Iron pipes are orange with oxidation, encased in lichen that glows a faint, ghostly violet. The machines are not breaking down—they have achieved a symbiotic balance. The gears chew through bark as easily as they chew through stone, and the ecosystem is in constant, slow motion. One can watch a gear turn for an hour, sensing that it is grinding down a nutrient-rich bulb to power a hydraulic system that eventually pumps essential minerals back into the soil. 
+
+**Fauna and Weirdness**
+There are few animals. Occasionally, a clockwork-mite—a small, spider-like creature made of hardened sap and discarded springs—scuttles across a copper pipe, searching for friction. It is a landscape of profound solitude. Because there is no sun-strike at this depth, the plants have learned to photosynthesize the faint, sparking electricity that leaks from the underground wiring, turning the entire canopy into a stuttering, bioluminescent grid.
+
+To be in the Basin is to feel like a guest in a machine that is also a garden. It is a place where you walk softly, not to avoid disturbing the residents, but to avoid disrupting the rhythm of the dripping sap and the ticking brass—the twin heartbeats of a world that has decided, quite some time ago, that it no longer needs the sun or the sky.

@@ -1,0 +1,17 @@
+The city is etched into the inside of a colossal, upturned bowl. Its materials are the same as the bowl: a smooth, grey, almost polished stone, unyielding to any force. The bowl rests in a vast, featureless plain. No horizon exists, only the rim of the bowl, a sheer wall that disappears into a perpetual grey mist. There is no sun, yet the bowl itself radiates a soft, even light. Though it is bright enough to see every detail, it casts no shadows.
+
+The city is a tightly packed honeycomb of structures, clinging to the inner curve of the bowl. Buildings are built right up against each other, connected by archways and bridges, a dense lattice of stone. They are low, squat, no building rising more than three or four stories. The architecture is uniform, a utilitarian style that prioritizes function over beauty, yet has a stark elegance. Each building is made of the same stone as the bowl itself, making the city seem almost grown from it.
+
+Water is a rarity, not absent but precious. There are no rivers or lakes, only carefully engineered cisterns and channels, each a work of minimalist artistry. The moisture that exists comes from a constant, nearly imperceptible condensation on the stone surfaces. This dampness feeds the city's lush, vibrant vegetation. Moss, in a dazzling array of greens, covers almost every surface. Fungi sprout in the shadowed niches. Creeping vines, with thick, leathery leaves, climb the buildings, tangling them in organic patterns. The city is a vibrant, green lung within the stone bowl.
+
+The air is cold, but the city itself feels warm, a paradox. The temperature is constant, never fluctuating, a stagnant equilibrium. The only variation comes from the rare, gentle rain that descends from the center of the bowl like a soft, silent curtain.
+
+The city is virtually silent. The stone absorbs all sound. Once in a while, a faint, rhythmic *thunk-thunk* echoes from the depths of the city, a sound connected to the daily working of the city's people. 
+
+The people themselves are rarely seen, but their work is everywhere. They are pale, almost translucent, in their simple, unfashionable clothes — these are made of thick, woven plant fibers. They use primitive tools made of bone, polished stone, and perhaps a rudimentary metal. They seem to be constantly tending to the plants, or working on the infrastructure of the city. Their very existence seems geared toward maintaining this perfect, static state.
+
+There are also creatures. They are a mixture of familiar and bizarre. Small, iridescent insects, like living jewels, flit through the air. Thick-shelled, slow-moving creatures resembling giant snails, which crawl on the ground and walls. The fauna is abundant, yet each creature is meticulously adapted to the environment, seamlessly integrated into the landscape.
+
+The weirdness is subtle, but pervasive. The constant, even light. The unchanging temperature. The very geometry of the city. The utter silence. Time itself feels different here. It's a static place, a pocket of permanence in a world that apparently doesn't exist. There are no seasons, no days and nights, just a continuous, gentle existence within the stone bowl.
+
+The rules of this world are simple: equilibrium at all costs. Nothing changes and nothing can change. The city is a closed system, self-contained within the bowl, forever in balance. Any deviation from this perfect state is immediately, quietly corrected. This is the only law. This is the only truth. This is all that exists.

@@ -1,0 +1,17 @@
+Rising through the humid air, the great botanical arcology twists upward in spiraling terraces of living matter. What began as an experimental bio-engineering facility has, over decades, grown into a self-sustaining mountain of engineered plant life that serves as both infrastructure and ecosystem.
+
+The structure has no true exterior walls - rather, densely woven mats of fibrous plants form load-bearing columns and spans, their cellulose modified to rival steel in strength. These structural plants maintain themselves through carefully calibrated growth patterns, replacing dying tissue with new growth in perfect architectural balance. Between these living supports, translucent panels of specialized algal film filter sunlight into the interior spaces.
+
+The air is thick and warm, but surprisingly dry - the entire water cycle is contained within the plant tissues themselves, with specialized vascular systems moving moisture where needed. Nothing drips or pools; all liquid is carefully managed by the living systems. The only water visible to human eyes appears as occasional gleaming beads of condensation on waxy leaves, quickly reabsorbed.
+
+Throughout the structure, different engineered plant species form distinct functional zones: Agricultural levels where food-producing varieties grow in dense, optimized arrangements. Laboratory spaces enclosed in chambers of sensitive trigger-plants that respond to environmental changes. Living quarters where soft, furniture-like growths provide comfort while processing CO2. Transportation occurs through hollow tubular structures that seem to breathe, gently conveying people and materials via peristalsis-like movements.
+
+Small animals make their homes throughout - mostly insects and birds adapted to the unique environment, plus colonies of specialized pollinators developed alongside the engineered plants. Their movements create subtle rustlings that blend with the barely audible creaks and shifts of the growing structure. The overall effect is one of deep quiet punctuated by soft organic sounds.
+
+The arcology is still actively growing upward, its highest levels raw and unspecialized. Here, new plant varieties are tested and structural elements gradually take shape. The peak is a mass of rapidly dividing tissue, reaching toward the sun like a seedling writ large. Below, the mature levels operate with the precision of a machine, but one made entirely of living matter.
+
+The whole system runs on carefully managed sunlight, each level optimized to capture and use specific wavelengths. The light filtering down through multiple layers of photosynthetic tissue takes on strange qualities - here golden-green, there a deep purple where specialized pigments are at work. The air itself seems to glow with captured and transformed solar energy.
+
+All of this operates at a pace just slow enough to appear static to human perception. But time-lapse would reveal the constant motion - the adjustment of structural members, the growth and replacement of tissues, the movement of resources through the living networks. It is both building and organism, perpetually under construction by its own biological processes.
+
+The engineering that created this place is visible in the precise organization of its systems, but the technology now exists primarily in the genetic code of its constituent life forms. The structure has become its own kind of nature - artificial in origin but operating on purely organic principles, a new synthesis of the built and the grown.

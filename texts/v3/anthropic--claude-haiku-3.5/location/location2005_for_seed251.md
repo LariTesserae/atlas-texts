@@ -1,0 +1,13 @@
+The Verdant Spires rise like a living cathedral, a continental-scale ecosystem of interwoven plant-flesh and architectural complexity. Imagine a landscape where vegetation is not merely present, but is the fundamental substrate and infrastructure — where plants grow not just on surfaces, but become the surfaces themselves.
+
+The terrain is a massive, undulating biomass of interconnected plant structures, forming enormous living scaffolds that rise kilometers into the cool, misty atmosphere. These are not trees in any conventional sense, but massive, semi-flexible organic architectures that breathe, pulse, and reconfigure themselves across geological timescales. Tendrils as thick as highways intertwine and separate, creating vast corridors and chambers within their living mass.
+
+Water exists not as rivers or oceans, but as a constant moisture — condensation that forms within the plant-structures, collecting in deep biological reservoirs, seeping through capillary networks, occasionally releasing as fine mists or slow, almost imperceptible droplet migrations. The moisture creates a constant background humidity, supporting an overwhelmingly dense fauna that lives entirely within and between the plant architectures.
+
+These creatures are not traditional animals, but symbiotic organisms so deeply integrated with the plant-structures that the boundary between creature and environment becomes meaningless. They pulse, crawl, flutter, and undulate through the living corridors — some microscopic, some massive enough to reshape entire sections of the biomass with their movements.
+
+The landscape moves, but so slowly that motion is almost conceptual rather than visible. Changes happen across centuries: a tendril might shift a few centimeters, a massive structural element might gradually rotate or bifurcate. Industrial mechanisms are embedded within this living architecture — not as external constructions, but as biological processes that manufacture, transform, and redistribute matter and energy.
+
+Sounds are minimal but profound: a deep, low thrumming of biological processes, occasional soft rustlings of massive organic shifts, the distant pulse of metabolic rhythms. The entire environment feels like a single, massive, breathing entity — strange, patient, densely populated, and utterly alien.
+
+Erosion here is not destruction, but transformation — each weathered surface is a record of patient, complex interactions between living systems. The scale is so vast that human perception would struggle to comprehend its totality; this is an environment that generates its own weather, its own ecosystems, its own rules of physics and interaction.

@@ -1,0 +1,13 @@
+**The Damp Metropolis of Shifting Stone**  
+
+The city rises from the mist, a labyrinth of blackened brick and iron-wrought bridges slick with condensation. The air is thick, not with fog but with the slow exhalation of the earth itself—dampness seeps from every crack, beading on pipes, pooling in the uneven cobbles. The streets are never dry, yet never truly flooded; the water here is patient, creeping, finding its way through the gaps in the world.  
+
+This is a place of contradictions. The buildings are packed tight, shoulder-to-shoulder, their facades carved with ornate gargoyles weeping rust-colored streaks. Yet beyond the clustered rooftops, the land opens abruptly into a vast, low basin—a sprawling marsh where the city’s runoff collects in sluggish channels. The marsh is lush, choked with reeds and creeping vines that twine around the skeletal remains of half-sunk machinery. Strange birds nest in the wreckage, their calls muffled by the ever-present damp.  
+
+The city hums with industry. Chimneys belch steam into the cold air, and the clank of pistons echoes through the narrow alleys. But the machines here are restless, prone to sudden fits of motion or eerie stillness, as if the damp has gotten into their gears and whispered secrets to them. The people move quickly, wrapped in oilcloth and layered wool, their breath visible in the chill. They speak little. The quiet is oppressive, broken only by the occasional groan of metal or the distant, wet collapse of something unseen in the marsh.  
+
+Beneath it all, the land is restless. The ground shifts imperceptibly, as if the city is built on the back of some great, slumbering beast. New cracks appear overnight, exhaling gusts of warm, mineral-scented air. Sometimes, a building tilts suddenly, its foundations sinking into unseen voids. The people patch the damage and move on. They’ve learned to build lightly, knowing nothing here is permanent.  
+
+At night, the gas lamps cast wavering reflections on the wet stone, turning the streets into a rippling dream. Strange lights flicker at the edges of vision—will-o’-the-wisps dancing over the marsh, or perhaps something else, something watching from the reeds. The city breathes, expands, decays, and rebuilds itself in the same slow rhythm as the water that defines it.  
+
+This is a place in flux, caught between the weight of industry and the patient erosion of the damp. It will not last. But then, nothing here does.

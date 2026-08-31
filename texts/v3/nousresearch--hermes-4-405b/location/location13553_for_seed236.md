@@ -1,0 +1,17 @@
+The city breathes.
+
+It's a high place, built near the summit of a broad and flat-topped hill. Young mountains loom in the distance, their profiles still knife-sharp against the sky, and the air's grown thin enough underfoot that every breath brings a crisp, dry bite, edged with warmth. Not the searing heat of deserts, not quite — it's a steady, patient sun that bakes these stones, a sun that must rise too slow and set too slow for time here to feel quite real. The light it casts feels ordinary enough, bright and yellow-white as any sun that ever was.
+
+But nothing else is ordinary here.
+
+The city is dense, layered, packed tight with buildings that brush fingertips with each other. All of it looks grown, not built — as if the architecture is some form of coral, some geological tumor, some colony organism moving with glacier slowness. Organic curves dominate, smooth walls with no seams or mortar, entrances like puckered mouths or the soft folds between petals. Everything is the same thirsty golden-beige, the same faintly porous texture. It doesn't look dead — dried cacti aren't dead, petrified wood isn't dead — but it's impossible to say whether it's still alive.
+
+It can't have water to spare. Can't have rivers, can't have rain that comes frequent enough to matter, can't have standing pools. Because everywhere there's life — not the life of the city's bones but something else, some lush invasive bloom — and all of it is parched.
+
+Drought-tolerant, spike-leaved plants cover every bare surface. They blanket the rooftops in thick shag carpets, sprout from windowsills like eyelashes, cluster so dense in the courtyards and alleyways that the ground might never have been stone to begin with. Their leaves are huge, yard-long spears in some places, broad flat plates in others. Maybe they're succulents, storing what rain they can against lean times. Maybe they're stranger. Their stems are thick and puckered, their trunks score the angles with unexpected curves, and in the crises between buildings great pale growths fold like fleshy hands or shelves of bracket fungus taller than doors. All of it bone-dry. All of it thriving anyway.
+
+Fauna crowds the city just as thick. Tiny lizard-things scuttle over the walls, armored in thick grey plates, the same thirsty beige as the city. They move in eerie quiet, climbing the walls in slow vertical drifts, clustering on the broad flat leaves like barnacles. There are no winged things, no buzzing or chirping. Here and there the legs of some larger, stranger creature protrude from the foliage, motionless.
+
+Silence hangs in the air like a physical thing, amplifies every tiny rustle. Stone underfoot, when a path isn't thick with leaf-litter, feels gritty and even a little warm, baked in the sun with nothing to evaporate that heat. There's no wind here to stir the dust. The air tastes faintly of dry earth, of that desiccated foliage, of something sweet and slightly cloying.
+
+It's all too much. Too dense, too lush, too silent, too parched, too strange, too much like all its life grows slow and steady as rock. The quiet feels like held breath, like a question unanswered, like the rustle of great dry leaves brushing together in some slow-motion breeze.

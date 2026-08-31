@@ -1,0 +1,11 @@
+### **The Drowned Halls of the Old Earth**  
+
+Beneath the weight of dark waters, the world is a sunken cathedral of stone, its vaulted ceilings lost in the abyssal gloom. The water is ancient—older than memory, older than names—a black and depthless ocean that presses down like the hand of a forgotten god. It is cold here, a chill that seeps into bone, into stone, into the slow pulse of the currents. The water moves in restless surges, a turbulence without storm, as if the sea itself remembers violence.  
+
+The land is drowned but not flat. Great ribs of rock rise from the silt, the last remnants of mountains worn down by time, their peaks now mere stubs in the sediment. The stone is smooth, polished by eons of water, its edges long since surrendered to the current. There are no plants here, only the occasional ghostly strand of kelp, drifting like a lost thought in the dark. Life is sparse, fleeting—a pale eel slipping between stones, a blind crab scuttling over the bones of the earth.  
+
+The silence is thick, broken only by the groan of shifting rock, the distant sigh of water moving through unseen fissures. No light reaches here, save for the faintest phosphorescence—flecks of dying bioluminescence in the mouths of unseen creatures, vanishing as soon as they appear. The darkness is absolute, but the water is never still. It churns, eddies forming and collapsing in unseen patterns, as if the ocean itself is caught in some endless argument.  
+
+There are no structures here, no ruins of human hands. If civilization ever touched this place, the water has erased it. The only tools are the claws of crabs, the teeth of fish—primitive, efficient. The world is old beyond reckoning, a place where time has done its work and now merely lingers, watching.  
+
+This is a place of endings, of things settled into their final forms. And yet, beneath the crushing weight of the deep, the water still moves. The currents still twist. The stone still shifts, grain by grain, in the slow, patient erosion of eternity.

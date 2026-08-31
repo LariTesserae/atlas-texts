@@ -1,0 +1,15 @@
+Welcome to The Verdant Depths, a realm untouched by humans, ensconced in the enveloping cool and damp dark between the ocean's surface and the seafloor. A world saturated with life, yet embodying a profound quietness.
+
+Above is a vast expanse of heaving and ever undulating water, beneath which a riot of green brushstrokes densely carpet the ocean floor, sprawling across the seabed's tapestry. Impossibly high seamounts rise from the depths, their vertices seeming to nearly brush against the sunless water's surface, as if stretching to that alien world above.
+
+Trickles, torrents, waterfalls alike, all are silent here; simply threads in the watery weave of this underwater realm. Instead, the serenity is punctured by the symphony of life. A resonant hum, a collective chorus of countless denizens, it reverberates through the liquid atmosphere in a persistent echo of existence.
+
+Amidst the darkness, life thrives in absolute abundance, facilitated by bioluminescent vegetation. Turquoise, azure, and ultramarine, these luminiscent organisms dapple the murk in celestial constellations, a subaquatic reflection of the star-studded firmament.
+
+Plant-formed habitats coalesce and sprawl in organic construction. Millennia of marine vegetation growth, erosion, and rhythmic ebb and flow of the tides have architectured a lattice of verdant tunnels, chambers and chasms. This structure, with its complex system of interconnected root networks and plant structures, is both habitat and protection to an array of underwater organisms. They thread and weave, shimmer and glide within the twining tendrils and decaying detritus, a purposeful bustle within the deep.
+
+Despite its vibrant life, The Verdant Depths is sparsely populated with only a select species adjusted to the darkness, the pressure, the stillness. Many of them have never seen the light of day, nor reacted to its rhythms. Their cycles are determined instead by the growth and decay of the vegetation, the surges and ebbs of currents, the waxing and waning of bioluminescence.
+
+Sheltered from the surface world's volatility, there's a sense of timelessness, of enduring stability. One might liken this place to a snapshot captured in eternality, a frame of existence untouched by the march of eons. The only indication of time's passage are the languid, cyclical interactions of the flora and fauna and the steady, resounding rhythm of the undercurrents. 
+
+Although alien, there's an elemental familiarity within The Verdant Depths — a world shaped by interdependence, an unremitting dance of existence. Its uniqueness lies not in the weird but in this duality; rainforest and ocean, familiar and strange, life and darkness. It's a place of stillness, yet movement, darkness yet color, silence yet cacophony. The Verdant Depths — a testament to the boundless diversity and resilience of nature.

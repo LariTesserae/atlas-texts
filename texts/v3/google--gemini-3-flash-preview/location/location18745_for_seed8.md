@@ -1,0 +1,17 @@
+The land has forgotten how to be tall. In this wide, low basin, gravity has finished its work; the mountains that might have once ringed this horizon have been ground down into a vast, undulating shelf of dark, porous silt and weeping clay. It is a world of horizontal patience.
+
+The air is heavy, warm, and perpetually saturated. It feels like breathing through a thin veil of silk. At 2.4 temperature, the heat is not a sharp, sun-beating glare, but a pervasive, humid weight that keeps the water from ever truly retreating. The ground does not drink the rain; it simply holds it, cradling it in shallow, mile-wide depressions. 
+
+Everything here is wet. The rocks are not dry stones but saturated sponges of ancient, metamorphic grit, covered in a slick of translucent biofilm. Because the elevation is so low and the erosion so total, there are no rushing rivers—only a slow, rhythmic migration of water. It seeps laterally through the soil, welling up in "eyes" of clear, lukewarm pools that overflow into braided trickles.
+
+Vegetation is a secondary thought here. There are no forests, only islands of hardy, succulent-stalked reeds and low, sprawling mosses that cling to the few rhythmic rises in the terrain. These plants don't compete for height; they compete for surface area, spreading in flat, leathery mats across the mud. They are muted in color—olive, ochre, and a bruised, watery purple—reflecting a world where growth is deliberate and unhurried.
+
+Despite the sparse flora, the world is incredibly loud. 
+
+The sound is a textured, immersive wall of biological static. With a fauna rating of 1.6 and a sound rating of 2.0, the landscape vibrates with the hidden life of millions. From the shallow pools come the persistent, percussive croaks of heavy-bodied amphibians, their voices echoing off the water’s surface. Thick-winged insects, the size of a human hand, drone through the thick air with a low-frequency hum that can be felt in the chest. There is no wind to mask the noise, so the clicks, trills, and splashes of the marsh-life carry for miles across the open flats.
+
+The scale of the place is daunting. Because there are no trees to break the line of sight, the eye travels across leagues of shimmering, wet earth. It is a regional sprawl of repetitive patterns: pool, silt-flat, moss-mound, pool. The sky is immense, filled with soft, towering clouds that don't so much move as evolve, blossoming and dissolving in the warm light.
+
+Time moves differently here. The "dynamic" of 0.8 suggests a world that has reached a terminal velocity of stillness. There are no seasons of sudden change, no floods that tear up the earth. The erosion (2.9) is so advanced that the land has reached its final, stable posture. It is a primordial "end-state." The water moves by osmosis rather than current. The animals live long, slow lives in the warmth. 
+
+There is a profound absence of the "built." No straight lines, no stacked stones, no marks of intention. The world is purely biological and geological, operating on a clock of decay and slow secretion. To stand in the center of this landscape is to feel the immense weight of the past—a feeling that the Earth has already said everything it needed to say, and is now simply resting in the warm, wet light, breathing loudly in its sleep.

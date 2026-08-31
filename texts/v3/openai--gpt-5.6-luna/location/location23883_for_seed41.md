@@ -1,0 +1,37 @@
+The chamber lies below the surface, but not deep enough to feel buried. Its ceiling is a low, uneven vault of dark stone, ribbed where ancient layers have folded and softened, and pierced in a few places by narrow shafts that lead upward through the earth. No direct sunlight reaches the floor. At midday, the shafts admit only a pale greenish haze, filtered through soil, roots, and whatever grows above. The rest of the light comes from the living things themselves: faint lichen along the walls, translucent leaves, and clusters of small shelf-fungi that hold a dull amber glow beneath their caps.
+
+The air is hot and close. It gathers in the chamber without becoming oppressive, heavy with the smell of wet stone, leaf mold, and the sweet rot of fallen fruit. Moisture is not constant here. The rock sweats after rain, and then dries slowly. Water beads along the ceiling, gathers at the roots, and falls one drop at a time into shallow hollows. In the lower places, there are dark pools no larger than a person’s outstretched hand, each lined with soft mineral silt. Some persist for weeks. Others vanish overnight, leaving only a black ring on the stone and a congregation of tiny tracks.
+
+The place is not large. A person could cross it in a few minutes, if crossing were possible. In practice, the ground is so crowded with stems, roots, fallen trunks, and low shelves of rock that movement becomes a careful negotiation. The chamber has the feeling of a room that has been occupied for a very long time, not by one creature or one species, but by generations of life making room for one another without ever becoming sparse.
+
+Vegetation grows in layers.
+
+At the lowest level, pale runners spread over the soil in mats, their leaves no bigger than fingernails. They close when touched, not abruptly, but with a slow inward folding that passes through the mat in waves. Between them are red-brown mosses and tiny plants with swollen, glassy stems. Their roots seek the dampness around the pools, while their leaves lean toward the ceiling shafts, though the dim light seems insufficient for them. Higher up, fernlike fronds emerge from cracks and curl beneath the vault. Their undersides are crowded with silver spores. A brush against them releases a cloud that hangs in the warm air, glittering briefly before settling.
+
+Several trees have grown in the chamber, though none are tall. Their trunks are bent by the low ceiling, then forced sideways, making a roof of living branches only a few feet above the ground. Their bark is smooth and black, as if charred, but beneath it runs a slow green pulse. Leaves overlap so densely that the chamber is divided into small private spaces: a hollow beneath a root, a dark corridor between trunks, a pocket of open ground around a pool. Every surface is occupied. Vines loop from branch to branch. Fungi cling to vines. Beetles nest in the fungi. Tiny flowers open in the warmth and close when the air cools.
+
+The ecology is abundant but quiet.
+
+Small animals are everywhere, though most remain hidden until the eye adjusts. Pale moths cling to the ceiling like flakes of old paint. They have no visible eyes, only delicate feelers that tremble whenever something moves below. Long-legged insects pick their way across the water’s surface without breaking it. In the dampest hollows, translucent salamanders lie beneath the leaf litter, their organs visible through their skin as faint rose and gold shadows. They do not flee quickly. Instead, they flatten themselves into the glistening mud and become almost indistinguishable from the roots.
+
+There are soft-bodied things that graze on the moss, carrying shells shaped like curled leaves. There are narrow, many-jointed hunters that move through the vegetation in complete silence, their bodies bending around stems rather than pushing through them. Once in a while, a larger animal passes: a compact, furred thing with broad feet and a blunt head, no larger than a badger. It feeds on the swollen fruits of the black trees and leaves behind neat piles of seeds. The animals seem accustomed to one another. Predation happens, but it happens without spectacle. A flash beneath a leaf. A brief shiver in the undergrowth. Then the chamber returns to its layered stillness.
+
+The dominant sound is the absence of sound.
+
+There is no wind at this depth. The plants barely move unless touched by an animal. Water falls intermittently from the ceiling, each drop separated from the next by long stretches of silence. When one strikes a pool, the sound travels farther than it should, a small, round note that seems to pass through the stone. Far off, something clicks once. Something else answers after a delay. The creatures communicate in minute signs: the tremor of a stem, the opening of a flower, the soft rubbing of wings against bark.
+
+During the wet cycle, which comes whenever rain filters down through the upper ground, the chamber changes. The shafts above darken and drip. Thin curtains of water appear against the walls. The plants swell visibly over the course of a day, and the air fills with spores, gnats, and winged forms that emerge from the soil in dense, brief clouds. The pools overflow into one another through channels too shallow to notice until they are moving. For a few hours, the entire floor becomes a connected system of glimmering water and roots.
+
+Then the moisture recedes. The pools shrink. The insects disappear into the bark. The plants draw their leaves inward, conserving what they have gathered. A dry warmth settles over the stone, and the chamber becomes darker, though the faint living lights remain.
+
+Scattered among the roots are traces of former habitation. A low wall of flat stones encloses one corner, now split apart by a tree that has grown through its center. The stones are worn smooth and green at the edges. Nearby lies a shallow basin carved into the floor, its shape too regular to be natural, though generations of water and moss have softened it. It catches the ceiling’s condensation. Tiny animals drink from it. No path leads clearly to these remains, and no larger structure survives. The old work has been absorbed into the ecology so completely that it is difficult to decide where architecture ends and growth begins.
+
+The chamber has one unusual rule: things left alone here tend to become inhabited.
+
+A dropped branch sprouts pale filaments within days. A shed shell becomes a nursery. A footprint fills with spores and then with water, and the water gathers larvae. Even bare stone acquires a skin of life if it remains undisturbed. The landscape does not rapidly transform; it deepens. It covers, joins, and incorporates. Nothing is erased quickly, but nothing stays separate for long.
+
+At the far side, beneath the lowest part of the ceiling, there is a recess where the rock has opened into a shallow alcove. The floor there is dry, warm, and almost entirely free of plants. Hundreds of small animals gather in it during the brightest part of the day, packed close together: moths, salamanders, beetles, soft-shelled grazers, and the small furred fruit-eaters. They do not make a visible commotion. They simply share the warmth, shifting by fractions, breathing together.
+
+Above them, roots descend through the stone like dark cords. Between the roots, one narrow shaft admits a fading column of green light.
+
+Dust, spores, and moisture drift through it. The creatures turn toward it without moving.

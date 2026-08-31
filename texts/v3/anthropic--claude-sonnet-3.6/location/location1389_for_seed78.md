@@ -1,0 +1,15 @@
+The Living Cathedral rises through warm, clear waters - a vast structure of engineered plant matter that maintains its own atmosphere within its aquatic surroundings. From a distance, it appears as a shimmering, translucent dome perhaps 200 meters across, its surface a constantly shifting membrane of specialized leaf-cells that regulate the boundary between water and air.
+
+The noise is constant - a deep thrumming that resonates through both water and air as the entire structure processes and filters the surrounding ocean. The plant-mass that forms the cathedral's walls is a single engineered organism, its tissues arranged into intricate gothic arches and flying buttresses that channel both structural forces and nutrient flows. Photosynthetic panels stretch between the arches like living stained glass, their pigments shifting in response to light conditions.
+
+Inside, the air is warm and humid, maintained at precise levels by the cathedral's regulatory systems. The floor rises in terraces of root-matter, forming spaces that feel both grown and architected. Small maintenance robots - looking almost like metallic insects - occasionally emerge from ports in the walls to tend to the living structure. Their movements are accompanied by soft whirring sounds that blend with the cathedral's deeper resonance.
+
+The height is considerable - perhaps 60 meters at its apex - and the interior space remains largely open, though threads of luminescent tissue trace paths through the air like delicate chandeliers. These strands pulse with bioluminescent rhythm, brightening and dimming in complex patterns that seem to correspond to the structure's metabolic cycles.
+
+Water still finds its way inside, but intentionally - flowing in controlled channels through the wall-tissue and collecting in small pools that serve some vital function in the cathedral's water management. The liquid moves with purpose, its flow contributing to the background symphony of filtering and processing sounds.
+
+Occasionally, schools of small fish dart through the exterior membrane, their shadows casting brief patterns across the interior. But larger creatures seem to avoid the structure - perhaps deterred by its constant vibrations or by some unseen defense mechanism.
+
+The entire cathedral is young - maybe only a few years since it was seeded and grown - and its tissues still show the sharp definition of new growth rather than the weathered patterns of age. Yet it feels ancient in its design, as if drawing on both biological and architectural principles refined over centuries.
+
+In essence, it's a triumph of bioengineering: a living structure that creates and maintains its own microenvironment within the ocean, neither fully aquatic nor fully terrestrial, but something deliberately in between. The constant sound of its biological processes, the warmth, the intricate patterns of its tissue-architecture - all speak to technology that has transcended the traditional boundaries between grown and built.

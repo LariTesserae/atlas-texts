@@ -1,0 +1,19 @@
+The world is a vertical ocean tilted on its side, a realm of falling mountains and liquid peaks. At this elevation, the atmosphere has become indistinguishable from the sea; it is a "High Deluge," where gravity and water have entered a permanent, turbulent pact. 
+
+The terrain is a series of impossible, soaring massifs of black basalt, worn so smooth by eons of friction that they resemble polished obsidian. These are not jagged peaks, but the ancient, rounded spines of a world that has been scrubbed for a billion years by relentless pressure. They rise like the dorsal fins of world-sized whales, disappearing into a sky that is not blue, but a heavy, saturated teal—a thick suspended mist that borders on a true liquid.
+
+Because the water is everywhere—cascading in mile-wide curtains from the higher shelves to the lower basins—the vegetation has adapted into a predatory lushness. This is a cold, emerald jungle of mosses and "sky-kelp." The plants do not grow from soil but cling to the vertical faces with obsidian-hard root-hooks. They are thick, rubbery things, darker than pine needles, translucent and heavy with the weight of the spray. They pulse with the movement of the wind, creating a shivering, shimmering green skin over the entire landscape.
+
+The temperature is consistently, bitingly cool—a damp chill that seeps into the bone, smelling of crushed ferns and cold iron.
+
+The ecology is a riotous, noisy layering of life. Because there is no dry ground, the fauna is exclusively arboreal or aquatic-adjacent. Giant, six-winged lungfish drift through the heavy mists, their fins acting as sails to catch the updrafts. In the lower valleys, where the water pools into mile-deep bowls before overflowing again, vast schools of bioluminescent crustaceans scrape the algae from the basalt walls. 
+
+The sound is a constant, physical roar—the "Great Hum." It is the sound of a million cataracts hitting a million basins, layered with the rhythmic thrum of industrial machinery.
+
+Scattered among the slick cliffs and the hanging jungles are the remnants of a heavy, industrial past. These are not delicate ruins, but massive, rusting iron intake-valves and hydro-turbines the size of cathedrals, bolted directly into the rock faces. They represent an age when someone tried to harness the sheer kinetic energy of a world that is falling. Giant, rusted chains, each link the size of a carriage, hang between the peaks, swaying in the turbulent drafts. 
+
+Some of these machines are still alive. Deep within the spray-choked ravines, the sound of metal grinding on metal competes with the water. Clanking, steam-venting pumps labor to move water from one basin to another for reasons forgotten, their pistons driven by the very floods that threaten to drown them. There are occasional narrow walkways of corrugated steel, slick with slime, hugging the heights—vestiges of a transit system for a crew that vanished generations ago.
+
+The light is steady and diffuse, filtered through tens of thousands of feet of falling water and thick vapor. It casts no sharp shadows, only a pervasive, submarine glow that makes the green of the kelp vibrate and the rust of the iron look like dried blood.
+
+This is a world of "stable chaos." It is hyperactive—the water is always moving, the plants are always growing, the machines are always thumping—and yet it is ancient and immutable. Nothing here is new; every drop of water has been recycled through the same turbines and over the same smooth stones since the beginning of time. It is a landscape of profound, wet weight, where the air is a liquid and the earth is a memory polished smooth by the storm.

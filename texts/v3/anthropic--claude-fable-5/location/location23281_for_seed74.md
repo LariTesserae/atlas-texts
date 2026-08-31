@@ -1,0 +1,29 @@
+# The Grown Quarter
+
+The settlement sits in a shallow basin of land, low enough that mist collects there on cool mornings and stays until midday, and it has been there long enough that nobody argues anymore about whether it was built or grown. The honest answer is both, and then neither: the original construction is so far down in the woodgrain now that the town has simply become a plant with opinions about plumbing.
+
+There are perhaps thirty structures, spaced generously — wide mossy commons between them, long avenues of nothing, the kind of openness that suggests the town once expected to be bigger and then, comfortably, decided not to. Each building is a living thing. Not timber-framed; *trunk*-framed, walls of fused cambium that still put out leaves at the eaves every spring, roofs of trained broadleaf canopy layered shingle-fashion, so dense that rain takes a full minute after a shower ends to finish working its way down through them. You hear this everywhere in the damp season: the delayed drip, roof by roof, each building releasing the last rain at its own pace, like a town slowly remembering something.
+
+The architecture has the swollen, settled look of great age. Doorframes have grown thick lips of bark around their hinges. Windows are not glazed but *membraned* — translucent inner-bark stretched and cultivated paper-thin, amber-green, letting in a light that is ordinary daylight made slightly botanical, the way light is under a leaf. Where a wall was damaged generations ago, you can read the scar: a whorl, a healed-over knot the size of a door. Nothing here is repaired. It is *healed*, which takes longer and looks better.
+
+## The Works
+
+The industry of the place is at the basin's center: the sap engine, a structure the size of a large barn, and the oldest growth in town — its parent trunk is broad as a silo and its roots ridge the surrounding ground like buried whales. Inside, the machinery is real machinery: brass governors, flywheels, a press, line-shafts running out through grown channels in the walls to the smaller workhouses. But the motive power is the tree itself. Capillary pressure, harnessed. Tapped sap rises through a column of fitted pipework, lifts weighted pistons with patient vegetable force, and the engine turns — slowly, maybe eight strokes a minute, the pace of a sleeping heartbeat. It cannot be hurried. It also cannot be stopped, exactly; in winter it idles down to two strokes a minute and the town's output dwindles accordingly, and everyone treats this as weather rather than as a problem.
+
+What the works produce: pressed bark-cloth, lamp resin, a hard laminated leaf-board that the region prizes, and the cultivated membrane panes, which take eleven years each to grow and are sold the way other towns sell jewelry. Production is genuinely industrial — gauges, schedules, a small electric system run off the flywheel that lights the workhouses with a warm unsteady glow — but it is industry at biological tempo. The factory whistle is a grown reed pipe in the engine-house roof, sounded by sap pressure, and it does not blow at the same time every day. It blows when the tree is ready.
+
+## Atmosphere and Sound
+
+Cool, always — the canopy and the basin between them keep the air at cellar temperature, and surfaces hold a faint condensation most of the day. Handrails are damp. Stone steps (the few that exist, half-swallowed by root) are dark with moisture. It rains often but briefly, and the real water-feature of the town is afterward: the long staggered dripping, the gutters of channeled branch carrying runoff to cisterns grown like galls into the building-sides.
+
+It is a quiet place, but not a still one. The quiet is the specific quiet of slow machinery: the engine's eight-a-minute thud, felt in the ground more than heard; the creak of buildings that are growing, which is a different creak from buildings that are settling — longer, more deliberate, almost like stretching. Leaves move constantly overhead. Sap lines tick as pressure changes. In spring, the whole town audibly *works*: walls put out new growth, and the trimming crews go around with shears and ladders keeping doorways door-shaped, which is the closest thing here to road maintenance.
+
+## Inhabitants
+
+People are present but sparse — figures glimpsed at distance across the wide commons, a trimmer up a ladder, a worker walking a pressure line with a listening-rod pressed to the pipe. Animals are rarer still. The town's chemistry, the resin in everything, seems to discourage them; there are no rats in the grain-house, no pigeons in the eaves. What fauna exists is deliberate or tolerated: a population of pale green beetles that eat only dead growth and are therefore regarded as staff, and one old heron that stands in the engine-house cistern most afternoons, and which the workers walk around without comment, the way you walk around a foreman.
+
+## The Rule of the Place
+
+The one thing every inhabitant understands, and visitors learn quickly: the town is not infrastructure. It is a participant. Buildings are pruned, fed, drained, and consulted. A structure that is overworked grows badly — membrane panes come in cloudy, doorframes tighten. A structure left fallow too long seals its own entrances. The relationship is centuries old and entirely settled; nobody finds it strange anymore that the bakery has good years, or that the engine-house must rest one day in nine, or that when someone dies their house puts out a flush of white leaves over the door, unasked, every time, and drops them all within the week.
+
+The mist burns off by noon. The light comes down green-gold through the working canopy. The engine thuds. Somewhere a roof finishes the morning's rain, one drop at a time, and the town goes on growing at exactly the speed it has chosen, which is the speed of wood.

@@ -1,0 +1,9 @@
+A vast expanse of dark, glistening mud stretches out under an oppressive night sky. The ground is saturated, sucking at the feet with each squelching step, yet the humidity hanging heavy in the air prevents it from ever fully drying. Scattered across this bleak landscape, the crumbling remains of a once-thriving metropolis emerge from the muck like the bones of some great beast slowly being reclaimed by the earth.
+
+Skeletal skyscrapers loom at haphazard angles, their steel girders contorted and windows long since shattered. Echoes of their former grandeur whisper in the dank breeze that sighs through empty halls and streets now choked with oily sludge. The rot of abandoned dreams festers in the shadows.
+
+In this lifeless wasteland, space and time feel unmoored. The city decays, yet no vines or saplings sprout to soften its jagged edges—only thick, tarry mud that preserves its ruin in perpetuity. No birds call, no insects hum. An eerie, deafening silence smothers all.
+
+And yet... there is a pulse. Deep within the earth, something churns the endless mud, sending ripples across its surface like some great subterranean heart. Bubbles form and pop with a sickening belch, birthing pockets of noxious gas that hover briefly before dissipating into the gloom. Oily tendrils squirm just beneath the skin of the mud, hinting at horrors yet unseen.
+
+For this is a place beyond death, where even decay has decayed. A purgatory of sinking buildings and suppurating soil, where the very laws of nature have begun to unravel. In the cracks between realities, it lingers, an eternal monument to the folly and fragility of civilization's hubris.

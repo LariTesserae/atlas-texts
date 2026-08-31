@@ -1,0 +1,21 @@
+The Salt Flats of the Sighing Engines stretch beneath a sky bleached the color of old bone—hazy, but not cloudy; the light is normal, yet it lacks conviction, as if filtered through a pane of memory. Heat shimmers in thick, liquid waves above the ground, not rising, but *pooling*, as though temperature has mass here. The elevation is high: you stand on a vast, uplifted basin two miles above sea level (if sea level still meant anything). The air is thin, dry as powdered obsidian, and utterly devoid of moisture—water exists only as a rumor, a ghost of a solvent from another cosmos.
+
+Beneath your feet lies not sand, not soil, but a crust of interlocking mineral plates—sodium silicates, magnesium chlorates, and stranger things crystallized from vapors that never contained H₂O. The surface fractures in tessellated polygons, each segment edged with razor-thin ridges that catch the light in sudden, metallic glints. Between them, deep fissures plunge into darkness, exhaling warm, mineral-scented breath.
+
+There are no plants. Nothing green, nothing photosynthetic, nothing rooted. And yet life abounds—overwhelmingly so. Fauna here is not animal, not in any terrestrial sense. The flats teem with *processes given form*: articulated mineral colonies that pulse with slow, tectonic hunger; silicon-skinned grazers the size of freight cars that shuffle on crystalline limbs, scraping the crust with chitinous mandibles that sing harmonic drones as they feed; airborne swarms of iridescent motes—each a self-assembling machine of boron and iron—that coalesce into temporary eyes, wings, or mouths before dissolving back into glitter.
+
+This is the source of the sound: a constant, loud chorus of grinding, chiming, hissing, and low-frequency resonance. Not noise, but *language*—or maybe just physics wearing the skin of language. The air vibrates with it. Your bones hum in sympathy.
+
+The industrial presence is not built—it was never constructed. The tech here is *geological*. Great furnaces rise from the earth not as buildings, but as natural formations: blackstone stacks venting plumes of incandescent gas, their interiors lined with self-replicating catalytic lattices that refine raw atmosphere into energy and ash. Conveyor belts of solidified thermal gradients snake across the basin, ferrying heat from one end of the plain to the other like blood through veins. These are not ruins, nor are they functional in a human sense—they are simply *occurring*, the inevitable morphology of thermodynamics given terrain. Industry as ecosystem. Factories that grow.
+
+Weirdness is not an intrusion here—it is the baseline. Reality frays at the edges of perception. Sometimes, looking across the flats, you see events that haven’t happened yet: a grazing colossus collapsing into dust, only to reassemble moments later; the sky folding like paper to reveal a second sun, cold and blue, before snapping back. Time is viscous, layered. Gravity occasionally forgets its direction for a few seconds, and loose shards hover like startled insects before crashing down. Causality leaks.
+
+Yet everything moves slowly. The dynamic is patient, almost meditative. The grazers take hours to lift a limb. Storms build over decades. The erosion is profound but gentle—a wearing-down over aeons, not violence. The landscape is ancient, self-consistent, settled into its own logic. It has existed long enough to forget it was ever invented.
+
+And it is empty. Vast distances yawn between presences. You could walk for days and see nothing but salt crust and heat haze—then suddenly, the ground would *breathe*, and a canyon-sized lung would open beneath you, lined with blinking sensoria made of fused quartz and rust.
+
+There are no paths. No markers. No one built anything, and no one is coming. But the place watches. Not with eyes, but with *expectation*—a low thrumming attention woven into the hum of the engines, the scrape of crystal on crystal, the sigh of hot air through thousand-mile fissures.
+
+This is not a world that died.  
+This is a world that learned to live without water, without plants, without mercy—  
+and in doing so, became something else entirely.

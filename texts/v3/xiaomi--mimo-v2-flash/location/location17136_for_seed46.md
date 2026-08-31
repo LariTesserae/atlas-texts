@@ -1,0 +1,17 @@
+The place is a high desert garden in a jar.
+
+You rise through the rim of the world into a glass-domed chamber suspended in a vacuum of airless sky. The air you breathe is manufactured, hot and dry, recycled by humming industrial machinery embedded in the walls and floor. The temperature is a steady, baking 2.7, a dry heat that bakes the ground and turns the thin atmosphere to a shimmering lens.
+
+The floor is a plain of salt-white dust and fractured silica, stretched taut over a bedrock that is not yet fully settled. This is a raw geology, a place of emerging erosion—proofs of concept. You can see the tentative shapes of future gullies, the first silt-lines of a stream that might one day run here, if the chemistry were different. But the ground is merely eroding against itself, a slow grind of crystal on crystal, a noiseless earthquake that has been ongoing for three hundred years. No water has ever touched it. The moisture here is theoretical.
+
+Vegetation thrives despite the paradox. It is a lushness born of industrial intention: engineered chlorophyll, bio-engineered leaves that drink light and dust with equal fervor. The plants are spindly, fibrous stalks that rise from porous cones of polymer soil, their foliage a deep, oily green that seems to hold the heat rather than reflect it. They are arranged in sparse clusters across the plain, each one a jewel of chlorophyll set in a landscape of negative space. There are hundreds of them, perhaps thousands, but the scale is intimate—this is a room, not a world. The distance between each cluster is calibrated, a design choice in a world without fauna to scatter the seeds.
+
+The light is normal, a white-yellow wash that filters through the dome and casts sharp, geometric shadows. There are no animals here, not even insects; the ecology is a closed loop of plant and machine, a two-part organism breathing in sync.
+
+The sound is mostly quiet, but it is a layered quiet. There is the deep, subsonic thrum of the industrial systems beneath the floor—the waterless humidifiers, the oxygen scrubbers, the nutrient pumps. There is the faint hiss of static from the unshielded wiring exposed along the walls. And beneath it all, the sound of the place itself: a mineral creak, a granular whisper, the earth settling into a shape it has not yet decided upon.
+
+But the weirdness is in the way the light bends at the edge of the dome. The horizon does not curve—it flips, repeats, folds back on itself in a pattern that suggests a hidden geometry beneath the surface of things. The plants grow in spiral patterns that align with magnetic fields that do not exist. The shadows cast by the stalks do not quite match the angle of the sun, as if the light source is a little too close, a little too eager.
+
+This is a laboratory in the shape of a world. The place was built by an industry that no longer remembers why it was built, a sealed environment designed to simulate a biosphere that does not require water, a greenness that does not require rain. The machinery is old, industrial, and relentless, but its purpose is a ghost. The plants grow for no one. The salt dust settles for no one. The erosion moves for no one.
+
+And yet, it persists. A slow, patient, hot, high, and very lonely garden, breathing in the silence, waiting for a rain that will never come.

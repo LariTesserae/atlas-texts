@@ -1,0 +1,61 @@
+# The Mantleworks
+
+You arrive at elevation, and the first thing you notice is that there is no ground. There hasn't been ground here for a very long time.
+
+Beneath your feet is steel — riveted plate, bolted beam, cast trough — and beneath that, more steel, and beneath that, concrete poured into forms that someone, some generations ago, built to replace a mountain range that was itself built to replace the original mountains, which were dismantled for material so long ago that only geological names remember them. The Mantleworks is a made landscape. Every surface is a surface someone manufactured. The soil is aggregate, the bedrock is aggregate, the cliffs are aggregate, and the aggregate was quarried from the cliffs themselves, cored out and repositioned in an act of self-cannibalistic engineering so old it has become topography.
+
+---
+
+**The terrain** steps and terraces. From the high ridgelines — narrow spines of riveted steel plate, corroded to a deep and lovely umber, rising so sharply that the sky above them looks *close* — the land falls away in a series of broad, engineered benches. Each terrace is the size of a small district. Some are flat. Some tilt slightly, engineered to drain. Some have buckled over the centuries under the slow compaction of everything above them and now bowl gently inward, catching water, forming shallow pans of standing liquid where insects breed and birds feed.
+
+Between the terraces, the elevation changes are dramatic. You look down from a ridge and see a drop of hundreds of meters — not a natural cliff face but a *wall*, a constructed retaining face of poured concrete and steel lattice, and this wall is covered in vegetation so thick you cannot see the structure beneath it except in places where a section has spalled away, revealing the corroded rebar skeleton underneath, red-orange against the grey, like a wound showing bone. The vertical relief is immense. The lowest visible terraces shimmer in a haze of distance and humidity. The highest ridgelines scratch at a sky that is almost painfully blue.
+
+This is a place of verticality. Everything moves up and down rather than across.
+
+---
+
+**The moisture** is everywhere but never in rivers. It condenses. The high ridgelines, exposed to warm air rising from below, are perpetually beaded with water. Steel surfaces weep. Concrete weeps. You can hear it — a constant soft dripping from every overhang, every beam, every leaf — a million tiny trickles that merge into a general wetness in the air. In the mornings, if there are mornings here in the conventional sense, the condensation is so heavy it falls as a fine, warm mist that settles on everything and makes the surfaces gleam. Rain comes in slow, fat drops, not storms but a kind of habitual weeping from the low clouds that catch on the ridgelines. These clouds move through the Mantleworks slowly, drifting between the terraces like animals, pooling in the bowl-shaped depressions, dissipating by afternoon into a haze that never fully clears.
+
+The water collects in engineered channels — drainage systems meant to prevent the terraces from flooding — but many of these channels have silted up with decades of accumulated organic matter and now function as streams. They move slowly through the structure, threading between beams and through culverts, sometimes disappearing into the construction for a hundred meters and re-emerging from a different face. In the lowest accessible terraces, shallow lakes have formed where drainage has failed entirely. These lakes are warm and green with algae, and they smell of mineral and growing things.
+
+---
+
+**The vegetation** is the true owner of this place. It has been here long enough to forget that it arrived.
+
+It grows on everything. Vines with thick, waxy leaves climb the retaining walls in dense curtains, their rootlets gripping the concrete and prying apart the joints with the slow patience of centuries. Ferns — enormous ones, some fronds three meters long — erupt from every crack and gap in the steel plating, their rhizomes threading through the aggregate substrate beneath. Mosses coat the north-facing surfaces in a thick, velvet layer that stays perpetually damp and gives the steel a green-black color that, from a distance, looks like a kind of patina, as if the structures were made to be this way.
+
+On the broader terraces, where sediment has accumulated — organic matter decomposing into a thin but functional soil over the aggregate — actual trees grow. They are not tall by the standards of a natural forest; the wind up here discourages height. Instead, they grow broad and dense, with thick canopies that interlock across the terraces and create shaded understories of remarkable lushness. The air beneath these canopies is thick and humid and smells of decomposition and growth. Orchids grow on their trunks. Epiphytes pile on epiphytes. The layered density of the plant life is extraordinary — every cubic meter of air beneath the canopy contains leaves, stems, roots, flowers, fruit, falling matter, rising matter.
+
+The warm temperature keeps everything growing year-round. There is no winter here, only a slow oscillation between "growing very fast" and "growing fast," modulated by the amount of cloud cover and the availability of moisture. The plants are adapted to the constructed substrate. Certain species of fig have sent roots into the steel lattice of the retaining walls, and their aerial roots hang in sheets, thick as a man's wrist, wrapped around structural beams. Certain grasses have evolved to root directly in corroded steel, extracting iron from the oxidation process. It is not natural growth. It is growth that has made itself at home in an unnatural place and, by doing so, made the place something closer to natural.
+
+---
+
+**The fauna** has followed the vegetation. Birds first — the terraces offer nesting sites in extraordinary abundance, every ledge and beam and crevice a potential roost. The bird population is dense and vocal. Dozens of species, most of them small, flit through the canopy and along the cliff faces, feeding on insects and fruit. Their calls layer into a constant chatter that combines with the dripping water and the distant machinery to produce a soundscape that is loud but not harsh. It is the sound of a place that is *occupied*.
+
+Larger animals are present but cautious. On the middle terraces, where the vegetation is thickest and the human presence most sparse, something moves through the undergrowth that is the size of a large dog but shaped wrong — too many legs, or legs at unusual angles, as if it were designed for climbing vertical surfaces. It is not aggressive. It is not unusual enough to be remarkable. It simply is what has evolved here, in this place of vertical structure and dense green.
+
+Insects are everywhere. Their populations are enormous. They fill the air above the warm lakes and in the humid understories. They pollinate the orchids on the tree trunks and decompose the leaf litter on the terraces and bore into the wood of the trees and the concrete of the older structures alike. They are part of the machinery of the place.
+
+---
+
+**The industry** has not stopped. This is perhaps the strangest thing about the Mantleworks, though it is not strange enough to register as truly strange. It has been going on so long that it has become a feature of the landscape, like the erosion or the condensation.
+
+On the middle terraces, the factories still operate. They are old — not antique, not picturesque, but *old* in the way that old infrastructure is old, the way a bridge is old, functional and decaying and still carrying weight. They are vast, low structures of corrugated steel and concrete, their roofs long since collapsed in places and replaced by the canopies of the trees that grew up through them. Their walls are rusted through in spots, patched in others, and the patches have rusted too. Smokestacks rise from them, some still venting a thin, warm vapor that smells of sulfur and hot metal. Inside, if you go inside, you find machines that have been running for longer than anyone currently alive can remember. They grind. They press. They melt and cast and cut. The products are structural — beams, plates, aggregate, fasteners, the material of the Mantleworks itself. The factories build the place they are part of, replacing sections as they corrode, maintaining the whole in a cycle of slow production and slow decay.
+
+The sound of industry is pervasive. It is not a roar. It is a deep, steady vibration that you feel in your sternum before you hear it with your ears — the hum of turbines, the rhythmic concussion of presses, the distant shriek of metal being cut. It blends with the bird calls and the dripping water into a composite noise that is, after a while, almost soothing. It is the sound of a system in equilibrium.
+
+Electrical infrastructure is everywhere. Cables run along every surface, bundled and rerouted and bundled again over decades of maintenance. Some are live. Many are not. The live ones power the factories, the pumps that move water from the lower terraces to the upper ones, and the lighting.
+
+---
+
+**The light** is the light of high altitude and thin atmosphere — bright, direct, slightly blue at its source but diffused by the constant haze and cloud cover into something warmer and more even by the time it reaches the terraces. The upper ridgelines are almost painfully bright, the steel surfaces reflecting the sun in sheets of white glare. Down among the terraces, the light filters through the canopy and the mist and arrives soft and green, dappling through leaves onto the damp aggregate surface in shifting patterns. The factories have their own light — arcs of welding, the orange glow of furnaces, banks of old electric lamps that still function, their glass housings clouded with condensation, casting a warm and hazy illumination into the interiors of the structures.
+
+At no time is the Mantleworks dark. There is always light — from the sky, from the reflective surfaces, from the industry. The closest thing to darkness is the shade beneath the densest canopy, and even there, bioluminescence from fungi and insects provides a faint, greenish glow.
+
+---
+
+**The weirdness** is small and cumulative. It is in the way the drainage channels sometimes seem to be positioned with a geometric precision that serves no engineering purpose. It is in the birdsong that, if you listen for long enough, reveals a pattern that repeats with mathematical exactness. It is in the fact that the factories produce slightly more material than the Mantleworks can consume, and no one knows where the excess goes. It is in the condensation, which sometimes forms in shapes — not organic shapes, not recognizable shapes, but *regular* ones, as if the water molecules are arranging themselves according to a logic that has nothing to do with surface tension. You notice these things, and then you stop noticing them, because the place is so large and so busy and so alive that the small impossibilities are absorbed into the general impression of a world that works, that has always worked, that will continue to work long after the details that seem strange to you have become, like everything else in the Mantleworks, simply part of the landscape.
+
+---
+
+**The dynamic** is slow. The Mantleworks changes on a timescale that discourages attention. The terraces subside centimeters per decade. The corrosion advances millimeters per year. The trees grow meters per century. The factories replace their own components in cycles so long that the full rotation — the replacement of every part of a given machine, one piece at a time, until nothing of the original remains — may take generations. The place persists. It is not fragile. It is not endangered. It has settled into a state of profound equilibrium between construction and decay, between the made and the grown, between the industry that maintains it and the ecology that colonizes it. It is patient. It is permanent. It is, by any reasonable definition, a landscape — a made landscape, a grown landscape, a loud and bright and wet and dense and warm and impossibly vertical landscape, turning slowly in the thin air at the top of the world.

@@ -1,0 +1,29 @@
+# The Stilled Cathedrals
+
+The water goes down further than thinking. Cold, not freezing — the cold of stone that has been cold for a very long time and has forgotten there was ever another way to be. Visibility is perhaps thirty meters in the dim blue-grey light that filters from somewhere unseen above. Not surface light. Something older and more diffuse, as if the water itself remembers luminance.
+
+You are high here. This needs to be said early because nothing about being underwater suggests altitude, and yet: the floor below — when you can see it — is the worn crown of something that was once a mountain, or a tower, or both. The structures rise from that floor in a scattered congregation, each one separated from its neighbors by long stretches of empty water. A built place, but spacious. You could swim for minutes between one form and the next and see only the suspended silt-glow and the occasional drift of a fish-thing passing in the middle distance.
+
+The structures themselves are the strange part, and they are strange in a quiet way.
+
+They are made. That much is certain — the geometries betray it, the lingering symmetries, the way certain edges still meet at angles too clean for accident. But what they were made *of* is no longer quite what they are. Erosion has been at them for so long that the materials have surrendered their original natures and become something in-between: a stone-like substance that holds the memory of having been worked, dimpled and softened the way a bar of soap softens, every corner rounded into suggestion. The pillars are no longer pillars but smooth vertical thoughts about pillars. The domes have melted into low humps. Walls have thinned in their middles where the slow currents found them and now stand like translucent fins, the light passing through their wafered remnants in shifting greens.
+
+There are no plants. None. Not algae, not weed, not even the bacterial mats one would expect. The surfaces are *clean* in a way that suggests something — some chemistry in the water, perhaps, or some property of the constructed material — that refuses biology a foothold. The water is sterile of vegetation but not of motion.
+
+Because the water itself will not hold still.
+
+This is the turbulence. Not storm — there is no surface to storm against, no wind, no waves. The turbulence is internal. Thermoclines roll over one another in slow vast tumbles. Currents braid and unbraid. A column of warmer water will rise through a colder shaft and shudder the silt off a half-dissolved arch, and twenty seconds later the column has gone elsewhere and a downdraft is pressing through the same arch in the opposite direction. The ruins do not move, but the medium around them is never the same medium twice. Particles rush; small debris hurls; visibility opens and closes like a slow blinking eye. You can feel the water *deciding* things, and then unmaking the decisions.
+
+And the fauna lives inside this turbulence. They are abundant — more than you would expect, given how empty the architecture looks at first glance. The trick is that they ride the currents rather than fight them. Long ribbon-creatures, pale and segmented, let themselves be flung between the structures like banners cut loose from a parade. They never seem to swim; they only choose, with small flexures, *which* current to be inside of. Schools of small flat fish hang in the eddies behind the broken pillars, popping out one by one whenever the eddy gives way, then reassembling in the next shelter downstream. Something with too many fins and a face like a smooth white plate watches from inside a half-dome and does not move except when the dome itself flexes in the pressure changes — and then it flexes with it, matched.
+
+The sound is mostly the sound of water moving past water, which is almost no sound at all. A low harmonic hum, felt more than heard, where the currents press through the hollow ruined forms and the structures answer with the lowest of tones — not music, not even close, but the physical fact of resonance. Every so often a sharper noise: a piece of softened stone finally giving up, drifting free, tumbling. The fauna make no calls that you can detect. They communicate, if they communicate, in pressure.
+
+There is no technology here. Nothing blinks, nothing measures, nothing remembers on anyone's behalf. The builders, whoever they were, finished their work so long ago that the work has become geology, and the only sign they ever existed is the persistent faint *intentionality* of the shapes — a viewer's intuition that the spacing of the towers was once meaningful, that the domes faced something, that the long flat plaza-floors between the structures were oriented to something now gone.
+
+What's gone might have been the sky.
+
+That's the feeling that grows on you as you drift through. This was a high place when it was built — a mountaintop city, perhaps, or a citadel, or an observatory. Built tall to be near something above. And then the water came, or the land sank, or simply enough time passed that what counted as up changed its mind, and now the high place is a deep place, and the openings that once admitted starlight admit only the slow tumble of cold currents and the passage of ribbon-creatures, indifferent, abundant, at home.
+
+Nothing here is in a hurry. Nothing here is still. The ruins have reached their final form and will hold it, softening only by fractions per millennium, while the water around them churns through every possible configuration, restless inside the stillness, a turbulence held inside a patience.
+
+You could stay and watch for a long time. The fauna would not mind. The architecture has already forgotten you arrived.

@@ -1,0 +1,3 @@
+Deep beneath the planet’s crustal shell lies the Arboreal Sump, a vast, subterranean basin that functions less like a cavern and more like a biological machine. There is no water here; the atmosphere is a dry, static-charged cocktail of heavy gasses that smell faintly of ozone and crushed pine needles.
+
+The "ground" is an impossibility of logistics. It is a sprawling urban sprawl not of stone or steel, but of living, calc

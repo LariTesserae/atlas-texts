@@ -1,0 +1,16 @@
+Deep beneath the sun-bleached crust, in a lightless, humid hollow roughly the size of an industrial atrium, lies the **Loom-Root Grotto**.
+
+The architecture here is not built; it is secreted. Massive, calcified xylem-columns, thick as hangar pillars, stretch from floor to ceiling, their surfaces etched with rhythmic, repetitive grooves that look suspiciously like conveyor-belt tracks. These are not just trees; they are autogenous factories. The walls *sweat*—a constant, rhythmic condensation of warm, mineral-rich sap that beads on the skin and drips with a wet, heavy percussion into reservoirs carved into the floor by centuries of patient, chemical erosion.
+
+The space is dominated by the **Biomechanical Overgrowth**. You do not walk on dirt; you walk on moss-mats that feel like industrial felt, humming with muffled, subsurface vibrations. Everywhere, the flora is fused with the mechanical. Brass-colored vines entwine with pulsing, translucent circulatory tubes. Tiny, bioluminescent beetles—the fauna is dense here, a thick curtain of buzzing, metallic wings—swarm like sparks around the "nodes." A node is a flower-engine; it breathes with a wet, wheezing rhythmic *thrum-hiss*, processing the humid air into microscopic pellets of organic resin.
+
+The "urban" quality of the Grotto is chilling. It is laid out in precise, geometric grids, though the geometry is organic, swaying slightly as the floor-roots shift to accommodate the pressure of the subterranean soil above. Pathways are formed by the open channels of the roots, polished smooth over eons of use by the swarming insectoid inhabitants. There is a sense of settled, ancient industrial intent—a factory that decided to become a forest, or a forest that enslaved a machine.
+
+The atmosphere is thick and warm, smelling of ozone, damp mulch, and scorched nectar. The soundscape is a riot: the high-pitched, metallic whine of insect wings beating in synchronization, punctuated by the deep, wet *thud-clump* of the root-engines cycling through their hydration phases. If you stand still, you hear the "wet-ticking"—the sound of condensation dripping off the serrated, leaf-like flaps of the ventilation-plants.
+
+The rules of this place are simple but strange: 
+1. **The Pulse:** When the Grotto’s humidity spikes, the root-structures expand. You must move to the center of the nodes to avoid being crushed by the architecture.
+2. **The Exchange:** Nothing is static. If you deposit a source of friction—a shoe, a tool, a scrap of metal—the local life will integrate it into the root-matrix within hours, polishing it, calcifying it, and eventually using it as a structural support.
+3. **The Light:** There is no sun, only the cold, flickering blue-green chemiluminescence emitted by the insect swarms. When the insects grow quiet—a rare moment of stillness—the entire Grotto plunges into an absolute, suffocating darkness that feels like being buried alive in velvet.
+
+It is a claustrophobic, humming, and intensely busy machine-garden. Down here, beneath the world, the heavy machinery of nature has stopped trying to outpace the industry of the soil and simply swallowed it whole. Every inch is occupied, every drop of moisture is accounted for, and the entire room vibrates with the wet, warm, and utterly relentless labor of living.

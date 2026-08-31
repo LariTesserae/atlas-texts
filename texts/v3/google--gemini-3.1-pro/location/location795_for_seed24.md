@@ -1,0 +1,17 @@
+The darkness here is not cold; it is thick, baked, and overwhelmingly close. 
+
+This is a sunken chamber, a dry, blind hollow at the lowest ebb of a forgotten arroyo. Above, the sky is only a narrow, jagged fissure of absolute night, offering no moonlight, leaving the space below submerged in near-total shadow. To stand in this rock-bound room is to stand inside a cooling kiln. The high, curved walls of sandstone have spent the long day absorbing the furious desert sun, and now, in the dead of the lightless hours, they radiate that hoarded thermal energy back into an airless void. The heat is dry, perfectly stable, and smothering in its intimacy. 
+
+The walls themselves tell quietly of a different era. They are deeply fluted and scalloped by ancient friction, their surfaces smoothed into vast, sweeping concavities by flash floods that dried up millennia ago. Erosion has reached a masterful equilibrium here; there are no sharp, crumbling edges, no loose scree. Every surface of the confining bedrock is rounded, sanded, and settled into a state of permanent geological exhaustion. 
+
+The floor of the chamber is a pan of powdery, bone-dry silt, soft as milled flour. Across this pale expanse, only a few fiercely stubborn inhabitants exist. Three or four tough, gnarled shrubs are scattered widely across the dust, spacing themselves out to hoard whatever phantom moisture they can detect. They are dormant, their leaves curled into hard, leathery needles, their bark armored with gray thorns. They do not grow; they simply endure, suspended in a botanical stasis, skeletal silhouettes barely darker than the gloom around them.
+
+There is no rustle in their branches. The air in this enclosed pocket is entirely stagnant, trapped by the high, overhanging rock. Wind cannot reach down into this bowl. Because of this, the dust goes undisturbed. 
+
+There is an immense, heavy silence. No insect chirps; no nocturnal predator pads across the silt; no bats click in the dark overhead. The absence of fauna is profound, leaving an acoustic vacuum that makes the ears ache with the volume of nothingness. The quiet is punctuated only by the microscopic, crystalline *tink* of the sandstone cooling by a fraction of a degree—a sound so minute it is felt more than heard. 
+
+Yet, against the far curve of the smoothed wall, resting on a pedestal of bedrock protruding from the silt, there is a subtle disturbance in the natural geometry. It is not built—there are no structures here, no fires, no carved altars. It is merely a scatter of shattered stone. Thin, razor-edged flakes of dark chert lay fanned out around a central core. Beside the debris rests a beautifully symmetrical, teardrop-shaped handaxe, knapped to a crude but deadly edge. 
+
+It is a remnant of early hands, left behind in the dark by some unnamed wanderer seeking refuge from the vast expanse above. The sharp ridges of the stone lack the smooth erosion of the chamber walls; they are jagged, deliberate, and entirely out of place among the flowing curves of ancient water-wear. 
+
+But even this echo of intent has been swallowed by the stillness. There is no footprint left beside it. No ash from a fire. Just the chipped edges of raw stone resting in the breathless dark. The heat radiates in steady waves. The dust remains perfectly smooth. Nothing moves, nothing alters, and the heavy, warm dark holds the hollow chamber in an unbroken, timeless grip.

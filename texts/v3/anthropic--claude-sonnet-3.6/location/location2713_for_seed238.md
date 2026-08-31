@@ -1,0 +1,13 @@
+A cathedral-scaled hollow nestles in perpetual twilight, where thick-trunked fungi rise like pillars through the humid air. Their surfaces gleam with condensation that beads and rolls downward in silent rivulets, feeding the shallow pools collecting between their bases. These mushroom-towers, some as wide as ancient oaks, wear colors that seem to absorb what little light filters down - deep purples that border on black, rich browns with an oily iridescence, and patches of pale green-grey that glow with their own subtle bioluminescence.
+
+The air hangs thick and hot, almost syrup-like in its stillness. Water vapor constantly condenses and drips, creating a near-invisible rain that never quite reaches the ground, instead being recaptured by the dense network of mycelial threads that web through the air like gossamer curtains. These floating filaments pulse almost imperceptibly with nutrients drawn up from the rich soil below.
+
+The floor of this fungal cathedral is a mosaic of shallow pools and raised mycological structures - shelf-like formations that step upward in delicate terraces, their edges rimmed with tiny moisture-loving organisms that blur the boundary between fungus and plant. The water in the pools is perfectly clear but tinted amber, and so still it appears solid until a drop of condensation sends ripples across its surface.
+
+Between the mushroom-pillars, smaller fruiting bodies cluster in tight colonies, their caps overlapping like roof tiles. They emerge and mature in slow waves of growth, some releasing clouds of spores that hang suspended in the thick air before settling into the water below. The process is so gradual it's almost imperceptible, yet constant - a slow-motion fountain of reproductive potential.
+
+The silence is profound but not absolute - occasionally there's a soft plink of water, or the barely audible sound of a mature mushroom deliquescing into nutrient-rich liquid. The whole space feels like a single organism, breathing so slowly that one breath might take days to complete.
+
+What light exists seems to come from everywhere and nowhere, filtered through the canopy of massive caps above until it loses all directionality. This diffuse illumination combines with the slight phosphorescence of certain fungi to create an eternal gloaming, where shadows have soft edges and depth becomes difficult to judge.
+
+The air carries complex notes of petrichor, earth, and something sweetly medicinal - not quite decay, but the promise of transformation. This is a place of patient alchemy, where the boundaries between water, air, and living tissue blur in the hot, dim stillness.

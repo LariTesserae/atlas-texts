@@ -1,0 +1,43 @@
+The place occupies a shallow basin no larger than a village, though there has never been a village here. Low scarps enclose it on three sides, their faces rounded by such long weathering that they resemble banks of compacted ash rather than cliffs. The fourth side opens toward a gray estuary. At high tide, the estuary enters by a network of narrow cuts; after rain, water comes the other way, seeping from the scarps and traveling outward. Between these movements the basin is never flooded and never dry.
+
+Its floor is densely divided.
+
+Channels pass within handspans of one another, separated by ribs of black silt, rust-colored gravel, slabs of shale, and low ridges of something that looks at first like natural stone. The channels are seldom more than a boot’s width across. Some are clear enough to reveal iron filings trembling on the bottom. Others carry opaque green-gray water with the consistency of thin clay. Everywhere there are small falls, submerged lips, wet hollows, pressure blisters, drains, and polished runnels. Water beads on vertical surfaces and condenses beneath overhangs even when no rain is falling.
+
+Vegetation is sparse. A few colonies of wiregrass occupy the highest ridges, each blade short, dark, and stiff. Pale crusts of lichen mark stones that remain undisturbed for a season. In protected corners, horsetails rise in isolated groups like bundles of green needles, but most young growth is uprooted or buried before it can establish itself. There is too much motion in the ground.
+
+The motion is nearly silent.
+
+Across the basin, mudbanks collapse without warning. Gravel rises in slow boils. A channel that has run eastward for years reverses over the course of an afternoon, its banks folding inward as a new cut opens beside it. Flat stones tilt upright, drift several paces, and settle again. Pools empty through apertures that were not there a moment before. Elsewhere, water wells up so evenly that an entire patch of silt lifts like a held breath.
+
+None of this produces the clamor its violence suggests. The common sounds are intimate: the clicking of pebbles under shallow water, the soft tear of saturated clay, a drip entering a metal cavity, the faint hiss of sand being drawn through a narrow pipe. Occasionally there is a deep pulse below the basin, felt through the feet more than heard. Afterward, dozens of small adjustments travel outward—rills jumping their banks, screws of water revolving in place, sediment sliding from one compartment to another. Then quiet returns.
+
+Scattered among these forms are the remains of an industrial system, though it is difficult to tell where construction ends and geology begins. There are iron sluice gates only as wide as books, half swallowed by mineral deposits. Ceramic conduits emerge from the scarps and vanish beneath the mud. Square-headed bolts stud certain slabs in regular constellations. A narrow gantry crosses the basin near its center, reduced to two corroded rails and a lattice of braces. It leads nowhere: one end enters a weeping wall of shale; the other stops over a pool whose surface is crowded with trembling rings.
+
+At the northern edge stands the only intact building, a low brick pump house with no door. Its window openings have been sealed from within by layers of calcium, iron oxide, and translucent gray scale. Rainwater traces old lettering above the lintel, but only a few raised characters remain. The roof holds three short exhaust stacks. On cool mornings they release no smoke, only clear air slightly warmer than the surroundings.
+
+Inside, something continues to operate.
+
+A flywheel turns at less than one revolution per minute. Its belt has long since vanished, yet the wheel does not stop. Rods pass downward through packed clay. Banks of ceramic switches have fused into smooth, shell-like masses, and copper wires disappear into the walls like roots. There is no generator, no fuel store, and no obvious intake. The machinery bears the heavy rounding of immense age: tooth edges worn blunt, handles polished into asymmetry, inspection plates sealed by sediment. It is not derelict in the ordinary sense. It has weathered into its task.
+
+The basin appears chaotic only moment by moment. Over longer spans, it keeps its shape.
+
+Every collapse is balanced by an emergence elsewhere. Material lost to the estuary is replaced by sediment lifted from below. Channels migrate but preserve their total length. Pools appear and disappear, yet there are always forty or fifty of them. The low ridges are erased repeatedly and rebuilt along slightly altered lines. Rust enters the water, moves through clay and gravel, and returns as hard orange seams. The landscape is in continual upheaval without progressing toward ruin. It has reached an equilibrium made entirely of disturbance.
+
+Old survey posts suggest that people once attempted to measure it. Short brass rods protrude from the ground at irregular intervals, stamped with numbers and arrows. Some stand upside down. Several move gradually through the basin, carried not on the surface but within the soil, appearing years later in new locations with their stamped faces still clean. Thin chains connect a few posts beneath the mud. When tension travels through those buried chains, nearby water dimples in straight lines.
+
+There are paths, or things that temporarily serve as paths. The safest surfaces are broad plates of shale laid edge to edge, although their arrangement changes. In one hour they may form a crossing to the pump house; in the next, they may spread into a rough circle around a new vent. Footprints fill quickly with cold water. A person who stands still can feel the ground compacting around the soles, not gripping exactly, but accounting for the added weight.
+
+The air remains cool throughout the year. Sea fog often reaches the basin but rarely obscures it completely. Instead it catches among the close-packed ridges and channels, hovering knee-high while the upper air stays clear. In ordinary daylight the colors are subdued but precise: black mud, blue shale, red iron, dull cream mineral scale, and the occasional hard green of grass. Wet surfaces hold a plain silver reflection of the sky. There is little drama in the light itself. The drama belongs to matter.
+
+Animals are uncommon. Small translucent midges gather over warm seeps for a few days each season. A dark wading bird sometimes visits at low tide, walking with exaggerated care along the silt ribs, but it seldom feeds and never stays long. Beneath certain clear pools live narrow, colorless worms that orient themselves toward the pump house. No fish enter from the estuary, even when the connecting channels are deep enough. Tracks occasionally appear in the mud—three-toed, delicate, and close together—but they begin and end within the basin.
+
+The water has local habits. It avoids fresh-cut iron but clings to old rust. It runs faster through shadow than through sunlight. Droplets collecting under the gantry sometimes hang for several minutes after growing too large to be supported, shivering until a pulse passes through the ground; then all fall at once. Rain does not simply add water. It seems to give the basin instructions. During a shower, hundreds of minute gates open beneath the surface, sorting the rainfall by no visible principle. Some drops are sent directly to the estuary. Some circulate for days. Some reappear warm and metallic from vents near the pump house.
+
+There is evidence that the basin once processed something—ore, salt, dyes, perhaps the estuary’s silt itself—but whatever distinction existed between product, waste, machine, and terrain has been worn away. The slag has become bedrock. Pipes function as springs. Foundations migrate like shoals. The pump house behaves less like a building than an exposed organ of the ground.
+
+By evening, the basin may be entirely rearranged from its morning state, though a visitor returning after twenty years would recognize it at once. The same low enclosure. The same sparse grass. The same press of channels and wet stone. The same slow wheel turning in the sealed house.
+
+At dusk, when the estuary withdraws, the narrow cuts begin to drain. For a few minutes all the basin’s waters lean seaward together. The clicking gravel ceases. The drips synchronize. Mud surfaces tighten and shine.
+
+Then, from somewhere beneath the central pool, a single pressure wave passes outward. Banks slump, conduits clear their throats, buried gates alter position, and the whole compact landscape begins quietly rebuilding itself again.

@@ -1,0 +1,19 @@
+# The Crystal Vault
+
+In the highest reaches of the mountain range, where the air thins to whispers and the clouds drift below, there exists a small hollow: a vaulted chamber not crafted by human hands but gouged from the living rock by ancient forces now stilled. The locals who occasionally venture here call it the Whispering Chamber, though few make the treacherous journey more than once in a lifetime.
+
+The space spans perhaps thirty paces across, enclosed by walls of striated granite that curve upward to form a natural dome. What makes this place remarkable isn't its formation but what adorns it—thousands upon thousands of perfect hexagonal crystals, growing from nearly every surface in dense, overlapping clusters. They catch the intense mountain light that streams through a jagged opening in the ceiling, fracturing it into countless dancing points that skate across the chamber walls in blinding brilliance.
+
+The cold here is penetrating and constant. Ice forms in thin sheets along the north-facing surfaces, creating a delicate counterpoint to the angular harshness of the crystal growths. Occasionally, this ice melts slightly during the brief, intense periods of direct sunlight, sending thin rivulets of water cascading down the walls before refreezing in new patterns—a slow, eternal reshaping of the chamber's interior geography.
+
+No plants grow here—the altitude is far too extreme, the temperature too unforgiving—but strange formations of red-orange mineral deposits create fan-like structures that almost mimic coral or fungal growth. These iron-rich accumulations give portions of the chamber an otherworldly quality, as if they were fragments of some alien landscape imported to this mountain peak.
+
+The floor is uneven, polished in places by centuries of sparse foot traffic and occasional water flow. Small pools of collected meltwater dot the uneven terrain, perfectly still and so clear they appear more like holes in reality than actual liquid. These pools freeze and thaw in daily cycles, their ice creaking audibly in the stillness during transition—one of the few sounds that disturb the profound silence.
+
+Evidence of human presence is sparse but undeniable. In the chamber's center stands a crude stone altar, its surface worn smooth and slightly concave from use. Around it, small carved niches in the wall hold primitive tools fashioned from bone and simple metalwork—ceremonial implements left by pilgrims or shamans who made the arduous journey. Faded ochre markings on some wall sections suggest ritualistic significance, though their meaning is long forgotten.
+
+The air carries a metallic taste and the faint smell of minerals. Though animal life is almost entirely absent, tiny crystalline formations sometimes shift or collapse with soft tinkling sounds that local legend attributes to "mountain spirits" communicating through the chamber. More practically, these are likely the result of thermal expansion and contraction as sunlight moves across the crystal faces.
+
+Most remarkable is the chamber's acoustic property—certain spots create perfect resonance chambers where even the slightest whisper can be heard across the space, while other areas absorb sound completely. Those who have spent time here report that the chamber seems to "breathe" as air pressure changes with the mountain weather, creating barely audible tones that rise and fall throughout the day.
+
+Despite its stillness and quiet, the Crystal Vault remains in constant, imperceptible motion. Crystals grow incrementally over decades, water reshapes ice formations with glacial patience, and mineral deposits slowly accrete with each cycle of dampness and drying. It exists in a state of dynamic equilibrium—changing perpetually but always remaining fundamentally itself, a timeless pocket in the highest reaches of a world that continues its own ceaseless transformations far below.

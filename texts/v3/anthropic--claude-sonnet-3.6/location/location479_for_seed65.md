@@ -1,0 +1,13 @@
+The air screams here. Not with wind - the air itself screams, a constant resonant frequency that vibrates in the bones and makes thought feel crystalline and brittle. The sound comes from the towers.
+
+They rise like geometric needles of bare rock, hundreds of them stretching across the horizon, their peaks lost in the relentless glare of the high-altitude sun. Each spire is perfectly weathered, as if they grew this way rather than being thrust up from below - their faces are smooth but not slick, textured with tiny regular pits that catch morning condensation. The water beads and runs down in precise paths, feeding the shallow basins at each tower's base where small communities of specialized life gather in the brief daily moisture.
+
+The towers are home to the screamers - massive birds with wingspan wider than a man is tall, their bodies streamlined and dense with muscle. They nest in perfectly circular holes that pepper the tower faces, holes that catch the constant atmospheric resonance and transform it into that bone-piercing tone. The birds have evolved to navigate by it, to hunt by it, to court by subtle variations in its pitch. Their wings are strangely rigid, using the sound waves themselves somehow to stay aloft.
+
+Between the towers stretches empty space, impossible distances made more severe by the thin air and cruel light. Occasional tough lichen clings to the rock faces in geometric patterns that mirror the paths of water. Small quick things dart between patches of shade - not quite lizards, not quite insects, their bodies transparent except for dense organs that seem to pulse with the screaming of the air.
+
+Nothing here changes. The towers have stood in exactly this configuration for geological ages. The screamers' paths through the air follow precise and unchanging routes. The daily condensation arrives and departs on a schedule so regular it could be used to measure time. Even the transparent creatures' darting movements, which seem random at first, reveal themselves to be perfect repetitions if watched long enough.
+
+This is a place of mathematical permanence, of pattern turned to stone and stone turned to song. The screaming has carved everything into its final form, and now maintains that form with the persistence of a natural law. To visit is to feel yourself becoming part of the pattern, your movements falling into prescribed paths, your thoughts resonating at the frequency of the endless song.
+
+The sun beats down, the towers rise up, the air screams on, and nothing ever changes.

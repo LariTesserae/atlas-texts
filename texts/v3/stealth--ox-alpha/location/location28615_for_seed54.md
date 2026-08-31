@@ -1,0 +1,13 @@
+# The Held Chord
+
+You hear it before there is anything to see, and in a sense you go on hearing it forever, because there will never be much to see. The plateau announces itself through the soles of your boots first — a tremor, patient, rhythmic, like something enormous breathing under blankets — then through the air itself: a roar that is not wind. Wind up here is thin and private. This is different. This is a sound with structure, a chord that does not resolve, coming out of the dark from every direction at once.
+
+You are five kilometres above the cloud deck, in the long polar night, and the cold is the honest kind — minus thirty-four, dry until it isn't, then viciously wet. The air smells of wet stone and almost nothing else. Hydrogen has no smell. Remember that later, when you stand near a vent and breathe a gas that could burn and perceive only a kind of clean emptiness, a nothing with weight to it.
+
+Your headlamp is a formality. The Second Survey switched theirs off on the first night and never switched them back on. There is nothing to point them at.
+
+## Stone that drinks
+
+The ground underfoot is green-black, slick, veined. Serpentinite — rock that used to be olivine, deep mantle peridotite, until water got into it. That is the whole story of this place, and it is worth saying plainly, because everything else is a consequence of it: when water finds olivine, they react. The stone swells — forty percent, sometimes more — and gives off hydrogen, methane, and heat. A mountain made of swelling stone is a mountain that is still being born. It is not eroding. It is inflating. It rises a centimetre every few years, shrugging fresh fault scarps through its own skin, and the scarps come up raw and unweathered, olive-green crystal still sharp from the mantle, edges that would never survive a thousand years anywhere gentler than this.
+
+So the usual direction of geology is reversed here. Elsewhere, rain and ice spend their days deleting mountains. Here the water *writes* them. Every spring is a pen. The rocks weep constantly — not metaphorically; the cliff faces bead and trickle, the aquifer riding up inside the swelling stone, squeezed toward the surface faster than the cold can drink it. Shallow tarns pool in the young basins, black, unfrozen at their centres because they sit over reaction zones, rimmed with ice that grows outward in feathered plates. Where new ice skins over

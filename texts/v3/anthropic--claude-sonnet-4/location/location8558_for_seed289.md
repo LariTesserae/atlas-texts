@@ -1,0 +1,21 @@
+**The Foundry Depths**
+
+Deep beneath the surface, where no natural light has ever touched stone, lies a settlement carved into the bones of an extinct volcanic system. The air shimmers with heat that radiates from every surface—ancient lava tubes now serve as the main arteries of this underground city, their basalt walls polished smooth by centuries of industrial use. Temperature gauges, when they still functioned, routinely melted.
+
+The architecture is sparse but purposeful: massive cylindrical chambers connected by wide tunnels, with great gaps of empty space between the essential structures. Steam pipes snake along the walls in neat parallel runs, disappearing into darkness above and below. Enormous brass valves, green with patina, punctuate these runs at regular intervals. The construction has settled into itself over decades—metal expanded and contracted into its permanent warped state, concrete cracked in predictable patterns that now channel the condensation, everything worn smooth by heat and time and the passage of countless bodies.
+
+But the bodies are not human.
+
+Salamanders the size of freight cars move through the tunnels with deliberate grace, their wet black skin gleaming in the amber glow of furnace vents. They navigate by some internal compass, flowing around the machinery and each other in patterns that seem almost choreographed. Smaller salamanders—merely horse-sized—tend the equipment with surprising dexterity, their sensitive fingers adjusting dials and throwing switches. Heat-loving arthropods skitter across every surface in rustling waves: metallic beetles that feast on iron oxide, thermal crickets whose chirping creates a constant industrial percussion, and stranger things that might be living tools grown rather than built.
+
+The creatures have transformed this place into something between city and organism. Salamander-tended boilers generate not just steam for the ancient machinery, but carefully regulated environments for egg-laying. The beetles have carved intricate galleries in the concrete walls, creating a secondary architecture of tunnels within tunnels. Everything serves multiple purposes in the careful economy of the depths.
+
+The sound is overwhelming—not chaotic, but layered into a symphony of industry. The deep harmonic hum of massive turbines forms the bass note, punctuated by the rhythmic hammering of automated forges that still remember their programs. Steam hisses from relief valves in precise intervals. The salamanders add their own voice: a low, thrumming call that reverberates through the stone, answered by others throughout the complex. And threading through it all, the countless smaller sounds: the tick-tick-tick of cooling metal, the scatter of claws on stone, the bubble and drip of condensation.
+
+There is no water here in any form that would satisfy a surface dweller—only superheated steam, mineral-laden vapor, and the moisture that beads on salamander skin. The air itself carries the salt-tang of ancient seas long boiled away, leaving only their mineral ghosts to coat every surface in a fine crystalline film.
+
+Nothing changes. The temperature holds steady at levels that would kill most surface life within minutes. The machinery runs its eternal cycles. The salamanders follow paths worn smooth by generations of their kind. Even the sound maintains its complex but consistent rhythm, as if the entire place were a vast instrument playing a single, endless piece.
+
+In the deepest chamber, where the heat approaches the limits of what metal can withstand, the largest salamander rests coiled around the central reactor—whether nuclear, geothermal, or something stranger is impossible to say. Its hide has taken on the texture of burnished copper, and smaller creatures nest in the folds of its skin. It has not moved in living memory, but its eyes still track the movements of its children as they tend the machines that tend the world that tends them all.
+
+This is equilibrium incarnate: a closed system that has found its perfect, changeless dance between the organic and the industrial, between the needs of strange flesh and the demands of eternal engines.

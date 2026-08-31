@@ -1,0 +1,19 @@
+# The Basin of Still Air
+
+A shallow depression in a pale, chalky stone plain — fresh-cut, the edges still sharp where it was carved or blown or simply emerged from the earth. The basin is perhaps two hundred meters across, bounded on all sides by low walls of the same bone-colored mineral, their surfaces still unweathered. This is not a crater. It is too regular, too deliberate in its containment. Something shaped it.
+
+The air here is cool and dry, the thin moisture of the world drawn down into the hollow where it settles and stays. There is no wind. The silence is not merely an absence of noise but a presence in itself, a thickness that presses against the ears like deep water. It is a silence so complete that the mind, arriving from elsewhere, fills it with phantom sounds — a ringing, a roaring, which then proves, on attention, to be nothing at all.
+
+Sparse vegetation dots the basin floor: low, gray-green shrubs with needle-leaves that grow not in clusters but in long solitary arcs, their roots gripping cracks in the stone for dear life. Between them, the ground is bare — not sand, not dust, but the naked mineral substrate itself, faintly textured, cool to the touch.
+
+At the center of the basin stands a structure. It is urban in plan — rectangular, aligned to axes, clearly the product of intention — but it is not built from anything recognizable. The walls are a dark stone veined with something iridescent, and they climb in tiers that suggest rooms and corridors and levels, though the doorways and windows are absent or sealed or simply never were. The architecture is complete and uninhabitable. It rises in perfect silence, casting long geometric shadows across the pale floor, and nothing moves within it.
+
+Yet the basin is not still. In the corners where the low walls meet the floor, fine dust gathers in thin lines, reshapes, and disperses — though no wind stirs it. The gray-green shrubs lean subtly in different directions, as though listening. Along the eastern rim, the mineral surface sweats a faint moisture in the cool hours, feeding root systems invisible beneath the stone. Something is happening here, many somethings, all of them silent.
+
+Fauna is rare. Occasionally a pale, long-limbed creature can be seen at the basin walls' edge, watching with eyes like polished stone — then gone, slipped back into the featureless plain beyond. They do not enter. Whatever the structure at the center is for, it is not for them, and they know this the way animals know things.
+
+The light here is dim but not dark. A pale luminescence comes from everywhere and nowhere, a sourceless coolness that falls without casting shadows. The structure's tiers are visible; the dust lines are visible; the lean of the shrubs is visible. But the light itself has no origin, no angle, no source — only the fact of itself, illuminating without heat, revealing without casting.
+
+When the temperature shifts — and it shifts often, cycles within cycles, a rhythm within a rhythm — the basin breathes. The mineral contracts and relaxes, the dust patterns eddy and reform, the faint moisture appears and vanishes. The structure does not move, but it seems to absorb the change, to drink in the dynamic world and return nothing but stillness.
+
+This is an ancient place, a strange place, a place where the city was built but never occupied, where the processes continue but the voices do not. The basin holds its silence like a cupped hand holds water: loosely, and with the understanding that it will not last. But for now, here, nothing speaks. Nothing calls. Nothing falls or crashes or howls. The basin is cool and pale and silent, and it is waiting for something that does not know how to arrive.

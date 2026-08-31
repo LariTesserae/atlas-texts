@@ -1,0 +1,11 @@
+The dense jungle thrums with life, a cacophonous symphony of birdsong, insect buzz, and the guttural calls of unseen creatures echoing through the twilight gloom. Massive trees soar into the canopy, their trunks swathed in curtains of moss and vines, roots splayed across the loamy forest floor like the gnarled fingers of primordial giants. The air is warm and heavy with moisture, rich with the fecund odor of decay and growth. 
+
+Shafts of wan light filter down in ephemeral pools, dappling the riotous undergrowth - a near-impenetrable tangle of ferns, broad-leafed plants, and fungal eruptions in lurid shades. Strange flowers the size of dinner plates yawn open, exuding cloying perfumes to entice the iridescent insects and thumb-sized hummingbirds that flit and dance from bloom to bloom.
+
+Through the vegetation, glimpses can be caught of a slow-moving river, its waters dark and tannin-stained. Floating islands of matted foliage drift languidly along, occasionally spinning in the capricious eddies. Prehistoric-looking fish cruise the depths, some luminous, some armored in bony plates. Along the banks, amphibious creatures haul themselves through the shallows and bask on half-submerged logs.
+
+Here and there, streams tumble down rocky escarpments swaddled in greenery, feeding into stagnant pools from which heady mists rise each dawn. Karst towers thrust up through the forest, riddled with caves in which translucent creatures with too many eyes lurk.
+
+The denizens of this place craft their dwellings among the boughs - pods of woven vines and leaves, or mud-and-wattle huts clinging barnacle-like to the great trees. Little light penetrates here, so the inhabitants rely on the bioluminescent creatures they cultivate and the night-blooming flowers whose nectar induces vibrant hallucinations. 
+
+Everywhere, there is a sense of primordial energy held in precarious balance - that the line between life and death is gossamer-thin, and that the rules of reality could change in a heartsbeat. Poisonous beauty and bizarre adaptations abound in this hothouse microcosm, a crucible of unrestrained creation and destruction, growth and decay, in the perpetual shadow of the jungle's emerald embrace.

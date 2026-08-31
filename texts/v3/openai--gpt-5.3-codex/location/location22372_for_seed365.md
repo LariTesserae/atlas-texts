@@ -1,0 +1,24 @@
+At first glance it looks like a cliffside town that forgot it was a town and let the mountain keep designing it.
+
+The place sits high in a broken basin just below a constant lid of cloud. Not alpine-bright, not snowy—just cool, thin-aired, and dim, as if daylight has to pass through wet wool before it reaches the ground. The basin is small enough to cross on foot in an hour, bounded by fresh, sharp walls of dark stone. You can still read the violence of its making: split faces, jagged ledges, gullies that are too raw to be old. Erosion is at work, but young—more incision than smoothing. Slopes crumble in clean flakes, and new channels appear after every hard rain.
+
+Water is not abundant, but it is persistent in odd ways. Rain comes in short, decisive bursts, then stops for long gray stretches. Most moisture arrives sideways, as mist dragged across the rim and combed out by leaves, netting, hair, fur, and carved stone vanes. Everything sweats by dawn: ropes, walls, bark, bone tools. There are no broad rivers here; instead there are pocket systems—drip cisterns, seep terraces, moss wells, and cold hollows where water collects for a few hours each day before vanishing into cracks.
+
+And still, it is lush. Vegetation grows in concentrated masses: thick fern courts, tower-heathers, black-leaf shrubs with waxy skin, and trees whose roots run over bare rock like fingers searching for seams. Green is not everywhere, but where it takes hold it is extravagant. Between those clusters are open stretches of mineral ground, pale grit and fresh scree, giving the landscape a sparse rhythm: abundance, gap, abundance, gap.
+
+The settlement follows that rhythm. It is urban in pattern, primitive in means. No grand machinery, no straight imperial roads—just a dense logic of hand-built systems: dry-stacked basalt walls, timber galleries, hide awnings, woven fog-catch frames, stepped lanes cut directly into the stone. Structures are arranged in rings and spurs around moisture sources, with wide empty courts between neighborhoods where animals pass and runoff can move. Tool marks are everywhere. Metal exists in tiny amounts, treasured and repaired endlessly; most work is done with stone edges, fired clay, bone needles, fiber cordage, and patient labor.
+
+The strangest part is the animal life. It is overwhelming, but not loud. The basin is full of moving bodies: pale cliff-goats with membrane ears; six-wing gliders that fold themselves into crevices; sleeve-bodied lizards that bloom from cracks at dusk; velvet insects clustering on warm walls; patient, long-legged grazers that feed on hanging moss gardens. Predators are present too—thin, ink-colored things that hunt by pressure and vibration—but even they move with ceremonial quiet. You can stand still and watch ten different species pass within arm’s reach while hearing only the soft tick of claws and the brush of wingcloth.
+
+Sound is swallowed here. Moss on stone, thick air, layered foliage, and furred architecture dampen everything. Voices stay low by habit. Bells are wooden. Warnings are mostly visual: flag shifts, mirror flashes, lifted smoke in damp weather. In the hush, small noises become geography—the periodic drip under a bridge, the faint grit-slide on a gully face, the breathing rustle of a roost turning over in sleep.
+
+Nothing is static. The basin runs on cycles measured in condensation, migration, and collapse. Morning belongs to collectors and herbivores; midday to wind and gliders; evening to hunters and pollinators. Whole walls of vegetation can shift upslope over a season as moisture lines move. Paths are rerouted weekly around fresh falls. Houses are built expecting failure: panels detachable, roofs meant to be rethatched quickly, foundations thick but sacrificial. Even ownership feels temporary; what matters is stewardship of a cistern, a wall section, a root scaffold.
+
+There are local rules, practical and mythic at once:
+
+- Never block a runoff path, even in drought.
+- Never harvest from a roosting wall at first dim (the animals are counting then).
+- Leave one ledge in every garden unworked for the cliff-kin.
+- If the mist arrives warm, stay off the upper stairs; stone will peel before dawn.
+
+By night the clouds press lower, and the town becomes a constellation of sheltered embers and wet leaves. The fauna continues around it—crossing roofs, feeding from hanging racks, sleeping in shared architecture. You realize this is less a human town in wilderness than a negotiated district inside a much larger animal city, built with simple tools on young stone, held together by moisture, patience, and attention.

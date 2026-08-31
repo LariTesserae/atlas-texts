@@ -1,0 +1,21 @@
+The place has no name that any tongue could hold.
+
+You stand on the lip of a vast, high amphitheatre of stone that should not exist. The elevation is lunatic—thin air screams past your ears even though there is almost no wind. The rock itself is not one substance but a thousand frozen arguments: black volcanic glass welded to pale limestone, riddled through with veins of turquoise that sweat cold water. Every surface weeps. Moisture condenses out of nothing, beads, runs, gathers in silver threads that slide into fissures and vanish. The water is everywhere and nowhere; it never pools long enough to reflect the sky because the sky itself is wrong.
+
+There is no vegetation. Not a lichen, not a moss, not even the ghost of a root. Instead the mineral world has grown impatient with absence and begun to imitate life in its own slow, lithic way. Towering lattices of crystal—some white as salt, some the violent violet of old bruises—bloom in dense, near-touching thickets across every slope. They are not plants. They are geometry that has learned hunger. Their edges hum.
+
+The light is merciless. A white-gold sun, far too large and too close, hammers the heights. Every crystal face becomes a mirror, every wet stone a lens. The glare folds and multiplies until the air itself seems solid with brightness. Shadows are sharp enough to cut. Yet the temperature remains cool, almost cold; the heat is all light, none of it warmth. Your breath condenses the instant it leaves you and falls as tiny glittering needles that chime when they strike the rock.
+
+Sound is constant and overwhelming. The crystals sing. Some shriek at frequencies that make your teeth ache; others produce deep, organ-like drones that vibrate in your bones. Water trickles and gushes through hidden channels inside the stone, amplifying into roaring organ pipes. Every few minutes the entire escarpment gives off a subsonic groan as some vast internal tension shifts. The noise never stops. It is the sound of a world talking to itself in languages that predate ears.
+
+The terrain is dizzyingly open and claustrophobically dense at once. From any ridge you can see for dozens of kilometres across a broken highland of knives and spires, yet every square metre is crowded with razor-edged crystal growths, wet black pillars, and strange built remnants. Here and there the primitive handiwork of some earlier intelligence still clings: stairways carved in perfect spirals that lead nowhere, half-buried domes of fitted obsidian, single weathered stelae covered in glyphs that keep changing when you are not looking directly at them. The structures are few, but each feels like a word spoken by someone who has since gone mad or become a mountain.
+
+Reality is not holding. In the middle distance the geometry forgets itself. Horizons fold like paper. Crystals sometimes phase through one another without resistance. Sections of the landscape appear to be running in reverse—water climbing upward in silver ribbons, light bending backward into the sun. Gravity is negotiable in certain folded pockets; you can watch small stones drift upward in lazy spirals before they remember they are supposed to fall. The air tastes of iron and ozone and something sweeter that has no right to exist at this altitude.
+
+Nothing lives here in the animal sense. No birds, no insects, no hidden scurrying things. The only motion besides the weeping water and the shifting light is the slow, deliberate growth of the crystals and the stranger processes that sometimes bloom out of the stone itself—pale, branching lattices of frozen lightning that crawl across cliffs for hours before dissolving back into quartz. These are the only “creatures” the place permits, and they do not eat or breathe. They only become.
+
+This is an old place that has never been young. It reached its weathered equilibrium aeons ago and has simply continued refining its own strangeness ever since. The high, bright, loud, wet desolation feels permanent, as though the universe tried to make a desert, a glacier, a cathedral, and a nervous breakdown at the same time, then gave up and left the result to sing to itself under an oversized sun.
+
+If you stay long enough, the crystals begin to sing your name in frequencies only your marrow can hear. Most choose not to stay that long.
+
+Most.

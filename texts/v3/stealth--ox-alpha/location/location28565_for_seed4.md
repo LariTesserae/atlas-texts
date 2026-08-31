@@ -1,0 +1,49 @@
+# The Vessel
+
+Above, if you could call it above, is the fen: black water threaded with sedge, a sky the color of wet slate that has forgotten any other color. Rain arrives sideways and often. Somewhere in that drowned ground is a hummock larger than the others, and in the side of the hummock, among root-throats and peat, is a mouth.
+
+You would find it only by falling into it. The tussock grass gives way and there is a pore in the world, knee-wide, ringed with rootlet lashes that tighten in cold weather. You grease yourself with rendered fat before going in — everyone does, it is the first courtesy of the place — and you slide down a short wet throat into the interior, and the sound of rain stops as if a door had closed on it, though no door has.
+
+What you enter is a town. What the town is entered *into* is harder to say. The people here call the host the Vessel, and they do not argue about whether it is tree, or tuber, or something the old categories never met. It germinated within living memory — the eldest pruners pressed their palms, as children, against walls that are now deep interior — and it is still growing, still hollowing and filling itself, and the town lives in the country of its body the way lice live in wool: thoroughly, gratefully, and without the illusion that they are the point.
+
+## The Gallery
+
+The main gallery runs further than a shout carries, which here is not far. It is shoulder-width in most places; you can touch both walls at once if you spread your arms, and often you do, because the walls tell you things. They are living wood — pale, faintly warm, beaded with moisture that is always arriving. The Vessel sits low, lower than the fen's water table in wet seasons, and the water wants in. It weeps through the younger tissues in a fine perpetual sweat, gathers in channels cut along both sides of every floor, and runs, drop by drop, toward the Sump at the bottom of the world. Nothing here is downhill *to* anything else; everything is downhill from the sky.
+
+Because the host is young, nothing is worn smooth. Cut edges gleam and stay sharp; new ribs of wood nick elbows; the newest chambers, opened within the year, are white as teeth and smell of resin. There is no dust in this world — too damp, too recent, and nothing metal to rust anyway. The oldest surfaces are only grandmother-smooth, polished by four generations of hands and feet, and those stretches feel like silk after the raw frontier wood.
+
+And yet for all that the walls are crowded with life, the roads are empty. This is the first paradox the visitor must swallow: you can walk the length of a ward and meet no one, though several hundred souls are within a knock of you. The galleries belong to the air between presences. Presence happens in alcoves, in cells, in the swollen chambers where the wood has blistered itself into rooms. Every niche along every corridor is tenanted — you will learn this soon, and it will adjust your walking — but the traffic between niches is thin, patient, and quiet.
+
+## Dark, and the Economics of Light
+
+There is no day here. The only seasons come down through the peat as cold — each year a tongue of frost reaches a little deeper into certain corridors, and the calendar-keepers mark the year by how far the Frost-Tongue got. Between frosts, the clocks are water. In the clock-ward, drips fall from weeping ceilings into graduated gourds, and a listener counts the intervals; the whole town keeps time by the sound of its own leak.
+
+Light is rationed like medicine. Certain molds that grow on old wounds put out a grey-green glow the strength of a dying ember, and the town farms them on plaster-beds, moving slabs of glow where light is needed. Couriers carry lamp-grubs in vented jars — fat pale larvae whose spit shines for an hour if fed the right mold. And there is the First Lamp, which is not fire (fire is forbidden; smoke kills the Vessel's breathing pores, and flame draws the wrong kind of attention): it is a lure-organ taken long ago from a deep-water beast, still glowing in its jar of brine, brought out only for oaths and funerals. Children are shown it once, briefly, so they know what light *means*.
+
+Everyone else sees by hand and rope. A continuous guide-rope runs every public route, braided from inner bark and human hair — the ropewalk buys hair by the length — and the fiber tells you the district: this twist is the Nursery ward, that smoother strand the Larder Vaults. Knots mark junctions. Your palm reads the town faster than your eyes ever could, and your eyes, after a generation or five of this, have grown wide and dark and useful at the edge of nothing.
+
+Speech is kept low by law — the Quiet Law, which predates memory — and so the town talks in taps. Every household has a signature knock, struck on the resonant gall-nodes set into walls at intervals. News travels as rhythm. A birth is a quick triple; a death descends the wards slowly, ward by ward, like something sinking.
+
+## The Neighbors
+
+Now the fauna, which is to say: nearly everything.
+
+Every sleeping alcove holds a **warmhide** — a broad, slow, hairless beast that spends its life folded into the curve of the wall, radiating a stubborn animal heat into the bedding stacked against it. In a world this cold, a warmhide is not a pet; it is a stove with a heartbeat, and the gravest crime on the books is the Neglect of Warmth — letting your hearth-beast go hungry, or worse, trading it. Newborns are delivered in the Warmward precisely so that their first warmth is borrowed rather than their own. When a warmhide dies of age it is buried in the wall of the family that kept it, and the gall that forms there is said to sleep more soundly than any other room.
+
+**Milk-slugs** the size of forearms graze the mold films off the lower walls, leaving clean bright tracks. Households favor particular slugs and know their routes; a slug's trail is trusted the way we trust a swept street. **Door-moths**, wings like folded leaves, pollinate the gall-orchards — yes, orchards: the town trains certain swellings of the host to fruit, heavy pale gall-apples that taste of pear and iron and are faintly warm to the palm, having ripened from the inside with their own small fermentation. The fruit harvest is timed to the moth bloom, when the galleries fill, one night each cycle, with a soft storm of wings — the loudest the town ever gets, and it sounds like a coat brushing past in the next room.
+
+Down in the Sump swim blind fish, white as candlefat, that read the water with their whole bodies. They are fished by feel, on lines strung with shell hooks, from ledges above their layer; below them the true water table runs cold and mineral and slightly sweet, and that is what the town drinks.
+
+Two kinds of neighbor frame all the rest, the way a frame holds a picture.
+
+The first is **the Walker**. Once a year it comes down the main gallery from the far end of the Vessel — a colossus, slow as weather, all grinding mouthparts and patient appetite — and everyone stands flat to the walls for a night and a day while it passes, close enough to feel the wind of it, grazing as it goes. It eats the sealed and dying tissue, and it *opens*: chambers the Vessel had begun to close, galleries nobody knew were forming, all broken open raw and white in the Walker's wake. The town steers it with bait-fruit laid in the directions the pruners want breached, and afterward the scouts go ahead into the new country with rope and lamps and map it by touch. Behind the Walker come the beetle-farms, turning its dung into the town's chief protein. Nothing is wasted that the Walker wastes.
+
+The second is the reason for the Quiet Law: the **still-ones**. Long-legged, jointed, hanging from the ceiling forks of the bigger galleries, they hunt by movement and by the warmth of breath. They do not rush. They are the reason you walk slowly through open country, breathe shallow, and carry decoy-hearts — clay pellets warmed in the compost beds, thrown to land somewhere you are not. The compost beds themselves are part of the same economy: heaps of mash and mold that rot hot enough to heat stones, which heat the bath-house and the fermenting vats. Heat in this world comes from beasts, from rot, from nowhere else. The town has made its peace with that.
+
+## What Is Done Here, and Why It Holds
+
+Nothing here was built. Everything was *persuaded*. That is the whole of the technology: shell and tooth for edges, bone awls, cordage, wedges and levers, resin glues, and above all patience — the understanding that if you tie a shoot today, in six years it is a stair. The Pruners' guild is therefore the closest thing to a government: they decide what may be cut, which is to say they legislate the architecture. A disputed boundary is settled by what the wood was trained to do. Thieves are sentenced to the cold wards. Liars, it is said, are simply left uncorrected, because the walls record everything — the archive is a lattice of deliberately bound scar-knots, and a trained reader closes her eyes and reads the town's history with her fingertips.
+
+Food needs no fire. Gall-fruit eaten ripe; sap pressed and freeze-concentrated, ice skimmed away night after night until what remains is syrup; fish and beetle-grub dried on racks in the draft of the entry throat; mash fermented in vats lined with beast-stomach. Meals are quiet, communal, and tasted carefully — because the strange thing, the thing everyone knows and no one agrees about, is that the fruit of a room changes with what happened in it. The gall-trees of rooms where someone died badly are said to fruit with a taste of iron. Grief gets into the wood, the grandmothers say, and the wood is honest.
+
+The dead are planted. A body is set into the nursery-wall with a handful of gall-seed, and the

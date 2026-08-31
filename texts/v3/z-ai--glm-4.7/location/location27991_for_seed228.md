@@ -1,0 +1,25 @@
+The bottom of the world is not dark, though it is deep. It is a place of blinding, painful clarity.
+
+You stand in a depression, a spherical bowl carved perhaps aeons ago into the crust of the planet. It feels less like a geographic feature and more like the burn mark left by a god’s thumbprint. This is the "below surface" elevation—a steep-sided, amphitheater-like hollow sunk deep into the mantel, open to the sky far above but vast enough to contain its own claustrophobic weather.
+
+The first thing that hits you is the noise. It is not merely loud; it is violent. The air here does not hold sound; it beats you with it. The acoustics of the bowl are perfect, catching every whisper and amplifying it into a roar. The primary sound is a low-frequency thrum, a seismic vibration that rattles the teeth, overlaid with the hissing scream of superheated water meeting stone. It is a bazaar of decibels, a chaotic anthill of audio where silence is the only thing that cannot survive.
+
+Then, the light. It is aggressive (2.6/3). The entire space is illuminated by a source that has no single point of origin but seems to bleed out of the rock itself. The walls of the depression glow with a hard, white-blue luminescence, stark and shadowless. It reveals every texture with ruthless honesty. There are no soft corners here; the world is rendered in high contrast.
+
+The terrain is wet (2.1/3) and warm (2.0/3). The heat is humid and heavy, a thick blanket that smells of ozone and wet dust. Water does not flow here so much as it perspires. The rock faces are "weeping," constantly slick with runoff that sheets down the curved walls in thousands of silver ribbons. The floor of the depression is not solid ground but a settled, shifting marsh of silt and black gravel, constantly churning under the endless delane.
+
+And yet, despite the water and the warmth, there is startlingly little life. Vegetation (0.9/3) is sparse and stunted. You do not see trees or lush ferns. Instead, clinging to the wet, vertical rock faces are isolated patches of "scab-moss"—tough, silicon-based mineral growths that glow faintly in reaction to the noise. They are widely scattered (1.3/3), lone islands of biological resistance in a sea of geological violence.
+
+The ecology of the place is just as lonely. Fauna (1.0/3) is rare, but present. You might spot a single "Echo-Wing," a leathery, flightless bird-like creature that perches on the high ledges. It sits motionless for hours, its skin translucent to show the workings of its organs, seemingly feeding on the sheer acoustic energy of the environment. It does not sing; it merely absorbs the roar.
+
+This is an eroded landscape (2.2/3), but the erosion is wrong. The rocks are weathered, yes, but the patterns are impossibly precise, spiraled and hexagonal, as if the wind and rain had been programmed to sculpt them. It suggests a "settled-form," a place that has existed in this state of chaotic balance for millennia. The violence is stable; the turbulence is routine.
+
+The built structures (0.7/3) are scattered and difficult to distinguish from the natural geology. Half-buried in the silt of the marsh floor are the arches and pillars of a previous civilization—or perhaps a future one that hasn't finished building. They are made of a material that looks like glass but feels like warm iron. One monolith stands upright in the center of the lake, a single, jagged needle that hums with a pitch that sets the water vibrating around it.
+
+This needle is the source of the high-tech anomaly (2.6/3). The physics here are bent. The water falling down the cliffs does not always hit the bottom; about ten feet above the silt, the streams frequently arrest in mid-air, forming floating, suspended droplets that hang there for seconds before defying gravity to shoot sideways, pulled by magnetic fields that don't register on a compass. The "weirdness" (1.0/3) is subtle—a sense that the geometry of the room is breathing, expanding and contracting by microns with every crash of the invisible tides.
+
+The scale of the place is intimate despite the depth. It is a "cathedral" scale (1.4/3). You can see the entire stage from one vantage point—the rim of the bowl arching over like a proscenium, the liquid floor, the solitary spire. It feels like a room, a contained experiment, rather than an open wilderness.
+
+The dynamic energy (2.6/3) is the defining character. It is Solaris-like in its unpredictability. The water level can rise and fall three feet in a minute, driven by unseen pumps or tectonic spasms. The light can strobe, momentarily plunging the bowl into darkness before returning with blinding intensity. Spouts of steam erupt from the mud without warning, geysering upward with the force of a cannon blast, only to dissipate into the roaring wind.
+
+It is a place of relentless, loud, wet activity. It is a machine made of mud and light, sweating and screaming in the dark, beautiful in its absolute lack of mercy. You stand there, small in the cathedral, deafened by the song of the earth trying to turn itself into something else.

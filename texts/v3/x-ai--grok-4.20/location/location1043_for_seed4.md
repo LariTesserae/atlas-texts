@@ -1,0 +1,26 @@
+The place is called the **Weeping Hollow**.
+
+It is not large. You could walk its entire breathing length in the time it takes a single drop to fall from the ceiling to the floor. Yet it feels endless because every surface is alive, and every living surface is watching.
+
+A low, cold pocket of the world, freshly cracked open by some recent convulsion of stone and root. The ceiling — if it can be called a ceiling — is only four or five times a person’s height, but it is not stone. It is a single colossal liverwort the color of old bone, its fleshy lobes weeping constantly. Water condenses on its underside in perfect spheres, trembles, lets go. The droplets fall with the slow, deliberate rhythm of a heartbeat heard underwater. That is almost the only sound.
+
+The ground is not ground. It is a knee-deep mat of saturated sphagnum and clubmoss so dense and interwoven that it has become a living sponge. Step on it and the whole floor exhales cold mist. Step again and the moss drinks the print, erasing it within heartbeats. Here and there the moss parts around blunt black ribs of young basalt — fresh stone, sharp-edged, born yesterday in geological time. Between the ribs lie shallow pools no wider than a handspan, each one a perfect mirror of the weeping ceiling. The water is so clear it seems not to exist until something touches it.
+
+Everything else is plant.
+
+Vines like braided sinew drape from the liverwort sky and root themselves again in the moss floor, forming living columns and arches that the locals have encouraged into streets and thresholds. Their stems are thick as a thigh, hairless, the deep green of winter jade. Smaller ferns and liverworts grow along them in dense velvet, so that every wall feels furred and warm to the touch despite the cold. The cold itself is strange: it is not the dry bite of mountain frost but a wet, marrow-deep chill that makes breath bloom white and linger like slow smoke.
+
+This is a city, yet it has no materials except what grows. The “buildings” are pruned vaults of living vine. The “bridges” are single enormous strands of creeper trained across the wider gaps. The “lanterns” are clusters of bioluminescent fungi coaxed into fruiting only when the inhabitants stroke their stalks in a certain pattern; most of the time they remain dark. Light here is almost an injury. The people — small, pale, web-fingered folk wrapped in cloaks of dried moss — treat it with suspicion. They prefer the perpetual dusk, the dim pearl-gray glow that filters through the translucent liverwort sky when the hidden sun is directly above.
+
+Fauna is overwhelming in the way that breath is overwhelming: you do not see it until you are inside it. The air itself is thick with midges no larger than motes of dust; they move in slow, glittering constellations that spell out momentary sigils before dissolving. On every surface crawl translucent isopods the color of ice. They click softly when they meet one another, exchanging droplets of water mouth-to-mouth in a silent, constant diplomacy. In the deeper moss, pale newts with external gills drift like slow comets. And always, always, there are the spiders — thousands of them, none larger than a fingernail, their bodies black glass, their webs so fine they are nearly invisible. They spin not to catch prey but to listen. Every vibration in the moss, every falling droplet, is sung along their silk and interpreted.
+
+The people call them the Choir.
+
+Sound is therefore mostly quiet, but not empty. There is the soft perpetual dripping. The wet kiss of moss underfoot. The minute clicking of isopods. The sigh of cold air moving through the hollow as the living architecture gently contracts and expands with temperature and moisture. Once in a great while a low, bell-like groan rolls through the entire chamber as the colossal liverwort flexes.
+
+Everything is in motion, yet nothing seems to hurry. The city is being constantly rebuilt by its own walls; old vine-structures are pruned away and new ones guided into place by careful hands. Predation exists, but it is ritualized and slow: a certain species of glowing millipede is allowed to graze the moss in exchange for the luminous mucus it leaves behind, which the people use as ink. The newts eat the midges; the spiders eat the newts when they can; the people eat almost nothing that bleeds, preferring the sweet, iron-rich sap of the jade vines.
+
+The strangeness is not in any single creature. It is in the feeling that the entire pocket-world is one continuous organism pretending, for the sake of its inhabitants, to be many. When you stand still long enough the moss beneath your feet begins to pulse in time with your heart. If you place your palm against a vine-column you can feel it breathing. And if you stay long enough to fall asleep, you will wake with tiny white roots curled delicately around your fingers, tasting you, deciding whether you are still useful to the Hollow or whether it is time to begin the slow, patient work of turning you into more architecture.
+
+The Weeping Hollow does not want you to leave.  
+It is still very young, still forming, and it is lonely in the dark.

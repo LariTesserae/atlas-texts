@@ -1,0 +1,23 @@
+The air is thin enough to taste of ozone, yet hot enough to blister the lungs. This is an environment pushed to the upper limits of the troposphere, a vast, sweeping plateau at the roof of the world. The sky overhead does not scatter light into pale blue; instead, it deepens into a bruised, near-void indigo. Yet, despite the extreme altitude, the sun beats down with an unshielded, anvil-heavy glare. 
+
+The geology here has negotiated a long, complacent peace with the elements. Red and ochre stone stretches out in a sweeping, mid-range expanse of canyons and amphitheaters, every edge polished by aeons of high-atmospheric wind. The mesas are rounded, aerodynamic, and heavily scoured, settling into smooth, immense curves that roll endlessly toward a hazy, curved horizon. 
+
+Defying this geological purity is a crude, scattered geometry of heavy machinery. There are no cities here, no clustered settlements or roads. Instead, the landscape is punctuated by isolated, monumental artifacts of industry. Massive, heavily insulated pipes—some as thick as a house—bridge the chasms and bore straight through the wind-rounded rock. Occasional bell-shaped compressor towers squat on the ridges like iron toads, tethered by thick clusters of electrified cabling. The machinery is automated, functional, and deeply entrenched in the environment. 
+
+These scattered engines serve a single purpose: refrigeration. 
+
+Deep inside the heavily shielded conduits, coolant flows. In the blistering, arid heat of the plateau, the undersides of these freezing pipes sweat. Condensation forms in the deep, narrow ribbons of shade beneath the sprawling metal veins. The moisture gathers into fat, shimmering drops that weep down the ribbed metal and pressure valves. It is an intermittent, artificial dampness, creating slick, dripping micro-climates of cool water amidst the radiating heat of the stone. 
+
+Because of this water—and the precious shade provided by the pipelines—the landscape is phenomenally, viscerally packed. 
+
+At first glance, the smooth red rock appears heavily textured, coated in dark gravel. But the ground is alive. The terrain is utterly saturated with fauna, an ecosystem stacked body upon body with zero negative space. There is almost no vegetation here, save for a few brittle, wire-like strands of chemo-autotrophic lichen clinging to the pipe joints. The density is purely animal. Millions of wide-bodied, multi-legged reptiles and heavy-carapaced insects pile atop one another. They possess mirrored, thermal-reflective scales, mantling the pipes and the rocks beneath them in overlapping ridges that look like armor plating. 
+
+Despite the staggering abundance of life, and the heavy-industrial nature of the machines, the world is hushed. The thin air swallows acoustics. The primary frequency of the compressor towers is a bone-deep, subsonic vibration that bypasses the ears and settles in the teeth. The millions of creatures are entirely mute; there are no calls, no roars, no songs of claiming territory. The soundscape is reduced to a vast, sweltering quiet, broken only by the dry, localized rustle of countless chitinous legs shifting against stone, and the rhythmic *plink... hiss...* of condensation dropping from the pipes onto sun-baked rock, flashing instantly into tiny breaths of steam.
+
+Yet, within this silence, the world is ferociously active. It operates on a relentless, slow-motion choreography of survival. 
+
+As the sun arcs across the indigo sky, the thermal glare shifts, and the long shadows cast by the pipelines move with it. The living carpet follows. Entire acres of bodies migrate inches at a time, a synchronized, rippling tide of creatures jockeying for the damp coolness of the shade and the precious drips of condensation. If a gap opens, a dozen bodies surge silently to fill it. 
+
+Predation occurs constantly within this dense migration. Massive, pale, kite-like creatures ride the thermal updrafts above the plateaus. They lack wings to flap; instead, they lock their rigid thermal-sails and glide silently out of the glare. They drop from the sky without a sound, their hooked appendages snatching basking lizards from the fringes of the herd, vanishing back into the extreme high-altitude brightness before the resulting ripple in the packed herd even closes.
+
+It is an ecosystem wedded to a forgotten engine. The muffled, heavy thrum of the scattered pumps dictates the dampness; the unforgiving high-altitude sun dictates the flow of the herds. It is a world that feels as if it is holding its breath—a vast, baking theater where ancient, autonomous industry and strange biology have melded into a single, synchronized, and relentlessly moving machine.

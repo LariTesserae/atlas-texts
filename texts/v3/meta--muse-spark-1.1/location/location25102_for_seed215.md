@@ -1,0 +1,35 @@
+This is a high place. Not a mountain — a mountain is a thing that sticks up. This is where the world itself has been lifted.
+
+You are on the Shelf. A continent-sized plateau of new basalt, twelve, maybe fifteen thousand feet up, still cooling. The stone is black and dark grey and raw in a way that old stone never is. It hasn't learned to be round yet. There are no river valleys here, no soft hills. Erosion hasn't arrived. The Shelf is all broad, flat steps and sudden, clean fractures, like a staircase cut for something much larger than humans. The top faces are pitted and vesicular, still holding the bubble of their making, and between the plates there are chasms a half-mile deep where the crust pulled apart as it cooled — straight-walled, absolute, their bottoms in permanent blue shadow.
+
+It is cold. Not the bitter, thin, killing cold of deep winter — an open, working cold. Thirty degrees, twenty five. The air has pressure to it because the world holds on tight to atmosphere even at this height, but it's clear and it moves. Weather makes itself right here. You can watch a cloud be born two ridges over in the time it takes to walk a hundred yards.
+
+And it is wet. For a cold desert, it should be dry, but the Shelf weeps.
+
+The city does that.
+
+The city is sparse, which is the only way you can have a city at this scale. You think of urban as crowded, but this urban is sparse like stars are sparse — each point immense and alone, and together they make a pattern you only see if you step far enough back.
+
+For as far as you can see — and here, you can see fifty, sixty miles to the haze line — there are Tapers. That's what people call them. White-grey-black towers, each one a mile to three miles across at the base, and so tall their tops disappear into their own cloud. They are not buildings in the way you know buildings. They are buildings in the way a dam or a nuclear core is a building: infrastructure that you can live in because the space exists.
+
+They were grown, not built. Smooth sides of what looks like poured basalt but isn't — it's magnetic, metamaterial lattice, warm to the touch even when the wind is cutting. No seams. The sides climb with shallow terraces, each one wide enough for a street, a row of low houses, a field of lichen-greenhouses. Lights are on in most of them, amber squares in the failing light. The Tapers hold the heat of the planet's heart and lift it up. They keep the air from completely icing out. They are the reason this place is habitable at all.
+
+Because of them, the water cycle is short and local. Hot air rises up the flanks of a Taper, hits the cold upper air, and condenses instantly. Each tower wears its own perpetual storm cloud like a crown. From that cloud, water constantly precipitates — not as rain, mostly as mist and fine ice that accretes on the leeward terraces and then melts during the thermal cycle. It runs down the tower faces in sheets, in braided silver threads. Where it reaches the Shelf it doesn't sink in. The new rock is still too tight, too glassy. It spreads. It makes shallow, freezing meres that are a inch deep and a mile wide, reflecting the towers and the sky. It makes marshes of black gravel and rust-red sedge. It makes the weeping places — where the windward faces of a fracture exhale fog because the rock itself is still outgassing steam.
+
+Vegetation is sparse, but stubborn. There's no forest here. Where would a forest root in raw stone? Instead there are mats of black-green lichen that look like oil spills from above, and clumps of a hard, low grass that grows in the grit that the wind has deposited in five years since emergence. Around the Taper bases, where people have seeded heat, there are denser lines — rows of wind-bent, waist-high dwarf birch and engineered pinery that holds its needles even when rimed solid. They grow in perfect grids for a while, then fail and scatter and go wild at the edge of the maintenance envelope.
+
+The animals do not care that this geology is only a decade old.
+
+They are everywhere, and this is what makes the silence strange. You would expect abundance to be noisy. It isn't. The fauna here is quiet the way snow is quiet — it absorbs.
+
+Low, shaggy grazers the size of bison but with six legs and wide, splayed feet to not cut through the thin marsh ice move in herds of hundreds between Tapers. They are pale grey and you don't see them until they move. They scrape lichen with broad, shovel mouths. Above them, things that are not quite birds but fill that contract — white and grey, with four wings, wingspans as wide as doors — ride the thermal updrafts around the Tapers in slow, lazy gyres, barely beating their wings, dropping only to pick off the fat, black insects that breed in the meltwater pools.
+
+In the deep cracks, you hear them shift. A low grunt that reverberates. At night, the eyes shine along the fracture edges, hundreds of them, looking out at the lit terraces.
+
+People — there are fewer of them than there should be for all that built space. You can walk a terrace street for ten minutes and only see two others, both bundled in heavy weave, both leaving a faint trail of heat behind them. The tech here is beyond modern in a way that has stopped being exciting. No one talks about it. The doors know you. The stone underfoot cancels some of the weight if you stand still too long — an old back injury accommodation that became architecture. When a child drops a ball off a terrace, it doesn't fall straight; it hangs for a breath and then slides sideways on the magnetic gradient before landing softly two levels down.
+
+The rule of this place is simple: you don't make heat where you don't have to. Fire is rude. Open flame will get you stared at. The Tapers provide. You live close to them, you move between them in insulated trams that run on nothing you can see — just a line of absence over the marsh, where the ice never forms. You don't go out onto the raw Shelf without a reason and a tether. The rock is still ranging. It makes new cracks without sound. Sometimes the ground under a shallow mere simply sighs and settles an inch.
+
+At dusk — and dusk lasts a long time at this height — the light is normal, pale, coming from a sun that looks no different than any sun. It catches the ice sheets on the tower shoulders and turns them pink. The clouds lower. The Tapers pulse once, an hour, a slow brightening of their internal lattice that you feel more than see, and with it a soft note like a finger around a glass. That is the sound of this place, when it has sound. That and the wind over new stone, and the distant, muffled crunch of the grazers moving, and the constant, quiet trickle of water over a world that hasn't yet learned how to hold it.
+
+It is vast, and cold, and wet, and mostly empty, and completely alive.

@@ -1,0 +1,15 @@
+Deep beneath the surface, a vast hollow space is being born. The ceiling drips with condensation that never quite reaches the ground - instead, each droplet is caught by reaching fronds and translucent leaves that fill every cubic meter of the cavern's volume. The space is a dense maze of vegetation that serves as both architecture and ecosystem.
+
+The plants here are unlike anything above ground. They grow in three-dimensional lattices, each species finding its precise altitude and density in relation to others. Their tissues are semi-transparent, allowing light to penetrate deep into the space. This light comes from the plants themselves - they glow with a bright, steady bioluminescence in shades of white and pale gold, creating an eternal noon-like radiance that fills the cavern.
+
+The heat is intense and wet, like a sauna turned terrarium. The plants transpire constantly, maintaining the humid microclimate they need. Their structures are both delicate and robust - thin, glass-like stems support broad platforms of photosynthetic tissue that overlap and interweave. Some species grow in perfect hexagonal patterns, while others spiral in logarithmic curves through the available space.
+
+Scattered throughout this living architecture are hollow spheres formed from wound vegetation, ranging from the size of a fist to small rooms. These natural constructions appear to be part of the plants' growth pattern rather than built by any creature. Their purposes are unclear - perhaps they're reproductive structures, or perhaps they serve some other function in this strange ecosystem.
+
+The entire space feels new, as if it's still in the process of forming. The rock walls visible between the plants are smooth and unweathered, with occasional crystalline formations that seem to be actively growing. There's a sense that this entire ecosystem is still establishing itself, still finding its final form.
+
+The silence is profound, broken only by the occasional soft patter of condensation drops falling through layers of leaves, and the faint rustle of plants slowly growing and adjusting their positions. Once in a while, a small translucent creature - something between an insect and a leaf - drifts through the foliage, but such sightings are rare.
+
+This is a place of perpetual emergence, forever caught in the moment of becoming. The plants grow with geological slowness, maintaining their precise positions relative to each other, never competing, never dying, simply existing in an eternal moment of creation. The air is thick with moisture and organic compounds, sweet and strange, like nothing that exists on the surface world.
+
+The space extends laterally for what might be kilometers, a subterranean forest in perfect stasis, illuminating itself, maintaining itself, growing outward at a pace too slow to perceive but too steady to stop. It's as if some intelligence has seeded this cavern with a living system designed to slowly fill every available space with its own light and life, creating a world that operates on principles entirely its own.

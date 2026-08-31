@@ -1,0 +1,17 @@
+The ice-gate stands before you - a natural arch of ancient blue ice perhaps forty feet high, worn smooth by centuries of meltwater and the constant passage of the glass-winged beings that nest in its heights. Through it, you enter their domain.
+
+Here, in this elevated bowl carved by long-vanished glaciers, thousands of crystalline pools catch the searing mountain sun. The pools are arranged in terraces, like rice paddies, but formed entirely of ice - translucent steps descending the curved walls of the bowl. Each pool is different - some perfectly still, others rippling with subsurface currents, a few bubbling vigorously as if boiling, though the air is bitter cold.
+
+The glass-wings are everywhere. They look something like dragonflies crossed with hummingbirds, but their wings and bodies are completely transparent except when the sun catches them just so. They dart between pools with precise, geometric patterns, dipping their long proboscises into the waters. Their movements create a subtle crystalline chiming that echoes off the ice walls.
+
+The pools themselves are inhabited by strange creatures - in one, something like a living snowflake slowly expands and contracts; in another, threads of silver light weave complex knots before dissolving; in a third, what appears to be a school of fish made of clear glass swims in perfect synchronization. Each pool seems to be its own contained ecosystem.
+
+Crude wooden walkways, built by the ice-priests who study this place, create precarious paths between certain pools. The priests themselves are rarely seen, but their shelters - small domes made of fitted ice blocks - perch on flat spots between the terraces. Thin streams of smoke rise from holes in their tops, though the smoke moves in unexpected ways, sometimes flowing downward or splitting into geometric patterns.
+
+The air is thick with moisture despite the cold, creating strange optical effects. Rainbows appear and disappear at random, sometimes vertical, sometimes in impossible spirals. Mini-cyclones of snow crystals form spontaneously, dance across several pools, then dissipate. The moisture freezes on every surface, building up complex fractal patterns that grow and shift in real time.
+
+The whole place hums with barely-contained energy, like a vast machine operating just below the threshold of human perception. The glass-wings seem to respond to this energy, sometimes gathering in huge swarms that trace three-dimensional patterns in the air before dispersing again. Their movements might be random, might be meaningful - the ice-priests have spent generations trying to decode them.
+
+At the center of the bowl, the largest pool sits like a mirror to the sky. Nothing ever seems to disturb its surface, yet those who study it swear it never reflects quite the same sky that hangs above. Sometimes, they say, you can see things in its depths - cities made of light, gardens of crystal flowers, geometries that shouldn't be possible in our space.
+
+The cold here is absolute, unchanging through all seasons, yet nothing ever feels truly frozen. Everything flows, everything changes, everything dances on the edge between liquid and solid, between pattern and chaos, between the world we know and something else entirely.

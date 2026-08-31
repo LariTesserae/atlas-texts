@@ -1,0 +1,11 @@
+In the dim half-light, a vast wetland sprawls out before you, its contours blurred by a dense, clinging mist that hovers just above the surface. The air is cold, heavy with moisture that condenses on every surface, forming a perpetual sheen of condensation on the twisted, gnarled vegetation.
+
+This is a landscape of lush, almost preternatural growth, where tangled vines and creepers seem to writhe and pulse with a life of their own. Towering, skeletal trees loom out of the fog, their bark slick and glistening, their twisted branches draped in curtains of dripping mosses and lichens. Here and there, clusters of livid fungi erupt from the sodden earth, their fleshy caps pulsating gently, as if breathing.
+
+Underfoot, the ground is a treacherous, spongy mass of decaying vegetation and standing water, punctuated by pools of inky black liquid that bubble and gurgle ominously. The very air seems thick and soupy, laden with the rich, organic reek of rot and growth intermingled.
+
+Despite the lush vegetation, there is little animal life to be seen—only the occasional flutter of leathery wings or skittering of unknowable forms just beyond the edge of vision. The silence is profound, broken only by the constant drip and patter of condensation, the gurgle of unseen currents, and the occasional deep groan or creaking of straining timber.
+
+Yet there is movement here, a ceaseless roiling and churning as if the landscape itself were a living, breathing entity. Misshapen hummocks rise and fall, vents disgorge billowing clouds of vapour, pools drain and refill. The very earth seems to be in constant flux, reshaping itself through some unknown, industrial process.
+
+It is a turbulent, chaotic realm where the natural world has been subsumed and transformed by strange, unseen forces. A place where the rules of biology and geology have been bent or overwritten entirely, giving rise to new, uncanny forms and processes. A landscape that is at once fecund and decaying, ancient and newborn, terrifying and wondrous to behold.

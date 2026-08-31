@@ -1,0 +1,21 @@
+The Ossuary Plateau stretches endlessly beneath a pale, unchanging sky—a vast highland of compressed bone and mineral where time has ground to powder. The elevation here is brutal, thin air catching in the lungs like ice crystals, yet the temperature remains perpetually cool rather than frozen, as if the altitude has divorced itself from normal atmospheric laws.
+
+The ground is not ground but rather the compacted remains of something immense and ancient—perhaps a single organism that once covered continents, or the accumulated shells of aerial creatures that died here across geological ages. The surface has been worn smooth as marble in places, while elsewhere it forms dense warrens of holes and channels, creating a honeycomb topology that extends down through unknown depths. These passages are just wide enough for the creatures.
+
+They move through the bone-corridors in impossible numbers—things like elongated ferrets made of cartilage and static electricity, their bodies flickering between states of matter. Thousands upon thousands thread through the passages below and occasionally emerge to flow across the surface in silent rivers. They make no sound despite their multitude; even their movement is muffled by the way reality softens here at the edges. Sometimes they appear to be moving backwards through time, entering holes before they've exited them. Sometimes the same creature exists in multiple places simultaneously.
+
+Sparse vegetation clings to existence—pale lichens that grow in perfect spirals, each one a Fibonacci sequence made flesh. Occasional stalks of something like crystallized grass pierce upward through the bone substrate, their surfaces reflecting not light but *probability*—showing what might grow here in other versions of this place that never quite materialized.
+
+The built environment consists of cairns. Hundreds of them, scattered across the plateau at intervals that feel deliberate but follow no discernible pattern. Each is a careful stack of the bone-ground, mortared with something that might be saliva or tree resin or condensed time. They were clearly made by hands, though whose hands remains uncertain. Some have crude symbols carved into them—circles bisected by lines, spirals that hurt to follow with the eye, marks that seem to mean something urgent but untranslatable.
+
+The light here comes from above but has no source. It simply exists, as if the concept of illumination occurs here without the need for a sun. Shadows fall in multiple directions from single objects. Sometimes they fall upward.
+
+At the plateau's far edges, the elevation drops away into clouded nothing. The bone-ground continues, following ridgelines and peaks that emerge from and disappear into a haze that might be atmosphere or might be the edge of existence itself. Mountain-high columns of the compressed material rise like vertebrae of something unimaginable, their tops lost in the static that passes for sky.
+
+The silence is profound—not an absence but a presence, thick as syrup. Even the movement of the countless creatures produces no sound, as if the concept of vibration has been carefully edited out of this reality. The only interruption comes from the cairns, which occasionally emit a single, clear tone—different for each structure, lasting exactly three seconds, occurring at intervals that would form a pattern if time moved normally here.
+
+But time doesn't move normally here. The erosion that ground this place into its current form has already happened, is still happening, will always have happened. The creatures flowing through their passages have been here forever and arrived yesterday. The cairns were built by a civilization that hasn't evolved yet, or died out eons ago, or exists parallel to now in a direction the human mind can't point.
+
+This is a place in its final form, yet that final form includes paradox as a fundamental element. The bone plateau is complete in its incompletion, perfectly expressing an impossible state where overwhelming life and ancient death are not opposites but the same truth expressed in different grammatical tenses.
+
+The air tastes of copper and forgetting.

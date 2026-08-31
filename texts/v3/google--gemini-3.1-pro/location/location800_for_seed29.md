@@ -1,0 +1,23 @@
+High above the cloud line, buried within the jagged, newborn peaks of a rising tectonic ridge, there is a pocket of space. It is no larger than the interior of an old bank vault, a singular, sealed blister trapped within millions of tons of fresh volcanic bedrock. The surrounding stone is embryonic geology—sharp, unweathered, raw silicates and cooling obsidian that have never known the touch of wind or rain. 
+
+Outside the mountain, the air is thin and freezing. Inside this microscopic geological fracture, the temperature hovers at the melting point of lead. 
+
+It is completely pitch black. There is no sunlight this deep inside the peak, and no chemical luminescence. The only visual interruptions in the crushing darkness are the intermittent, dull-orange flashes of violent frictional sparks, illuminating sharp, jagged walls of fresh basalt.
+
+To stand inside this pocket—were a human somehow able to survive the suffocating, bone-dry atmosphere of superheated sulfur dioxide and heavy carbon—would be to stand inside the casing of a colossal, roaring engine. The sound is utterly deafening. It is a relentless, physical wall of noise that rattles the teeth in the skull: the rhythmic *clack-slam-clack* of heavy impacts, the high-pitched shriek of metal shearing against unyielding stone, the low, throbbing groan of immense cyclical pressure. 
+
+Yet, there is nothing built here. No hands carved this chamber, and no architect laid down these mechanisms. The "machinery" responsible for this industrial cacophony is entirely biological.
+
+The chamber is fully saturated with life, packed so densely that the concept of an individual creature dissolves. They are extremophiles, a colony of lithotrophic arthropod-analogues, though to call them organic feels inadequate. Their physiology is entirely non-aqueous; there is not a single drop of water, blood, or sap in this environment. Instead, they are fueled by pure geothermal heat and terrestrial chemistry. Their carapaces are heavily armored plates of biologically secreted iron-pyrite and condensed silicates.
+
+They fill every cubic inch of the chamber. There is no room to crawl, no room to fly, not even room to scurry. Because of the absolute lack of space, the colony has evolved to operate as a singular, interlocking mechanical solid. The ridged, gear-like contours of one creature's heavy iron shell fit perfectly into the segmented grooves of its neighbors. 
+
+When one row of creatures flexes its dense, hydraulic-like muscular structures, the physical force turns the creatures beside it, propagating mechanical energy right through the living mass. They form a biological gear-train. The entire room is a churning, heaving puzzle box of living pistons and interlocking cogs, moving in perfect, agonizingly slow unison. 
+
+The purpose of this biomechanical factory is consumption and refinement. At the outer edges of the mass, where the living gears press against the unweathered walls of the chamber, rows of mandibles tipped with pure tungsten-carbide constantly bite into the raw mountain. They chew through the embryonic bedrock, grinding the stone into a fine powder. The deafening roar of the chamber is the sound of millions of metallic jaws acting as a massive, synchronized rock-crusher.
+
+The pulverized stone is passed backward into the stifling, hyper-pressurized center of the swarm. Here, the creatures operate as living smelters. Deep inside their bodies, specialized organs use the ambient environmental heat—amplified by the friction of their tightly packed, grinding bodies—to chemically separate base metals from silicates. They feed on the raw thermal and chemical energy released in the reaction, and excrete the waste as pure, refined slabs of metallic slag.
+
+Despite the brutal mechanical violence, the ear-splitting noise, and the extreme temperatures, nothing happens quickly. The entire system is governed by a patient, inexorable slowness. The interlocking mass is too heavy, the pressure too absolute, for high-speed motion. The biological gears turn with massive, unyielding torque, shifting perhaps a fraction of an inch every hour. A single rotation of the colony’s grinding edge takes months. 
+
+It is a slow, blind, heavy-industry ecosystem, completely self-contained within its tiny, superheated pocket. As years stretch into decades, the living engine slowly eats its way upward, hollowing out the rock millimeter by millimeter, a tireless factory of flesh and iron hidden perfectly in the dark heart of the high peaks.

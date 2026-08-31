@@ -1,0 +1,47 @@
+# The Sunk
+
+The land gave way here recently — not in recorded history, but recently enough that the stone still remembers being underground.
+
+You are standing in a basin. The walls rise around you in raw, unweathered terraces of grey limestone and darker clay-shale, freshly exposed, still holding the pressure-lines of the weight they once bore. These walls are not cliffs in any finished sense. They are *faces* — the interior of the earth shown to the sky for the first time. In places, the strata are buckled and folded in ways that look almost liquid, as though the rock froze mid-pour. Veins of iron-oxide run through the pale stone in rust-red streaks, and where rain has touched them, the color bleeds downward in long stains. There has been no time for anything to erode into gentleness. Every edge is an argument. Debris fans of shattered rubble lie at the base of the steeper sections — the slow, still-continuing process of the walls deciding what shape they want to become.
+
+The basin itself is perhaps a kilometer across, irregularly shaped, deeper on its eastern side where the collapse was most severe. A river does not run through it, but water is everywhere as a *presence*. Seep-lines darken the lower walls in wide, irregular patches. Springs emerge from joints in the rock and vanish again into gravel within a few meters. A shallow stream, no wider than two handspans, braids itself across the basin floor in shifting channels, depositing thin fans of silt that the next rain rearranges. Pools collect in depressions — some clear, some clouded with suspended clay. On cool mornings, and most mornings are cool, mist fills the basin ankle-deep and clings to every surface. Condensation beads on stone. Dripping is the basin's metronome: not loud, never loud, but constant, a percussion of single drops from a hundred ledges.
+
+---
+
+The settlement — and it is a settlement, large, several thousand people, maybe more — clings to every surface that will hold it.
+
+
+
+On the gentler terraces of the northern wall, structures are built directly into the stone. They are not carved *from* it in any sophisticated way; they are assembled *against* it, using the rock face as one or more walls. Timbers are jammed into natural fissures and chinked with clay. Wattle-and-daub panels fill the gaps. Rooflines are low, pitched steeply to shed the frequent moisture. From below, the settlement on the terraces looks like a growth — something organic that colonized the wall the way lichen colonizes bark. Smoke from small fires threads upward through the structures and clings to the overhanging stone before finding its way out. The architecture is primitive but not crude: someone has understood load-bearing, has understood drainage, has understood that water is the constant enemy here and shaped every surface to move it away. Channels are cut into ledges. Gutters of hollowed timber direct seep-water away from foundations.
+
+On the basin floor, the construction is denser, more chaotic, more *packed*. Here the buildings are freestanding, low-walled, roofed with overlapping layers of split stone shingle and treated hide. Streets exist — narrow, stone-flagged paths between structures — but they feel more like *gaps* than planned corridors, the negative space left when someone built as close to their neighbor as physically possible. The density is remarkable. Every square meter of the floor that isn't actively flooded or too rubble-strewn to build on has something on it. Storage lean-tos. Work shelters. Drying racks hung with moss-gathered fibers. Pens, though most are empty. Structures are pressed against one another, sharing walls, canting at angles dictated by the uneven ground beneath them. It is the density of people who understand that buildable ground is precious and finite, and who have organized themselves accordingly — not through any central authority, but through the accumulated logic of a hundred small negotiations over space.
+
+
+
+The population is not large by the standards of open cities, but for this enclosed basin, it fills the space completely. You cannot stand anywhere on the basin floor and be alone. There is always a wall, a roofline, a person, a rack, a pile of material within arm's reach.
+
+---
+
+Vegetation is sparse, but it is *everywhere* it can be. Mosses colonize every damp surface — the north-facing walls are furred with them in shades of grey-green and deep olive. Lichens crust the drier stone in pale, brittle colonies. Where soil has accumulated in pockets and terraces, people cultivate small plots: hardy root vegetables with waxy leaves, cold-tolerant greens, a grain-like grass that grows short and dense. These plots are immaculately maintained — every one bordered with low stone walls to hold the soil against runoff. Between the cultivated areas and the wild mosses, there is little else growing. A few stunted willows have established themselves near the braided stream, their roots exposed by the shifting water, their branches pollarded back severely for timber. The basin is too cool, too shaded by its own walls for most species. What grows here grows slowly and holds on tight.
+
+---
+
+The light is normal — the sky is open above. On clear days, sunlight reaches the basin floor for several hours, depending on the angle, tracking across the eastern wall before sliding up and over. The shadows are long and slow. On overcast days, the light is grey and even, almost flat, and the basin feels larger, its walls receding. The quality of light is shaped by the walls themselves: reflected off pale limestone, absorbed by dark shale, filtered through mist. It is never harsh. It is never dramatic. It is the light of a place that receives what it is given and makes no demands.
+
+---
+
+Fauna is rare but not absent. Birds pass through — swifts that nest in the upper ledges, a few corvids that have learned to exploit human food waste. Small lizards sun themselves on warm stone and vanish at movement. Insects are present in low numbers: midges near the water, a few beetles, spiders that string webs across the damp crevices at night. Larger animals are seen occasionally at the rim — something moving along the edge of the depression, looking down. The people here do not keep many animals. A handful of goats, perhaps, hardy and small, kept on short tethers on the few grassy patches near the stream. The protein economy is tilted toward gathered insects, occasional small game, and the cultivation of fungal mats in the darker, wetter caves that branch off from the main basin walls.
+
+---
+
+The sound is quiet. This is the first thing visitors remark on, if visitors ever come. The walls absorb and contain. There is no wind in the basin — the air moves gently, thermally, rising as it warms on sun-struck stone and drawing cooler air along the floor. The loudest regular sound is the drip. Then the murmur of the braided stream. Then the low, muffled activity of the settlement: footsteps on stone, the scrape of tools, a voice calling from one terrace to another, quickly swallowed by the walls. No one shouts here. There is no need, and the place does not reward it. Conversations are low. Work is rhythmic and quiet. At night, when the mist settles and the air cools further, the silence deepens until the drip itself becomes something you feel rather than hear.
+
+---
+
+And yet the basin is *active*. This is not a dead place. The walls are still settling — small rockfalls occur, particularly after rain, sending thin cascades of gravel down the faces. The stream rearranges itself constantly, cutting new channels, abandoning old ones. The seep patterns shift seasonally, following the water table, which means that a wall that was dry last year may be weeping this year, and structures built against it must adapt or be damaged. The people are active too — this is not a leisurely community. The constant moisture means constant maintenance: clearing drainage channels, re-chinking walls, replacing rotted timber, mending roofs, tending plots, managing the fungal caves, drying and preserving what the short growing season provides. There is a rhythm to the work, a pace set by the seasons and the rain. In the wetter months, the braided stream swells and the lower sections of the basin floor become briefly uninhabitable; people move to upper terraces and wait. In drier months, the floor is rebuilt, the channels re-cut, the silt deposited and shored up.
+
+---
+
+The stone is the story here. It is raw, young, still becoming. It has not been shaped by centuries of wind and water into anything graceful. It is blunt. It is honest. It is full of sharp edges and unstable joints and seams that weep. The people who live in it have not conquered it — they have made an arrangement with it, a daily, ongoing, unstable negotiation between human need and geological indifference. They build against it, and it shifts. They cut into it, and it bleeds water. They plant in its dust, and it gives them just enough.
+
+The basin is below the world. It is a place you would not see unless you were looking down into it, and most of the surrounding terrain is flat and featureless enough that there is little reason to look down. The people here are, by the standards of the surface, invisible. They have their raw stone, their packed settlement, their thin water, their quiet. It is not a comfortable life. It is a life that fits its walls.

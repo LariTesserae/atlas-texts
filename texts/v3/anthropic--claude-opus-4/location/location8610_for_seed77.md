@@ -1,0 +1,23 @@
+The Singing Wells
+
+In perfect darkness, you understand this place through sound alone. The cacophony is total—a wall of biological noise that presses against your eardrums like physical weight. It is the sound of ten million throats, of creatures packed into every available space within this vast artificial cavern system, their voices creating harmonies and dissonances that shift like slow tides.
+
+The wells were carved from living bedrock ages ago, each chamber precisely calculated to amplify and blend the chorus. Stone that still weeps with groundwater, surfaces rough-hewn but deliberate, every angle and curve serving the terrible music. The creators are long gone—perhaps they could not bear what they had made—but their architecture remains, a musical instrument the size of a small district.
+
+Your feet find purchase on the wet terraces, each step careful on the moss-slick stone. The vegetation here grows entirely in darkness, evolved or engineered to feed on sound itself. Thick carpets of sonic moss pulse with absorbed vibrations, their surfaces rippling like water. Hanging gardens of blind vines dangle from the carved ceiling, their tendrils swaying in the pressure waves, leaves that rustle with borrowed noise.
+
+The fauna clusters on every surface. By touch and sound you know them: the wall-clingers with their hundreds of tiny mouths, each creature no larger than your thumb but gathered in their thousands on each carved platform. The pool-singers floating in the groundwater cisterns, their swim bladders evolved into resonance chambers. The echo-worms that have hollowed homes in the softer stone, their bodies one long vocal cord. Generation after generation bred in darkness for their voices alone.
+
+They sing without pause, without rest. Not from joy or communication, but because the architecture compels it. The acoustic design creates pressure differentials that make silence painful for them. To stop singing is to suffer. So they continue, moment after moment, their voices wearing grooves in the air itself.
+
+The water serves the sound. Thin sheets flow down the carved channels, each stream tuned to a different pitch as it falls. Pools of varying depths create resonance chambers. The humidity carries the sound differently than dry air would, makes it heavy, makes it cling. Your clothes grow damp just from standing in the sonic fog.
+
+You can feel the slow processes at work. The constant vibration gradually reshapes the stone, wearing new patterns that will change the acoustics over centuries. The creatures evolve, generation by generation, their voices shifting in pitch and timber. The moss grows in patterns determined by standing waves. Even the water flow adjusts, finding paths that add new notes to the composition.
+
+This is architecture as torture device, as ecosystem, as instrument. The builders created a place that would maintain itself through suffering, where life has no choice but to participate in an endless, deafening song. The sound has texture here—you can feel it as pressure against your skin, taste it as copper on your tongue. It fills every space until there is no room for thought.
+
+The chambers extend deeper than you can explore. Each well connects to others through tunnels where the sound focuses into beams that could shatter glass, burst blood vessels. The creatures avoid these passages, clustering instead in the nodes where the interference patterns create momentary dullings of the roar. They've carved their own additions over generations—small hollows that serve as acoustic shelters, places where the overlapping waves cancel out just enough to offer respite.
+
+But there is no true silence here. Even in the quietest corners, the sound remains—felt in your bones, humming in your teeth. The darkness makes it worse. With no visual reference, your brain tries to make sense of the cacophony, finding patterns that aren't there, voices that almost speak words, melodies that almost resolve but never do.
+
+This is what emerges from the intersection of absolute intention and deep time. A built environment so thoroughly artificial that it has become a kind of nature, where biological and architectural systems have merged into something that maintains itself through pure acoustic pressure. The original builders are gone, but their creation persists—a machine made of stone and water and ten million living throats, singing forever in the dark.

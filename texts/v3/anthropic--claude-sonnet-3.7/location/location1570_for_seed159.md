@@ -1,0 +1,19 @@
+# The Spore Caverns
+
+Deep beneath a continental expanse lies a realm untouched by sunlight, where the concept of water as we know it has never existed. The Spore Caverns form a labyrinthine network spanning thousands of miles in every direction—a subterranean world with its own strange weather patterns and nascent geology.
+
+The darkness here is nearly absolute, broken only by the soft bioluminescence of countless fungi. These are not mere mushrooms but an entire evolutionary kingdom that has developed in isolation. Tall, branching structures stretch toward the distant cavern ceilings, their translucent bodies glowing with pale blues, muted greens, and occasional flashes of amber. They grow so densely packed that in many places passage between them is impossible—a forest without trees, a jungle without leaves.
+
+The air is cool and thick with spores. They drift languidly, visible as sparkling motes when they pass through patches of bioluminescence. These spores serve as the primary medium of exchange in this waterless ecosystem—carrying nutrients, genetic material, and chemical signals between organisms. When atmospheric conditions shift across the vast expanse, slow-moving "spore storms" gather and roll through the caverns, depositing new life in previously barren chambers.
+
+The ground underfoot is neither soil nor rock but a living mat of mycelium—a dense, resilient network that forms the foundation of this world. It creaks softly as you walk, responding to pressure with subtle movements. In some regions, this living floor is still forming, raw geological processes interacting with biological ones as limestone and granite are gradually colonized and transformed by the fungal network.
+
+Small creatures move among the fungal trunks—blind, pale things with delicate limbs and sensitive whiskers. Some resemble insects grown large in this protected environment, others more like eyeless rodents or amphibians that never needed to develop aquatic adaptations. They communicate through soft clicks, rustles, and occasional low-frequency humming that travels through the mycelial mat beneath. The fauna has adapted to extract moisture from the fungi themselves, forming complex symbiotic relationships.
+
+Scattered throughout this vast underground realm are crude shelters—simple constructions of woven fungal matter, some still living and growing. These primitive structures suggest the presence of intelligent inhabitants, though they are rarely seen. Evidence of tool use appears in the form of carved fungal stems, implements made from the chitinous exoskeletons of the larger arthropods, and primitive torches that burn with a strange, smokeless flame fueled by certain varieties of luminous fungi.
+
+The scale of this hidden world becomes apparent when you reach one of the rare "breathing chambers"—vast cavities where thermal differences create slow-cycling air currents. Here, spores gather in cloud-like formations that mimic weather patterns, occasionally precipitating in gentle showers of fertile dust that feed new growth below. These cycles might take months to complete, the changes nearly imperceptible to human perception.
+
+This underground ecosystem continues to emerge and evolve, isolated from the surface world. The caverns themselves are relatively young in geological terms—still being carved by strange non-aqueous chemical processes where crystalline formations slowly dissolve certain minerals while depositing others. In the oldest regions, stalactites and stalagmites form not from water but from living fungal matter that grows both up and down, creating pillars that pulse faintly with metabolic processes.
+
+A visitor to this place might feel as though they've entered a world still in the process of creation—a primordial realm where life is finding its form in darkness, silence, and infinite patience.

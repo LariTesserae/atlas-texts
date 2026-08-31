@@ -1,0 +1,17 @@
+The first thing you notice is the sound - a vast, perpetual roar that seems to come from everywhere, yet feels strangely muffled, as if heard through layers of thick glass. This is the Sea of Heavy Water.
+
+The water here has an unusual density, somewhere between normal water and mercury. It moves with geological slowness, forming massive, kilometer-tall waves that take days to crest and fall. Looking up through the dark liquid, you can see these waves passing overhead like mountain ranges in slow motion, their peaks diffracting what little light makes it down here into shifting, hypnotic patterns.
+
+The seafloor is a plain of absolute flatness, worn down over eons by the weight of the dense water above. What might once have been underwater mountains and trenches has been ground into a perfectly level expanse of fine, glassy sand that extends beyond any possible vision. This sand is actually the end-state of all matter here - everything eventually gets pulverized by the relentless pressure of the heavy water.
+
+Scattered across this plain are the remains of what appears to be an industrial civilization, though whether it was built underwater or submerged later is impossible to tell. Massive turbines, now motionless, rest half-buried in the sand. Their blades, each the size of a small building, are scored with strange geometric patterns that might be wear-marks or might be writing. Pipelines thick as tunnels snake between the turbines, disappearing into the distance.
+
+The only living things are the filter-forests - sparse clusters of what look like industrial equipment that has somehow evolved into life. They're made of pipes and valves and pressure gauges, but they move and grow with biological slowness, straining nutrients from the heavy water. Their metallic leaves tinkle against each other, adding a chiming undertone to the endless roar of the sea.
+
+Every few kilometers, you'll find a pressure-node - a sphere of normal-density water somehow held stable within the heavy water. These spheres vary in size from tiny bubbles to vast chambers hundreds of meters across. Inside them, the sound of the sea is even louder, resonating through the sphere's membrane. Some contain preserved fragments of the civilization that built this place - control rooms, machinery, or things less recognizable.
+
+The light is dim and blue-shifted, filtered through kilometers of heavy water above. But occasionally, something in the distance will emit a slow pulse of bioluminescence - perhaps some vast, ancient machine still running, or something new that has evolved in this strange environment.
+
+Time moves differently here. The pressure of the heavy water seems to compress it, make it flow as slowly as the massive waves above. Minutes blend into hours while watching the filter-forests sway, or the endless dance of light through the waves. The roar of the sea becomes a kind of silence, and in that silence, you might begin to hear other sounds - the creaking of ancient metal, the whisper of sand shifting beneath the weight of the water, and sometimes, very faintly, what sounds like music played on giant, waterlogged pipes.
+
+This is a place of endings that have become beginnings - where the remains of one world have become the seeds of another, stranger one, all held in the eternal, thundering embrace of the heavy sea.

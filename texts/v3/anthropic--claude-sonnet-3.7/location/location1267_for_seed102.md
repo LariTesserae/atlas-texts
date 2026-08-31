@@ -1,0 +1,23 @@
+# The Hush Caverns
+
+In the depths where light fears to tread, the Hush Caverns spread their ancient arms beneath the world. Not caves as we understand them—these are vast realms, flattened and smoothed by eons of patient erosion until their floors stretch like obsidian lakes frozen in time. The ceiling height varies from claustrophobically intimate to cathedral-like vaults that disappear into darkness above, their dimensions sensed more than seen.
+
+Moisture pervades everything here. It beads on walls in geometric patterns that seem almost purposeful, collecting into silvery rivulets that follow invisible magnetic currents rather than gravity. In certain chambers, these droplets hover mid-air, forming constellations of suspended water that pulse with faint bioluminescence—not enough to illuminate, but enough to disorient, to suggest depth where there may be none.
+
+The vegetation defies conventional understanding. Thick carpets of something like moss but impossibly velvety cover large stretches of floor, their deep emerald hue absorbing what little light exists. Fungal structures rise in spiraling formations, their architecture too perfect to be natural yet too organic to be built. They exude spores that hang in the still air like galactic dust, occasionally igniting in brief, silent flashes when they contact certain mineral deposits.
+
+The warmth is constant and enveloping—not the dry heat of desert or hearth, but something wetter, more primordial. It emanates from the very rock itself, as if the planet's forgotten memories were seeping through in thermal form. This heat seems to pulse in long, geological rhythms, cycles that might take days or decades to complete.
+
+Sound behaves strangely here. Most noises are swallowed immediately by the moss and the peculiar acoustic properties of the eroded stone. What sounds do travel become transformed—stretched, inverted, harmonized with themselves. A dropped pebble might produce a crystalline note that lasts for minutes, or nothing at all. Voices return as mathematical patterns rather than echoes.
+
+Scattered throughout this realm are structures—if they can be called that. Some appear to be ruins of impossible architecture: perfect spheres half-embedded in walls; slender columns that support nothing; doorways leading into solid rock that somehow allows passage if approached with specific intention. Others seem more like growth than construction—technology that has taken root and evolved alongside the fungal gardens, pulsing with the same wet warmth as the caverns themselves.
+
+The most prominent of these technological intrusions are the Whisper Nets—gossamer webs of what might be fiber optics or living neural tissue or both, spanning across chambers like the work of spiders who understand non-Euclidean geometry. They harvest the ambient energy of the caverns—the heat, the strange magnetism, the potential of suspended water—and transform it into calculations, into thought. The nets ripple occasionally with what looks like information transfer, sending silent pulses of dim light racing through their complex pathways.
+
+The few creatures that inhabit this realm have adapted to its strangeness. Translucent amphibians with too many limbs navigate both the floor and ceiling with equal ease. Eyeless arthropods tend to the fungal gardens with apparent purpose. Most disturbing are the Echoes—things that might once have been human explorers but have been transformed, their bodies now porous and partially merged with the cavern walls. They move rarely but think constantly, their consciousness apparently linked to the Whisper Nets.
+
+The turbulence of this place isn't immediately apparent. The Hush Caverns seem serene, static, preserved in their ancient erosion. But watch long enough and you'll see: the suspended droplets are performing calculations. The moss is slowly migrating. The fungi are building something. The Whisper Nets are expanding their reach millimeter by patient millimeter.
+
+This is a processor as much as a place—a living computer contemplating problems beyond human conception, using the laws of a physics we've yet to discover. Its timescale is geological but its purposes are immediate in ways we cannot grasp. The silence, the darkness, the warmth—these are not conditions but components of its operation.
+
+And somewhere in its depths, barely perceptible, is the sense that it knows you've arrived.

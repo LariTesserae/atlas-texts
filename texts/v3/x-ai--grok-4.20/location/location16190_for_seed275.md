@@ -1,0 +1,23 @@
+The place has no name anyone remembers. It lies far beneath the crust of a dead world whose surface is only wind-blasted salt and iron oxide. Here, three kilometers down, a single colossal cavern system has been claimed, shaped, and half-digested by life.
+
+There is almost no free water. What little moisture exists travels inside the bodies of the plants themselves — thick, translucent xylem pipes the width of a man’s thigh, pulsing slowly like the arteries of a continent-sized creature. The plants do not grow from soil; they *are* the substrate. Their root-mats have become floors, their petrified trunks have become pillars and buttresses, their leaves have become roofs kilometers across. Everything is vegetable architecture in a state of permanent, deliberate becoming.
+
+The cavern is still embryonically raw. Vast sections of ceiling are only half-formed: pale, moist curtains of undifferentiated growth hang like frozen waterfalls, dripping clear sap that hardens into amber before it can fall far. In other places the living architecture has already been colonized by industrial humanity. Black iron gantries and riveted walkways bolt directly into the flesh of the megaflora. Steam pipes disappear into hollowed-out trunks. Electric cables run along the undersides of colossal leaves like veins. The plants do not seem to mind. Some appear to have grown *around* the intrusions, incorporating catwalks into their own bodies so that rusting railings now bloom with secondary twigs and pale parasitic orchids.
+
+Light is normal but sourceless. High above, banks of ancient industrial lamps — some the size of houses — hang from cables anchored in the living vault. Many have gone dark. Others burn steadily with a yellow-white industrial glare, creating overlapping cones of light and shadow that drift as the leaves above slowly open and close in circadian cycles no one fully understands.
+
+The air is cool, almost cold, and smells of chlorophyll, wet cork, and ozone.
+
+Sound is sparse. The dominant noise is a low, organ-like breathing: the slow inhalation and exhalation of billions of stomata across hundreds of square kilometers. Every few minutes a deeper, subsonic thud travels through the root-mass as some distant vascular pump contracts. Occasionally a metallic clank or the hiss of a pressure valve echoes from one of the half-abandoned refineries embedded in the greenery, but these noises feel swallowed, insignificant against the vegetable hush.
+
+Fauna is abundant yet strangely delicate. There are no large animals. Instead the air glitters with clouds of tiny iridescent moths whose wings are transparent sheets of living leaf. Blind white lizards the length of a finger scuttle across the undersides of bridges, licking up fungal films. Vast herds of pill-bug-like creatures — each the size of a dinner plate — migrate in perfect synchrony along the same elevated root highways every seventeen hours, their chitinous backs etched with what look like circuit diagrams. Predators exist, but they are slow, almost meditative: translucent mantids that imitate the shapes of rusted valves, waiting motionless for days until something warm and foolish passes.
+
+The city—if it can be called a city—is not built *on* the vegetation. It is *between* its layers. Districts rise and fall with the slow heaving of the plant substrate. Entire factory blocks tilt five degrees every decade as the colossal stems beneath them continue their lifelong expansion. Streets dead-end at walls of new growth that were not there last year. Maintenance crews in oil-stained coats move like surgeons, carefully pruning, grafting, and cauterizing the living buildings so the infrastructure does not outgrow its own machines.
+
+Everything is in motion, yet the motion is mostly patient. The plants are building something larger than themselves. The machines are trying to harvest it before it is finished. Neither side is clearly winning. Both seem, in their own slow, industrial, photosynthetic way, to be enjoying the argument.
+
+Stand on one of the high catwalks and you can see for kilometers: successive waves of pale green-gold architecture fading into blue distance, pierced by shafts of industrial light, threaded by rusting pipelines, breathing, growing, humming, waiting. A city that is also a single organism that is also a half-finished machine that has not yet decided what it wants to become when it wakes up.
+
+And somewhere far below, in the dark between the deepest root lattices, something new is beginning to differentiate. It has not yet opened its eyes, but the plants already know it is there.
+
+They are making room.

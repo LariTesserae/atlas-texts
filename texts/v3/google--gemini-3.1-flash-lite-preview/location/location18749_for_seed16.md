@@ -1,0 +1,15 @@
+You descend into the *Calcified Throat*, a pocket-scale metropolis nested deep within a geode-like cavity of scorching basalt. It is not a city of stone or steel, but of calcified, self-replicating fungal structures that have hardened into an intricate, ivory-colored urban lattice.
+
+There is no water here. The atmosphere is a shimmering, dry haze of suspended silica and superfine dust, heated by the sheer proximity to the subterranean core. The temperature sits at a perpetual blistering simmer, turning the air into a viscous, shivering medium.
+
+This is a place of "lush" sterility. Thick clusters of rust-colored, leathery filaments—part mineral, part photosynthetic organism—clutch the walls of the cavern. They do not drink water; they absorb the intense thermal radiation of the mantle, glowing with a soft, pulsating violet luminescence. They grow in long, sweeping tapestries that drape over the abandoned balconies of the city’s levels. Because there is no animal life, there is no decay, and there is no silence.
+
+The sound is relentless—a cacophony of geological respiration. The cavity itself is a pressure-valve for the surrounding crust. Every few minutes, the entire urban lattice undergoes a contraction. The heat forces the silica-fungi to expand, while the shifting tectonic plates outside compress the cavern, creating a rhythmic, grinding roar like a thousand heavy iron bells rubbing together. It is a deafening, metallic song of expansion and collapse.
+
+The architecture is layered, carved by hand with primitive obsidian chisels centuries ago. The structures are delicate—hollowed-out spires and interconnecting walkways that bridge the vast, empty voids between the cavern walls. The density is startlingly low; you can walk for a mile through these empty streets, following the glowing veins of the fungi, without encountering a single intersection. It is a city built for a population that has simply ceased to exist, or perhaps, one that transitioned into something else, leaving behind only the shells of their craft.
+
+Because the environment is in a state of delicate, long-established balance, the erosion is elegant. Over cycles of heat-expansion, the sharpness of the buildings has been sanded down by the grit of the air. The edges of the bridges are rounded and smoothed, polished to a dull matte sheen, making the city look like a collection of weathered sea-worn shells, if the sea were made of dry, hot wind.
+
+Everything is in motion. The "flora" shivers in the heat currents; the structures groan and shift; the very dust in the air circulates in lazy, golden vortices. It is a place of intense, active biology that lacks a heart—an ecosystem of pure motion and heat, held forever in the throat of the earth. Light is a meager, dim privilege, supplied only by the sputtering violet pulse of the flora, casting long, jumping shadows across the skeletal, ivory streets. 
+
+You are standing in a living, grinding monument to a process that requires no observers, no consumers, and no water—only the fire below and the silence of the deep.

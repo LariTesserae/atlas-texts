@@ -1,0 +1,15 @@
+This is the **Vault of the Oxidized Clockwork Root**.
+
+It is a low-slung, primordial basin, no larger than a city square, yet it feels eternal. The ground here is not composed of soil, but of a dense, sedimentary mattress of calcified moss and fungal webbing, compressed by eons of heavy, stagnant time. 
+
+The atmosphere is perpetually cool—a damp, biting chill that clings to the skin. It is governed by a singular, rhythmic dampness: a cycle of heavy condensation that clings to the underside of the broad-leafed canopy, dripping in heavy, rhythmic pulses that tap against the metallic internals of the geography.
+
+Everything here is plant-as-substrate. There is no dirt, only vine, trunk, and creeping rhizome. The "architecture" is a chaotic, ancient weave of towering, bioluminescent pulp-wood trees that have grown together into a seamless, vaulted ceiling. Beneath this, the space is surprisingly empty. There is a vast, cavernous sense of volume—you can walk for meters without encountering a single vertical stem, the trunks having migrated to the periphery of the hamlet-sized basin ages ago.
+
+Yet, despite the lack of spatial density, the place is loud. A deafening, mechanical hum permeates the air, vibrating through the soles of your feet. This is the "industrial" element: the flora here is not merely organic, it is galvanized. The roots of the primary canopy have braided themselves around deep-crusted, gargantuan metallic nodules—remnants of some forgotten, pre-geological machine—and through the process of biological integration, these roots have begun to pulse with a low-frequency, electric thrum. The trees act like natural generators, their sap pressurized and flowing through veins that look remarkably like hydraulic cabling.
+
+Occasional rain showers, thin and sharp, pass through the vault, cooling the metal-fused roots and causing them to shriek with thermal contraction. This sound is the primary melody of the place—a grinding, resonant chorus of botanical gears.
+
+Abundant fauna thrives here, though they are specialized. They are small, rust-colored beetles and flightless insects that burrow into the mossy substrate, their shells mimicking the metallic grain of the wood. They are the only things that move with true autonomy. The rest of the landscape is trapped in a frozen equilibrium; the erosion is so deep, so settled, that the topography has reached a state of terminal stability. The trees do not grow; they simply sustain. The roots do not expand; they exist as part of the machine.
+
+There are no paths, no ruins built by hands, and no artifacts. The technology is indigenous to the ecosystem—an accident of evolution meeting deep-earth metallurgy. It is a place caught in a permanent, industrial exhale, a cool, damp room where life has spent the last million years settling into a final, rhythmic silence. Everything is in its place, the hum remains constant, and nothing will ever change again.

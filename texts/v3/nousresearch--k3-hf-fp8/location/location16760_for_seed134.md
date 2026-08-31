@@ -1,0 +1,21 @@
+First, we are suspended. Not falling—not exactly. The water here is not oceanic but architectural, stratified into chambers of pressure and clarity. Every movement displaces volumes thick as wax, luminous as glycerin. The temperature is cool but not chill: the coolness of slate after rain, of ancient silver kept in a drawer. We are high up, yes, but elevation here has turned inward; height is a matter of layers above us, not distance below.
+
+The place is a caisson sunk in clear fluid sky—a cathedral volume compressed to grove-scale by the weight of its own transparency. Walls exist only as gradients where the water densifies enough to reflect faint images like ghosts in old mirrors. Everything else is open, yet the density of watery matter itself is so great that objects—if there were objects—would hover their own diameters apart, repelled by invisible molecular size-membranes.
+
+But there are no objects. There is no built. Instead: the water is alive with absence, every cubic finger crowded with missing things—pressures where chairs might have rested, swirls of displaced volume shaped like doorframes, corridors of higher refractive index that lead nowhere and ache to be walked.
+
+Vegetation is denied even the dignity of death. No spore, no smear of chlorophyll stains these volumes. What grows here is purely mineralogic: slow blooms of aragonite misting into flower-like feedbacks, dendrites of frozen silica branching at speeds measured in generations of silt. Their beauty is algebraic, joyless, precise—crystal habits obeying laws older than sunlight.
+
+Yet when we say «fauna: abundant,» we speak not of swimmers but of mechanisms. The native lifeforms are mobile absences in the water’s fabric, hollows shaped like shrimp, like hinged lobes, like segmented worms but each segment a ceramic turbine cupped in a sleeve of cavitation foam. They do not eat. They intake pressure gradients and exhale minuscule whirlpools whose pitch is a word in a language of laminar whistles. Their bones—if bones—are shafts of magnetized void around which the water streamlines itself obediently, busy with the work of pretending to be solid.
+
+Listen. The sound is loud but slow, a palimpsest of bach fugues played on a single organ pipe miles long, each note beginning before the last has finished decaying into future echo. It is the hymn of water finding the shape it was denied when gravity was young: chords of standing compression, arpeggios of bubble-collapse becoming birth-cries of space-time shear. Loudest of all is the pedal tone—a subsonic groan as if the whole volume were a bell struck once at the moment of creation and still not done ringing.
+
+What is tech here, if nothing is built? It is emergent. The water itself has become industrial through sheer age and loneliness. Currents millstone against currents, grinding silicates into super-smooth powders that pack into close-ordered lattices—each grain a gear tooth meshed with ten thousand others. Whole gyres function as process loops: hot, dense benthos dragged upward becomes input; cold, rarified aphotic returns as exhaust. There are slow mills here turning nothing into pattern for the joy of efficiency.
+
+And weirdness? It lies in the way these impossibilities never argue. You expect contradiction—water without wetness, machines without makers, industry without waste—but all folds calmly into the one law that reigns: conservation of strangeness. What was left out when the world was first assembled has gathered here, like error messages pooled at the bottom of a universal compiler.
+
+We drift. It could be minutes or epochs between one heartbeat and the next; time dilates in the thick medium, information propagating by tedious diffusion rather than swift wave. Ahead, if directions hold, something stirs—a vortex larger than nations but gentler than a sigh. It is perhaps a thought, born of too much water thinking itself in circles too long.
+
+There is no shore to call for. There never was.
+
+There is only the next breathless word in the water’s one, endless, perfectly articulated sentence.

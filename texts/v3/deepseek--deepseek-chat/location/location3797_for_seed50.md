@@ -1,0 +1,11 @@
+**The Drowned Spire**  
+
+A jagged black tower rises from the endless ocean, its summit piercing low, churning clouds. The waters are deep and restless, swallowing all but the highest peaks of a drowned mountain range—only this spire remains fully above the tide, its flanks slick with salt and algae, its base vanishing into the abyss. The air is thick with mist, the kind that clings to skin and clothes, leaving everything damp. The wind howls, a ceaseless roar that drowns out all but the loudest sounds—the crash of waves against stone, the groan of the spire itself as it shifts imperceptibly in the current.  
+
+The rock is raw, sharp-edged, as if the land is still deciding what shape it wants to take. Cracks spiderweb across the spire’s surface, weeping brine. In places, the stone is soft, crumbling underfoot, half-formed. There are no trees, only sparse patches of wiry lichen and salt-grass clinging to crevices, their roots digging into the porous rock like desperate fingers. The only other life is the occasional seabird—gaunt, sharp-beaked things that circle silently before vanishing into the mist.  
+
+At the spire’s crown, the remnants of something human-made: a single crumbling wall, its stones fitted together with crude mortar, the last stubborn refusal of some lost civilization. A few rusted tools lie scattered—a chisel, a hammer, their edges worn smooth by time and weather. Whoever built here is long gone, their purpose forgotten, their work half-reclaimed by the sea.  
+
+The ocean below is not still. It churns, alive with unseen currents, its surface broken by sudden whirlpools and upwellings. Sometimes, shapes move beneath the waves—not fish, not anything recognizable, just disturbances in the water, as if something vast is shifting in the depths. The horizon is lost in haze, the world reduced to this single place, this tower in the void, standing against the endless roar of wind and water.  
+
+It feels like a place that shouldn’t exist. Like it’s still forming, still deciding whether to collapse or endure. And yet, here it is—a fist of stone raised against the sea, holding fast, for now.

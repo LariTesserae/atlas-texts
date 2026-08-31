@@ -1,0 +1,21 @@
+# The Cupola of Ascending Heat
+
+The chamber exists at the apex of something that might once have been a mountain, though now it reads more as a needle—a spire of fused obsidian and metallic glass that rises beyond the cloud deck, beyond the atmosphere's capacity to hold weather, into that thin place where sky becomes something else. The cupola itself is small: perhaps twelve meters across, a bubble of engineered crystal set into the spire's crown like a single unblinking eye turned upward toward the void.
+
+Inside, the air is hot and tastes of ozone and something older—the mineral breath of deep planetary processes venting through hairline fractures in the floor. The walls curve inward overhead, meeting at a point that seems to retreat further the longer you look at it, an optical effect that might be intentional or might be something stranger, some property of the crystal itself folding space slightly at its apex.
+
+The floor is mostly empty. This is the overwhelming impression: emptiness, held. A few structures rise from the dark glassy surface—pedestals of what looks like frozen smoke, columns that terminate in flat platforms bearing instruments of uncertain purpose. One holds a sphere of condensed moisture, sweating in the heat, its surface crawling with calculations expressed in light too dim to read. Another supports a shallow basin where droplets collect from the air itself, the cupola's only water source, feeding down through channels carved into the floor that glow faintly amber with conducted heat.
+
+There is no life here. No plants grip the walls, no insects navigate the thermals that spiral lazily up through the space. The biology of the lower world—whatever that world looks like beneath the cloud layer that obscures everything below—has not followed whoever built this place to their watching post.
+
+And yet the cupola is active.
+
+The instruments pulse. The condensation basin fills and drains according to some rhythm too slow to observe directly but visible in the changing water marks along its edges. The walls themselves cycle through phases of transparency and opacity, currently holding at perhaps thirty percent translucence, enough to see the dim glow of stars beyond but not enough to make out their patterns. Heat rises through the floor in waves that seem almost tidal, as if the spire itself is breathing, drawing energy up from whatever furnace-process occurs in its roots.
+
+The sound is the sound of scale: a vast quiet interrupted by the tick and ping of materials expanding and contracting, the faint hum of the sphere's calculations, the nearly subsonic groan of the spire adjusting to thermal stresses. Occasionally something louder—a chime, perhaps, or a signal, some piece of the cupola acknowledging some external event.
+
+The technology here operates at the edge of comprehension. The sphere's light-calculations solve equations that seem to reference dimensions not quite present. The crystal walls appear to be a single grown structure, molecular in its precision, yet they respond to proximity, to attention, warming where someone lingers and cooling where they move away, as if the cupola itself maintains a kind of spatial awareness. The pedestals can be moved but return slowly to their previous positions over hours, pulled by forces that have nothing to do with magnetism or gravity or anything else that fully maps to known physics.
+
+What does it watch for? The cupola faces upward, always. Its instruments measure things arriving from beyond: cosmic rays, perhaps, or gravitational whispers, or the approach of intelligences that travel between stars on timescales that make architecture sensible. The settlement below—if there is a settlement, if the spire once rose from some city that justified this observatory—has perhaps long since changed, or gone, or evolved into something that no longer needs such crude watching posts.
+
+But the cupola remains. Empty and active. Hot with the planet's breath. Damp with condensation that runs down and down into the darkness. Waiting at the extreme height of a world it no longer needs to be part of, doing its work in the near-silence, in the dimness, at the threshold between stone and sky.

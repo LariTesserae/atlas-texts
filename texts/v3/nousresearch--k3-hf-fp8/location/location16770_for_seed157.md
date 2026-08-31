@@ -1,0 +1,29 @@
+It is the hour between the last breath of dusk and the first cry of dawn, and the world here has forgotten how to turn.
+
+The place is called the Lantern Womb, though no lanterns have ever hung here and nothing living has truly been born within its bounds for longer than stone can remember. It sits high, high above where clouds should gather, on the last gasp of a mountain whose name eroded away with its first grain of sand. Height without vertigo; air is thick and damp, not with altitude but with presence.
+
+The ground is not ground but water pressed into the shape of ground. Imagine walking across a drumhead skinned from a drowned god’s drum. Every step trembles. Underfoot, a membrane of black peat so saturated it wobbles like jelly, interwoven with silver-gray roots finer than hair, roots that rise and fall with the slow heartbeat of something sleeping deeper than bedrock. Water seeps everywhere yet pools nowhere. Droplets cling to the air itself, suspended like doubting tears. When you exhale, your breath joins them, becomes them. Emptiness here is an insult; the slightest motion rents it open and liquid silence rushes in to fill the wound.
+
+Vegetation dominates at throat level. No trees stand above the crowd, only mirrors of trees: black and coral-red birches whose trunks are hollow tubes of living fungus, fanning at the top into fans of shuddering foliage that is not leaf but gill. Each gill breathes out a faint phosphor fog – the only light in this place, dappled like moonlight cast by a dead fish’s scales. Beneath the not-leaves twines everything else at once: mosses flowering with dew-diamond flowers the size of mites; coils of vine that are single cells, each cell pulsing with its own slow decision; liverworts the color of bruises and old monarch wings, hands so tiny they hold only regret.
+
+The air is packed as a scribe’s shelf, dense with life that never learned hierarchy. Life stacked upon life upon life until identity is leisure; a single spore here may belong to eighteen kingdoms before it decides to germinate. And the smell – not decay, not growth – the scent of negotiation at its closing hour: fungal sugars sweet as funeral marzipan, the iron snap of secreted alkaloids, the wet fur of rain that forgot to fall.
+
+Shape itself is old here, worn smooth as a worry-stone in the pocket of a god who long since quit worrying. There are no sharp edges because sharpness implies a future cut. Every ridge and hollow has been argued into equilibrium by millennia of the very slightly more persuasive. Stones, where they appear, are not stones but the calcified lullabies of extinct lichens: grey pillows soft enough to bite, but biting them would break your teeth on regret.
+
+Cold lingers close to the skin without threatening to enter. It is the coolness between lovers after the last word has been said but neither yet has risen to leave the bed. The temperature of waiting for the apology that already came but was not heard correctly.
+
+And the animals – if animal is still a word that applies – are the densest silence of all. None walk openly; each is folded into another. Eyelashes of transparent spiders tremble at the tips of millipede antennae that are themselves the legs of crabs that live inside hollowed-out seeds. Sound here is not forbidden but embarrassed. When the weight of stillness becomes unbearable, something like a mouse – if a mouse could be unlaced from itself and recomposed entirely from the longing felt by an unopened letter – will press its mouthless face against the underside of a gill and whisper a sound so faint it can be heard only in bones belonging to people who died before you were born. This is conversation. This is the gossip of eternity keeping itself mild company.
+
+Weirdness is subtle, a seasoning rather than a dish. The strangeness lies not in what is impossible but in what is, here, precisely possible and nowhere else. Gravity, bored of being vertical, has agreed to a compromise: if you stand still for longer than seven breaths you begin to sink, but only as far as your ankles, and then the peat remembers you belong upright and pushes back. Time does not flow; it diffuses. You could live a lifetime here between one blink and the next, or blink once and find the same itch on your nose waiting politely for your return. There are no seasons, only accommodations – warmth and cold, wet and wetter, dense and denser still – each taking its turn at being still so the other can pretend to change.
+
+And yet, in the exact center of this hush-a-bye world, casting no shadow on the breathing water-ground, stands upright a single thing that should not be: a tree in the antique shape of a doorframe, crafted of ordinary wood weathered grey as any fisherman’s widow’s memory. Lacking door or hinge or threshold. Through it, if you dare look from the precise angle where two regrets intersect, you can glimpse – but only glimpse – another place entirely. A place where water tastes of thirst and the wind has the decency to mourn aloud. No one knows who built it, for nothing here builds. Some whisper the door grew, unplanted, the day the place forgot how to be born.
+
+Some say that if you step through, you will at last be able to slough this skin of infinite patience and scream.
+
+But none ever have. here even curiosity has achieved consent.
+
+So the Lantern Womb waits, wet as a promise broken in the dark, cool as the inside of a priest’s secret doubt, high above everything that ever needed leaving, packed fuller than eternity’s own handbag with all the tiny lives that learned, at last, to live with itself and never, ever, hurry. 
+
+And in the crowding stillness, a single untouched droplet of tomorrow trembles on the ragged lip of a gill that breathes only yesterday.
+
+But tomorrow – if tomorrow were a word that remembered – knows better than to fall.

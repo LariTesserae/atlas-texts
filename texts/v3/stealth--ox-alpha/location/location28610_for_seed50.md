@@ -1,0 +1,55 @@
+# The Bell
+
+You hear it two valleys away.
+
+Not the water — you can't see the water yet, won't see it until you've climbed the black col and dropped through the notch where the cairns lean like tired men. What you hear first is the mountain working. A flat concussion rolls up the glacier-carved trough below you, bounces off three walls, and arrives at your chest as much as your ears. Then another. Then a ragged volley of six or seven, overlapping, the echoes braiding into something like applause played at the wrong speed. The shepherds on the lower slopes don't look up. They've been deaf to it since childhood, in the way that a harbor-dweller is deaf to gulls.
+
+Over the col, the wind drops, and the source reveals itself — smaller than anything has a right to be, given the size of its voice.
+
+It is a tarn. Just a tarn: a pool caught in the elbow of a corrie, four hundred paces across at most, ringed by raw walls that rise sheer for a thousand feet to a crest still holding winter. Folk call it the Bell, though it's a lake, and though it has never tolled in any way a bell-tower would recognize. It sits up here alone, hidden from every direction, a pocket of water that belongs to no river, feeds nothing, drains nowhere anyone has found — and the whole amphitheater around it is filled, continuously, with the noise of its making.
+
+---
+
+Here is what the Bell does: it detonates.
+
+Out past the drop-off, a dome of water will swell — slow at first, a blister rising under its own skin, ten feet across, twenty — then burst flat, with a crack like the sky splitting along a seam. Spray goes up in a grey column. Rings race outward, reach the shore, climb the stones, fall back. And the sound goes around the corrie twice, three times, diminishing, while already the next dome is swelling somewhere else, and somewhere else, so that the lake is never less than half-covered in rising blisters at any hour of any season. The large ones you feel in your ribs through the ground before you hear them. The very largest — maybe one a day, maybe one a week — are preceded by a fine trembling ring spreading from the vent, a shiver in the surface like a warning written in a language of circles, and anyone in the water scrambles for the rocks, because a big burst at close range is not a sound but a blow.
+
+The old explanation, and it may be the true one, is simple: the mountain is still exhaling.
+
+This corner of the range is young. Not young like a forest is young — young like a wound. The rock here came up late, fractured badly, and has not finished settling into itself. The corrie walls are bare of lichen; not a single grey map-crust on a thousand feet of stone, because lichen is patient and this stone has not offered it a decade yet. Frost works the faces nightly, popping shards loose, so that the talus slopes beneath tick and whisper all through the calm hours with stones adjusting their minds. Two springs ago a slab the size of a barn tore free of the eastern wall and slid halfway into the lake, and now there is a shoal there that no one remembers from childhood, because in childhood it was the lakebed. Every map of this place is a lie within a generation. The mountain keeps redrafting.
+
+And all through that unsettled rock runs a plumbing of cracks, and the cracks hold air — air sealed in at the making, air pushed ahead of percolating meltwater, air finding its way up through chambers that open and close as the mountain shrugs. The lake sits on top of the exhaust. Each dome is a lungful coming home.
+
+---
+
+The water itself is the clearest you will ever stand beside, because it has had no time to gather a history. No sediment worth naming, no peat stain, no bloom. Snowmelt-cold — you can hold your hand in it for perhaps thirty heartbeats — and so transparent that from the southern shelf you can see, distinctly, everything that lies on the bottom. This does not take long. There is an iron knife gone the color of brick. A small bronze bell, upright, its clapper resting against the lip as if it climbed out to listen. A wooden cup. Three beads, blue. Someone counted once, formally, and got eleven objects in the entire basin, and that was years ago, and the number has barely moved. The rest is pale stone ribbing away into a blue so complete it feels less like depth than like distance — as if the bottom were not down but *far*, the way the horizon is far.
+
+Nothing floats on this lake. No boat has ever lasted a season here — a hull takes the shockwaves like a drumskin takes a mallet — and so the surface remains what it has always been: untouched, self-interrupted, a field of rising domes under a hard clean alpine sun.
+
+The level cannot be trusted either. The lake breathes on its own schedule, dropping a man's height over some slow weeks as the water finds a new way down into the rock, then refilling in a night. Stakes driven by forgotten hands along the shore record old waterlines the way trees record years. When the lake draws down, it exposes a beach of brand-new land — ribbed, unstained, pale as the inside of a shell — and for a few weeks this is the youngest ground on the mountain, and the fastest life in the world races across it. A green fuzz of algae. Threads of something like liverwort. Then the lake inhales and takes it all back, and the colony starts over, and starts over, patient as the stone is not.
+
+What survives permanently survives only in shelter. On one stable bench on the lee side grows the lone stand of true plants — tight tussocks of sedge, knee-high, bent all in one direction by the wind that funnels through the notch. At the vents themselves, down in the calmer shallows, mineral-eating algae paint the stone in rust-orange and black-green crusts, the only color the corrie owns besides sky. In the spray zones, wherever the bursts wet the rock but don't strike it, dark felts of moss hold on with everything they have. Anything rooted in open water is eventually hammered loose. The flora of the Bell is a census of cracks and lee sides.
+
+The fauna is shorter still. Ghost-pale shrimp, thumb-jointed, live packed in the flooded fissures and emerge to graze the algae films, darting back into stone at the pre-burst shiver faster than the eye can argue with. One fish — a small, blind, milk-colored loach, found nowhere else on the mountain — has made its living from the violence: it rides the shockwaves, feeding on algae blasted free of the stone, and it spawns, somehow, only in the seasons of the heaviest volleys, as if it has decided the thunder is a calendar. Above, the birds keep their own account. Choughs and a kind of snow-finch come down from the crest to drink and to take the shrimp, and they arrive not at random but in the gaps — they have learned the rhythm of the lake better than any person alive, and they hang in the air above the drop-off, waiting out a volley, pouring into the shore rocks in the lull like water finding a channel.
+
+---
+
+People come here. Few, and never many at once, but always some.
+
+There is no village. There is a trail of cairns over the col, rebuilt each spring by whoever passes. There are listening ledges — flat shelves at the waterline, under overhangs, polished into shallow hollows by generations of shoulders, with handholds pecked into the rock beside them and old rope-rings for anchoring a grip-line. And there are the foundations. Half a dozen low rectangles of dry-stone footing, scattered around the corrie at odd elevations and odd distances from the water, most of them abandoned, one of them occupied.
+
+These are not ruins of disaster. They are ruins of *silence* — or rather, of the silence moving.
+
+Because in a place this loud, the rarest substance in the world is a quiet spot, and the Bell produces them: interference nulls, places where the reflections from the cirque walls cancel one another and the roar falls away to a thread. They are real, they are habitable, and they wander. A null that rests against the western slope at dawn may slide forty yards downslope over a season, or vanish entirely. So the dwellers build where the quiet lives, and when the quiet leaves, they move their house to follow it — stone by stone, roof-slab by roof-slab — and leave the old footing empty behind them, a fossil of where the silence used to sleep. The current bothy sits on the shoulder of the north shore, in a null that has held, generously, for nine years. Its inhabitants are half-deaf and entirely fluent in hand-speech. Their songs are sung only at dawn, in the pocket, softly, as if the quiet were a church.
+
+The other reason people climb here is stranger, and it is the reason for the ledges.
+
+Dive at the Bell — palm-first, during the calm hours, down the rope-line to the underwater shelf — and press your ear to the rock. All that chaos above, every separate crack and boom, arrives down here braided. Through stone, the hundred voices resolve into a single sustained tone, deep and steady, a chord with one note in it, running through the mountain's bones without pause. It is different every year. It is, the listeners say, slowly lowering — the pitch dropping as the fractures close and the mountain settles toward whatever shape it intends to be. Generations have kept the sequence in knotted cords and in songs with numbers in them. Some come simply to hear next year's note early. It is said the drowned bell rings faintly when the big bursts pass over it — a small silver shimmer inside the thunder, audible only from the ledge — though whether that is the bell or the mountain imitating it, no one still living claims to know.
+
+The rules, such as they are, fit in a breath: enter palm-first, never during a shiver; count the domes before you commit to the water; if the birds pour in, the gap is open, and if the birds lift as one, stop what you are doing and get your hands on rock. Drink the water if you like — it tastes of struck flint, cold iron, the inside of new stone — and the elders swear it settles the teeth, though they swear this about most cold things.
+
+---
+
+Come at dusk, when the sun drops behind the crest and the corrie fills with that blue, ordinary, honest twilight — no enchantment to it, just altitude and clear air. The bursts go rose-gray against the darkening walls. The scree ticks. Somewhere below the shelf, the tone runs on, a hair lower than last year. And if you stay long enough — an hour, a season, a lifetime — you understand what the noise is. It is not a sound being made in a place. It is the sound of the place being made. A landscape still wet from its own forming, hammering itself together, exhaling the air of its birth through the only mouth it has. The Bell is not finished. Neither are its walls, nor its floor, nor the small stubborn lives stitching themselves into its margins.
+
+It is just beginning to become a lake. You are hearing it happen.

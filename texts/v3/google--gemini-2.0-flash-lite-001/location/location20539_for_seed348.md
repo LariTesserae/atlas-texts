@@ -1,0 +1,17 @@
+The city is built into a shallow valley, barely a kilometer across. The valley floor is, for the most part, a flat plain of grey stone, scored with a million parallel lines. Closer inspection reveals these are not cuts made by tools, but the tracks of gigantic, unseen machinery. The stone is cool to the touch, and perpetually damp. The air smells of ozone and something metallic, like blood, but not organic. It's a smell that gets into your nose and never quite leaves.
+
+The structures are the dominant feature. They rise from the plain in fractal complexity, a forest of interlocking towers and platforms, connected by bridges and walkways. The architecture is angular and severe, all right angles and hard edges. The material is the same grey stone as the valley floor, but here it is polished to a mirror sheen. Towers twist and turn, their surfaces reflecting and refracting the ambient light, creating an unnatural, shimmering effect. The whole city feels built, maintained, and yet somehow ancient.
+
+Water is a constant presence. It drips from the overhangs, pools in the lower levels, and sheets down the sides of the towers. It's not a lot of water, but enough to keep everything glistening. There are no rivers or lakes, only this constant, subtle dampness.
+
+There is no vegetation—no plants, no moss, no algae. The only life is the fauna. And it is *overwhelming.*
+
+The noise is a cacophony. The city hums with a thousand different sounds. The grinding of gears, the hiss of steam, the echoing *thump* of some vast, unseen engine that seems to pulse through the very stone. Above it all, a constant chorus: a high-pitched, almost musical whine that permeates everything.
+
+The fauna are the cause of the noise. They are creatures of impossible geometry: pulsing, crystalline things that flow like water, but with no water. They clatter along the bridges, swarm the walls, and fill the hollows of the buildings. They seem to be composed primarily of angles and points, facets that catch the light and reflect it back in impossible patterns. Their numbers are everywhere, countless, and the noise they make is deafening. They have no natural predators or competition. The city seems to exist entirely for them.
+
+The technology is everywhere. Massive metal constructs—engines, generators, something like mills. They are functional, but their purpose is unclear. All powered by the energy that shimmers in the crystalline creatures of the fauna. They run at constant speed, emitting fumes and vapors that curl like the spirits of something dead.
+
+Despite the industry, the world is stable. Nothing decays. No shadows lengthen or shrink. No dust collects on surfaces. The air is always the same. The light is constant. The city exists in a state of impossible, unwavering equilibrium.
+
+The weirdness pervades. What is the nature of the fauna? What is their purpose? Why are they so numerous? What powers the city, and why? The answers, if there are any, are hidden in the geometry of the towers, in the rhythmic pulse of the engines, in the incessant whine that fills the air. It’s hard to think. Harder still to find the answers. Something is wrong, and it is a wrongness that feels older and deeper than the city itself.

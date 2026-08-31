@@ -1,0 +1,51 @@
+# The Resonance Hollows
+
+You are standing inside something that is alive, and that has been alive for longer than any living thing has a right to be.
+
+The walls breathe. Not metaphorically — the vast curved surfaces of the interior are covered in a living integument, a continuous membrane of plant tissue that swells and contracts on a slow, tidal rhythm, thickening where moisture collects and thinning to translucence where the warmth of its own metabolism pushes outward. The material is like bark in some places, like coral in others, like the wet interior of a lung in others still. It is the architecture. It has always been the architecture. There is no structure beneath it; the plant tissue *is* the structure, has been growing into its own shape for centuries or millennia, self-renewing, self-repairing, slowly weathering and slowly rebuilding in a balance so established it feels geological.
+
+And yet the spaces inside are **enormous** and **empty**.
+
+You are in a chamber roughly the size of a small cathedral — though that comparison fails, because a cathedral has columns and galleries and the density of carved intention. This has none of that. The floor is a broad, slightly concave basin of compacted root-mat, dark and spongy underfoot, slick with a thin sheen of condensation. The walls curve upward and inward, meeting overhead in a vault that might be fifteen meters high or might be sixty; the geometry refuses to settle, and you suspect this is not a failure of your perception but a property of the place. Distances here are suggestions. The wall across from you might be ten meters away. It might be thirty. It moves, or you move, or the concept of between-ness means something different in this room than it does outside.
+
+The room is almost entirely empty. That is the wrong way to put it — the room *is* the emptiness. The plant-walls define it, hold it, seep and glisten and occasionally drip into it, but they do not fill it. There is nothing in the middle. No furniture, no growth, no feature. Just the wet floor, the warm humid air, and the vast concavity of living walls in every direction, and the sense — overwhelming, inescapable — that you are standing in a volume that is slightly larger on the inside than it has any right to be.
+
+---
+
+**The sound.**
+
+The sound is the first thing that would destroy you, if destruction were what this place did. It is not destruction. It is just *sound*, everywhere, all the time, at a volume that saturates.
+
+The living walls are not quiet. They creak — deep, tectonic groans as the tissue shifts and grows. They crack — sharp, wet reports where the outer bark splits and new growth pushes through. They hum — a low, pervasive drone that you feel in your chest and your teeth, the resonance of the entire structure vibrating at the frequency of its own slow metabolism. And the hollow geometry of the chambers does something to these sounds that architecture should not do: it amplifies them, layers them, feeds them back on themselves. A single crack from the eastern wall arrives at the western wall magnified, and the echo comes back *before* the crack, or simultaneous with it, or from a direction that doesn't correspond to any surface you can see.
+
+There are insects — or things that occupy the ecological niche of insects — in numbers that stagger comprehension. The plant-walls are riddled with them. They live in the tissue, in the interstices between bark layers, in the condensation-filmed hollows where moisture collects in bead-like reservoirs. Their collective sound is a roar: a hissing, clicking, stridulating, buzzing wall of biological noise that merges with the plant-creak into a single continuous *scream* that is less a sound and more a condition. You do not hear it. You exist inside it, the way you exist inside air pressure. It is the medium. To be here is to be deafened, and then to forget that deafening is a thing that can happen, because the sound simply becomes the texture of reality.
+
+---
+
+**The fauna.**
+
+They are abundant and they are small and they are *everywhere*, and yet — and this is the spatial wrongness of the place reasserting itself — they are hard to see. You can hear them by the millions. You can see their trails on the walls, pale scored lines where some soft-bodied organism has dragged itself across the tissue. You can see their shapes in silhouette when they pass between the living wall and whatever faint illumination filters through the translucent outer layers — hundreds of them, thousands, shadows against green light, moving with the slow purposeful drift of things that have no predators, or whose predators are so perfectly integrated into the ecosystem that predation has become a form of gardening.
+
+But the spaces between them are vast. You could stand in this room for an hour and see only a handful of creatures at a scale your eyes can resolve — a centipede-like thing the length of your forearm navigating the root-mat floor; a cluster of soft, pale, roughly spherical organisms clinging to a drip-point on the wall, pulsing in slow unison; a bird-analog with too many wings perched in a crease of the ceiling, preening with the mechanical indifference of something that has never known a world without sound.
+
+They do not acknowledge you. Not out of boldness or tameness but out of something more fundamental: the categories of predator and prey, of self and other, do not function here the way they function outside. The weirdness of the place extends to its inhabitants. They are real. They are biological. They are also slightly *wrong* — their movements a frame too slow, their proportions a shade off, their attention directed at things you cannot see. One of the spherical wall-clingers turns to track your movement, and its surface resolves into what might be a face, and the face is not a face but a *pattern* that your brain is desperately trying to parse as one, and the effort of that parsing produces a sensation that lives in the space between recognition and hallucination.
+
+---
+
+**The weirdness.**
+
+It is not dramatic. It does not announce itself. It is the background condition of the place, as pervasive and as easy to stop noticing as the sound.
+
+Spatial inconsistency: you walked from the entry-tunnel into this chamber and the walk took either three steps or thirty, and both measurements feel equally correct. The tunnel behind you is visible but its distance is uncertain, and sometimes it appears to curve in a direction it did not curve when you entered.
+
+Temporal inconsistency: the condensation on the walls drips upward. Not often. Once every few minutes. A bead of water detaches from a protrusion on the lower wall and rises, slowly, to rejoin the slick surface above. You watch it happen and your brain accepts it and then rejects it and then accepts it again, and the oscillation is exhausting, so you stop watching.
+
+Biological inconsistency: the plant tissue is doing something that is not photosynthesis and not respiration and not any metabolic process you have a name for. It is consuming something. The air itself, maybe. The sound. The light. The walls are slightly brighter where they face the denser concentrations of insect-noise, and slightly dimmer where the sound has thinned, as though the structure is feeding on its own deafening acoustics and converting the energy into growth. This would explain the self-maintaining architecture. This would explain the balance that erosion has not disrupted in a thousand years. The place is eating itself and regenerating itself and the sound is both the food and the product of the food, and this loop is the reason the place is loud and the reason the place is alive and the reason nothing here ages or dies in a way you would recognize.
+
+The built environment — if you can call it that — is an emergent property of this process. The chambers arrange themselves in patterns that are not quite habitable and not quite wild. There are corridors that connect rooms, and the corridors are too regular to be natural but too organic to be constructed. There are junctions where three or four passages meet, and the junctions have the spatial logic of intersections, of *designed* spaces, of urban planning — but no one designed them. The plant grew this way. The insects navigated this way. The architecture organized itself into something that functions like a settlement because the organisms inside it needed it to function like a settlement, and the plant obligingly grew them rooms, and the rooms are vast and empty and warm and dripping and alive, and the arrangement of the rooms is a city, and no one built it, and it has been here longer than cities have existed, and it is not a city, and it is.
+
+---
+
+**The warmth.** It is not temperature so much as *body heat*. The entire structure is metabolic. The walls radiate it. The air holds it, thick with humidity, heavy with the exhalation of ten thousand species of plant and insect and thing-that-is-neither. You sweat, and the sweat does not evaporate because the air is already saturated, and you are warm and damp and standing in a vast empty room inside a living thing that is also a city that is also a sound that is also eating itself, and the floor beneath your feet is soft and alive and faintly pulses, and if you pressed your ear to it you would hear — beneath the deafening roar of the walls and the insects and the impossible acoustics — a deeper sound, slower, a single sustained note like the resonance of a cathedral bell that has been ringing since before bells were invented and will ring until the thing that is the cathedral and the bell and the sound decides, with the patient indifference of deep biology, to stop.
+
+It will not stop. It has never stopped. The place is in balance. The erosion is settled. The growth is settled. The deafening is settled. You are the only unsettled thing here, a warm and dense and temporary density in a place that defines itself by its hollowness, a small and quiet impossibility in a small and vast and screaming one.

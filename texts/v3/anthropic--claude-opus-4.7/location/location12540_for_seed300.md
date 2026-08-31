@@ -1,0 +1,25 @@
+# The Cistern Works
+
+There is a hollow in the land that you would not find unless you were looking for it — a depression maybe two hundred paces across, ringed by low limestone shoulders that have been weeping for so long they've grown soft, rounded, the way old soap rounds in a dish. The stone is the color of wet bone. Water beads on it constantly, not because it rains here (though it does, often, in fine sheets that arrive without warning) but because the air itself is saturated past its patience, and any cool surface pulls moisture out of it the way a cold glass pulls summer.
+
+You come down into the hollow on a path worn into a groove. At the bottom, the ground is a kind of pale clay that has been walked on, drained over, pressed by water and weight for a very long time. Sparse rushes grow in clumps — dark green, almost black at the base — and a few stunted alders lean over standing pools. That's most of what lives here, plant-wise. The hollow is too wet for most things and too sheltered for the wind-loving grasses of the upland.
+
+But the hollow is not empty. This is where it gets strange.
+
+Scattered across the basin, half-sunk into the clay, are perhaps thirty or forty **engines**. Not engines as you'd picture them in a factory — these are squat, brass-and-iron things, each about the size of a butter churn or a small barrel, with riveted seams gone green at the edges and little chimneys no taller than a hand. Some are tilted. Some are upright on stone footings that have settled crooked. A few are nearly swallowed, with only a knob or a pipe-end showing above the wet ground. Each one is connected to its neighbors by a webwork of copper tubing and lead pipework, and the pipes loop and crisscross and dip in catenaries so that the whole hollow looks, from the rim, like it has been spider-webbed by a tinker who lost his mind in a generous way.
+
+The engines are running. That's the thing. They have apparently been running for a very long time, on what fuel no one can quite say — perhaps the water itself, perhaps something condensed out of the wet air, perhaps a slow chemical process in the clay. They do not roar. They tick, and they sigh, and now and then one will give a small wet cough and a puff of pale vapor will go up from its chimney and join the general mist. The collective sound is so quiet that you can hear, underneath it, water dripping from the pipes, and the occasional plip of a drop falling into a pool.
+
+What the engines *do* is harder to say, and this is where the hollow takes on its character.
+
+They move things. Water, mostly. Each engine seems to be drawing from one place and depositing in another, so that the pools in the basin are in constant, slow rearrangement — one filling while another empties, a third being siphoned across to a fourth by an arc of pipe that drools at its lowest point. Stand in the hollow for an hour and the map of standing water will have entirely redrawn itself. Stand for a day and you will see pools form, deepen, drain, and reappear elsewhere. The clay is scarred everywhere with the ghosts of former pools — pale rings, darker centers, sediment-lines like tide marks at every conceivable level.
+
+The hollow is, in this sense, *furiously* dynamic at a scale you can almost ignore. Nothing rushes. Nothing roars. But every surface is in motion. The water is being shuffled, ceaselessly, by these patient little machines, and the result is that the place can never settle into a single image of itself. You cannot draw a map of it that would be true an hour later.
+
+There is one small building on the western shoulder of the hollow, a brick pump-house with its roof caved in, ferns growing through the rafters. Inside, if you climb through, there is a workbench, a logbook gone to pulp, and a brass plate on the wall that reads something like a dedication, though the words are unreadable now — water has eaten the engraving into shallow troughs. Whoever built this place is long gone. The engines have outlived their purpose, if they ever had one beyond their own perpetuation, and continue.
+
+Fauna is rare. A heron sometimes. Frogs you hear but don't see. Once in a while a small dark animal — a water shrew, a vole — darts across a brass casing and is gone. Insects are surprisingly few; perhaps the vapors discourage them.
+
+The light in the hollow is good but diffused, because the mist never fully lifts. The sun comes through as a brightness rather than a disk. Shadows are soft and the brass of the engines gives off a low warm gleam that seems disproportionate to the available light, as if the metal has been holding onto some earlier, sunnier day and is letting it out slowly.
+
+The rule of the hollow, if it has one, is this: **nothing is allowed to stand still, but nothing is allowed to hurry.** Every drop has somewhere to be, and a long time in which to get there. A person who stays too long begins to feel this in their own body — a faint, not unpleasant sense of being part of the circulation, of being moved through rather than moving. People do leave. But they tend to come back.

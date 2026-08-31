@@ -1,0 +1,25 @@
+The horizon here does not so much end as it dissolves.
+
+You stand upon the **Great Gravel Plain of Oot**, a geological term that fails to capture the sheer, crushing scale of the place. The elevation is immense—a high, flattened plateau that once jagged into mountain peaks eons ago, now ground down by the ruthless, slow file of time. This is the erosion parameter at its maximum: the land has reached its terminal state. There are no sharp edges here, no cliffs, no sudden drops. The world has been worn into a seamless, undulating curve of stone, stretching away for hundreds of miles until the atmosphere blurs the distance into a hazy, heat-shimmered nothingness.
+
+The stone is warm. The temperature sits at a constant, enveloping mugginess, like the inside of a greenhouse long after the sun has set. There is a permanence to this warmth; it radiates not from the sky, but from the earth itself, as if the deep rock is storing the heat of a billion past summers.
+
+**Water is a phantom here.** There are no rivers, no lakes, no rain. The sky is a pale, washed-out celadon, devoid of storm clouds. Yet, the air is thick—viscous almost. It is damp in the way that a breath is damp when pressed against glass. Condensation is the only water source. As the day warms the immense rock faces, a slick, oily sweat beads on the surface of the stones, collecting in the microscopic crevices of the erosion. It gathers in tiny, pristine pockets no larger than a teacup, dotting the landscape like scattered mercury.
+
+Vegetation clings to this moisture in desperation, and it is sparse. There are no trees, no grass, nothing that requires deep roots. Instead, the ground is patched with "rock-wool"—a gray, fibrous lichen that feels wet and greasy to the touch. It grows in low, concentric rings around the little condensation pools, dormant for decades at a time, waiting for the humidity to peak just enough to release a single spore.
+
+But the wool is not what draws the eye. It is the **density** of the *other* presence.
+
+The plain is alive. It is overwhelmingly alive, a "fauna" rating that manifests as a solid sea of life. The ecosystem here is one of silence and slowness. The animals are "The Grazers"—massive, low-slung creatures that look like moving boulders. They are roughly the size of hatchback cars, limbless or possessing stubby, suction-cupped feet, composed of chitinous plates that mimic the color and texture of the ancient gravel.
+
+Because of the "dynamic" parameter being so slow, the landscape appears static. A Grazer might move three feet in a day. But there are millions of them. They are packed tightly, shoulder to shoulder, carapace against carapace, stretching to the horizon. It is a traffic jam of geology that has lasted for millennia. They do not bleat, roar, or call; the sound level is near zero. The only noise is the endless, dry whisper of thousands of armored underbellies dragging across the stone—a sound like heavy canvas sliding over sand—punctuated by the soft, wet *plink* of condensation falling from their backs into the moss they graze upon.
+
+The **weirdness** lies in the "built" elements, which are scattered among the herds like grave markers.
+
+These are not buildings in the human sense. There is no tech here, no mortar, no design. They are "Calcifications"—vast, spiraling towers of hardened secretion, excreted by the ancestors of the Grazers over millions of years. They stand ten, twenty feet tall, smooth and bone-white, twisting in impossible, non-Euclidean angles that look like ruins of a cathedral designed by a dreamer. The Grazers congregate around these monoliths, rubbing against them, wearing them down with their slow embrace. They serve no functional purpose that an outsider can discern; they are simply architectural accidents of biology, monuments to the sheer volume of life that has passed through this place.
+
+To walk here is to navigate a crowded room where everyone is holding their breath and moving in slow motion. You must step carefully. The ground is uneven not because of rocks, but because of the sleeping shapes of the Grazers. The air smells of warm dust, musk, and the metallic tang of wet stone.
+
+There is no wind to speak of, just the thermal currents rising from the sun-baked plateau. Time feels thick. If you were to sit and watch a single pool of condensation, you would see it slowly fill, perhaps over the course of an hour, until a Grazer nudges forward, extends a proboscis like a black, leathery tongue, and drinks it. The creature does not acknowledge you. It is concerned only with the harvest of the dampness, the slow rhythm of the heat, and the crushing, peaceful density of its kin.
+
+This is a world that has finished becoming. It is not dying; it is simply full. It has settled into its final shape, a warm, wet, quiet grinding of life against the ultimate bedrock of existence.

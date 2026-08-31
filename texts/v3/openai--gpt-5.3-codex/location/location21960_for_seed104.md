@@ -1,0 +1,36 @@
+From a distance—if there is such a thing as distance here—the world looks like a drowned mountain range trying to remember that it was once sky.
+
+Everything is water, but not in one simple layer. There are stacked seas: a lower ocean pooled in the hollows of ancient stone, a middle ocean suspended as warm fog thick enough to swim through, and a high ocean that falls in slow, continuous curtains from cloud to ridge and back again. The rain does not begin or end. It drifts sideways in braided sheets, then folds into itself and rises, as if gravity has negotiated only a partial contract.
+
+The land is high, old, and almost finished with change. Vast plateaus of dark, slick rock shoulder above abyssal basins; ridgelines have been worn down into smooth-backed arcs over ages so long their sharpness is gone from memory. Erosion has done nearly all it can do. Every surface has the patient polish of deep time: basalt gone soft-looking, limestone dissolved into honeycombed terraces, mineral crusts layered like old lacquer. Even cliffs seem less broken than melted, as though the world has been slowly exhaled into its current shape.
+
+And yet the place is active. Water is always moving. Warm currents climb through cracks in the high stone, bloom into mist-forests, then condense and return in heavy drops that strike with no drama—just a steady, countless tapping. Channels shift, fill, and vanish. Whole valleys become lakes by afternoon, then drain through subterranean throats by night. Weather forms locally at every scale: a single pillar of rain turning in place over one ledge, a continent-wide bruise of cloud pressing low enough to touch the surface and drag along it.
+
+Vegetation has learned to occupy every boundary between wet and wetter. There are no broad dry forests, but there is lushness everywhere in layers: mats of translucent moss inflated with water; rope-thick vines that float free in fog and root wherever they brush stone; frond canopies spread horizontally under shallow water like green ceilings. Giant reed-colonies rise from flooded saddles between peaks, their hollow stems resonating faintly when currents pass through them. Lichens form iridescent skins over boulders, feeding on mineral seep and dim light, turning black stone to muted teal and rust-gold.
+
+Some plants are nearly architectural. In sheltered basins grow “vault trees”—not true trees, but merged columns of fibrous tissue and calcified algae, branching into arches that hold up pockets of still water like hanging rooms. Inside these chambers, droplets gather slowly on the inner skin and fall with clocklike patience. Other growths are migratory: broad leaf-rafts that detach in the seasonal updrafts of warm mist and drift for months, carrying entire miniature wetlands with them.
+
+Light is present but diffused, always filtered by cloud, spray, and suspended bloom. Day arrives as a gradual graying from charcoal to greenish pearl. Direct sunlight is rare and startling; when it appears, it comes as brief shafts that stop midair against invisible planes, split into duplicate beams, or curve gently as if passing through lenses no one can find. At dusk, the upper rain glows faintly from bioluminescent films spread across droplets, so entire storm-banks pulse with quiet blue veins. Night is not dark so much as submerged.
+
+Sound is sparse. No insects shrilling, no choruses of animals, no crashing surf despite all this water. The dominant noises are close, small, and continuous: drip, seep, leaf against leaf, the soft grind of pebbles rolled in hidden channels, the occasional deep exhale from caverns releasing trapped air. Sometimes an entire basin goes nearly silent, and in that silence you can hear the rain changing shape before it changes direction.
+
+Fauna is rare, almost ceremonial in its appearances. You might go days seeing only the traces: parallel grooves in biofilm where something broad and soft slid uphill through rain; a perfectly circular bite removed from a floating fern; the sudden vanishing of surface ripples as if a thought had passed under them. The few animals that are seen are adapted to ambiguity—amphibious forms with ciliated skins that can breathe in water, mist, or saturated air; long-bodied gliders that “swim” through cloudbanks between ridges; blind grazers that map the terrain by pressure changes in falling water. Predation happens quietly and quickly, often out of sight, leaving little more than a drifting stain of spores where blood would be.
+
+Built things exist, but only as interruptions. A stair carved into a cliff and descending into open water with no landing. Stone rings set into plateau tops, each ring filled with still black pools that never overflow in rain. Fragmentary walls protruding from moss at odd angles, too smooth to be natural, too weathered to date. No metals, no machines, no active fire, no obvious tools. The structures feel less like settlements and more like punctuation marks—brief assertions that someone, once, tried to define a boundary in a world that refuses fixed edges.
+
+The weirdness is not theatrical; it is infrastructural. Distances fold. A ridge seen across a basin can be reached in an hour, or never reached at all, depending on the rain phase. Reflections in standing water show not the sky above but adjacent valleys, or the same valley in another season. Certain hollows collect “old weather”: step into them and the rain temperature drops decades, carrying scents of extinct plants. Time is eroded here as thoroughly as stone. Growth rings in vault trees sometimes run backward. Sediment layers include imprints of leaves from species not yet germinated in nearby marshes.
+
+There are rules, but they are local and patient:
+
+- **Anything touching three kinds of water at once** (liquid, vapor, and falling rain) begins to change state unpredictably—stone softens, roots calcify, skin becomes briefly luminous.
+- **Still water remembers direction**; if disturbed, it re-forms currents that point toward where it last flowed, even if terrain has shifted.
+- **Height does not guarantee dryness**; the highest ridges often hold the deepest suspended pools.
+- **Silence precedes movement**; when all drip-sounds pause together, a major flow redirection is imminent.
+
+Despite the strangeness, the place is not hostile so much as indifferent and old. It feels like a world late in its own biography—after fire, after tectonic drama, after rapid invention—settled into a long warm epoch of circulation and slow metamorphosis. Life persists not by conquering conditions but by dissolving into them, becoming porous, reversible, hard to pin down.
+
+If you stayed long enough, you would stop asking where the sea ends and the mountain begins. You would start measuring places by textures of wetness, by how many layers of water you can pass through without changing altitude, by whether the rain is falling from above or being pulled sideways out of stone. You would learn to read the dim green glow in cloud as weather-script. And eventually, in the quiet, you might notice the oldest truth of this landscape:
+
+it is not flooded.
+
+It has always been this way—an elevated ocean wearing the shape of land.

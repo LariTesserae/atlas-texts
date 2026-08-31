@@ -1,0 +1,37 @@
+# The Unbecoming Plateau
+
+There is a city here. Not beneath the earth, not submerged — simply *here*, in the way that a scar is here after the wound has healed. It was once vast. You can feel the scale of it in the spaces between what remains: avenues wide enough for processions, plazas where a thousand people might have gathered, walls that once held roofs and now hold only the sky. But the city is not ruined in the way cities are ruined by war or time. It is ruined in the way that a word is ruined when you repeat it until it means nothing. The buildings stand. The streets run true. But the stone has become something else — smoothed, faintly translucent, worn at the corners as though decades have been sanded away not by weather but by *insistence*, by the world insisting less and less that these things exist.
+
+You are standing on a plateau. The elevation is extreme — so high that the air is thin and tastes of nothing, not cold, not warm, simply *absent*. The temperature sits in a narrow cool band, never warm enough to comfort, never cold enough to sting. It is the temperature of a hand that has been still too long.
+
+There is no water. Not here. The ground is a vast mineral field — not quite salt, not quite silicate, something that catches the pale light and holds it without reflecting it, a surface that looks like it should be slick but is dry, dry, dry beneath your feet. In places it crystallizes into low formations, geometric in their fracturing, as though the plateau itself was once a liquid that chose to stop moving. There are no rivers, no pools, no moisture. If there was rain once, the memory of it has been worn away. The ground does not crack from thirst — it is beyond thirst. It simply *is*, mineral and complete and empty of anything that would require water to live.
+
+Nothing grows. There are no plants, no fungi, no lichen. The surfaces are bare in the way that glass is bare — not dead, just never having been alive. In the deepest folds of the city's streets, where the light barely reaches, you might find faint patches of something that could be growth, or could be mineral staining, or could be the outline of something that used to be one thing and is now another. You cannot be sure, and this uncertainty is part of the place, not a failure of your observation.
+
+The light is dim. The sun is present — you can find it if you look up, a pale disc behind the thin haze — but it does not illuminate so much as *suggest*. Shadows here are not sharp. They pool and soften at the edges, and if you watch one long enough, you can see it do something a shadow should not do: thicken, thin, move against the light. The city holds this dimness like a breath held too long.
+
+It is quiet. Not silent — there is wind, a high-altitude wind that moves through the empty streets and around the facades of buildings whose windows are simply holes, whose doors open onto nothing, whose rooms are rooms the way a thought is a thought: present, shaped, but without weight. The wind makes sound. It sighs through gaps in stone. It hums against flat surfaces. But there are no birds, no voices, no footsteps of other people, no machinery. The silence is the silence of a room where someone has just left.
+
+There are animals here. You have seen two. They are small and they move quickly and they are not quite shaped right — not enough angles, or too many, or angles where curves should be. They do not look at you. They may not see you. They exist in the rare register of this place, the 1.4 out of 3, which means *they are here but barely*, *they are alive but uncertain*, *they are fauna in the way that a rumor is fauna*. They do not eat. You do not see them drink. They simply are, for a moment, and then they are not.
+
+And the weirdness —
+
+The weirdness is 2.9 out of 3. It is almost everything.
+
+This is the thing that you cannot look at directly. The city is here, but *here* is not quite stable. You walked to it along the road that is not a road — a strip of mineral surface that runs straight for miles and then, if you glance back, is not straight at all. It is curved, or branched, or simply gone. The buildings are vertical, but when you close your eyes and open them, one of them is horizontal, is a flat expanse of floor where the roof should be, and you are standing on it, and you were standing on the ground, and the ground was the roof, and this was always true. You have been walking for an hour and have not moved. You have taken one step and are somewhere else. The geometry is wrong because the geometry is *uncommitted*. Space here has not decided what it is.
+
+You understand, after a while, why there is no technology. Not because the people here were primitive. Because technology is a set of relationships — between cause and effect, between input and output, between *this button and that result*. And those relationships are what the plateau has forgotten. You could not build a machine here because a machine requires a world that behaves like a world, and the world here is behaving like a wound. It is healing, or opening. It has not decided.
+
+The erosion is established. The plateau has existed long enough for this to be its own state. This dissolution, this forgetting, this slow withdrawal of *meaning* from matter — it is not new. It has been happening for so long that the city was built during it, or perhaps the city was already here when it began, or perhaps the city is the thing that is being *unbuilt*, and the buildings you see are the ones that have not yet finished unbecoming.
+
+And yet: the dynamic is 2.5 out of 3. Something is still active.
+
+You feel it before you see it. A vibration in the mineral ground, low and deep, like a sound heard through the bones rather than the ears. The wind changes direction without the air changing. The light brightens, dims, brightens again, and it is not the sun — the sun has not moved. Something is cycling here. Some process is running. Perhaps it is the dissolution itself, the slow chemical or metaphysical reaction by which matter forgets how to be matter. Perhaps it is the atmosphere of this altitude, the thin air cycling through some pattern you cannot perceive. Perhaps it is the city, dreaming.
+
+You put your hand against a wall. The stone is cool. It is smooth — smoothed not by water, which is absent, but by *time*, which is not absent, which is here and heavy and slow. You can feel the texture of something that was once shaped by intent, shaped by hands or tools or whatever the people here once used to make a world that worked. The wall is not crumbling. It is *fading*. There is a difference. Crumbling is a process of loss that still respects the object. Fading is a process of loss that forgets the object was ever there.
+
+You step into a courtyard. The mineral floor is patterned — you think. You are not sure if it is patterned or if you are inventing the pattern because a floor should have a pattern. The light dims. The wind stops. For a moment the silence is so complete that you hear your own blood, and then even that fades, and the silence is just silence.
+
+Somewhere, deep below the plateau, something moves. Not tectonic. Not mechanical. Something like a thought being thought by the earth itself — slow, vast, incomplete. You feel it in the soles of your feet.
+
+The city stands in the dim light on the dry mineral ground in the thin cold air at the edge of a world that is forgetting itself, and you are in it, and it is in you, and neither of you is sure what that means.

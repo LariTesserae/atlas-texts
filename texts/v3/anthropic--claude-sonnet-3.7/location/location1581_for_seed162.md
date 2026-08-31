@@ -1,0 +1,19 @@
+# The Hollow Thunder
+
+It's the sound that finds you first. Even before your eyes adjust to the darkness of the hollow, a wall of noise floods every sense: the crash and gurgle of falling water, a cacophony of chirps and calls layered so densely they become almost solid, and beneath it all, a deep resonant hum that you feel through your feet more than hear.
+
+You've found it by accident, following a narrow game trail that suddenly disappeared beneath an outcropping. The hollow is surprisingly small—perhaps twenty paces across at its widest—a pocket carved into the mountainside where two slabs of reddish basalt meet at an acute angle. Fresh rock faces glisten with moisture, evidence of a recent rockfall that has newly exposed this hidden world.
+
+The air is oppressively hot and thick with humidity. Droplets form on your skin almost immediately, joining the constellation of water that defines this space. From the low ceiling, water seeps through countless fissures, creating a perpetual indoor rain that collects in small, perfectly clear pools before finding channels in the stone floor. These rivulets converge toward the back of the hollow, where they disappear into a narrow throat of stone with a sound like distant thunder—the source of that deep vibration.
+
+Vegetation is sparse but deliberate, as if each plant has claimed its precise territory with intention. Stubborn ferns with nearly translucent fronds cling to the walls. Mosses in vibrant chartreuse spread in patches wherever water flows most consistently. The few flowering plants are small but shockingly bright—tiny star-shaped blooms in electric blues and violets that seem to glow in the diffuse light that filters through the narrow entrance.
+
+The hollow teems with life, concentrated in this small space with incredible density. Lizards with scales that shift color with the changing light dart between rocks. Countless insects—iridescent beetles, hand-sized dragonflies with crystalline wings, and strange translucent crawling things—move purposefully across every surface. Small bright-feathered birds dart in and out, their songs amplified by the acoustics of the chamber into something nearly orchestral.
+
+In one corner, a careful observer might notice a crude structure—not quite a nest, not quite a tool—where some of the local fauna has arranged pebbles in concentric circles around a particularly productive water seep. Nearby, several of the larger beetles appear to be working collectively to roll tiny balls of mud and plant matter toward this arrangement, suggesting a primitive form of environmental manipulation that skirts the edge between instinct and intelligence.
+
+The light changes as clouds pass overhead, sending shafts of brightness that momentarily illuminate different sections of the hollow, revealing flashes of hidden life: a cluster of translucent eggs attached to the ceiling, a colony of thumb-sized frogs with bright warning colors, the ghostly outlines of fish in the deeper pools.
+
+This place exists in a constant state of becoming—newly exposed to the world, actively shaped by the water that both erodes and deposits, populated by creatures that respond to its rhythms with their own patterns of movement and sound. It feels ancient and newborn simultaneously, a pocket universe operating according to its own intense internal logic.
+
+The longer you stay, the more the overwhelming noise organizes itself into distinct layers—water speaking in different tongues as it drips, pools, and vanishes; animals communicating in patterns that begin to seem almost legible; and always that deep thrumming undercurrent, the mountain's own voice resonating through stone and water and flesh.

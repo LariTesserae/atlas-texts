@@ -1,0 +1,59 @@
+# The Thaw Terrace
+
+---
+
+The first thing is the light. It comes from everywhere. The sky is a white bowl, seamless and depthless, and the ice-melt that sheathes every surface catches that whiteness and throws it back in overlapping sheets of glare. You squint and still the brightness gets in behind your eyes. There is no sun — or rather, the sun is the entire sky, a diffuse and total illumination that erases shadow and makes every edge vibrate with an overexposed clarity. Things here appear closer than they are. Outlines hum.
+
+---
+
+You are standing on a shelf of ancient rock — dark schist, folded and refolded so many times the strata look like the pages of a book left in the rain, warped into S-curves and tight chevrons. This shelf juts from a mountainside at perhaps two thousand meters, not a summit but a broad step in the mountain's descent, a terrace maybe eighty meters across and forty deep before the rock wall rises again behind. The edge drops away in a worn lip, water sliding over it in a dozen thin tongues that vanish into the bright void below. You don't look over. You feel the altitude in the thinness of the air, in the way your breathing has to reach a little further for each lungful.
+
+Every surface is wet. The rock weeps. Water beads on the schist in a permanent cold sweat, collects in the grooves of folded stone, runs in braided micro-channels that split and rejoin. The air itself seems to be condensing — not fog exactly, but a kind of saturated visibility, as though the atmosphere is a sponge wrung out to its last capacity and now just barely holding. The temperature is bitter. The water should freeze but doesn't — or it does and then doesn't, a constant oscillation at the threshold. Ice forms in thin scalloped shelves along the edges of puddles and then liquefies again minutes later. Frost crystals bloom on the rock face behind you, hold their shapes for a breath, then slump back to droplets. The whole terrace is caught in a state of perpetual almost-freezing, a trembling equilibrium that never settles.
+
+---
+
+And in this trembling, everything moves.
+
+The terrace is *crowded*. That's the word that doesn't seem right and yet is. Crowded — on this frigid, wind-scoured, high-altitude shelf of bare rock. Crowded with structures and creatures and activity, all of it packed into this single improbable platform as though the terrace were a raft and everything on it had fled here from somewhere worse.
+
+The structures are low and dense, built from stacked schist slabs chinked with a pale morite — some calcium paste, chalite mixed with animal fat, you can smell the faint rancid tang of it beneath the mineral cold. They cluster in tight warrens along the back wall where the rock face offers some shelter, these buildings, though "buildings" overstates them. They are more like cells in a wasp nest — hexagonal wasn't the intent but became the outcome when each new chamber pressed against its neighbor and angles compromised themselves into rough six-sided plans. None stands higher than chest level. You'd have to crouch to enter any of them. Their roofs are flat schist capstones, and on these capstones — this is where the strangeness begins to declare itself — things are growing. Not plants. Or not only plants.
+
+---
+
+The vegetation is sparse by any conventional measure. A few tufts of something between lichen and moss colonize the cracks in the back wall, grey-green, tough as wire, barely alive in any way you'd recognize. Some thin, almost translucent stalks rise from rock crevices — gelatinous, the color of old bone, more fungal than floral, their tops crowned with tiny bulbs that appear to be full of water. When you touch one (you shouldn't but you do), the bulb pops with almost no resistance and the water inside is warm. Inexplicably warm. The stalk shivers and begins, very slowly, to grow a new bulb.
+
+But on the rooftops of the warrens, something else is happening. Shallow stone basins have been carved or worn into the capstones, and in these basins, dark water sits, and in the dark water, colonies of something thrive — a biomass, rust-red and black, that seems to be neither plant nor animal nor exactly microbial but some other kingdom entirely. It pulses. Not like a heartbeat — more irregular, more conversational, like a crowd all shifting in their seats. The colonies in adjacent basins pulse in relation to each other, call and response, and the water in the basins ripples with their movement even when there is no wind. Whoever or whatever tends these warrens has been *cultivating* this substance. Some basins are deeper, more carefully lined. Channels have been scratched into the stone between them, connecting the water, allowing the colonies to exchange — what? Fluids, signals, fragments of themselves.
+
+---
+
+Now: the fauna. The terrace seethes with it.
+
+The most obvious inhabitants are the birds — except they are not exactly birds. They have the rough body plan: two legs, two wings, a central mass, a head. But their proportions are wrong in a way that takes a moment to resolve. The wings are too small for flight and too large for vestigiality — they are *working* wings, but what they work at is not flying. The creatures use them as arms, as tools, as social signals. The wing-tips end in three flexible cartilaginous fingers, pale and dexterous, that grip stone, carry material, probe the basins of red-black biomass with evident purpose. Their bodies are dense-furred rather than feathered, the fur slicked flat with moisture, ranging from slate grey to a dirty cream. Their heads are disproportionately large, blunt-faced, with wide-set eyes that have horizontal pupils like a goat's, golden-irised, and unsettlingly attentive. They stand perhaps forty centimeters tall.
+
+There are dozens of them on the terrace. Scores. They move in what appears to be chaotic, frenetic activity — carrying schist fragments, patching mortar, tending the basins, rearranging small objects whose purpose you can't identify (bones? tools? tokens?), squabbling briefly over position near certain basins, suddenly and without visible cause abandoning one task to rush to another. The energy is extraordinary. It's an anthill, a trading floor, a construction site in its most intense phase. And yet the sound — the sound is almost nothing. Their feet on wet stone make a faint ticking. Their wing-fingers clicking against rock produce a tiny, precise percussion, like someone tapping a pencil very far away. They don't vocalize. Or they do, but below or above your hearing — you feel it sometimes as a pressure in the jaw, a subsonic vibration that makes your molars ache for a half-second and then releases.
+
+They are aware of you. Several have paused to stare with those horizontal pupils, heads cocked at identical angles, before resuming their frantic work. You have been assessed and, apparently, categorized as something that is neither threat nor resource. You've been *filed*.
+
+---
+
+Among the warrens, smaller creatures move — something like a six-legged salamander, ice-white, nearly transparent, its organs visible as dark shadows through its skin. These slip through the water channels between basins, and the red-black biomass parts for them or clings to them — it's hard to tell which. The salamanders seem to serve a function within the system, couriers of some kind, carrying traces of one colony to another. The wing-fingered creatures tolerate them. Or more than tolerate — occasionally one will pause in its frenzied activity to place a careful wing-tip on a passing salamander's back, holding it still for a moment as if reading something from its body, then releasing it.
+
+In the wet crevices of the back wall, fat pale grubs cluster in caulked hollows, hundreds of them in writhing knots, generating heat — you can feel it if you hold your hand near. These too seem tended. The wing-creatures visit them, pluck individual grubs, eat some, place others in new crevices with evident deliberation. The grubs don't seem to resist or react. They are livestock, or batteries, or both.
+
+Above, in the open air, actual flying creatures circle — not the wing-fingered ones but something else, something more conventionally avian, thin-bodied with long translucent wings like dragonflies scaled up to the size of crows. They ride thermals that shouldn't exist over this cold terrace but do, perhaps generated by the grub-clusters or the biomass basins or some geothermal seep in the rock itself. They circle and circle and never land. Occasionally one stoops and snatches a salamander from a water channel, and the wing-fingered creatures below erupt in a brief, silent frenzy of agitation — wing-fingers flaring, bodies pressing together, golden eyes tracking the thief — before subsiding and returning to work. The loss is absorbed. The system continues.
+
+---
+
+The dynamism of the place is relentless and almost nauseating. Nothing holds still. The freeze-thaw cycle pulses through everything on a timescale of minutes: ice forms, melts, reforms. The biomass in the basins surges and retracts. The wing-creatures tear down a section of wall and rebuild it differently for no reason you can determine. A channel between basins is blocked with packed stone, rerouting the water; ten minutes later, it's unblocked and a different channel is blocked instead. The terrace is in a state of constant, silent, purposeful upheaval — not construction so much as *revision*, an endless editing of its own arrangement, as though the settlement were a single organism perpetually reconsidering its own body plan.
+
+And then — as you watch — something more dramatic. A section of the terrace lip crumbles. It happens without warning: a slab of schist, undercut by millennia of water and pushed past its last tolerance, simply lets go and drops away into the white void. The terrace is now two meters smaller on its eastern edge. The wing-creatures react instantly, converging on the new edge in a silent swarm, probing it with their wing-fingers, assessing. Within minutes, the warrens nearest the lost section are being dismantled, their stones repurposed, the basins drained and their biomass carried — gently, in cupped wing-fingers, dripping — to new basins being carved or deepened further from the edge. The whole settlement *contracts*, recenters itself, absorbs the loss. You realize this has happened before. Many times. The terrace is smaller than it once was. The erosion is old and ongoing and the settlement has been retreating from it for longer than you can guess, always rebuilding, always revising, always one catastrophe behind and one adaptation ahead.
+
+---
+
+The cold is deep and getting into you now. The light is unrelenting. The silence — that strange, pressured silence, full of subsonic murmur and the tiny percussion of claw on wet stone — presses against your eardrums. The air tastes of mineral water and old fat. A wing-fingered creature approaches to within a meter of your feet, studies you with one golden eye, then reaches out and places a small flat stone on the ground in front of you. It is dark, water-polished, roughly triangular. The creature waits. Others nearby have paused — just the closest ones, the rest still frantic — and are watching.
+
+You don't know what the stone means. Offering, test, greeting, tax, warning. The creature waits. Its wing-fingers flex, pale and precise. The biomass in the nearest basin pulses once, twice, then goes still.
+
+The terrace hums with its silent industry. The sky blazes. Another flake of ancient schist, somewhere on the lip, shifts and settles with a sound like a single knuckle cracking, and everything alive on the terrace pauses for one half-second — a collective held breath — before resuming.
+
+The stone is still in front of you. The creature is still waiting.

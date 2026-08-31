@@ -1,0 +1,19 @@
+The place sits in a shallow wound in the earth: not a vast underworld, but a sunken chamber the size of a small village, roofed in places by broken stone and open in others to narrow slits of sky. You reach it by a corkscrew descent through warm rock, and each turn steals a little daylight until the world becomes green-dark, close, and wet in patches. Heat lives here like a resident animal. It does not blaze; it presses. The air clings to skin, heavy with mineral breath and leaf-rot.
+
+Nothing is broad. Everything crowds. Roots rope down the walls in thick curtains, ferns push from cracks, low trees with pale bark lean toward whatever light leaks in from above, and mats of vine bridge from ledge to ledge until the chamber feels stitched together. The stone has had a long time to settle into itself. Edges are rounded, drip-cut, polished where water seasonally runs and matte where dust cakes between rains. In the driest corners, the ground is powder-fine and warm; two steps away, under an overhang, it turns black and damp, smelling of iron and mushrooms.
+
+Water arrives intermittently, but decisively. During certain hours, condensation beads across the ceiling and falls in a steady ticking. After rare surface storms, narrow torrents spill through fissures and vanish into swallow-holes, filling temporary pools no deeper than a hand. These pools are the clock of the basin: when they appear, life reorganizes around them. When they shrink, trails of prints cross the mud in dense braids—lizards, soft-footed mammals, beetles the size of thumbs, birds that nest in wall pockets and descend only to drink.
+
+Fauna is everywhere, but the place remains quiet. Not silent—never silent—but hushed. Wingbeats are muffled by leaves. Insects click rather than buzz. Predators move with the etiquette of close quarters: short chases, sudden stillness, brief violence. You notice eyeshine at ankle height, then at shoulder height, then tiny faces peering from root tangles. A whole food web runs at arm’s length: nectar-feeders at dusk, burrowers at midnight, patient hunters by the warm stones at dawn. Even decay is animated—pill-bugs, pale crabs in the wet crevices, translucent larvae in seep-lines.
+
+Light is rationed. Most of it enters as diluted shafts from roof fractures, turning suspended moisture into floating threads. Outside those shafts, color drops into deep olive and charcoal. Some plants have adapted with waxy reflective leaves; some animals carry faint natural luminescence along whiskers or throat patches, enough to communicate in the dim. At the chamber’s center, one cracked boulder catches the most light and has become a shared station: reptiles bask there, birds queue for brief warmth, and flowering climbers monopolize the upper face.
+
+There are signs that hands once visited, but not often. A few stacked-stone ledges form dry perches above flood marks. Clay jars, long fused to the ground, sit half-buried near a seep. In one wall niche, soot darkens the ceiling where fires were once made and abandoned. No machinery, no metal hum, no lines cut for power—just small, intermittent interventions, as if people came to collect, shelter, observe, then left the chamber to resume its own governance.
+
+And it does govern itself by a set of quiet rules:  
+- moisture is temporary but recurrent, so nothing here depends on permanence; everything here depends on quick response.  
+- shade is common, true light is scarce, so height and timing matter more than size.  
+- sound carries unpredictably in the rock bowl, so survival favors restraint over display.  
+- every surface is already occupied; to live here is to live on, under, through, or inside something else.
+
+The result is a hot, dim pocket-world—dense, mature, and always in motion even when it appears still: a living cistern of stone and leaf where activity whispers instead of shouting.

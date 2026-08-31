@@ -1,0 +1,11 @@
+**The Glowmire Warrens**  
+
+Beneath the skin of the world, where the air is thick with the slow breath of stone, lies the Glowmire—a subterranean pocket-city built into the damp, sweating caverns of a young karst system. The walls are still sharp where water has only recently begun its patient work, carving sinuous channels into the limestone. The air is hot, close, heavy with the scent of wet rock and the faint, metallic tang of industry.  
+
+The city is small, no larger than a cathedral’s nave, but every inch is packed—buildings of dark brick and salvaged metal cling to the cavern walls, stacked and cantilevered over narrow walkways, their foundations sunk into the uneven floor or bolted directly into the living rock. The structures lean into one another, forming a dense, sagging latticework of habitation. Steam pipes hiss softly in the dimness, their surfaces slick with condensation, feeding sluggish turbines that power flickering amber lights strung along the alleys.  
+
+Water seeps from the ceiling in slow, fat drops, collecting in shallow basins or running in thin rivulets down the walls. The humidity nurtures a strange, lush ecology—bioluminescent moss clings to the stone, casting a faint blue-green glow over everything, while thick, rubbery ferns unfurl from cracks in the masonry, their fronds glistening with moisture. Occasionally, a pale, sightless creature—something between a lizard and a millipede—scuttles into the shadows, but life here is sparse, more an afterthought than a presence.  
+
+The city moves at the pace of dripping water. The few inhabitants—pale, slow-moving figures in oil-stained coveralls—speak little, their voices muffled by the weight of the earth above. Machines hum and click in the background, but the sound is absorbed by the damp air, leaving only a quiet, mechanical murmur.  
+
+The Glowmire is a place of contradictions: a pocket of industry in the quiet dark, a lushness fed by condensation and runoff, a settlement built into stone that is still learning its own shape. It feels temporary, not because it will crumble, but because the cavern itself is still forming, still deciding what it wants to be. The walls whisper with the sound of slow erosion, and the city listens, waiting.

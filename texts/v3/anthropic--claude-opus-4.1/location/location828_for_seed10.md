@@ -1,0 +1,19 @@
+The mountain plateau has been dying for ten million years.
+
+At this elevation, the air tastes thin and electric, perpetually damp with a cold that seeps through everything. The ancient granite bones of the mountain show through only rarely—most of the stone has been colonized so thoroughly by the vegetation that rock and plant have become a single substance. Lichens thick as mattresses. Mosses that have built upon their own dead for so long they form spongy cliffs twenty feet high. The boundary between mineral and vegetable dissolved eons ago.
+
+Water weeps constantly from every surface, though there is no true rain here—only the endless condensation as warmer air from below meets the permanent cold. It runs in silver threads down the moss-cliffs, pools in depressions lined with carnivorous pitcher plants the size of bathtubs, their lips frost-rimmed but somehow still vital. The ground squelches, gives way, springs back. Walking here is like traversing the back of some enormous, drowsing creature.
+
+But beneath this primordial stillness, something is wrong with causality itself.
+
+The fauna here should not exist—salamanders the length of school buses undulate through the moss-tunnels, their skin translucent and glowing faintly with bioluminescence that flickers in patterns that hurt to perceive directly. They move in ways that violate physics, folding through spaces too small, arriving before they've departed. Clouds of moths with wings like torn steel congregate in the millions, their collective wing-beats creating a industrial thrumming that rises and falls like breathing. They rust as they fly, oxidation spreading across their wings in real-time, metal flakes falling like snow, yet they never diminish.
+
+The vegetation itself has developed something like a distributed nervous system over the millennia. Electrical impulses cascade through the root networks—you can hear them as a constant crackling, like distant machinery. Sometimes the entire plateau lights up in waves of bioluminescent response to stimuli that exist in spectrums we cannot perceive. The moss-cliffs shudder and rearrange themselves according to patterns that might be metabolism, might be computation, might be dreams.
+
+In certain valleys where the vegetation has grown so thick it forms cathedral-like hollows, the air itself has begun to break down. Time moves differently in these pockets—water drops fall upward, decomposition runs backward, the salamanders exist in multiple positions simultaneously. The sound here is overwhelming: the industrial hum of the moth-wings mixing with the electrical crackling of the plant-network, the backwards splash of ascending water, the subsonic groaning of moss-plates shifting against each other like tectonic processes sped up a thousandfold.
+
+The cold preserves everything and nothing. Creatures that should have fossilized millions of years ago swim through the bog-pools, their bodies half-transformed into plant matter, their eyes reflecting memories of extinct suns. Seeds germinate before they're released. Spores calculate trajectories through folded space.
+
+This is wilderness at its absolute terminus—so ancient it has worn through into something else, so alive it has transcended biology, so undisturbed by civilization that it has developed its own incompatible physics. The plateau extends for miles in every direction, each valley and rise hosting new impossibilities, new breakdowns in the orderly procession of cause and effect. Industrial sounds without industry. Computation without computers. Change so constant and chaotic that it has become a kind of terrible stillness.
+
+The mists roll in and out, revealing and concealing vistas of writhing moss-mountains, salamander highways, moth-storms that eat their own rust and birth themselves anew. Everything here is always dying and can never die. Everything is ancient beyond measure and still somehow being born.

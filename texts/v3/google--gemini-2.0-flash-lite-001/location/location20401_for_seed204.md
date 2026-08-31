@@ -1,0 +1,17 @@
+The city is a shard, a perfect polyhedron of obsidian thrust into the cold sky. It is not built *on* the mountain, but *of* it; the mountain *is* the city. Its edges are impossibly sharp, unmarred by any erosion, a testament to the cutting power of the technology that shaped it. The obsidian reflects the sky, not as a mirror, but as a lens. It refracts the cold light, creating a shimmering, almost unbearable beauty.
+
+Water, drawn from deep within the mountain's core, weeps from the city's surface. Tiny, crystalline rivulets trace the geometric faces, not as wear, but as an integral part of the design. They freeze almost immediately, forming delicate filigree patterns of ice, catching and scattering the light. These frozen tears are not merely decorative. They are part of the city's climate control, drawing heat from the sharp obsidian faces and redistributing it throughout the deep city.
+
+There is no vegetation, not in the traditional sense. Instead, an intricate network of microscopic, self-replicating nanomachines weaves through the obsidian. These machines, the true 'life' of the city, are visible only as faint shifts in the rock's color, ephemeral patterns that trace the flow of energy and information. The nanomachines constantly reshape the city, repairing damage, adapting to environmental changes, and even (though rarely) creating new structures.
+
+The temperature is brutally cold, a constant, biting wind that whistles through the geometric passages between the buildings. Yet, within the city itself, the temperature is carefully regulated. The nanomachines and the water system work together to maintain a comfortable, if sterile, environment, a sanctuary from the harsh world outside.
+
+The scale of the city is deceptive. It is hidden, a secret held within the towering mountains. From the outside, it appears small, a single perfect form. But stepping into its interior reveals a vast complexity. There are no streets in the usual sense, only a network of interconnected spaces, tunnels, and chambers. The spaces are sparse, vast emptiness broken only by these crystal streams and the occasional, inexplicable object.
+
+The built environment is extraordinarily dense, a testament to the city's builders. Their engineering surpasses the wildest dreams of any modern city. The tech itself is beyond modern comprehension. It’s hard to imagine, even, what the builders used – what concepts they built from. Gravity shimmers across the surfaces of the city.
+
+The fauna is rare, but present. Deep within the city are spaces where the nanomachines weave a different kind of pattern, where life is shaped beyond comprehension. There are creatures here, things that may once have been of flesh, but are more like living sculptures of light and shadow, their forms shifting constantly, adapting to the spaces they inhabit.
+
+The air is mostly quiet, a low hum of the nanomachines pervading the space. The only breaks are the occasional whisper of wind through the crystalline ice. Deeper inside, you might hear the faintest clicks of something moving far away, something alien, something *alive*.
+
+The city is dynamic, constantly changing. The weather cycles are a blur as the sky bleeds from black to violet to the color of bone and back again. The nanomachines are ceaselessly working, the ice is always forming, melting, and reforming, and the creatures within are in constant motion, their lives a mystery. The entire place seems poised, on the edge of something.

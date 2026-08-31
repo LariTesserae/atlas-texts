@@ -1,0 +1,21 @@
+# The Stalk Reserve
+
+Cool droplets gather along the edge of a fern frond wide as a house, then fall into the dimness, striking the cushiony florets of a moss colony with a sound like distant bells. The sound lingers, somehow reverberated and amplified by hollow plant structures unseen. It joins a chorus of similar notes playing in staggered patterns across the Reserve.
+
+This place was a bog once—it still carries that memory in its soil. But time and transformation have turned it into something else: a vast field of vertical growth stretching beyond sight, plants that shouldn't exist yet clearly do. The air holds a perpetual cool dampness, not quite mist but more than mere humidity, supporting the uncountable spores that drift between the stalks.
+
+Everywhere, the plants. They are the architecture here. They are the substrate, the inhabitants, the purpose. Gigantic hollow bamboo-like structures tower forty meters high, some wide enough to contain small rooms within. Their translucent green walls filter the daylight, creating chambers of strange, veined illumination. Between these giants grow smaller variants—some with bell-shaped canopies, others spiraling upward like living staircases, many sprouting umbrella-like caps that collect the intermittent rains.
+
+The plant-forms show a peculiar convergent evolution: many have developed hollow interiors, resonance chambers that transform the simplest sounds—water drops, seed pods falling, the scuttle of creatures—into complex tones. This acoustic ecology creates a slow-changing symphony that pulses through the Reserve, sometimes quiet for hours before swelling into overwhelming chorus.
+
+You can walk here, if you're careful. The ground is not soil but a living mat of intertwined root systems, springy beneath your feet. Step unwisely and you might sink ankle-deep into what appears solid. Water pools in shallow depressions, reflecting fragments of sky between the countless green columns.
+
+The fauna is overwhelming in diversity if not in visibility. Most creatures here are small but innumerable—iridescent insects that tend the plants like shepherds, colonies of finger-sized amphibians that never touch soil, translucent arthropods with too many legs. Occasionally, something larger moves through the green columns—a shape suggesting deer but elongated, adapted for slipping between tight spaces, or flocks of what might be birds but behave more like schools of fish, flowing around obstacles in perfect coordination.
+
+Here and there among the living towers stand small structures—not exactly buildings, but something between artifact and organism. Most appear to be woven rather than built, composed of still-living plant material coaxed into shelters, bridges, and platforms. They seem both ancient and new, weathering slowly in this protected environment. Who made them? The Reserve keeps its secrets.
+
+The weirdest aspect is how the plants react to visitors. They don't move, exactly—not in ways you can see—but paths seem to open where none existed before. Certain areas remain perpetually inaccessible, while others invite exploration through subtle changes in the soundscape. The plants communicate through sound and spore patterns, a language too slow and strange for human comprehension.
+
+At dusk, bioluminescence activates in waves—not all at once but in slow-moving fronts that travel kilometers across the Reserve, briefly illuminating pockets of activity before darkness returns. During these light-shifts, the fauna becomes most active, emerging from hiding places to participate in behaviors that have never been fully documented.
+
+The Reserve is expanding—gradually, almost imperceptibly, but the records show it clearly. Each decade sees another hectare of surrounding land transformed. The process takes years: first the soil changes, then pioneer plants establish, finally the distinctive hollow-stalks rise. The Reserve seems to be cultivating itself, following some ancient program beyond our understanding.

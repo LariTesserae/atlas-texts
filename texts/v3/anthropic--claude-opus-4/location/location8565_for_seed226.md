@@ -1,0 +1,19 @@
+The Abyss Lattice spreads below you—a vast hollow carved from ice that has never known warmth. You drift through water so cold it hovers at the edge of becoming something else entirely, a medium that carries light in ways that shouldn't be possible.
+
+The city, if it can be called that, exists as a skeletal framework of impossible engineering. Threads of some crystalline material, no thicker than spider silk but harder than diamond, span the enormous void in precise geometries. They glow with their own light—not warm like fire or cold like phosphorescence, but something that makes your eyes ache trying to categorize it. The threads form nodes where they intersect, and at these nodes hang structures: pods, chambers, entire complexes suspended in the near-freezing water like fruit on an abstract tree.
+
+The scale deceives. What seems like a small grove-sized space reveals itself to be cathedral-vast as your perception adjusts. The water here doesn't behave properly—it holds light and bends distance. A pod that appears an arm's length away might be a kilometer distant. The emptiness between structures yawns immense, yet the whole lattice fits within bounds you can almost grasp.
+
+Sparse kelp-analogues grow from the thread-work, their fronds more like optical fibers than plant matter. They pulse with slow bioluminescence, drinking the strange light from the structural threads and converting it to something else—food perhaps, or information. These are the only vegetation in this depth-defying garden.
+
+The fauna move in languid schools through the vast spaces between structures. Fish-things with bodies of living glass refract the lattice-light into prismatic sprays. Jellies the size of buildings drift past with perfect silence, their bells pulsing so slowly you could watch for minutes without seeing a complete cycle. Smaller creatures—some no larger than motes of dust but clearly alive and purposeful—form flowing clouds that navigate the geometry with uncanny precision.
+
+The built environment shows its age not through decay but through accretion. The original thread-work has been colonized, modified, expanded upon. Barnacle-machines cluster at nodes, filtering water and extruding new threads in patterns that follow no human logic. Some pods have been sealed for so long their contents have evolved into their own ecosystems. Others pulse with activity—shadows moving behind translucent walls, processes occurring at scales too small or too large to comprehend.
+
+The technology at work here operates on principles that make the water itself a component. The threads conduct more than light—they seem to be farming the cold, concentrating it, using the near-absolute-zero temperature as a resource. Heat, when it appears at all, blooms in careful patterns like flowers of warmth that the system immediately harvests.
+
+Sound barely exists here. The water carries vibrations poorly at this temperature, and the fauna have adapted to near-perfect silence. Even the massive jellies move without disturbing the medium. Only the faintest crystalline chimes reach you—the threads singing to each other in frequencies that bypass the ears entirely.
+
+Time moves strangely in the Abyss Lattice. The slow pulse of the jellies, the patient growth of the fiber-kelp, the gradual dance of the particle-creatures all operate on different scales. A day might pass in what feels like an hour, or an hour might stretch into months. The bright, sourceless light never changes, creating an eternal noon in this deep place that should know only darkness.
+
+You realize the entire structure might be a single organism, or perhaps a machine that has been running so long it's become indistinguishable from life. The boundary between built and grown, between technology and biology, dissolved eons ago in this bright, cold hollow beneath the world.

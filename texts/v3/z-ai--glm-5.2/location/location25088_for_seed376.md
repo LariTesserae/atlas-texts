@@ -1,0 +1,53 @@
+# The Millwold
+
+You come up through a pass and the wind stops. Not dies down — stops, as if something swallowed it. The silence is the first thing that registers, and it stays the most remarkable thing about this place even after you've been here for hours.
+
+---
+
+The plateau sits at altitude where the air should be thin and cutting, and it is cold, genuinely cold — your breath smokes — but the cold has a sealed quality, like walking into a refrigerated room rather than an open highland. The landscape spreads wide: several kilometers across, rimmed by dark ridgelines that look bitten flat along their tops. A valley, or what was once a valley, though the floor has risen so high with accumulated matter that it's nearly level with the shoulders of the surrounding peaks. You can see a long way. That's part of the strangeness. You can see a long way, and everything you see is the same thing.
+
+Plant life. That's not adequate. Let me say it differently.
+
+Everything is plant life. Not "covered in plants." Not "heavily vegetated." The ground, the air column up to about forty meters, the structures that look like buildings, the structures that look like roads, the machinery that looks like machinery — all of it is vegetable matter, living or recently dead, in various stages of growth and decay. The substrate you walk on is not soil. It is root mat, layered so thick and so old it has compressed into something firm enough to bear weight, springy underfoot like wet plywood. You can feel it give slightly with each step. When you kneel and press your palm against it, it is damp. Not wet — there is no standing water, no pools, no streams — but persistently, uniformly damp. Condensation more than precipitation. Moisture beads on every surface, gathers in the angles between stems, runs down the larger trunks in thin unpredictable tracks that appear and disappear. The air itself carries water as a fine suspension. You feel it on your face, in your hair, but you never quite see rain.
+
+---
+
+The scale of the thing takes time to absorb.
+
+What you first take for a factory — long, low buildings with ribbed walls and rooflines that curve gently — are in fact the bodies of a single organism. Or a clonal colony. The distinction may not matter. The walls are made of living bark, layered like corrugated steel, each ridge a vascular bundle that pulses visibly with sap. Not quickly. A slow, visible contraction every eight or ten seconds. You stand beside one of these walls and watch the bark flex and you understand the silence differently: the sound is below your hearing, or too slow for your ears to register as sound. You feel it more as a change in pressure. Something is working in here. Something is cycling.
+
+The rooflines are leaf masses, but not like any canopy you've seen. The leaves are dark, nearly black, waxy, angled at about thirty degrees from horizontal, packed so tight they form a continuous surface. They shed water and capture light. Between the factory-bodies, the ground is laced with root-cables as thick as your leg, exposed, running in straight lines between structures. They don't curve organically. They run straight, branching at right angles, forming a grid that extends in every direction you can see. The intersections are swollen into nodes the size of oil drums, and these nodes hum — or rather, you feel the hum in your jaw and sternum, not in your ears. The whole place is operating.
+
+You walk between two of the factory-bodies along what appears to be a lane, and the lane is a lane: ten meters wide, flanked by walls, root-cables running along the floor in parallel channels worn smooth by — by what? There is nothing here that moves. No animals. No vehicles. No people. The channels are worn by the cables themselves, expanding and contracting in their slow vascular pulse, rubbing against their own channels over years, decades. The wear is deep and polished. This place has been doing what it does for a long time.
+
+---
+
+The industrial character is not metaphorical. You walk further in and find what can only be described as a processing district. One of the factory-bodies has an opening along its base — a gap in the bark, about two meters high, exhaling warm humid air that smells of cellulose and iron. Inside (it is inside; there is a ceiling, walls, a floor) the space is divided by vertical root-walls into chambers. In each chamber, the root-cables from outside enter through the walls, branch into finer and finer filaments, and terminate in dense mats of root-hair that hang from the ceiling like industrial felt. Condensation collects on these mats and drips into channels cut into the floor, which drain back toward the root-cables outside. The water carries something — you can see it, a faint amber color — and you realize the whole structure is a distillation apparatus. The roots draw moisture and dissolved minerals from the mat-substrate across the entire plateau. The factory-bodies process that fluid, concentrate it, and the concentrate — thick, dark, smelling of tannin and rust — is pumped back out through the cables to the nodes, which distribute it to the growing edges of the colony.
+
+It is a factory. It is a living thing. It is both, and the distinction was never real here.
+
+---
+
+The turbulence becomes apparent only when you stay long enough to notice change.
+
+Back outside, standing on a root-mat pathway between two processing structures, you see a section of wall about fifty meters away bulge outward. Slowly. Over the course of perhaps twenty minutes, the bark stretches, the vascular ridges spread apart, and the wall splits along a seam that wasn't visible before, peeling open like a zipper to reveal a chamber inside that is bright green, wet, and empty. New space. Newly created. The split edges are already thickening, already growing bark to seal the margins. Within an hour, a new structure has opened where there was wall. The pace is not fast by human standards, but across the whole plateau — visible to the horizon — this is happening everywhere. Walls open. Cables reroute. Nodes swell and split into new nodes. The grid of root-cables in the lanes shifts, a cable lifting free of its channel and migrating laterally over the course of an afternoon, settling into a new channel that appears to have been worn in anticipation of its arrival.
+
+And simultaneously, things die. A factory-body on the western edge of the plateau, visible as a dark shape against the grey sky, is collapsing. Its walls are folding inward, its roofline sagging, the bark splitting not to create but to release. As you watch over the course of hours, it settles, the vascular pumping slows and stops, the cables connected to it go dark and soft, and the root-mat beneath you shifts as the nutrient flow is rerouted around the dead structure. By evening it is a mound. By tomorrow it will be substrate for the next expansion. The grid will grow over it. The factory will be absorbed.
+
+This is the turbulence: not violence, not chaos, but constant, relentless reorganization. The whole plateau is rebuilding itself continuously, cell by cell, structure by structure, and it has been doing this for so long that the erosion parameter — the balance of it — is visible in the layering of the substrate. The root-mat you walk on is not one generation deep. It is hundreds. Maybe thousands. Each layer is the compressed remains of the last cycle of growth, collapse, and absorption. The plateau has built itself up from the original valley floor by the accumulated mass of its own corpses. The cold preserves the lower layers. The damp keeps the decomposition slow. The whole system sits in a kind of equilibrium that is also a kind of fury — nothing stops, nothing rests, but the overall form persists.
+
+---
+
+There are animals here, but barely. Once, you see something move in a lane about a hundred meters away. A pale shape, low to the ground, moving with a deliberate gait between the root-cables. It is the size of a large cat, hairless, with a long snout and articulated legs that move like pistons. It ignores you. It is heading for the site where the factory-body collapsed — you can see it knows, somehow, that new substrate will be exposed there, something to eat, something that lives in the margin between death and absorption. You see no others. You hear nothing from it. Its feet make no sound on the root-mat.
+
+Once, high above, a bird. Or something bird-shaped. It crosses the grey sky in a straight line and disappears behind the ridgeline. It does not call.
+
+---
+
+The light here is ordinary. That is part of what makes it strange. The sky is overcast — a flat, pale grey that gives no indication of time of day. The light is even, directionless, shadowless. It illuminates everything equally, which means the plateau has no hidden corners, no mystery of darkness. Everything is simply and plainly visible, and the visibility makes it worse, not better. You can see the whole system. You can see how it works. You can see the processing chambers and the root-cables and the nodes and the growing edges and the dying structures and the worn channels and the new splits, and there is nowhere for any of it to hide, and it is no less incomprehensible for being fully visible.
+
+---
+
+Standing in the lane between two factory-bodies, you feel the pulse in the walls on either side. Not synchronized — each body pulses at its own rate, eight seconds, twelve seconds, six seconds, and the interference patterns create a slow, complex rhythm that you experience as a fluctuation in the pressure in your ears, a tightness and release. No sound. The silence in this place is total. The silence is not the absence of sound; it is the presence of something that precludes sound, some acoustic property of the air or the root-mat or the bark walls, something that absorbs vibration before it reaches your ears. You shout, once, and the shout dies immediately. It does not echo. It does not travel. It leaves your mouth and is gone.
+
+What you hear, if you listen for a long time, is your own blood. The factory-bodies' pulse and your own pulse begin to interfere with each other. You stand still and the rhythm gets into you and for a moment you cannot tell whether the pulse is in the walls or in your chest. Then a new wall splits open somewhere to the north and the rhythm shifts and you are yourself again, standing on a mat of dead roots in a factory made of living wood in a valley that has filled itself with the bodies of its own previous forms, and the silence continues, and the moisture beads on every surface, and the system operates, and the system operates, and the system operates.

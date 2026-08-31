@@ -1,0 +1,17 @@
+A sunken industrial complex, preserved in perpetual drowning. The water is absolutely clear - so clear it seems absent until you notice how it bends the light, how it carries sound in thick, resonant waves. Through its lens, everything appears slightly larger than life, closer than it should be.
+
+The facility must have been underwater for decades, perhaps centuries. The metal has settled into its corrosion, finding a final form of pocked greens and browns that no longer actively decay. Pipes and walkways thread between blocky structures, creating a dense warren of industrial architecture that has become its own kind of reef - not through accumulated life, but through accumulated stillness.
+
+The light is intense, almost stark. It pours through the water in visible shafts, bouncing off metal surfaces and creating complex patterns of reflection and shadow. The water itself seems to glow, as if saturated with brightness. This illumination reveals every detail: each rivet, each valve, each geometric junction where infrastructure meets infrastructure.
+
+The few plants that have taken hold are pale, translucent things that wave in the constant currents. They grow in sparse clusters from joints and crevices, their minimal forms emphasizing rather than softening the engineered landscape. Their movement is hypnotic - an endless, underwater ballet choreographed by the facility's internal flows.
+
+The water is never still. Complex currents move through the structure, driven by temperature differences and the facility's own ancient systems - some of which still turn, still pump, still process. The sound is constant: the deep thrum of moving water, the metallic groaning of pressure changes, the percussion of loose panels vibrating in the flow. These sounds travel with unusual clarity through the water, creating a dense acoustic environment that seems to come from everywhere at once.
+
+The scale is intimate - you could swim from one end to the other in minutes - but the density makes it feel larger. Every space leads to another space, every angle reveals new complexity. The facility seems to fold in on itself, creating a maze-like quality that defies its actual size.
+
+The temperature runs cool, especially in the shadows of the larger structures, where the water holds its chill. These temperature gradients drive some of the currents, creating invisible rivers within the general submersion.
+
+Despite its age, despite its drowning, the place maintains a sense of purpose. Gauges still face outward behind their glass, their needles frozen. Control panels stand ready at their posts. Hatches hang open or closed, suggesting routes and boundaries that still hold meaning. It's as if the facility hasn't been abandoned so much as translated - from an air-breathing industrial space to a water-breathing one, from active use to active preservation.
+
+There are no fish, no crustaceans, no traditional aquatic life. The water itself seems to have become the inhabitant, the heir to this sunken industrial realm. It moves through the spaces like a conscious thing, maintaining its own kind of industry - the industry of preservation, of perpetual motion, of holding this place in its strange, bright stasis.

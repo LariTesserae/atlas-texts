@@ -1,0 +1,43 @@
+# The Pit of Clamor
+
+---
+
+Below the surface, maybe thirty feet below what was once a street—you can still see the cross-section of pavement and pipe at the lip of the opening above, a rough oval of dim amber sky like a wound in the ceiling of the world—there is a cavity in the earth roughly the size of a cathedral nave, and it has been full for a long time, and nothing in it has moved for longer than anyone can say.
+
+The air is warm. Not oppressive, not shifting. Just warm, the way stone is warm when it has absorbed heat from a source long since removed. There is no breeze. There has never been a breeze here. The warmth is constitutional, intrinsic, baked into the mineral walls and the iron and the fur and the chitin and the rust. Everything is the same temperature. Your hand, if you held it near any surface, would feel nothing—no gradient, no convection, no transfer. The warmth simply *is*, ambient and indifferent.
+
+---
+
+**The machinery came first, or the creatures came first. No one can tell anymore because they are so densely packed together that origins have become irrelevant.**
+
+A cast-iron reduction gear the size of a dining table sits at a cant against the southern wall, its teeth interlocked with a smaller flywheel that disappears into compacted earth. Draped across its housing and through the spokes of the flywheel: seven—no, eight—elongated creatures like eyeless ferrets, their pale bodies coiled and threaded through the mechanism as if they grew there. They are not dead. Their sides move faintly, or rather, their sides are *shaped* as if mid-breath, and have been shaped that way for as long as this place has existed. They do not inhale or exhale. They are simply in the posture of breathing.
+
+Next to the gear assembly, bolted to a riveted iron panel that juts from the wall at hip height: a row of industrial pressure gauges, their glass faces clouded with a film of something biological—maybe a secretion, maybe a membrane grown by the thumb-sized beetles that cluster in the dial housings, their iridescent backs just visible through the murk. The needles on every gauge point to different values. They have always pointed to these values. The beetles have always been in their positions, legs folded, antennae curled precisely so.
+
+Everything is touching everything else. That is the first and most persistent impression. The density is almost claustrophobic. Wherever your eye travels, there is no gap wider than a fist. Creatures fill the interstices between machines; machines fill the interstices between creatures. Sparse, wiry plants—pale things with segmented stems, like bleached horsetails—grow from cracks in the walls and thread sideways through cable runs and exhaust manifolds, their growth frozen at whatever stage they reached when the world here stopped having time. Some of them have curled around the legs of animals. Some of them have pushed through the perforations in iron housings. All of them are the same dusty ochre color, alive the way everything here is alive: technically, silently, without process.
+
+---
+
+**And the sound.**
+
+This is the strangest thing, or perhaps the second strangest. The pit is *loud*. Not with any event, not with any mechanical process or animal vocalization that is *happening*—nothing happens here—but with a sound that is as fixed and permanent as the walls. A roar. A hum. A dense, layered, industrial chord made of what must be dozens of sources, all frozen at their peak output:
+
+The reduction gear vibrates at a low C, or would if vibration implied movement; instead it simply *emanates* the tone, the way a bell emanates its ring, except the ring does not decay. It has never decayed. The ferret-creatures produce a collective nasal drone, a wheezing chord in a middle register, from throats shaped permanently around the production of that sound. Somewhere behind the pressure-gauge panel, a turbine or compressor—you can see fragments of its housing through gaps in the packed bodies of what look like eyeless, ridge-backed salamanders—contributes a high whistling overtone that sits just at the edge of discomfort. Beetles click. Not rhythmically—there is no rhythm, because rhythm requires time—but in a frozen staccato, a snapshot of clicking that persists as a continuous texture.
+
+The sound does not echo. The space is too full for that. It is absorbed and re-emitted by every surface simultaneously, creature-skin and iron and mineral wall all acting as resonators for a noise that has no beginning and will have no end. You feel it in your sternum when you enter. You will feel it in your sternum if you stay for a thousand years. It will be the same.
+
+---
+
+Walk deeper in—if you can. The path is not a path but a negotiation. You step over a conduit pipe wrapped in the coiled body of something heavy and scaled, its mouth open around a valve handle, frozen mid-bite or mid-grip. You duck beneath a corroded I-beam from which hang, like fruit, a dozen pouched creatures with translucent wing-membranes, their faces pressed together in a cluster, their small mouths open and contributing a faint, papery hiss to the general din. Between your feet, the ground is not ground but a mat of root-pale vegetation and iron filings and the compacted shells of innumerable small arthropods, all locked in place.
+
+There is a structure here. Halfway along the cavity's length, leaning against the far wall: the remains of a control booth, maybe eight feet square, built of riveted iron plate and industrial glass—the glass now milky, cracked in geometric patterns as if struck once from inside. The door is ajar. Through it you can see a chair, a panel of knife switches and dial indicators, and, seated in the chair, something that is either a large animal or a small arrangement of several animals pressed so tightly together they have assumed a single silhouette. Whatever it is, it faces the panel. One limb—or what functions as a limb—rests on a switch in the down position. The gauges on this interior panel read identically to the ones outside: fixed, specific, eternal.
+
+The booth was built by someone. The machines were built by someone. But there is no evidence of builders beyond the artifacts themselves—no tools left casually aside, no personal effects, no writing on the walls. Only the machines and the creatures and the sparse pale plants, packed together in the warm dark, making their sound, being their sound, in a state of equilibrium so total it has transcended stasis and become something else. Something structural. The creatures are not *waiting*. The machines are not *paused*. This is not a frozen moment. It is a permanent condition. The pit exists the way a mineral crystal exists: all at once, completely, with no internal impulse toward change.
+
+---
+
+The light comes from the opening above—that jagged oval of amber sky—and it reaches the floor of the pit as a diffuse, directionless warmth that casts no true shadows, only variations in dimness. Everything is rendered in shades of umber and rust and pale bone. The ferrets are the color of old paper. The beetles are the color of oil on iron. The plants are the color of dust. The machines are the color of themselves, which is every shade of oxidized metal: brown, black, deep orange, the green-grey of old copper where a pipe fitting meets a wall.
+
+There is no water here. Not a drop. Not a film. Not a damp patch on the mineral walls. The air is warm and perfectly dry and tastes, if you open your mouth, of iron and something faintly animal—a musk that is not decaying because nothing here decays. The creatures' bodies are dry. The plants' stems are dry. The rust on the machines is not progressing. It rusted to precisely this degree and then stopped, the way everything here stopped, and the rust is now as permanent and structural as the iron it covers.
+
+You could map this place. You could catalogue every creature—and there are *hundreds*, packed into this cathedral-sized hollow like specimens in a drawer, like organs in a body. You could trace every pipe and gear and cable. You could record the exact frequency of the sound, decompose it into its sources, assign each frozen throat and vibrating housing its contribution to the chord. And if you came back in a year, or a century, every measurement would be identical. The ferret-creatures' sides shaped around breath. The beetles in their positions. The switch in the down position. The sound, the sound, the sound—filling the pit like a substance, warm and loud and utterly, permanently, the same.

@@ -1,0 +1,15 @@
+A vast underwater garden-temple rises through the cool, green-tinted waters. Living columns of braided kelp, as thick as ancient redwoods, spiral upward from an unseen floor, their upper reaches lost in the murky distance above. These are not mere plants, but the deliberate work of generations - each strand woven and trained by human hands into architectural forms, creating a water-filled cathedral of living matter.
+
+The space feels simultaneously massive and intimate, like being inside an aquatic Pantheon built by merfolk botanists. Carved stone weights and primitive bamboo scaffolding guide the growth of the kelp-columns, while finely-woven nets of pale root fibers form archways and corridors between them. The water here moves in slow, purposeful currents, channeled by the placed vegetation into spiral patterns that carry nutrients and creatures through the space.
+
+Everywhere, fish move in coordinated schools - not wild, but clearly cultivated, their patterns too regular to be natural. Silver-scaled carp drift in figure-eight formations through the kelp forests. Smaller, jewel-toned fish dart between fronds in precise formations, tending to the plants like aerial gardeners. Their movements create subtle harmonics in the water, a barely-audible hum that seems to resonate with the structure itself.
+
+The light is dim and filtered, coming from above in shifting beams that pierce the canopy of floating leaves. These leaves are enormous - each one the size of a small boat - and have been carefully arranged to create dappled shadows that dance across the kelp-columns. The effect is similar to light through stained glass, but organic and ever-changing.
+
+In shadowed alcoves, clusters of bioluminescent anemones pulse slowly, cultivated to mark pathways and important junctions. Their blue-green light reveals intricate patterns worked into the living walls - symbols and pictographs formed from carefully trained smaller plants and corals, telling stories in a language of light and shadow.
+
+The entire structure feels dense, almost claustrophobic, yet precisely organized. Every surface hosts life: tiny crabs scuttle along the kelp-columns, maintaining them. Schools of cleaner fish move methodically through the structure. Even the water itself seems thick with microscopic life, giving it a slightly cloudy, pearlescent quality.
+
+There's a sense of constant, deliberate movement - not frantic, but steady and purposeful, like the turning of a great living clock. The kelp-columns themselves grow and shift incrementally, responding to the gentle tug of weighted ropes and the guidance of the fish-gardeners. Small bubbles rise continuously from somewhere below, following engineered pathways through the vegetation to create vertical currents that help maintain the structure's shape.
+
+This is clearly a managed space, but managed through ancient, patient techniques rather than modern technology - a collaboration between human intention and natural growth that must have taken centuries to achieve. The overall effect is like being inside a living instrument, tuned to play music too slow and deep for human ears to comprehend.

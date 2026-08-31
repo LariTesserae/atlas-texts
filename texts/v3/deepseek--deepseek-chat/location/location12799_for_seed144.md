@@ -1,0 +1,13 @@
+**The Rustwind Plateau**  
+
+The air shimmers over the cracked basalt plains, heat rising in visible waves, distorting the distant silhouettes of jagged spires. This is a high place, a place where the sky feels too close, pressing down with a dry, metallic weight. The plateau stretches for miles—open, but not empty. Every inch of it is occupied, not by life, but by industry’s skeletal remains: rusted girders jutting like broken ribs, the husks of long-dead machinery half-buried in the rock, their oxidized surfaces flaking away in the relentless wind.  
+
+Water here is a fleeting thing. It doesn’t fall often, but when it does, it comes in sudden, violent bursts—sheets of rain that carve shallow channels into the rock before vanishing just as quickly, leaving behind only dark stains and the occasional stagnant pool cupped in the hollows of ancient machinery. The moisture clings longest in the shadows of the taller ruins, where condensation beads on cold metal overnight, only to evaporate by midday.  
+
+Vegetation is sparse, but stubborn. Tough, fibrous grasses push up between the cracks, their roots seeking the rare pockets of damp soil. Lichen clings to the rusted surfaces, slow and patient, turning oxidized metal into something almost organic. The few trees that survive are stunted, twisted things, their bark blackened by the sun, their branches reaching like broken fingers.  
+
+Yet, for all its harshness, the plateau teems with movement. Lizard-like creatures, their scales the color of tarnished copper, dart between the wreckage, hunting the swarms of iridescent beetles that feed on the lichen. Larger beasts—some avian, some more akin to jackals—patrol the edges, their eyes sharp for the weak or the unwary. The air is mostly quiet, save for the occasional groan of shifting metal, the dry rattle of wind through hollow pipes, or the distant, echoing cry of something unseen.  
+
+And then there are the towers. Not natural formations, not entirely—great, leaning monoliths of steel and concrete, their surfaces pocked with corrosion, their purpose long forgotten. Some still hum faintly, powered by some buried, failing mechanism, their flickering lights casting odd shadows at dusk. Others have collapsed inward, their wreckage forming jagged mazes where the wind whistles through like a chorus of lost voices.  
+
+This is a place of extremes—of heat and height, of absence and saturation, of stillness and sudden motion. It is a landscape that remembers industry but has outlived it, settling into its own slow decay. The rules here are simple: endure, adapt, or be reclaimed. The rust never sleeps.

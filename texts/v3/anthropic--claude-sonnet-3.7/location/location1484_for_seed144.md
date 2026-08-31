@@ -1,0 +1,19 @@
+# The Glass Forge
+
+As you ascend into the upper reaches of the world, the air grows strangely warmer rather than colder. At the highest peaks—needles of obsidian rising like black thorns—heat shimmers visibly in waves. This is the Glass Forge, a vast highland plateau ringed by razor-sharp volcanic mountains that have thrust upward in relatively recent geological time.
+
+The landscape consists entirely of volcanic glass: obsidian, tachylite, and hyaloclastite in every shade of black, deep purple, and smoky gray. The ground is a maze of crystalline structures—some as small as grains, others forming colossal hexagonal columns that rise hundreds of feet into the dim sky. Every surface catches what little light exists and fractures it into ghostly refractions.
+
+The air is scorching but utterly dry. Breathing feels like inhaling through heated copper tubes. This heat comes not from the sun—which appears as only a diffuse, reddish smear through the perpetual high-altitude haze—but from below. The entire highland expanse floats upon a mantle of semi-molten rock, heating the glass landscape from underneath to temperatures that make the black rock surfaces too hot to touch with bare skin.
+
+Sound travels oddly here. The dense arrangements of crystal formations absorb and redirect noise, creating pockets of absolute silence interrupted occasionally by the faint ping of cooling glass or the distant hollow boom of thermal expansion. When the wind moves—which is rare in this stagnant thermal environment—it produces eerie, barely-audible harmonics as it finds pathways through the labyrinthine glass structures.
+
+There are no plants, not even the simplest lichen. No water exists to support them, and the glass substrate offers no purchase for roots. Instead, the closest thing to life are the "bloom colonies"—microscopic silicon-based chemical systems that slowly propagate across glass surfaces, leaving faint iridescent patterns that might be mistaken for bacterial growth but are merely complex crystal formations feeding on thermal gradients.
+
+Scattered throughout this crystalline expanse are peculiar structures: perfectly hemispherical domes of a slightly different glass composition, their interiors honeycombed with chambers and tunnels. These are the abandoned factories of the Glass Cultivators, a vanished civilization that harnessed the natural heat of the plateau to forge impossible materials. Their machinery—twisted, elongated contraptions of heat-resistant alloys and crystalline components—still hums with residual energy in some places, though their purpose is now inscrutable.
+
+The few creatures that survive here have evolved in profound isolation. The glass scorpion, translucent and no larger than a thumbnail, absorbs heat directly through its exoskeleton. Thermal serpents—long, ribbonlike creatures with metallic scales—bask in the hottest regions where glass occasionally becomes molten again. Neither creature needs to eat in the conventional sense; they process energy directly from heat differentials in their environment.
+
+The Glass Forge has looked exactly this way for millennia. The forces that created it—titanic geological pressures and volcanic activity—have reached perfect equilibrium. Nothing erodes in the absence of water or significant wind. Nothing grows or decays. The heat neither intensifies nor diminishes. It is a landscape locked in stasis, a monument to forces too powerful to be altered by anything less than another cataclysm.
+
+From certain vantage points atop the tallest glass columns, observers might glimpse what appears to be a distant city—huge angular structures rising from the horizon—but it's merely another formation of crystal, another trick of refracted light in this strange, timeless realm of heat and glass.

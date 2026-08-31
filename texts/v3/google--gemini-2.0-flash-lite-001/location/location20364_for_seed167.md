@@ -1,0 +1,17 @@
+The world begins in darkness. Not a suffocating, absolute dark, but a deep, oceanic indigo, the color of twilight at impossible depths. Light, when it comes, arrives not in shafts or rays, but as a subtle blooming, like bioluminescence in a coral reef. The light sources are scattered, mobile, living.
+
+You are underwater, but not in any ocean you might recognize. There is no hard floor, no sandy seabed. Instead, you are suspended within a vast, slow-moving current of liquid, a sea that stretches for what feels like hundreds of kilometers in every direction. The water is warm, almost viscous, and has a faint, mineral smell, like the air after a summer rain.
+
+Built structures rise from the depths. They are impossible, defying gravity and logic both. Colossal towers, made of a dark, obsidian-like substance, taper towards the unseen surface. They are not smooth or simple. They are intricate, layered with a complexity that suggests an understanding of geometry far beyond human capacity. These structures are urban, a city in the abyssal plain. They are arranged in concentric rings, forming a spiraling pattern that expands outward, becoming less dense as it stretches.
+
+Vegetation, what little there is, clings to the buildings. It is not of this world. It pulses with a soft, internal light. Strange, bioluminescent fungi bloom from the walls, their spores drifting slowly through the water. There are shimmering kelp forests, but their fronds are not green. They are shades of violet and crimson, and sway gently in the currents.
+
+Fauna is abundant, but mostly silent. The darkness conceals much, but the movement of life is everywhere. You see nothing in particular, but sense the presence of countless forms. The buildings hum with a faint energy field, a frequency that affects the biology here, altering the way the things inside can move through the liquid.
+
+The rules of this world are not obvious, and seem to allow for a degree of "unusual" behavior. The city itself seems to be alive, or at least intimately connected to the ecosystem. Structures occasionally shift, reform, and rebuild themselves, seemingly without any external force. There are currents in the water, but they do not seem to create storms. Instead, they shift slowly, allowing the inhabitants to travel through the city.
+
+Erosion is a constant presence here and it is as alien as the city itself. Structures slowly change with the currents and the things that travel on them, but never breaking down entirely. Instead, they seem to be molded, reshaped, and incorporated into the ever-evolving city. The buildings never truly decay; they transform, becoming part of something larger.
+
+Sounds are mostly quiet, but not silent. Subtle clicks and groans resonate through the water, as if the buildings themselves are breathing. There are distant, rhythmic pulses, perhaps the heartbeats of enormous creatures hidden in the darkness. The whole city is in a state of suspended activity, neither active nor inert. It is an ecosystem in motion, a complex dance of life and decay, growth and change.
+
+It is a place of profound mystery, where the boundaries between the artificial and the natural, the living and the non-living, are blurred beyond recognition. It is a city built by unseen hands, a testament to a logic that is both alien and beautiful.

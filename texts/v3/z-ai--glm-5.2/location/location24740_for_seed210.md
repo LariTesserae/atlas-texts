@@ -1,0 +1,53 @@
+# The Weeping Cylinder
+
+There is a place — or there was, or there will be, the tense matters less than you'd think — where the ground rose too quickly and the sky came down to meet it.
+
+You enter through a crack in the ridgeline. Not a pass. A crack. The stone on either side is so fresh it still holds the vitreous gleam of something newly fractured, faces unweathered, edges sharp enough that the condensation beads on them in perfect, undistorted hemispheres before rolling down in continuous threads. The rock weeps. Everything here weeps. The air is so close to saturation that moisture finds every surface and clings, and where there is no surface it makes one — faint veils of mist that hang in the dimness like curtains nobody installed.
+
+The light is the color of old pewter. Not dark, exactly. Dim in the way that a room is dim when the curtains are drawn on an overcast day — you can see, but the light seems to arrive without a source, as though it has been here longer than the sun and no longer remembers which direction it came from. There are no shadows. This is one of the first wrong things.
+
+The space opens. Not widely — it is contained, this place. Cathedral-scale, perhaps a hundred meters across at its widest, oval, walled on all sides by the fresh-shattered stone of the uplift. Above, the crack narrows to a slit, and through that slit comes the pewter light and a constant, slow drip of water that has condensed at the top and falls by gravity, each drop landing in the basin below with a sound that is immediately absorbed into the larger sound.
+
+The larger sound.
+
+It is always there. It does not start. It does not end. It is a sustained, layered chord — not music, but the aggregate output of many mechanical processes occurring simultaneously and without variation. A low thrumming, deep enough to feel in the sternum, underlaid by a higher, almost dental whine, and over all of this a rushing, hissing exhalation that sounds like the venting of steam through a valve that never closes and never opens further. The volume is considerable. Not painful. But insistent, present in the body, making the air feel textured. You adjust to it. You do not stop hearing it. Nothing competes with it because nothing here changes.
+
+The floor of the basin is not flat. It is terraced in low, irregular steps — natural formations, uncut, but with a geometry that the eye keeps trying to read as intentional. Each step is perhaps knee-high, and between them, water moves. Not flowing — moving. The water travels in shallow rills that follow the terrace edges in straight lines before turning at right angles and descending to the next level. There is no obvious gradient driving these right angles. The water simply goes where it goes, and it has been going there long enough that the stone beneath the rills is polished to a dark, wet shine, though the stone everywhere else is still rough and young.
+
+On the terraces, the vegetation.
+
+It is lush — aggressively, impossibly lush for the altitude and temperature, which is cool enough that your breath should fog, though oddly it does not. The plants are ferns, mostly, but ferns of a kind that do not arrange themselves the way ferns should. They grow in spirals. Tight, logarithmic spirals, each frond uncurling from a central point in a pattern that repeats across every plant in the basin with the same dimensions, the same rate of curl, the same deep blue-green color that borders on black in the pewter light. They are spaced widely — one spiral-fern every several meters, standing alone on the wet terraces like sentinels, their fronds heavy with the constant moisture. Between them: bare stone, shallow water, emptiness. The sparseness is deliberate, or at least it feels deliberate. The landscape breathes because of the space between things.
+
+But the ferns are not the strangest growth here.
+
+From the back wall of the basin, where the fractured stone rises highest, there protrude structures. They are stone — clearly stone, same material as the walls, same fresh fracture-gleam — but they are shaped like the innards of engines. Cylinders, smooth-bored, open at one end, embedded in the rock at angles. Pistons, or things that once functioned as pistons, frozen mid-stroke, slick with condensation. Gearing, or what resembles gearing — toothed wheels of stone, interlocked, each the size of a dinner plate, locked in position. There is no mortar. No joining. No evidence of assembly. The mechanical forms emerge from the rock as though the rock dreamed of being a machine and woke up halfway.
+
+They are not artifacts. Nothing here was built. The parameters of this place — and there are parameters, though whether they are laws or habits is unclear — permit the stone to express itself in mechanical grammar. The cylinders vent steam. Constantly. Without variation. A steady, forceful exhalation of water vapor that rises and joins the general mist, contributing the hissing component of the ambient sound. The pistons do not move, but they are warm — warmer than the air, warmer than the stone around them, as though they are mid-operation and the operation is simply very, very slow, or has been suspended at a single moment for longer than moments have existed.
+
+The gearing is the source of the low thrum. You can feel it when you touch the teeth — a vibration so steady, so exactly constant, that your fingertips quickly stop registering it as vibration and begin to read it as temperature, or texture, or a quality of the stone itself. The gearing does not rotate. But it vibrates at a frequency that suggests it would rotate, if rotation were permitted here.
+
+And here is the second wrong thing: nothing is permitted to change here. The dynamic state of this place is equilibrium — not the equilibrium of a system that has reached balance, but the equilibrium of a system that has been told to stop, mid-process, and hold. The steam vents at the same rate. The water follows the same rills. The ferns grow in the same spirals. The sound sustains the same chord. The light does not shift. There is no wind, because wind implies change. The mist does not drift; it thickens and thins locally but does not translate. If you dropped a leaf — there are no loose leaves, and if you brought one, it would not fall, because falling is a process, and processes require the passage of time, and time here is held in suspension the same way the pistons are.
+
+You realize, gradually, that you are not inside a landscape. You are inside a single frame of one.
+
+And the fauna.
+
+They are the exception, and this is the third wrong thing, the one that makes the reality around the edges start to soften and bleed.
+
+There are animals everywhere. They move. They are the only things that move.
+
+Insects first — small, iridescent, with too many wings, drifting between the spiral-ferns in erratic paths that should not be possible in windless air. They land on the wet stone and drink from the condensation and their wings fold and unfold and they are alive in a way that the stone and the water and the ferns are not. They are loud, at the level of their small bodies — a collective high-frequency ticking that nests within the ambient chord like a note inside a note.
+
+Then the larger things.
+
+They come from behind the engine-stone, from gaps that are too narrow for them, and they emerge without compression, their bodies simply present on this side of the gap as though the gap were a membrane and they were drops of something passing through. They are low-slung, long-bodied, covered in a pelt of something between fur and moss, the same deep blue-green as the ferns. Their eyes are large and wet and do not blink. There are perhaps a dozen visible at any time, spread across the terraces in the same sparse arrangement as the ferns — one here, two there, a great distance between each. They do not interact. They move with a fluidity that is terrible in context, because everything else here is frozen, and their motion suggests that they are not subject to the same arrest. They are either the cause of it or the exemption from it.
+
+They do not acknowledge you. They drink from the rills. They breathe — you can see their flanks rise and fall, and the breathing is not synchronized, each animal on its own rhythm, and these unsynchronized rhythms are the closest thing to time that exists here. If you count their breaths, you can pretend that seconds are passing. If you stop counting, the pretense collapses.
+
+One of them is standing in the steam-vent of the largest cylinder, and the vapor passes through its body. Not around it. Through it. The fur-moss parts for the steam, or the steam passes between the strands, or the animal is less dense than it appears, or the steam is more material than it should be. The boundary between the animal and the vapor is not clean. For a moment — and moments here are unreliable — you see the animal's outline waver, as though it is being drawn and erased simultaneously, and you understand something about this place that you cannot translate into language, only into a feeling: that the reality here did not break. It was never whole. This is not a landscape that collapsed. This is a landscape that was assembled from parts that did not belong together — stone and engine and fern and animal and water and sound — and the assembly is stable, and the stability is the breakdown, and the breakdown is the most stable thing here.
+
+The sound continues. It has not changed. It will not change. The ferns spiral. The water runs its right angles. The engine-stone vents. The animals breathe out of rhythm. The light is pewter. The rock is fresh. The air is wet. Everything is where it is, and nothing is becoming anything else, and the place holds itself together with the patient, unending tension of a sound that never resolves.
+
+You could stay here. You could stand on the wet terrace between two spiral-ferns and watch the moss-animals drift through their impossible gaps and listen to the chord and feel the thrum in the stone beneath your feet, and you would not age, because aging is change, and you would not hunger, because hunger is a gradient, and you would not leave, because leaving requires a before and an after and this place has neither. It has only now, and now is the only tense that functions here, and now is the only word that the landscape knows.
+
+The slit in the rock above admits the same dim light it has always admitted. The drip falls. The sound does not stop.

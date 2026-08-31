@@ -1,0 +1,11 @@
+The Terraced Pools of Vithara rise in stepped limestone formations, each level no larger than a town square, connected by channels that sing with the constant movement of mineral-rich water. Steam drifts upward from the warm pools, condensing against the cooler air of this high plateau and falling back as a fine, perpetual drizzle that keeps every surface slick and gleaming.
+
+The settlement clings to these natural terraces, its buildings carved directly into the living rock or built from the same pale limestone, creating a dense honeycomb of workshops, homes, and communal spaces that seem to grow from the stone itself. Water wheels turn lazily in the connecting channels, powering looms, mills, and the rhythmic hammers of metalworkers. The mechanical symphony echoes off the curved walls of the pools, amplified and layered until the entire place thrums with industry.
+
+Sparse vegetation dots the landscape—hardy succulents with waxy leaves that store the constant moisture, their roots finding purchase in cracks between stones. Moss carpets the shadowed underhangs where the mist settles thickest, creating soft green cushions between the hard geometry of the pools.
+
+The water teems with life. Bright fish dart between the carved channels, their scales catching what dim light filters through the perpetual haze. Water striders dimple the surface tension while beneath, crayfish scuttle over beds of smooth pebbles worn round by the gentle but persistent current. Frogs chorus from hidden alcoves, their calls weaving through the industrial percussion of turning gears and flowing water.
+
+The light here is pearl-gray, filtered through layers of mist and steam. Lanterns flicker behind oiled-cloth windows, their warm glow reflecting off wet stone and creating pools of amber light that dance on the water's surface. The air tastes of minerals and metal, warm and thick with humidity that makes clothes cling and hair curl.
+
+Everything moves to the slow rhythm of water finding its level. The pools fill gradually, overflow in measured cascades, and refill again in cycles as old as the stone itself. Even the busiest workshops seem to pulse with this ancient patience, their mechanical hearts beating in time with something deeper and more enduring than mere human urgency.

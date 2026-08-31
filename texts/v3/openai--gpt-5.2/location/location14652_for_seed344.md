@@ -1,0 +1,45 @@
+It isn’t a place you come to on purpose. You find it by accident, by following the wrong service corridor, or by noticing that a seam in the ground is always damp when everything around it is baked and dust-pale.
+
+The entrance is small: a gap between two low berms of thrown-up earth and crushed stone, both too straight to be natural but too rough to be finished. From the outside the land reads as flat, hot, and empty—low elevation, long sightlines, the kind of heat that turns distant objects into mirage shivers. Then you step through the gap and the air changes texture. It becomes heavier. It presses against your skin like a warm cloth.
+
+The pocket is a shallow bowl, no more than a few dozen paces across. It sits lower than its surroundings by just enough that water can collect and refuse to leave. The terrain feels *young*: the slopes are sharp-edged, not yet softened by time. Cut faces of compacted clay still hold the marks of a machine bucket—parallel scars that catch light like ribs. Chunks of aggregate and slag protrude where the soil is thin, angular and dark, as if the ground was mixed with broken furnace glass. In places, pale concrete shows through, raw and pitted, and in others there’s only that sticky, iron-stained clay that clings to boots in a slow, persistent way.
+
+Water is everywhere, but not as a single clean pool. It’s in films, in beads, in seams.
+
+Along the inner rim, the cut earth weeps. The seepage starts as clear sweat, then gathers into thick drops that tremble before letting go. When they fall, they don’t splash sharply—there’s too much humidity for crispness—so the droplets land with a dull, soft *plop*, absorbed by black mud that shines like oil. The mud is warm. If you crouch close, you can see it moving, not quickly but continuously: tiny blisters rising and collapsing as trapped gases find their lazy way out.
+
+The water table is high here; you can feel it in the way the ground gives. Step wrong and the surface skin breaks and a darker wetness wells up to replace it, slow as blood. The air contributes too. Metal surfaces—rails, bolts, a length of ducting—are slick with condensation that forms, merges, and streams in patient rivulets. Nothing ever quite dries. Even in “normal” daylight, under a plain bright sky, the basin holds its own weather: a low haze that comes and goes as if the place exhales.
+
+The heat is not a dramatic blaze but an inescapable saturation. It’s hot the way a closed pump room is hot: heat stored in mass, radiating from stone and metal and wet soil at once. The sunlight doesn’t need to be harsh; everything here is already warm. The moisture makes it feel hotter, makes every breath full and slightly laborious. Your clothes take on dampness within minutes.
+
+Vegetation tries, but only in the scattered, opportunistic way of pioneers. There are tufts of grasslike shoots at the upper edges where the ground is less poisoned by standing water; a few salt-tolerant, waxy-leaved plants cling to cracks in concrete, their stems bowed as if the humidity is weight. Here and there, algae-green smears appear on shaded faces of clay, and a thin, slippery film coats stones that sit half-submerged. Nothing grows densely. The emptiness is part of the ecology: wide spaces of bare mud, bare aggregate, bare rust, interrupted by a stubborn sprig every few meters, as if the place is still deciding what it will allow to take root.
+
+There are no animals. Not even insects. The quiet kind of life that usually finds any wet pocket—gnats, frogs, birds—is absent, and the absence reads as a rule, not a coincidence. It’s not merely the heat. It’s not merely the water. It’s the chemistry of the place and the noise, and something about the air that seems to discourage delicate bodies. You can watch the surface of the water for ripples and see none that aren’t made by dripping metal or the occasional lazy bubble. The stillness isn’t peaceful; it feels enforced.
+
+Because the sound never stops.
+
+The basin is loud in a way that doesn’t fit its size. The noise isn’t one source you can point to; it’s layered and omnipresent. A low industrial roar presses in from beyond the berms—engines or turbines working out of sight, a continuous note that makes your ribs faintly aware of themselves. Over that, there’s the hiss of steam venting somewhere nearby, not constant but frequent enough that you begin to anticipate it: a long exhale, then a thinner keening as pressure drops. Metal clicks as it expands and contracts; chains and loose panels vibrate with the faraway machinery and answer it with their own rattling. Water contributes its own percussion—steady dripping, occasional trickles, the soft suction of mud releasing a boot. The loudness is not energetic; it’s a sustained industrial insistence, as if the landscape is part of a larger system that never sleeps.
+
+Scattered built things sit like forgotten organs.
+
+A short run of pipe emerges from one wall of clay and ends abruptly, its cut mouth crusted with pale mineral deposits. A narrow catwalk spans a wetter patch, two corroded I-beams with a grated surface—industrial, functional, but placed here alone as if the rest of the structure was removed or never completed. Concrete footings mark where something once stood: four squares in a rectangle, bolts rusted down to stumps, the negative space of a machine. A small shed squats on higher ground, its door missing, its interior dark and empty except for a spool of cable and a cracked gauge face that still has numbers, still pretends to measure. None of it forms a coherent facility. It’s more like the basin has collected artifacts the way a streambed collects bottles: pieces of intention, left scattered.
+
+The materials carry their own smells and colors. Rust blooms in bright oranges and deep reds; algae stains are dark and slick; mineral crusts form chalky white rinds where water evaporates from metal edges. In some places, a thin rainbow sheen floats on standing water, breaking and reforming when a drip falls through it. The air tastes metallic. If you touch the clay, your fingers come away with a faintly acidic scent.
+
+What makes the place unusual isn’t a single impossible feature, but the way water behaves as if it has a memory of machinery.
+
+Condensation here doesn’t feel like ordinary dew. It forms in patterns, beading along invisible lines, favoring certain seams in metal and certain strata in clay, as though following old flows. On the underside of a beam, droplets gather at regular intervals, spaced like the teeth of a gear. Along a wall of earth, seepage appears in a horizontal band, too straight—an old interface where fill meets original soil, or the ghost of a buried conduit. The basin makes water the way a cooling system makes water: by pulling it out of air, by forcing it to change phase. Even when the sky above is clear, even when rain hasn’t come for days, the pocket stays wet because the surrounding industrial world is constantly breathing moisture into it—steam, exhaust, warm humid air that rises and then condenses when it hits the cooler mass of the ground at night.
+
+And yet the dynamics are slow. Nothing here happens quickly unless a valve somewhere outside the pocket suddenly changes its mind. Most changes are patient: mineral deposition thickening a crust by fractions; rust eating another millimeter; mud settling, smoothing itself after being disturbed. The basin gradually lowers its own sharpness by filling its angles with silt. It is a landscape in early formation, but its aging happens by steady accumulation, not by dramatic erosion. The young cuts stay visible because water doesn’t rush here—it seeps, it sweats, it lingers.
+
+In normal daylight the place looks almost plain at first glance: a wet pit, a few pipes, sparse plants. Stay longer and the pocket asserts itself as a kind of small-world with strict terms:
+
+- **Water is always near**, either under your feet or in the air, and it will find any surface to occupy.
+- **Heat is stored**, radiating from mass, turning humidity into a constant pressure.
+- **Noise is part of the climate**, a permanent wind made of engines, hissing vents, and vibrating metal.
+- **Nothing with wings or fur comes here**, and the silence of animal life becomes as noticeable as the loud machinery.
+- **Human intention exists only in fragments**, scattered industrial marks without a complete story.
+
+When you leave—stepping back through the berm gap into the drier, brighter, emptier flat—you feel the absence of humidity like a relief and the absence of sound like a sudden drop in altitude. Looking back, the pocket is hard to see. From the outside it’s just a slight depression and a stain of darker earth. It hides itself by being small, by being low, by being one contained feature embedded in a larger, harsher plain.
+
+But you carry it with you: the sensation of hot wet air, the slow drip in a place that never dries, and the impression that the ground itself is sweating to keep up with the machines somewhere just out of sight.

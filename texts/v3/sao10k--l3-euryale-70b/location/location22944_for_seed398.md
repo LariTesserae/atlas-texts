@@ -1,0 +1,7 @@
+Deep within the churning magma chamber of a vast, primordial volcano, an alien urbanization sprawls in the flickering twilight. Eerie luminescent fungi cling to the obsidian walls, casting an eldritch glow on the labyrinthine fungal-towers and anarchitectural hab-blocks of indeterminate material.
+
+Terracier machines, macroscopic collections of nanocloud and atmo-bolts, drone and undulate through smoggy air, their condensation-trails dripping as they weft through the labyrinth. Molten rivers of hypercomplex polymers ooze and dribble down rocky analogues of streets.
+
+SHAIRthough the walls drip watterike substance, nothing lives here but the City itself - a perversely vital complex of meme-swarm consensus and dark-ecology dormancy pods. The weird silence is broken only by the susurrus of info-gaserts, the susurruschest of nearboilers and the concrete/turtocompactalinsky whisper of the magma-core's autumn—al heartbeat.
+
+Here is a place where even the rocks are part of an inverted, anti-oecosystem, where water and land have swastika-d in a planetary entombment. Weird and active, hot and teeming with 'life', though none of it recognizable, this is a subterranea megacity, an alien urbscape at the dim dawn or dusk of alt.time, a tribeight in the Earth's morning. Let the fungal shocks of the city/wets, organic/not, set their hooks in your mindee, as you, as a nitch-shock.

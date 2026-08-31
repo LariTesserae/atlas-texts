@@ -1,0 +1,21 @@
+The city sprawls across a high mesa, a scab on the skin of a world that remembers the churning of volcanoes. There's little in this place that breathes, nothing that grows in the ways we understand growth. Instead, it is a city of manufactured things, built with a cold precision that hints at a vanished empire. Built, too, to endure.
+
+The mesas themselves are not stone, not really. They are formed of obsidian, a deep, oily black that drinks in the weak light. This stone weeps, not with water, but with a viscous, metallic fluid that coats the surfaces in a shimmering, iridescent sheen. It collects in shallow pools and channels, each one a miniature mirror reflecting the dim, sulfurous sky. This is the "water" of this place, the lifeblood of the city, though no life as we know it drinks from it.
+
+Vegetation is a forgotten word here. The few things that live cling to the edges, like parasitic growths on the vast construction. There are no trees, no swaying grasses, no flowers. Instead, clusters of crystalline structures jut from the obsidian, their facets catching and scattering what little light dares to pierce the haze. These are the "plants" of this place, and they may be either alive or automated infrastructure. Whether they derive energy from the faint solar radiation, the planet's core, or the machines of the city is unknown.
+
+The temperature is uncomfortably high, closer to an oven than the welcoming heat of a fire. The air itself is thick and oppressive, saturated with the metallic fluid and whatever else it carries from the world's depths. Erosion is present with an impossible stillness. The city has become one with the mesa, a single, monolithic object. The obsidian flows and buckles, its surface worn smooth by some process unseen, some invisible rasp wearing down the sharp edges of time. The structures of the city are fused to the landscape, the gears and engines built into the obsidian itself.
+
+The city extends outwards, far enough that the curving edge of the world is visible. The air shimmers, distorting the view, so distant structures seem to be caught in a perpetual dance. The scale is monumental, reaching out to enclose the viewer.
+
+The city is empty. The structures are abandoned, their purposes unclear. The light is dim, barely enough to see. The infrequent, rhythmic thrumming of some deep-buried mechanism is the only sound.
+
+The architecture is layered and complex, a symphony of industrial forms. Some buildings are colossal, reaching into the perpetual gloom. Others are impossibly delicate, intricate lattices of metal and glass that seem to defy gravity, or even solidity. Gears and pipes are fused to the surrounding obsidian. The city is a vast, interconnected machine, and its purpose is a mystery. Industrial tech is woven into every aspect of the city, from the fusion reactors buried deep beneath the mesa to the network of automated maintenance drones that drift silently between the buildings. An underlying electrical hum permeates this place.
+
+The fauna is rare, a few creatures that drift in the upper reaches of the mesa. They are almost certainly synthetic though of unknown purpose.
+
+The strangeness is at the core of this place. The lack of life, the slick and oily "water", the architecture that blends impossible beauty with cold functionality. This is a place out of time and place, an echo of a civilization that built itself into the planet's foundations.
+
+Sound, what there is of it, is a low-frequency hum, punctuated by the occasional grinding of massive gears deep inside the mesa. Mostly, though, the city is quiet, a silence that amplifies the sense of abandonment, of forgotten purpose.
+
+All is in motion, if slowly. The metallic fluid drips, the crystalline structures pulse with an inner light, and the city itself seems to be endlessly rearranging, rebuilding, or perhaps decaying. The few creatures that dwell in the upper atmosphere drift and float, on purpose or at random. The very air tastes subtly changed, each breath tasting of the machinery of oblivion.

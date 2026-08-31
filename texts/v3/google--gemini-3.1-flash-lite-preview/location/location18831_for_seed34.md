@@ -1,0 +1,15 @@
+The geography here is defined by "The Weeping Heights"—a series of vast, ancient plateaus composed of a porous, porous limestone-like stone that seems to inhale the clouds. Because the elevation is significant, the air is perpetually thin and cool, yet it is saturated with a heavy, clinging moisture.
+
+There is no rain in the traditional sense. Instead, the atmosphere itself condenses directly onto the surfaces of the terrain. The water does not flow in rushing rivers; it beads, swells, and secretes from the stone itself. Every surface—the jagged cliffs, the wide, flat plains, the deep vertical fissures—is coated in a slick, gelatinous film. It is a world of constant, slow-motion transpiration.
+
+The "built" quality of this place is not the work of hands, but of a biological architecture that mimics urban density. Massive, layered root-lattices, fossilized and calcified over eons, form intricate, stacked corridors that traverse the plateau edges. These structures are dense and layered, shaped like vaulted cathedrals or interconnected hives, yet they are entirely organic—the result of a slow-growing, slow-dying flora that has been petrified into a state of structural permanence. It is a city of stone skeletons, weathered by the relentless, slow dripping of the mist.
+
+The scale is overwhelming. To walk the ledge of one plateau is to see miles of identical, dripping architecture stretching toward a horizon obscured by low-hanging vapor. There are no tools here, no signs of cognitive artifice. If this place looks like a city, it is because nature has grown into the shape of a city, habituated by the path of least resistance through the cooling, damp strata.
+
+Vegetation is a luxury. You will find small, waxy rosettes huddled in the deeper, warmer recesses of the root-vaults, their translucent leaves catching the condensation. They do not grow toward the light, but rather toward the moisture-heavy drafts that roll off the cliff faces.
+
+Sound is almost absent, creating an immense, heavy silence that presses against the eardrums. You hear only the cadence of the drip: a slow, rhythmic *plink*... *plink*... *plink* that echoes through the vast hollows, a steady heartbeat of erosion. The only movement comes from the water cycles themselves and the rare flicker of a pale, gelatinous creature—a slow-moving scavenger that navigates the slick walls on suction-tipped limbs, feeding on the film of algae that coats the stone city.
+
+It is a place in delicate, established balance. The erosion has carved channels that have existed for tens of thousands of years. The process is active—the stone is always being reshaped, the humidity is always migrating, the root-structures are always imperceptibly shifting—but it happens at the pace of a glacier. 
+
+To dwell here is to feel the weight of deep time. The city is not meant for the living; it is a monument to the endurance of stone and the persistence of moisture. You are walking through the cooling, dripping lungs of a continental giant, a landscape that does not need a viewer to justify its own complex, layered existence.

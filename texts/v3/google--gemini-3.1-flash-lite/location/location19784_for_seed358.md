@@ -1,0 +1,11 @@
+The world exists in a subterranean basin, a vast, low-lying floor that seems to have been pressed into existence only moments before arrival. It is a nascent geography—raw, mineral-heavy, and slick with a perpetual, weeping condensation that clings to everything like a second skin. 
+
+You stand in a place that has no sky; instead, the ceiling is a jagged, low-hanging crust of grey silicate, weeping rivulets of brackish water that pool into an interconnected web of shallow, knee-deep marshes. Every inch of this valley is saturated. There is no dry ground, no respite from the damp; the air itself is a heavy, warm vapor that tastes of ozone and cooling iron.
+
+It is a loud place. The acoustics of the basin amplify the constant, rhythmic thrumming of industrial activity, though the sources of this noise are distant and masked by the mist. It is a deafening, industrial heartbeat—the groan of massive, unseen hydraulic pistons buried deep in the sediment, the high-pitched whine of submerged turbines, and the rhythmic *clank-hiss* of automated machinery that seems to breathe in sync with the marsh. You are never in silence; the noise is a physical pressure against your skin, vibrating through the soles of your feet.
+
+The landscape is "packed." There is no empty space here. If it isn't standing water, it is machinery. Embedded in the sucking, heavy mud are the scattered, skeletal remains of industry: half-sunken catwalks composed of rusted, perforated steel; monolithic concrete housings that jut from the mire like tombstone stumps; and tangled coils of copper wiring that pulse with faint, flickering amber static. These artifacts don’t feel like ruins, but like prototypes—things being assembled or discarded by an intelligence that works at a tectonic, glacial pace.
+
+Vegetation is a mere afterthought, struggling in the shadow of the metal. Sparse, translucent mosses carpet the rusted girders, and pale, bioluminescent fungi bloom from the exposed wiring, feeding on the electrical leakage. They are thin, fragile things, almost entirely translucent, shivering whenever the ground tremors.
+
+The fauna is unexpectedly

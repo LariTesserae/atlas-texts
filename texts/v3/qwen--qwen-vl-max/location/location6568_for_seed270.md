@@ -1,0 +1,37 @@
+This is a place of near-perfect silence that *screams* with unseen movement. It is the inside of a world’s quiet scream—a landscape held between breaths, where the absence of water and plant life allows something else to swell to dominance: the fauna. Not as a mere presence, but as a *system*, a *texture*, a *language* of bodies, motion, and weight.
+
+It begins as a low-lying depression, a bowl of land that has long since ceased to rise. The **elevation** is almost flat—1.1/3—though not unvaried. There are gentle undulations, folds like the skin of an aged giant laid out in repose. But this lowness is not empty. It is layered. The **erosion** is extreme: 2.8/3, the terrain ancient and deeply settled. Time has worn away everything that was once fragile, leaving only what is **dense**—2.5/3—and inescapable. The ground is not soil, not sand, not rock. It is a compacted amalgam of **mineral sediment**, **fossilized biological residue**, and **shattered fragments of technology**, all compressed into a hard, dark crust, thick enough to resist the wind, but soft enough to cradle the movement beneath.
+
+The **temperature** is cool—0.9/3—like the chill of a late autumn evening that never ends. It seeps into bones, not through air, but through the solid ground. No moisture evaporates. No snow falls. The atmosphere holds no water—**water** is 0.2/3—only dry air, thin and slightly dusty. Yet the cold does not freeze the world; it preserves it, keeps it in a state of slow motion, of near-suspended animation.
+
+And yet, **sound** is loud—2.0/3. But it is not the sound of wind, nor of water, nor of fire. It is the sound of **motion**—a constant hum, scrape, thrum, chime, groan. A symphony of creatures moving through, over, under. A low growl beneath the surface, a click of mandibles, the scrape of segmented legs across the mineral crust, the flutter of translucent wings brushing air like gauze. It is **dynamic**—2.4/3—alive with processes so layered, so intertwined, that each sound is the echo of another, the trigger of a chain. It’s not a single ecosystem; it’s a **fauna-locked loop**.
+
+**Fauna** is 3.0/3—overwhelming. This is not a place of animals in the sense of beasts roaming fields. This is a place where **biology has become material**, where life has **inverted its roles**, where the living is the substrate, and the dead are the outliers. The dominant lifeform here is something like an invertebrate, but not: a **colony organism** that exists in a phase between animal and geological. It forms large, undulating clusters, some no larger than a fingernail, others sprawling across tens of meters. These **"shells"**—that is the only word that comes to mind—are not bodies, but **habitats**: thick, translucent, jelly-like capsules with a faint internal luminescence, pulsing slowly like a slow heartbeat.
+
+Inside each shell, a multitude of tiny, worm-like **migrators**—no longer than a millimeter—crawl through interstitial canals. They are blind, silent, but their movements generate **pressure**, **vibration**, **bioelectric fields**. The shells themselves have no mouths, no digestive systems. Instead, they absorb **energy from the environment through resonant vibration**, feeding on the **low electromagnetic hum** of the **industrial** tech scattered across the land—1.6/3.
+
+And that is where the **built** elements come in—1.1/3: scattered, half-buried, rusted, fused into the ground. Not ruins, not even remnants. These are **abandoned engines**, **conduits**, **geothermal taps**, **battery arrays**, all corroded into something like **geological artifacts**. They no longer function in the way humanity would understand—no electricity flows, no fuel burns—but they *still vibrate*. They are **resonant**, and the fauna **feeds on the resonance**. The shells cluster around the engines, growing over them, **fusing with the metal**, forming a kind of **lifestyle interface** between technology and biology.
+
+But it's not just the shells. There are **other forms**—the **"wanderers"**. These are larger, mobile creatures, like a fusion of slug and echinoderm. They glide across the terrain on a single, viscous foot, leaving behind a trail of **bioluminescent gel** that dries quickly into **crystalline patterns**—like frozen writing. They do not eat; they **process**. As they move, their bodies absorb the gel of their own passing, reconfiguring it into new structures. It is a **self-archiving system**, a **biological archive**. The gel patterns form **topographical maps** of their travels over time, a kind of **living cartography**. And the shells **feed on the gel**, drawing energy from its latent memory.
+
+The **light** is normal—1.9/3—not too dim, not too bright. But it is **diffuse**: a low sky, possibly no sun, or a very distant, hazy star, or a **diffused artificial light** from a long-dead orbital array. The light doesn't cast shadows, it *penetrates*. It glows from within some things—not the shells, but **the ground itself** in patches. Areas where the mineral crust has been fractured or where ancient energy lines were laid now **emit a faint red or violet luminescence**, like bruises on the skin of the world.
+
+**Weirdness** is 0.8/3—**unusual**, but not grotesque. Not alien. Not monstrous. It’s **familiar in its strangeness**. The patterns of movement, the way the shells pulse, the way the wanderers leave their trails—these things have a kind of **rhythm**, a **logic**. It's not nature as we know it, but it is **natural** in its own right. It has its own rules.
+
+The **scale** is hidden—0.3/3. You might walk through this landscape and not notice anything immediately. At first, it looks like a dead, mineral desert. Like a post-apocalyptic wasteland. But then, you notice the **subtle shift** in the ground. A tiny vibration. A flicker beneath the surface. Then, a cluster of shells appears from under a rusted pipe, their surfaces glowing in unison. A wanderer, translucent and slow, passes beneath your boot, leaving a trail of gel.
+
+This is a world where **life has outlived its environment**, where **biological process is the new geology**, where **industrial remnants have become the soil of a new ecosystem**.
+
+And it is **loud**—not in volume, but in **presence**. The constant movement, the shifting forms, the resonant frequencies—this is not a silent world. It is **resonant**. It **breathes**.
+
+It is a world of **density**—2.5/3. Not just in the number of creatures, but in **information**, in **connection**, in **overlap**. Every surface is layered. Every movement echoes. Every shell is a node in a greater net. The shells connect across the landscape through **subtle bio-electromagnetic fields**, forming a **network** that shares not data, but **vibration**, **stress**, **energy**.
+
+This is not a place of death. It is a place of **after-life**—not extinction, but **transformation**. A world where **life has become the landscape**, and the landscape has become **alive**.
+
+It is a **world of low water, no plants, and no silence**—because the fauna, in its overwhelming, dense, dynamic state, has **replaced silence with the sound of existence**.
+
+And it is **inhabited**—not by humans, not by any known species. But it is **home**.
+
+Not to a kingdom. To a **system**.
+
+And it hums.

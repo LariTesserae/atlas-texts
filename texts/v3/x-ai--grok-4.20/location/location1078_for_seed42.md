@@ -1,0 +1,28 @@
+The place is called the **Cathedral of Thirst**.
+
+It is not underwater in the way an ocean is; it is a high, enclosed volume where the very air has been replaced by a cool, dense, slowly circulating fluid that is neither quite water nor quite mist. The liquid is clear enough to see through for perhaps forty or fifty paces before it thickens into a milky green haze. It tastes faintly of iron and crushed mint. Pressure is gentle but constant, as though the entire chamber sits at the bottom of a very deep, very old lake that has forgotten it was ever a lake.
+
+Everything here is plant.
+
+The “floor” is a living mat of pale, rubbery rhizomes, some as thick as a man’s thigh, others hair-fine, all braided into a single undulating substrate that rises and falls in slow respiratory swells. From this mat erupt colossal stems—no bark, no wood, only succulent columns the color of celadon and bone. They rise like the columns of a drowned basilica, twenty, thirty meters high, branching into vaults and transepts of living tissue. Their surfaces are glossy, perpetually filmed with a thin slick of condensation that drips in long, patient strings rather than drops. Where the stems meet the ceiling (itself another layer of fused leaf and root), they flatten into ribbed vaults that pulse once every few minutes, as though the whole structure is breathing.
+
+The scale is intimate despite the verticality: the entire living cathedral is no larger than a modest hamlet. One could walk its length in twenty quiet minutes if the liquid were not there to slow every motion. Because the space is small and the vegetation total, the architecture of stems, buttresses, and hanging curtains of moss creates a sense of crowded grandeur inside a bounded pocket. Between the great columns lie wide, almost empty galleries—rare clear volumes where the fluid hangs still and the eye can finally rest.
+
+Light is normal but sourceless. It filters down from somewhere far above, perhaps through a miles-thick canopy that has long since sealed the cathedral off from the sky. The color is the pale green of new leaves seen through water. Shadows are soft, almost courteous.
+
+Fauna is abundant yet strangely courteous. Schools of small, translucent creatures drift between the columns—half fish, half seed, with delicate wing-like fronds instead of fins. They move in slow, synchronized spirals, feeding on the constant drizzle of nectar that beads along the undersides of the vaulting leaves. Larger things drift higher up: sinuous, eel-like herbivores the color of oxidized copper that graze the vertical gardens with toothless mouths. Their passage is silent except for the softest creak of stems bending. Nothing here is in a hurry.
+
+The sound, however, is loud.
+
+It is not the roar of surf or rain. It is the sound of slow, massive life working. Every few heartbeats the entire structure flexes. Thousands of water-filled bladders embedded in the living architecture contract in staggered waves, producing a deep, organ-like tone that travels through the fluid like a physical pressure against the ears. The note is low, patient, almost mournful—less a song than the sound of an enormous vegetable lung emptying and filling across decades. When the tone peaks, every loose frond and hanging root vibrates, filling the cathedral with a bright, glassy chiming that lasts nearly a minute before it, too, fades back into the eternal wet bass.
+
+The built environment is unmistakably urban, yet entirely pre-metal. Long ago, a culture that never learned to smelt iron discovered this place and simply moved in. They carved rooms by training the living stems to grow around scaffolds of woven reed and bone, then abandoned the scaffolds to rot away. The result is a layered, organic city woven through the plant itself. Narrow spiral stairways of fused root climb the columns. Balconies of thickened leaf overhang the empty galleries. Tiny bridges of petrified sap span the wider gaps. All of it has been here so long that the plant has incorporated the structures, growing bark-like ridges around handrails, swallowing doorframes until they look like natural apertures in the flesh of the cathedral. The settlement feels less conquered than gently digested.
+
+Erosion is not the wearing-down of stone but the slow, balanced conversation between liquid and vegetable. Every surface is rounded, softened, furred with fine root hairs. Nothing is sharp. The architecture has been here so long that it has reached a state of perfect, liminal equilibrium: the plant grows just slowly enough to replace what the fluid dissolves, and the fluid dissolves just enough to keep the plant from choking its own hollows.
+
+Weirdness is subtle but persistent. Gravity seems slightly negotiable. Objects left alone for a day will drift a handspan upward before settling again, as though the fluid itself is mildly alive and curious. Time feels stretched; an hour inside the Cathedral of Thirst can feel like four. And every so often—perhaps once every few years—the entire structure sings a new, deeper note that has never been heard before. When that happens the schools of seed-fish align into perfect geometric lattices and remain motionless for days, as though listening to instructions only they can understand.
+
+This is not a ruin. It is not abandoned.  
+It is simply a place that has outlived every intention its builders once had, and has become something older, slower, louder, and far more patient than any of them.
+
+Here, the only permanent state is submersion, the only architecture is alive, and the only future is the long green note that never quite ends.

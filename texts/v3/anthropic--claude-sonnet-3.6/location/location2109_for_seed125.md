@@ -1,0 +1,13 @@
+A dense thicket grows in perpetual shadow, nestled within the hollow heart of an ancient fallen redwood. The massive trunk, now horizontal and half-buried in the earth, has become a world unto itself. Its deteriorating heartwood has created a long, vaulted chamber, barely tall enough to crouch in, extending perhaps thirty feet before darkness swallows all detail.
+
+The space is thick with pale, phosphorescent fungi. They grow in overlapping shelves and cascading curtains, their flesh so delicate it seems almost translucent. The mushrooms produce neither spores nor scent, but their soft bioluminescence bathes everything in a ghostly blue-white light that barely reaches the curved walls of the chamber. Between and beneath the fungi grows a impossibly dense mat of white, threadlike plants that have never known true sunlight. They weave together so tightly they form a continuous surface, like felt or velvet, occasionally rising into pillows and mounds that resemble miniature hills.
+
+The air is still and cold, hovering just above freezing. There is no liquid water here - what little moisture exists is bound up in the living things or forms as delicate frost patterns on the ceiling of the chamber during the coldest hours. The fallen trunk's outer bark remains largely intact, sealing this micro-environment from the outside world except for a few small gaps where deep red moss grows in thin beams of indirect light.
+
+Time moves differently in this space. The growth of the fungi and the pale threadplants is imperceptible, yet they are constantly reaching, spreading, interweaving. Occasionally a shelf of mushrooms will silently detach and collapse under its own weight, creating brief cascades of cold, dry spores that settle like snow, but these are the only sudden changes this place knows.
+
+Near the entrance, partially embedded in the dense mat of white growth, lie the remains of crude ceramic vessels - perhaps left by someone who once used this space as a mushroom garden or secret storehouse. Their rough edges have been softened by the endless patient growth of the threadplants, which seem to be slowly consuming them.
+
+The only sound is a very faint, very deep creaking - the continued settling of the ancient wood as gravity and time do their work. It comes so rarely and so softly that it might be imagined, like the ghost of the tree's final groan as it fell decades or centuries ago.
+
+This is a place of slow transformation, where a fallen giant has become a cradle for countless tiny lives, each one pale and strange but exquisitely adapted to this hidden realm of shadow and stillness.

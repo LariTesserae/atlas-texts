@@ -1,0 +1,23 @@
+The air here is heavy, thick with a warmth that feels less like weather and more like the exhaled breath of a sleeping giant. It is a tropical humidity without the tropics—a relentless, enveloping heat that hangs at roughly skin temperature, blurring the line between the body and the world. The horizon does not curve; it extends forever, a flat, metallic plane that vanishes into a haze of condensation.
+
+This is not a place that geology made. The ground beneath your feet is not stone, but plating—vast, interlocking hexagonal tiles of a dull, gunmetal composite. The edges where the tiles meet are knife-sharp, untouched by the smoothing hands of time. This world is young in its form, yet ancient in its stasis. There are no mountains to break the sky, only a low, relentless undulation of the terrain, like the surface of a corrugated roof stretched to the size of a continent.
+
+Water is everywhere, yet it behaves with a strange obedience. It does not fall as chaotic rain; rather, the atmosphere is so saturated that beads of moisture simply weep out of the air, coalescing on every available surface. The sharp peaks of the industrial landscape are perpetually crowned with droplets. The water slides down the sheer faces of the machinery, collecting in the hexagonal gutters of the floor plates. It is a constant, quiet trickle, a hydrological system of tears that runs into the darkness of the lower levels.
+
+There is no green here. The vegetation parameter is effectively zero. No grass cracks the paving, no moss softens the steel. The only color that breaks the monochrome of the dark alloys comes from the biological growth that encrusts the lower strata—a simple, leathery fungus or perhaps a bio-film that feeds on the thermal output of the engines. It is grey and pale, clinging to the rivets and joints, alive in a technical sense but devoid of ambition.
+
+And the machinery is everywhere. The "scale" of the place defies comprehension. It is a factory the size of a planet. Towering gantries rise from the lowlands like the ribs of a beached leviathan, their silhouettes cutting through the humid mist. Pipes as thick as rivers bundle together in the distance, disappearing into the soupy sky. It is an industrial nightmare frozen in the moment of its own perfection.
+
+The true population of this world, however, is not the machines. It is the fauna.
+
+This is the source of the overwhelming density. The open spaces between the massive pistons and cooling towers are packed with life. But it is a life that has forgotten how to move. Thousands upon thousands of creatures—things that look like deep-sea crustaceans merged with hydraulic components—crowd the surface. They are wedged into the niches, clinging to the vertical catwalks, piled atop one another in the great depressions of the corrugated floor.
+
+They are motionless. The "dynamic" reading is effectively zero. This is the great, weird equilibrium of the place. An ocean of biology packed tight into a cage of industry, and nothing is happening.
+
+A crab-like creature, the size of a truck, rests with its claws interlocked with the claw of its neighbor. They form bridges over the gutters of weeping water. Further on, masses of multi-limbed organisms hang from the pipe-valves, suspended in a dormant hibernation so deep it resembles death. The sheer number of them creates a visual noise, a texture of chitin and wet shell that overloads the eye, yet the silence is profound.
+
+The sound level is low—a mere 1.3 on the scale. There are no grinding gears, no hissing steam, no shrieks of animal distress. There is only the sound of the water: the rhythmic *drip-drip-plink* from the high towers to the pools below, and the collective, almost sub-sonic vibration of a billion slow metabolic processes. It is a hum so low it is felt in the teeth rather than heard in the ears.
+
+The light is normal, a stark, shadowless illumination that seems to come from the moisture-laden air itself, casting no harsh shadows but revealing every detail of the clutter. It reveals the sharpness of the new metal and the hopeless density of the trapped life.
+
+It is a world that has finished its work before it began. The engines are built, the product is stored, the life is incubated, and now, everything simply waits. The water weeps down the rustless sides of the machines, washing over the silent, crowded backs of the beasts, in a loop that will not break. It is a vast, built aquarium, heated to a perfect simmer, left to simmer forever.

@@ -1,0 +1,13 @@
+**The Weeping Hollows**  
+
+Beneath the skin of the world, where the air is warm and thick with condensation, the Hollows breathe. This is a place of slow water and restless stone, a cavern-scape where the walls weep ceaselessly, their slick surfaces glistening under the glow of bioluminescent veins that pulse with an eerie, self-sustaining light. The ceiling is low, domed in places like the vault of some drowned cathedral, its ribs crusted with mineral deposits that glint like frozen tears.  
+
+The water here does not rush—it seeps, it gathers, it lingers. Pools form in cupped hands of rock, their surfaces so still they become mirrors for the luminous growths above. Occasionally, a droplet detaches itself from the ceiling with a resonant *plink*, the sound magnified in the humid air, echoing down winding passages that twist like arteries. The ground is uneven, a patchwork of shallow rivulets and spongy moss-mats that give slightly underfoot, releasing a faint, earthy musk.  
+
+Life is sparse but tenacious. Pale, threadlike roots dangle from crevices, drinking the constant moisture. Strange, translucent fungi cluster in the lee of boulders, their caps trembling as if in response to some unheard rhythm. The fauna are rare, fleeting—a skittering crustacean with too many legs, a blind, eel-like thing that slips between pools with unsettling grace.  
+
+Yet this place is not abandoned. Scattered throughout are the remnants of *something else*—structures that defy easy categorization. Half-buried arches of a material that is neither stone nor metal, their surfaces etched with spiraling patterns that shift when viewed from the corner of the eye. A lone pillar, cracked and listing, humming faintly with an energy that makes the teeth ache. These are not ruins. They are dormant.  
+
+The air thrums with sound—not just the dripping, but a deeper resonance, a subsonic vibration that seems to emanate from the rock itself. At times, the Hollows shudder, as if adjusting their bones. New passages split open; others seal shut. The water changes course without warning.  
+
+This is a place of quiet turbulence, where the boundary between solid and liquid blurs, where the light is bright but never harsh, where the remnants of an unfathomable technology sleep beneath the weeping stone. The Hollows do not welcome visitors. But they do not refuse them, either. They simply endure, shifting, sighing, waiting—for what, even they may not know.

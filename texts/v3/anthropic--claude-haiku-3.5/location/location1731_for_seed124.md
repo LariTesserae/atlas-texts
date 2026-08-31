@@ -1,0 +1,13 @@
+The Weeping Terrace emerges like a condensation of heat and moisture, a vertical cityscape that breathes and sweats. Immense stone terraces rise in irregular tiers, each level carved with intricate water channels that constantly weep and stream, creating a living architectural surface. The stone itself seems almost organic - pale limestone with a slight translucence that allows moisture to seep through its pores, creating constantly shifting patterns of dampness and crystalline residue.
+
+At this high elevation, the atmosphere is thick and luminous. Bright light saturates everything, casting no harsh shadows but instead creating a uniformly illuminated environment where every surface seems to glow from within. The heat is omnipresent but not oppressive - instead, it feels like a living pulse, synchronized with the water's constant movement.
+
+The urban infrastructure is less built than grown - structures emerge from the stone itself, with water-sculpted architecture that looks simultaneously engineered and organic. Mechanical elements are integrated seamlessly: pipes that look like metal veins, condensation collectors that resemble industrial lungs, electrical conduits that pulse with a soft luminescence.
+
+No animals inhabit this place, but the landscape itself feels animate. Water is its primary language - not just flowing, but breathing, seeping, condensing, transforming. Each terrace has its own microclimate, its own rhythm of moisture and evaporation. Industrial mechanisms manage water distribution with a patient, almost meditative precision - slow cycles of collection, redistribution, transformation.
+
+Vegetation clings in dense, compact zones - not lush in a verdant sense, but persistent. Moss-like growths in unexpected colors: silvery-blue, pale lavender, deep slate. These plants seem more like mineral extensions than traditional flora, adapting to the stone's constant moisture and intense luminosity.
+
+Sound is minimal but profound - a continuous soft susurration of water moving through stone channels, the occasional distant mechanical click of a water redistribution valve, the near-silent movement of moisture across surfaces. The soundscape feels like a whisper, a constant but almost imperceptible breath.
+
+The entire environment suggests a kind of living infrastructure - a place where technology, geology, and moisture interact in a delicate, slow-moving choreography. Each surface tells a story of gradual transformation, of water's patient sculpting of stone and mechanical systems.

@@ -1,0 +1,25 @@
+The air here does not just hold moisture; it breathes it, heavy and warm, into a perpetual, dim twilight. You are standing on an elevated stage, a sheer-sided plateau perhaps the size of a large cathedral, suspended high in a colder, thinner atmosphere. But within the boundaries of this isolated platform, a localized, sweltering micro-climate boils and hisses. The sky is a bruised, oppressive ceiling of turbulent, low-hanging rainclouds that swallow whatever sun might be above, casting the environment in a bruised, violet-gray dusk.
+
+This is a landscape of violent, deafening birth. 
+
+Erosion does not exist here. Every edge is razor-sharp, every surface flawlessly smooth, every angle geometrically unblemished. The ground beneath you is embryonic, an extrusion of glassy, obsidian-like basalt and dark, metallic lattice that is continually coming into being. It does not grow like a plant; it is being *woven*. 
+
+Scattered across the wide, sparse floor of this high-altitude theater are six or seven floating architectural anomalies—anchors of beyond-modern design. They are plinths of matte, shadow-drinking material, folding inward on themselves in fractal, non-Euclidean angles, housing physics that reject current understanding. From these scattered structures, bands of iridescent, heavy-gravity distortion ripple outward. Where these invisible fields intersect, matter simply snaps into reality out of the humid air. 
+
+The sound is immense. A continuous, bone-rattling *thrum* underpins the environment, punctuated by the loud, echoing cracks of tectonic assembly—giant panes of fresh stone sliding into place like the locking of a vault. 
+
+As the new matter undergoes this aggressive phase-change from energy to raw geology, it bleeds heat and water. The rocks are weeping. Condensation forms instantly in the warm air, turning into sheets of hot, heavy rain that flash-vaporize against the newly forged, geothermally glowing ground, only to rain down again. Torrents of mineral-rich, metallic-smelling water sheet across the immaculate, unweathered stones, cascading into temporary, perfect geometric pools before draining off the sheer edge of the platform into the abyss below.
+
+Because the matter is still settling, there is vast space between the points of creation. Wide expanses of slick, wet emptiness dominate the plateau, separating the scattered technological nodes and their glowing fissures of nascent rock. Vegetation is an afterthought, struggling to keep pace with the hyper-active terrain. What little flora exists comes in the form of sparse, wire-like filaments of copper-colored lichen that eagerly colonize the freshly extruded rims of rock. They flash-bloom in seconds, harvesting the intense thermal energy of the newborn stone, and then burn themselves out when the rock cools, dissolving into the wet air.
+
+Yet, despite the harshness, the sparse layout, and the alien metallurgy, the place is teeming with a bizarre, chaotic ecology. 
+
+Life has found this geoforge, and it is abundant. 
+
+Flocks of darting, multi-winged things—resembling a cross between manta rays and shattered glass—swoop through the dim, steamy air. They ride the violent thermal updrafts caused by the water boiling off the new stone. Their calls are loud, piercing, and metallic, shrieking over the thunderous cracks of the shifting terrain. They are diving into the geometric pools, skimming the hot, hyper-oxygenated water that the gravity-spires bleed. 
+
+Below them, the wet, black expanse of new rock is patrolled by heavy, scuttling quadrupeds. They lack distinct faces; instead, their heads are clusters of trembling, luminescent sensory cilia that glow a soft, chemical blue in the dim light. They possess a terrifying, stuttering locomotion—they seem to skip frames of reality, utilizing the gravitational distortions emitted by the scattered tech-plinths to phase-step across the wide, empty spaces.
+
+You watch as a sheet of raw, dark stone is violently extruded from nothingness, accompanied by a deafening *CRACK* and a burst of steam. The moment it cools enough to retain a puddle of weeping water, the scuttling creatures fight for it. They clash with one another, their heavy carapaces slamming together with loud, hollow chimes, vying to drink the catalytic fluids pooling in the perfect, unweathered indentations of the stone. Overhead, the glass-winged predators dive, their physics-defying bodies bending the light around them, striking the quadrupeds violently, spiriting away chunks of torn bio-matter back up into the thick, weeping fog.
+
+It is a world in hyper-drive, an ecosystem entirely dependent on the violent, ongoing manufacture of its own floor. Between the deafening hammer-strikes of creation, the hissing of steam, the shrieks of alien predators, and the heavy splashing of warm water, there is no peace here. It is raw, wet, loud, and vibrantly alive, confined to a small, twilight stage hovering high in the clouds, endlessly building itself out of the void.

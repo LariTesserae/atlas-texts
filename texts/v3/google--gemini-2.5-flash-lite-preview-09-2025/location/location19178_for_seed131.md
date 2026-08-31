@@ -1,0 +1,25 @@
+The world here is not built *upon* the earth; it is built *from* the earth, or perhaps, it has entirely replaced it. This is the **Basin of Perpetual Castings**. It is a low, immensely flat expanse, stretching under a sky that possesses the dull, consistent illumination of an overcast afternoon, a light that never strengthens or fades (Light: 2.4/3, Dynamic: 0.4/3).
+
+The defining characteristic is the overwhelming *built* nature (Built: 2.6/3). There is no bare soil, no exposed bedrock from which life might erupt naturally. Instead, the terrain is a tapestry woven from solidified industrial runoff, ancient structural molds, and mineralized conduits. Imagine an abandoned foundry floor that has been allowed to weather for geological ages, only the weathering here is synthetic—a slow, deep settling into a final, stable configuration (Erosion: 3.0/3).
+
+The ground plane is composed of tessellated hexagonal plates, fused together by millennia of mineral seepage. These plates are not smooth; they are deeply grooved, etched with precise, redundant circuit paths and interlocking patterns that suggest an incomprehensibly vast, defunct machine floor. Running through these grooves, near the surface, is water (Water: 2.4/3). It is not flowing water, not truly. It is a thick, slow, colloidal slurry, tinted deep teal or bone-white depending on its mineral load. It clings to the edges of the hexagonal joints, weeping slightly from microscopic fractures, creating perpetual marsh-edge conditions across the entire low-lying expanse.
+
+From the corners and junctions of these massive structural tiles, the vegetation emerges (Vegetation: 2.4/3). It is not photosynthetic in the familiar sense. This flora is bio-mechanical, thriving on trace thermal gradients and the chemical energy stored in the ancient materials. Stalks rise—more like bundled fiber-optic cables or bundles of corroded copper tubing—reaching maybe waist-height. Their ‘leaves’ are thin, iridescent polymer sheets, engineered to capture ambient light and humidity, giving the whole low landscape a deceptive sheen of lushness, despite the material poverty. They are dense locally but overall, the *space* between these thickets is vast and hollow (Density: 0.3/3), emphasizing the intimacy of the clumps themselves.
+
+This world is warm (Temperature: 1.7/3), sustained by the slow, internal geothermal hum of whatever system underlies the Basin. The air is heavy, humid with the evaporated slurry and the breath of the specialized ecology.
+
+### Scale and Sound
+
+Despite the apparent flatness and continuity of the structure, the experience is deeply *hidden* or pocket-sized (Scale: 0.2/3). One does not comprehend the whole Basin at once. The view is constrained by the near-perfect horizon line of the aged structure and the dense clustering of the mechanical-moss. You perceive only the immediate area—a room built of fused industry, an intimate enclosure defined by the next cluster of piping-reeds.
+
+This intimacy is brutally contrasted by the sound (Sound: 2.7/3). The atmosphere is deafening. It is not the noise of current activity, for there is little dynamic movement (Dynamic: 0.4/3). The sound is the resonance of the massive, ancient structure itself finally settling into its static equilibrium. It is a low, subsonic thrum that vibrates in the bones, occasionally punctuated by sharp, metallic *pings* as stressed structural elements finally yield in their slow thermal drift. It is the sound of deep, settled time echoing through rigid materials—a constant, painful industrial drone that blankets all other potential noise.
+
+### Ecology and Rules
+
+Fauna is practically non-existent (Fauna: 0.6/3). Anything that might crawl or fly here would either be poisoned by the chemical exudates or crushed by the sheer sonic pressure. The only movement comes from the slurry occasionally pooling into deeper troughs, or the slow, almost geological creep of the vegetation as it incorporates more ambient mineral dust into its structure.
+
+The rules of this place are rigid: **Equilibrium through Saturation.** Nothing new can be built, nor can anything truly decay, because the material makeup is already at its most stable, chemically inert state, achieved through millennia of total construction and subsequent environmental feedback loops. Water is a constant contaminant and nutrient, held in place by surface tension against the hydro-repellant polymer structures, weeping where the ancient molds meet.
+
+The low elevation (Elevation: 0.7/3) suggests this Basin is the ultimate catchment area, the lowest point in whatever preceding topology existed—a vast, engineered depression where all the slag, all the waste, all the foundational structures of a lost industrial civilization were dumped and allowed to settle under their own immense weight, forming this seamless, warm, deafening floor.
+
+It feels like walking across the shell of a colossal, defunct engine, one so vast that its surface texture—the fused metal, the slow-weeping chemicals, the tough, shimmering greenery—has become the new, eternal bedrock.

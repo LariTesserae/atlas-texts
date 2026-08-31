@@ -1,0 +1,15 @@
+The place is a low, sheltered basin no larger than a modest cathedral, cupped between three gentle ridges of pale limestone that have long since forgotten how to be sharp. Everything here feels old in the way only stone and silence can be old — settled, balanced, finished with itself.
+
+Warm, damp air pools in the bowl like water that never quite drains. It is not humid enough for jungle or swamp, only enough for beads of condensation to gather on the undersides of things and fall, one slow drop at a time, onto stone that has been listening to those exact drops for centuries. Occasional thin rains arrive, drift across the basin in pale curtains, and are gone again within minutes, leaving behind the scent of wet limestone and mineral dust.
+
+Vegetation is sparse and ascetic. A few stunted acacias stand far apart, their trunks twisted into sculptural poses by decades of the same prevailing breeze. Between them grow low cushions of pale, tough grass and scattered clumps of brittle, silver-leafed scrub that smell sharply of resin when the air warms. Nothing grows thickly; every living thing keeps its distance from every other, as though observing an ancient, wordless treaty.
+
+There is almost no animal life. No birds. No insects. Only the faintest suggestion of microscopic life in the occasional slick of dark green algae that stains the rock where water gathers longest. The basin is biologically quiet, almost sterile. Even wind seems reluctant to disturb it.
+
+The light is dim and constant, the color of late dusk that never decides to become night. It filters down from a sky that is always veiled — not cloudy exactly, but milky, as though a fine dust or mist has settled permanently in the upper air. Shadows are soft, ambiguous, and seem to belong more to the stone than to any object.
+
+Scattered across the basin floor are the faint marks of something that was once built by hands. A low semicircular wall of fitted limestone blocks, now half-buried and rounded by time. The broken stub of a single column lying on its side like a fallen tree. A rectangular depression in the rock that might once have been a cistern or a floor. All of these things have been here so long that they no longer feel like ruins. They feel like features of the geology itself — bones the landscape grew and then polished smooth.
+
+Everything is in perfect equilibrium. Nothing visibly changes. The same drops fall in the same places. The same faint wind moves between the same acacias at the same hour. Even the light never brightens or fades. The basin has reached a state of frozen maturity, a small, self-contained world that long ago completed its work of becoming exactly what it is.
+
+It is warm, quiet, dim, and profoundly still. A place that feels less like it is waiting for anything than like it has already remembered everything worth remembering, and has chosen to remain exactly thus, forever.

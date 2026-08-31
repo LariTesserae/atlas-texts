@@ -1,0 +1,41 @@
+The highland begins where the last ordinary slopes end: a broad basin raised above the surrounding country, enclosed by dark ridges and reached only by long, narrow passes. It is warm there, warmer than the height suggests. The air lies thick and close among the terraces, carrying the smell of wet stone, leaf mold, animal musk, and the faint mineral scent of old rain. Moisture arrives irregularly. For weeks the basin may remain dry except for dew gathering in the hollows; then a night of cloud releases a hard, brief rain that runs immediately into channels, cisterns, and sunken gardens.
+
+Nothing in the basin is unmade.
+
+The ground is covered from rim to rim by the remains of an ancient construction: stairways, retaining walls, paved courts, covered drains, causeways, towers, ramps, and low houses packed so closely together that there is almost no original earth visible. The builders used local stone in many colors—black volcanic blocks, pale slabs veined with green, red-brown masonry that has softened under centuries of weather—and fitted it without mortar in some places, with thick clay and lime in others. Every slope has been given a purpose. Every hollow is a reservoir, a planting bed, a passage, or a room whose roof has collapsed but whose walls remain.
+
+The architecture does not stand cleanly against the landscape. It has settled into it.
+
+Walls have bowed outward and then stopped. Staircases descend into layers of leaves. Pavements are polished by generations of feet that no longer come. Doorways are narrowed by roots and woven stems. Courtyards are filled with dark soil carried there by wind, birds, and the gradual breakdown of roofs. In some places the old streets remain clear, running straight for hundreds of yards across the basin before disappearing beneath a fallen gallery. In others, the structures have become a single continuous mass: house joined to stair, stair to cistern, cistern to garden, garden to wall.
+
+The whole region resembles a city only at a distance. Up close, it is more like a second geology, a human-made crust grown over the mountain.
+
+Vegetation occupies every seam. Warm-climate ferns spill over parapets. Vines hang in curtains from elevated walkways and climb the faces of towers, their stems as thick as wrists. Broad-leafed plants crowd the cistern mouths, and pale grasses grow in the joints between paving stones. There are flowering shrubs in the old courtyards, though their blossoms open mostly at night, when the temperature drops and the air becomes heavy with scent. Moss darkens the shaded masonry but does not cover everything; the basin is too densely inhabited by roots, claws, wings, and bodies for any one green thing to dominate.
+
+The richest growth gathers around water. Cisterns sit at irregular intervals throughout the terraces, some no larger than wells, others broad enough to be mistaken for black plazas. Their surfaces are seldom still. Tadpoles comb the shallows. Long-legged insects walk across the skin of the water. Small fish turn beneath floating leaves. Frogs call from the stone lips, and the old channels connecting the reservoirs remain damp even when no rain has fallen for many days. Water moves in short, hidden episodes: a trickle beneath a paving slab, a spill from one terrace to the next, a sudden silver thread after a storm. The rest of the basin is dry enough that these pockets become centers of life.
+
+There is no moonlight in the lower city. The surrounding ridges rise high, and the basin is crowded with roofs, bridges, overhangs, and trees. At night the darkness is almost architectural. It collects beneath arcades and in stairwells, fills the rooms of abandoned houses, and lies in the streets as if poured there. The sky is visible only in long interruptions between rooflines and at the open center of the basin, where a few large courts have never been built over.
+
+The darkness is not complete, but its sources are low and scattered. Pale flowers show themselves in the undergrowth. Some insects carry tiny points of green or blue along their abdomens. Wet stones hold a dull afterglow from the sky. These lights do not illuminate the city so much as reveal fragments of it: a stair descending out of sight, a row of wet footprints, the silver eye of a bird, the white underside of a leaf. Most of the built landscape remains hidden until one is nearly touching it.
+
+The animals are everywhere.
+
+They occupy the walls, the roofs, the gutters, the reservoirs, and the narrow air between one structure and another. Small mammals nest in the hollows of masonry. Thick-bodied lizards lie along warm parapets during the day and vanish into cracks at dusk. Bats roost beneath bridges in layered black curtains, shifting whenever the stone cools. There are snakes in the gardens and in the drainage channels, usually seen only as a brief rearrangement of leaves. Insects fill the vegetation so densely that a branch may appear to tremble even when there is no wind.
+
+The birds are the most visible. They nest in towers, chimneys, collapsed rooms, and the mouths of old aqueducts. They move through the basin in flocks that are too large for the enclosed streets, breaking against walls and spilling over rooftops like thrown cloth. Some feed on fruit, some on insects, some on the smaller animals that gather around the water. At intervals the entire city seems to lift: wings beat from courtyards, ledges, and trees, and a dark mass crosses the open terraces before settling again farther up the slope.
+
+The sound is deafening, but not because of any single continuous roar. It is a saturation of separate noises, all close and insistent. Frogs pulse from the cisterns in overlapping rhythms. Cicadas grind from the trees. Wings strike the air beneath covered walks. Birds call from every height, their cries ricocheting between stone faces until direction becomes meaningless. Water ticks into reservoirs, then spills along hidden channels. Small claws scratch inside walls. Leaves rasp against masonry. Occasionally something large moves through a passageway, producing a deep sequence of impacts that travels through the built ground.
+
+The basin has no true silence. Even during the stillest hours, the structures carry sound from elsewhere: a flock taking flight beyond a wall, rain falling in a distant quarter, an animal calling from a tower one cannot see. The architecture preserves and multiplies every noise. A single bird in a narrow court can sound like a congregation. A hundred birds can make the roofs vibrate.
+
+Yet the place changes slowly.
+
+The walls do not collapse all at once. They lean for decades, gathering soil in their angles, until a tree becomes strong enough to push one course free. A stair may remain passable for generations while its lower steps disappear beneath sediment. The channels fill gradually with roots and silt, then clear themselves in one violent rain. Whole neighborhoods are not abandoned so much as absorbed, their uses changing almost imperceptibly from dwelling to nest, from passage to thicket, from storage room to den.
+
+The animals have inherited the city without altering its fundamental order. They follow the old gradients of water and shelter. They travel the stairs because the stairs are there, cross the bridges because the bridges are the easiest crossings, and gather in the same courtyards where people once gathered because those courtyards remain the broadest dry spaces. Their presence is overwhelming, but not chaotic. It is layered and habitual. Each species has its hour, its wall, its reservoir, its direction of movement.
+
+After rain, the basin briefly reveals its design. Water runs down the entire mountain in deliberate lines, flashing across terraces and dropping through carved mouths into lower courts. Plants bend under the weight of it. Animals emerge from every crevice. Frogs cover the stones. Birds crowd the gutters. The old city shines black and red beneath the cloud, each roof and channel briefly legible.
+
+Then the water sinks away.
+
+The stones dry. The cisterns fall back into darkness. The animals return to their places, and the great constructed landscape resumes its patient occupation: warm, enclosed, crowded with life, and so old that ruin and preservation have become the same condition.

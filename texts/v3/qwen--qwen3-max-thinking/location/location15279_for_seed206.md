@@ -1,0 +1,22 @@
+The place is a **whispering throat of green**, no larger than a sun-dappled room—a hollow cradled in the roots of something immense that isn’t here anymore.  
+
+You step into it through a curtain of hanging moss, thick as velvet drapes, and the world compresses. The air is warm, thick with the breath of plants—humid but not stifling, like the exhale of a living lung after rain. Water is everywhere and nowhere: not in lakes or streams, but in the **weeping**. The low, rounded knolls that form the floor are porous limestone, and from every pore beads a slow, cold sweat that trickles into channels no wider than a finger. Pools gather in the hollows, clear as glass, reflecting not sky but canopy—though there is no sky here, only layers of leaf and vine pressing inward from the rim.  
+
+Vegetation isn’t just present—it **is** the place. The walls are living bark, ribbed and breathing. The ceiling is a lattice of interwoven lianas, some as thick as arms, others fine as thread, all pulsing faintly with sap-flow you can almost hear. Ferns sprout from cracks in the stone, their fronds curled tight like sleeping hands; pitcher plants dangle like green lanterns, half-full of rainwater and drowned insects. There are no bare patches of soil—only root-mat, moss-felt, or the glossy undersides of leaves turned upward to catch the drip.  
+
+And yet, despite this totality of green, the space feels **sparse**. Not empty—never empty—but **open**. Between the pillars of old root and curtain of vine, there are clearings: circles of damp stone, patches of air where light slants through in dusty spears. The density is low because the plants grow *around* the space, not into it—as if they’ve agreed to leave room for something else. For you. For listening.  
+
+Because the sound is **loud**. Not chaotic, but layered, resonant, insistent. A low hum thrums through the ground—felt in the soles before it’s heard—a vibration like distant turbines buried deep in the earth. Over it, water drops plink into stone basins with metronomic regularity. Bees drone between blossoms. Frogs croak in guttural counterpoint from hidden hollows. And beneath it all, a rhythmic **clank… clank… clank**, slow and metallic, like a piston moving in molasses, coming from nowhere and everywhere.  
+
+That’s the **industrial** note. Not smokestacks or rails—there are no buildings, no artifacts—but the land itself has grown machinery into its bones. In one wall, a cluster of bamboo stalks has ossified into hollow pipes, and warm vapor sighs from their joints on a regular cycle. Elsewhere, thick vines coil around iron-rich nodules in the stone, and as they contract at dusk, they grind the metal slowly, sending up sparks that sizzle out before they fall. The ecosystem doesn’t reject industry; it **digests** it, transforms pistons into peristalsis, boilers into bogs, gears into growth rings.  
+
+Fauna thrives here: iridescent beetles march in single file along root-ridges; tree frogs cling to translucent leaves, their throats pulsing with song; a fox-colored lizard darts across a patch of open stone, its tail twitching like a metronome. Life is abundant, but never frantic—every creature seems to know its groove in the rhythm.  
+
+The **weirdness** is subtle. Dew doesn’t evaporate here—it *condenses upward*, gathering on the undersides of leaves until it forms pearls that roll *up* the stem and vanish into buds. Some flowers open only when the clanking sound hits a certain pitch. The water in the pools doesn’t reflect your face clearly; it shows you slightly younger, or older, or with green veins tracing your temples.  
+
+Time doesn’t pass here—it **accumulates**. Erosion has smoothed every edge into gentle curves; the limestone walls are worn not by violence, but by centuries of patient dripping. Nothing is new; nothing is decaying. The place is in perfect balance, a self-tuning instrument. The water level never rises or falls. The hum never wavers. Even your footsteps leave no mark—the moss swallows sound and imprint alike.  
+
+This is a **pocket dimension folded into the world’s sleeve**—a room grown, not built, humming with warm, wet life and the ghost of machines, where nature didn’t overcome industry but married it in deep time, and now they breathe as one.  
+
+You could stay here forever.  
+But the moss curtain behind you has already closed.

@@ -1,0 +1,20 @@
+The chamber is an ancient, hollowed-out interior of a single, colossal botanical organism, a vast dome of petrified ironwood three hundred yards across. It sits in a low-lying basin where the air is cool and heavy with the scent of pine-resin and cold water. 
+
+Though the scale of the space is grand—like a cavernous hall or a ruined cathedral—it is remarkably empty. The air between the floor and the vaulted ceiling is a near-void, interrupted only by a few immense, taut cables of grey, mineralized vine that span the distance like the stays of a suspension bridge. The ground is not soil, but a polished, slate-grey plane of root-substrate, worn smooth by millions of years of friction and the steady drip of condensation.
+
+This is an ecosystem of pure plant-matter that has ceased to grow or decay. It has settled into its final, primordial state. The wood is so densely compressed and impregnated with silica that it feels and rings like cast iron. There are no green leaves here, no soft shoots, no mossy decay. The walls are a dark, waxy charcoal color, ribbed with massive structural columns that rise into the twilight of the upper dome.
+
+The room is brightly lit by shafts of normal, steady daylight that cut through thick, amber-colored resin panes high in the ceiling. These panes are natural skylights—areas where the thick canopy of the outer tree has thinned into translucent, crystalline sap-windows. Through them, the steady, cool light of a grey sky illuminates the mist drifting through the center of the vault.
+
+Despite the emptiness of the space, the sound is overwhelming. The chamber is a biological engine-room. It functions with the rhythmic, deafening clatter of an industrial mill, though there is not a scrap of metal or artificial machinery to be found. 
+
+At regular intervals along the walls, massive, hollow wooden tubes—like subterranean aqueducts—contract and expand with hydraulic force. They pump cool condensation-water from deep within the earth up into the upper reaches of the dome. The system operates on absolute mechanical equilibrium:
+Every ten seconds, a heavy, wooden piston-root—thick as an oak trunk—drops into a rock-hard socket with a dull, resonant *thud* that vibrates through the soles of your feet. 
+Immediately after, a pressure-relief valve—a flexible, cork-like seam in the wall—parts with a high, metallic hiss, releasing a plume of cool, misty spray into the empty air. 
+The water does not pooled on the floor; it is instantly collected by a series of channels carved directly into the root-substrate, directing the run-off into deep, silent cisterns that disappear under the walls. The air remains perpetually damp, smelling of old rain and wet coal.
+
+The fauna here has adapted entirely to this mechanical clockwork. The space is loud not just with the thrumming of the wooden machinery, but with the clattering of its inhabitants. Hundreds of heavy-bodied, brass-colored beetles, each the size of a tortoise, crawl along the vibrating vine-cables. They possess specialized, hardened mandibles that they scrape against the wood, harvesting the oily, lubricating wax that the moving joints secrete. Their scraping creates a high, rhythmic scratching sound that fills the gaps between the thuds of the pistons.
+
+In the upper reaches of the vault, small, featherless gliders with skin like dry parchment launch themselves from the resin skylights. They catch the updrafts of cool air produced by the hissing steam-vents, sailing in perfect, unchanging circles through the empty space before landing on the vertical columns. They do not call; indeed, their only sound is the leathery *crack* of their wings snapping taut in the draft.
+
+Everything in this place is in a state of frozen equilibrium. There are no seasons here, no cycles of growth or leaf-fall. The wooden machinery does not wear down; it is continuously polished by its own oils and the constant, unchanging path of the water. The air is cool, clear, and loud with the heartbeat of an ancient, self-sustaining factory made of wood and water, ticking away in the silence of the low basin.

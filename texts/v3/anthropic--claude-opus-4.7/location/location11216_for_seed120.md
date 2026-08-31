@@ -1,0 +1,29 @@
+# The Throatworks
+
+It is the size of a chapel's interior, perhaps a little less. You could pace its length in twelve strides if pacing were possible here, which it isn't, because the floor is not yet sure it's a floor.
+
+Everything is hot. The first thing you notice, after the heat, is that the heat has texture — it moves in slow vertical columns like something being kneaded, and where the columns meet the ceiling they bead into water and fall again, so the rain inside this room is the room breathing itself wet. The walls weep. The ceiling weeps. The pillars — and there are pillars, seven that I can count, though counting them twice gives different numbers — weep from their fluted seams.
+
+The pillars are the strange part. Or one of the strange parts. They are being made. Not built — made, the way a tooth is made, secreted outward from some inner template. At their bases, where they meet what passes for floor, the stone is soft, almost gelatinous, faintly translucent, with the pinkish cast of a thing that has never seen weather. Higher up, the material firms into something like travertine, banded and hot to the touch. Higher still, near the ceiling, it has the confidence of old marble. None of it has ever been eroded. None of it has ever been touched by anything but its own moisture and the slow pressure of its own becoming. The edges of every carved figure — and there are carved figures, friezes running the height of each pillar — are sharp enough to part skin. The chisel marks are fresh, though no chisel is present, has ever been present.
+
+The figures depict the room. Each pillar's frieze shows this same chamber, with its seven pillars, each pillar showing the chamber, and so on down into a recursion that the eye refuses past the third or fourth nesting. Sometimes a figure on a pillar turns its small carved head, and then it is facing a different direction than it was, and you did not see it move.
+
+The floor — to return to the floor — is laid in tile. The tiles are roughly hand-sized, hexagonal, glazed in deep greens and bruise-purples and the wet black of a beetle's back. They have been laid by hand. You can tell because the grout is uneven and the pattern wanders, the way a mosaic wanders when one person lays it without a plan. Hand-prints in the grout, small. Whoever laid this floor had small hands and no instruments, only fingers and patience. The tiles, however, are still being laid. In the corner farthest from where you came in — though there is no door and you did not come in — the tiling stops, and beyond the line of tiles is the soft pink stuff, and into the soft pink stuff new hexagons are surfacing like teeth erupting from a gum, glazed already, fully formed, rising into place with a faint ceramic click as each one seats itself.
+
+The plants. I almost forgot the plants, which is itself impossible, because there is no surface in here that doesn't carry them. Mosses in every joint. Ferns from every seam in the wet pillars. A kind of vine the color of cooked liver that grows by extending one leaf, waiting, extending another, like a thing thinking its way forward. There is a flower that opens and closes on a cycle of about four breaths, and when it opens it makes a small wet sound, and when forty of them open at once — which they do, in waves that cross the room — the sound is enormous, a soft applause of meat.
+
+Steam everywhere. The light comes from the steam itself, which has a dim phosphorescence the color of weak tea, so that the room is lit from its own atmosphere, and shadows are confused about where to fall.
+
+Animals: I have seen one. A pale, blind, finger-length thing with too many legs that came out of a seam in a pillar, drank from a bead of wall-water, and went back in. I believe there are perhaps three of them in the entire room. They are not in a hurry. There is no predator. There is nothing to be in a hurry from.
+
+The sound, apart from the flowers, is constant. The dripping is continuous and dense — not the patient drip of a cave but a sustained hiss-and-patter, hundreds of drops per second across all surfaces, which together produce a roar at the threshold of speech. Beneath the roar: the ceramic clicks of tiles seating. Beneath that: a low organic groan, very slow, like a great throat clearing itself once every several minutes. That is the room making more of itself.
+
+The rules, as far as I can determine them:
+
+Nothing here decays. There is no rot in the mosses, no rust on the (absent) tools, no softening of edges. Erosion has not been invented yet in this pocket. Water falls and falls and wears away nothing. The room is younger than weathering.
+
+The room is being built by the room. Somewhere in its substrate is the small-handed maker, or the memory of one, or the function that a small-handed maker would perform; the tiles know how to lay themselves, the pillars know how to grow, the friezes know what to depict. The craft is primitive — handwork, no machines, no metal beyond perhaps the trace of copper in one of the green glazes — but the hand is the room's own.
+
+And the recursion in the friezes is not decorative. It is structural. This chamber is inside another chamber exactly like it, on a pillar, as a carving; and that chamber, in turn — well. The scale parameter says *hidden, pocket, embedded-within*. I think this is what that means. We are deep in the nesting. The heat is the heat of being near the center of something that is making itself, and the room is small because it is one cell of a much larger body that does not, from in here, exist.
+
+When you leave — and you will leave, though again there is no door — you will not remember the dimensions correctly. You will remember it as larger. Everyone does. The room prefers to be remembered as larger. It is, after all, still deciding what it is.

@@ -1,0 +1,25 @@
+The first thing that strikes you is the violence of the silence, which is to say, there is no silence at all. It is a solid wall of sound, a deafening, constant roar that feels less like an auditory experience and more like physical pressure against the skin. It is the sound of a billion identical things happening at once, a white-noise threshold so high it vibrates in the hollows of your teeth.
+
+This is the Chorus of Wet Stone.
+
+You are high up—several thousand meters at least—standing on a plateau that stretches endlessly to the horizon, vanishing only where the sheer brightness of the air obscures the view. The light here is absolute. It is a harsh, unfiltered magnesium glare, bouncing off every surface with nowhere to hide. There are no shadows, only gradients of blinding white and the deep, wet grey of the rock.
+
+And the rock is everywhere.
+
+There is no soil here. The vegetation parameter is a flat zero; not a single lichen, not a patch of moss, no blade of grass breaks the geological monotony. This is a mineral world, sterile and stark. Yet, it is not a dead place in the sense of stillness. It is packed, saturated with presence. The landscape is a density of stone spires, a forest of calcified giants that grow straight up from the ground like teeth in a jawbone. They are packed so tightly that in many places you cannot squeeze between them; they stand shoulder to shoulder, a vertical ocean of grey and beige pillars, smoothed by eons of water flow.
+
+The erosion is established, settled. There are no sharp edges, no fresh fractures. Every surface has been worn into a sensual, rounded smoothness, polished to a sheen that feels almost glassy under the palm. These pillars range from the height of a man to the stature of towers, but they are uniform in their weathering—curved, swelling forms that interlock with perfect, claustrophobic precision.
+
+The water is the architect of this roar.
+
+It is not raining, but the atmosphere is heavy with moisture, a cool, clinging wetness that seeps into your clothes immediately. The water comes from the rocks themselves. Every pillar is weeping. Droplets of condensation form on the upper reaches and migrate down, coalescing into runnels that sheathe the stone in a perpetual, moving skin of liquid.
+
+The sound is the sound of this water. Because the pillars are so densely packed, the falling water hits the lower levels or the ground and creates a splash that has nowhere to go. It echoes instantly off the adjacent surfaces. The cumulative effect of trillions of droplets striking wet stone in a confined space creates a roar that never ceases. It is a static, time-invariant dynamic. The roar does not fluctuate in volume or pitch. It is a frozen equilibrium of sound, a constant thrumming that suggests the world is humming a single, eternal note.
+
+The temperature is cool, bordering on cold, but the sheer density of the water in the air makes it feel clammy, heavy in the lungs. It is a crisp chill, the kind found at altitude, but without the bite of wind. The air is still, trapped within the maze of stone.
+
+To walk here is to walk in a labyrinth of polished, wet mirrors. The light (2.9/3) penetrates the gaps between the pillars, refracting through the water sheets, creating a dazzling, fractured world where you are constantly surrounded by the shimmering images of the surrounding stone. It is disorienting. There is no "nature" in the green sense; this is a biological vacuum. The fauna rating is rare, and you see why—there is nothing to eat, nowhere to burrow, and the noise level makes complex communication or hunting by sound impossible. Occasionally, you might see a small, pale, sightless crustacean clinging to the wet stone, feeding on the mineral-rich slime, but they are rare and motionless, calcified statues themselves.
+
+The weirdness of the place is subtle but present. It lies in the geometry. The pillars are not random. They are hexagonal, tightly packed basalt columns that seem to have been extruded from the earth like squeezed toothpaste, frozen just as they began to curve and twist. The uniformity is unsettling. And the water—it does not pool. It runs off the stone with such hydrophobic perfection that the ground beneath your feet is merely damp, not muddy. The water vanishes into cracks that feed deeper, louder chambers far below, adding a bass undertone to the treble roar of the dripping.
+
+It is a place of arrested motion. Nothing changes. The water falls at the same rate; the light reflects at the same angle; the roar maintains the same decibel level. It is a terrifyingly stable environment, a pocket of the universe that has reached its final form and will persist in this exact, deafening, wet configuration until the sun expands. It is beautiful in the way a machine is beautiful: perfect, purposeless, and utterly indifferent to your presence.

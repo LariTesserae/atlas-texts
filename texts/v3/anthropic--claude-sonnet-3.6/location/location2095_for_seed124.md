@@ -1,0 +1,15 @@
+Steam rises in lazy columns through the canopy of broad-leafed vines that span between buildings, their waxy surfaces collecting condensation that drips in steady rhythm onto the walkways below. The city spreads across a series of ascending plateaus, each level connected by wide stone stairs worn smooth by both water and footsteps. The air is thick, hot, and perpetually misty - not quite fog, but a constant atmospheric presence that softens edges and creates halos around the electric lights that pierce it.
+
+The buildings themselves seem almost to sweat, their surfaces covered in a network of pipes and conduits that collect and channel the endless moisture. These waterways aren't chaotic but carefully engineered, feeding into circular reservoirs at each plateau level that power the city's hydroelectric systems. The architecture is a mixture of stern geometric forms in treated concrete and more organic shapes in local stone, all designed to work with rather than against the constant presence of water.
+
+Between the buildings, elevated walkways create a secondary layer of movement above the ground level. These paths are partially covered by translucent panels that shimmer with collected condensation, creating an ever-shifting play of light and shadow below. The panels are studded with photovoltaic cells that drink in the intense sunlight, their efficiency enhanced by the natural cooling effect of the water that flows over them.
+
+The vegetation is remarkably controlled - not eliminated, but integrated. Engineered varieties of tropical plants grow in designated vertical gardens, their root systems incorporated into the buildings' water filtration systems. The vines that cross between structures aren't wild growth but carefully cultivated species that help manage temperature and humidity levels.
+
+The most striking feature is the sound, or rather, the lack of it. Despite the constant movement of water - dripping, flowing, condensing - the city seems to absorb noise rather than create it. The background hum of machinery is muffled by the thick air and the acoustic properties of the wet surfaces. Even footsteps seem oddly muted.
+
+At the highest plateau, massive collectors rise into the bright sky - part solar array, part atmospheric water harvester. Their surfaces are alive with tiny rivulets of condensation, feeding the city's hydraulic systems in an endless cycle. The whole place feels like a machine designed to harvest and utilize every drop of moisture, every ray of sunlight.
+
+The absence of animal life is notable - no birds, no insects buzzing in the heat. Instead, small maintenance drones occasionally flit through the mist, adjusting valves and checking gauges, their quiet whir quickly swallowed by the humid air.
+
+During the hottest part of the day, the entire city seems to pause, the mist thickening as the heat forces more moisture into the air. The solar collectors pivot slowly to follow the sun's arc, their movement so gradual it's almost imperceptible. It's a place that operates on its own peculiar rhythm, its processes flowing as steadily and inevitably as the water that gives it life.

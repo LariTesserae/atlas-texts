@@ -1,0 +1,19 @@
+You stand on a floor that has never been broken.
+
+It stretches flat to every horizon—low, almost without relief, a continent-sized plane that holds its own weather. The elevation never climbs; there are no hills, no ridges, no erosion-carved valleys, because erosion has not yet arrived. This is pre-formation, raw-geology made manifest: a surface still being assembled, layer upon layer, with nothing older buried beneath it. Dig, and you find only more of the same—tight, warm plates of mineral substance, fitted edge to edge like the work of an immense, patient hand that used no tools.
+
+The ground is total in its made-ness. There is no soil, no native bedrock, no “natural” substrate hiding under the scene. Everything visible is deposited, pressed, sealed—an environment fully constructed by slow thermal and aqueous processes, yet entirely without technology. It feels manufactured because it is: each plate was laid in its place, and the laying is not finished.
+
+The air is hot—2.7, relentless—turning the flat distance into a shimmer. Light is ordinary, unfiltered, falling evenly across the open expanse with no shadows to gather in, since there is almost nothing to cast them. The temperature bakes the surface, and from it rises a faint, constant exhalation of warmth.
+
+Water comes in pockets, not as abundance. At 1.3—intermittent, damp—you find shallow depressions where condensation has pooled overnight, or where a brief, distant rain (part of the plain’s own atmospheric cycle, made possible by the vastness of the scale) has left a skin of moisture that steams slowly away by noon. Thin, dark channels run for miles without cutting; they sit atop the plates like veins on glass, riverine but not eroded, delivering water from one shallow basin to another. There is no runoff carving depth, because the ground is too new, too intact, to be worn.
+
+Vegetation is sparse—1.1—clinging only where moisture lingers longest. In the damp pockets grow thin, dark mats of something between lichen and grass, barely rising above the plate seams. They are scattered, isolated, separated by miles of bare, warm surface. No trees. No thickets. Just those occasional dark patches, holding on.
+
+And there is nothing that moves with intent. Fauna is absent—0.5—no insects tracing the pools, no birds crossing the sky, no burrowing in the seams. The silence is profound: 0.5, quiet sounds only. You hear the occasional tick of thermal contraction as a plate cools by a fraction, the distant, flat thunder of weather moving across the open scale, and the soft drip of condensation falling back into a shallow pool.
+
+Yet the place is not still. Dynamic—2.3—active processes move through it continuously. New material is still being added at the margins and through scattered vents; the plates shift minutely, settling into tighter fit; evaporation pulls mineral traces upward, leaving faint, pale rings where water once sat; and the weather, born of the plain’s own magnitude, rolls across in slow, heavy cycles of heat and brief, cooling rain.
+
+The density is sparse—0.8—so presence is scattered: a pool here, a dark growth-cluster there, a vent releasing warm vapor in the far distance. Between them, emptiness dominates. You can travel for hours seeing only the flat, built ground, the shimmer, and the slow work of a world still constructing itself.
+
+This is an embryonic landscape—erosion at 0.3, emerging, undeveloped. The forces that will one day crack, wear, and diversify it have not started. For now, it remains what it is: a vast, hot, low, silent plain of pure, recent making, damp in its pockets, bare in its life, and utterly, quietly alive with the motion of becoming.

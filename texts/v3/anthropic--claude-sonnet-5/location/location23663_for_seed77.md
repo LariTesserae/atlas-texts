@@ -1,0 +1,31 @@
+The Flatlands Foundry
+
+You come to it by heat before you come to it by sight — a thickening of the air, a pressure against the eyes, long before the horizon resolves into anything specific. And when it does resolve, it resolves slowly, because there is so much of it, and so little in it.
+
+This is a built world. Not a world with buildings in it — a world that *is* building, in the sense of substance, the way a wall is built or a floor is built. The ground itself, for as far as anything can be seen, which here is very far indeed, is laid material: vast plates of something like fired clay or cast stone, seamed at intervals so wide that walking from one seam to the next can take the better part of a day. The seams are the only real elevation — low ridges, a meter or two high, where one plate's edge overlaps or buts against its neighbor, raw and unweathered, as if the joint were made yesterday. In a sense it was. Nothing here has finished arriving.
+
+There is no soil. There is no rock that wasn't placed. And yet there is no machine, no tool, no device anywhere to be found or implied — whatever built this did not build it with hands or engines. It simply is total, the way bedrock is total in other places, except this bedrock has joints and tolerances and the faint suggestion of intention pressed into its grain.
+
+**Surface and Texture**
+
+Up close, the plates are not uniform. Some are smooth, almost glassy, holding the heat-shimmer like a held breath. Others are coarse, pocked with shallow regular indentations — not erosion, not weather, but something closer to a mold's texture, a casting artifact, never worn smooth because nothing here has had time, or cause, to wear. The erosion is almost absent. Edges are crisp. Corners are sharp enough to nick skin. This is a place still in its first geological instant, except its first instant is also its only one, indefinitely extended — a permanent dawn-of-form.
+
+Sparse vegetation finds the seams. Thin, wiry stalks — leafless, grey-green, almost wire in texture — grow up out of the joints where the faintest condensation gathers overnight. They are spaced absurdly far apart, sometimes a hundred meters between one plant and the next, so each stands like a punctuation mark in a very long sentence of bare material. They don't compete; there's nothing to compete for. They simply persist, each one alone, drawing on whatever damp pools in the cracks before noon evaporation takes it back.
+
+**Water, Sparingly**
+
+Water here is a rumor that occasionally pays its debts. It does not fall as rain so much as condense — vast convective cells form overhead, born of the heat radiating off the plates colliding with cooler air pockets that drift down from nowhere visible, and these cells will, perhaps twice in a long while, release a sudden, heavy, localized downpour onto one section of the plain while the rest bakes on, dry and indifferent, kilometers away. You can stand at a seam and watch a dark curtain of rain falling visibly on the horizon while your own skin cracks in arid heat. The water that does fall doesn't sink — there's no soil to take it — so it runs along the seams, channels itself into the joint-lines, and pools there briefly before the sun claims it back. These transient seam-rivers are the only true rivers this place has: temporary, geometric, following the architecture rather than the land, because here the architecture *is* the land.
+
+**Heat and Light**
+
+The heat is heavy, dry between waters, oppressive in the way of a held threat. The light is full and even — not harsh, not golden, just normal and total, the kind of light that makes every plate-edge legible from a great distance, every shimmer of rising heat visible against the pale sky. There are no animals, not one, not a single sound of wing or foot or call. The silence has a texture of its own: the tick of cooling material at dusk, the faint creak of plates expanding and contracting against their seams as the temperature climbs and falls, the occasional low percussive crack — distant, structural, like a building settling, except the building is the whole world and it never stops settling.
+
+**Scale and Weather**
+
+Because the scale is so vast, the place generates its own atmosphere, its own internal weather independent of anything beyond the horizon. Heat-thermals spiral up off the hottest plates and seed cloud far overhead, clouds that drift and dump their intermittent rain unpredictably, sustaining the lonely vegetation and nothing else. Dust — no, not dust, since dust implies erosion and erosion is barely permitted here — but a fine particulate shed off the casting-textured surfaces does lift and travel in those thermals, hazing the deep distance into a soft bronze smear, so that the horizon is never quite a hard line, always a little uncertain, always still becoming.
+
+**Rules of the Place**
+
+It seems to operate on a logic of unfinished totality: everything that exists here is made, complete in its individual unit, and yet the whole has the feel of a thing still being laid down, plate by plate, the joints never quite sealed because the sealing is not yet due. There is no decay because there has been no time for decay — the erosion is emerging, not advancing, a process glimpsed at its first frame and held there. The sparse stalks are the only sign that biological time exists at all amid the geological-architectural stillness, and even they seem provisional, like the first tenants moving into a structure not yet signed off by its absent builders.
+
+Walking it, you feel less like a traveler in a landscape and more like a fleck of dust on an enormous floor newly poured and not yet cured — aware that your footsteps leave no mark, that the heat will outlast your endurance long before the ground shows any wear, that somewhere beyond the haze more plates are still settling into their seams, the world quietly continuing to complete itself without witness, without machinery, without urgency, under a sun that asks nothing and gives everything.

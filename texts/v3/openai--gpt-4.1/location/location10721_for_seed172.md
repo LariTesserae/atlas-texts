@@ -1,0 +1,25 @@
+Here, the world is a clandestine machine-chamber, a finite, forgotten cell cradled inside a larger, unseen entity. Imagine a space so unconcerned with the affirmation of organic life that the bare idea of "habitat" seems misplaced—yet it is intricately, exhaustively *inhabited* by process and structure, by the logic of mechanism. 
+
+**Terrain, Materials, and Scale**  
+You stand in a pocket-vault just wide enough to step across. Its proportions evoke a shrine or a core—perhaps the hollow behind a massive panel, deep within the hull of a titan. The ground is a wedge of ornate composite: some engineered mineral, faceted but sharp—perfectly cold to the touch, not even the memory of heat. Not natural stone, never worn by wind or time, its geometry is still edged, its joints defined, the pattern like crystal, or a thousand mirrors frozen in early assembly.
+
+Every surface is built: no "earth" here, no substrate that hasn’t been planned and placed and locked in line. The walls rise at braced, threatening angles, reinforced by heavy ribs of some blackened alloy, flaring up towards a vaulted ceiling, high, sharply peaked, like the inside of a machined geode. There is no dust; everything is newly made, not yet marked by the passage of anything animal, mineral, or microbial.
+
+**Atmosphere and Light**  
+The air carries no water, no scent except ghost-traces of caustic cleaner, and some faint ionization from exposed cables and copper throws. The light is steadied—brilliant, even overexposed—bouncing hard off surfaces, as if the place were designed for no shadow to persist. The illumination comes not from a sun or lamp, but from uninterrupted strips of embedded induction: pale radiance that fills every fold, every cavity, with an unwavering, clinical certainty.
+
+**Soundscape**  
+It’s deafening; the heart of this world is noise. You are adrift in a saturating machinic roar—a persistent, totalizing sound field of turbines, fans, mechanical clutches, of matter being processed, sorted, shunted. It’s not the sound of things in motion, but of motion itself, amplified, curated, nearly palpable. Occasionally, a deeper note—a thud, a pulse—reverberates through the very structure, reminding you that the place is not meant for human nerves or animal ears. Speech would disintegrate instantly, lost in the cyclic engine howls, the barrages of automated pistons, never rising above the chorus.
+
+**Ecology**  
+Living things—those built by biology—are absent, erased, disallowed. There is no animal movement, not even the trembling of insects or the furtive scurry of small-formed scavengers. If anything responds to the noise, it is only the place itself—the flexing of structural elements, the shivering of vapor along an overheating conduit. *Vegetation* exists, just barely: thoughtless, synthetic analogues of moss or lichen cling in sparse array along a few protected creases, borne not out of evolution but by a designer’s whim, perhaps as thermal insulation or air scrubbing units. They aren’t green, but graphite-black, their surface matte, absorbing rather than reflecting, perhaps for optical stealth or low radiative signature. They grow nowhere else—the concept of abundant life seems a private joke here.
+
+**Dynamics and Weirdness**  
+Nothing in this cell changes. The machines run without stop or evolution, kept in a state of perpetual, unyielding equilibrium—a closed loop, neither escalating nor decaying, a kind of stasis as living as death, or perhaps a manufactured forever-winter. Gears turn, but always at the same pitch; circuits hum, rhythms unvaried. The place is not abandoned, not decaying, just enforcing its purpose with inhuman constancy.
+
+Yet something is off, fundamentally unclassifiable. Strange: sometimes, you notice parts of the modular wall seem posed for movement, as if ready to retract or rearrange, but never do. Sometimes, faint glyphs emerge on a surface, then submerge, like artifacts of a different logic struggling to break through—coded maintenance orders, procedural symbols, or something more cryptic, never meant for human reading. You cannot root out a sense of containment: the chamber is embedded—within what, you do not know. Larger flows of energy pass unseen behind barriers; trace glimmers of alien infrastructure slip beneath the floor, untouched by time.
+
+**Rules**  
+This is a place not meant to host life but to maintain a process: remove heat, refine ore, calibrate magnetic fields for vast unknown purposes. All presences here are built, all matter forged and fit for duty in a single sealed environment, hidden from both the world and itself. It is static, complete, and inexorable. There is no outside—only more of the same, outward and inward, world-within-machine-within-world, until the concept of landscape is wound entirely tight, a knot of mechanism, silence made loud.
+
+You may stay only so long as you can endure the noise, the cold, and the knowledge that *nothing here was ever meant for you*.

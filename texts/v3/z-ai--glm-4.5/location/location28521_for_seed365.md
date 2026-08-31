@@ -1,0 +1,21 @@
+The air here tastes of cold iron and wet slate. It is a cool, clinging dampness (0.7) that seeps into the marrow rather than soaking the skin—a condensation sweat that coats every surface with a slick, glistening sheen. You are standing on a high, isolated shelf of land (1.9), a fractured plateau that feels less like the top of a mountain and more like the floor of a broken cathedral, open to a grey, brooding sky.
+
+The light is dim (0.9), a perpetual twilight filtered through heavy, drifting mists that occasionally part to reveal a pale, distant sun, weak and unheated. Shadows are long and soft, bleeding into one another.
+
+The ground is violently young (1.2). The stone is raw, fractured into jagged scree and terrifyingly sharp ridges that haven’t yet been softened by the patience of time. Walking here requires caution; the rock wants to cut. It feels as though the earth heaved itself up only yesterday, tearing itself apart to create this space.
+
+Yet, life has claimed this wound with terrifying speed. The vegetation is lush (2.5), a riot of aggressive greens and bruised purples, but it is sparse in its arrangement (0.7). Instead of a continuous forest, you see solitary, monumental specimens—giant, fern-like spirals the height of watchtowers, and massive, cup-shaped fungi that cling to the cliff edges, collecting the ever-present mist. They grow with ample space between them, each plant a sovereign entity claiming its own patch of the sharp stone, surrounded by empty, glistening gravel.
+
+Scattered among these botanical giants are the structures. It is a primitive urban environment (1.6/0.8)—a hamlet of rough-hewn stone and mortised timber, built on a scale that feels almost intimate despite the elevation. The buildings are low, sprawling longhouses with steep, thatched roofs designed to shed the constant moisture. The architecture is simple, utilitarian, devoid of ornamentation, yet the layout is deliberate, forming narrow, crooked streets that channel the cold breeze.
+
+But the true strangeness of this place lies in its silence and its motion.
+
+The ecology is overwhelming (2.8). The stone, the plants, the very air is alive with a specific kind of fauna. Thousands of small, crab-like creatures cover the landscape. They are perhaps the size of a dinner plate, with shells that perfectly mimic the texture of the wet, grey slate. They are the architects of this place.
+
+This is the active dynamic (2.2): a silent, constant construction. The creatures are everywhere, yet the density is low enough that you can see the ground between them. They move with a frightening, fluid speed, scuttling up the sides of the primitive huts and over the giant ferns. They are constantly rearranging their environment. You watch as a dozen of them lift a heavy rock shard and maneuver it into a gap in a wall, reinforcing a human structure, or perhaps reclaiming it. They use no tools, only the collective pressure of their bodies and an eerie, shared intelligence.
+
+The weirdness (2.5) is in the acoustics. Despite the overwhelming number of creatures, the shifting of heavy stones, and the rustling of massive leaves, the soundscape is one of profound silence (0.3). There is no chittering, no clicking of claws, no grunt of exertion. The movement is hydraulic and muffled, as if the world is wrapped in thick wool. The loudest sound is the rhythmic *drip-drip* of condensation falling from the giant leaves onto the carapaces of the workers, a soft percussion that marks the passage of time.
+
+The rules here are unspoken but felt: Do not interrupt the work. The boundary between the "built" world of the hamlet and the "wild" world of the cliff-edge is nonexistent. The creatures maintain the roads, they shore up the foundations of the houses, and they harvest the spores from the giant fungi. The human inhabitants, if they still live here, are guests in a city that builds itself.
+
+The wind picks up, cold and damp, carrying the scent of ozone. The crab-creatures pause simultaneously, a ripple stillness passing through the population like a wave, sensing a shift in the pressure. Then, as one, they turn their flat, eyeless heads toward the darkening clouds, and the silent construction resumes, faster now, preparing the high, wet stone for the storm to come.

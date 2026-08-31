@@ -1,0 +1,27 @@
+The place has no name because names cannot survive here.
+
+You emerge into it as if breaching the surface of a storm that has forgotten which way is up. Everything is water, but not water as the lowlands remember it. This is a warm, vertical ocean suspended at high altitude, a churning aerial sea caught between two impossible pressures: the thin, screaming cold of the upper atmosphere above and the roaring compression of a young world still trying to decide what shape it will take below. The liquid is thick, almost oily, tinted the color of old bronze and lit only by occasional pulses of bioluminescent plankton that bloom and die in seconds.
+
+It is not raining. The rain has become the atmosphere itself. You are inside a perpetual wall of rain that has learned how to stand still and scream.
+
+The scale is intimate and cathedral-sized at once. A single submerged ridge of new stone, no longer than a village, rises like a half-finished spine from the unseen abyss beneath. Its edges are viciously sharp; the world here is only a few thousand years old in places, and the rock still remembers the violence of its birth. Black basalt knives and glassy obsidian blades jut upward in sparse clusters, many of them already fracturing under the endless hydraulic assault. Between these jagged sentinels the water moves in delirious, three-dimensional currents—rivers standing on end, whirlpools that spin horizontally then suddenly flip vertical, great breathing spheres of trapped air that collide, merge, and explode with the force of artillery.
+
+The sound is total. It is not background. It is the substance of the place. A roar so complete it wraps the mind until thought becomes another form of turbulence. The noise has texture: subsonic booms that rattle your bones, metallic shrieks where water shears across fresh obsidian, low organ-like drones produced by entire submerged chambers of stone acting as resonance bodies. After a few minutes the sound stops feeling like something you hear and starts feeling like something that is aggressively listening to you.
+
+Vegetation is almost nonexistent. Here and there, clinging to the lee side of the sharpest ridges, grow pale, translucent anemone-like things the size of dinner plates. Their “petals” are muscular and they beat in slow, exhausted rhythms against the current, feeding on the thin soup of minerals and dying microbes. Nothing green. Nothing that would be recognized as a plant in any gentler world. They look more like failed attempts by the landscape to grow lungs.
+
+Fauna is rarer still. Once every few hours something living darts through the bronze murk—long, ribbon-like creatures with no eyes and mouths at both ends, flashing faint violet along their seams before vanishing again into the roar. They do not swim so much as allow the turbulence to throw them where it wishes, correcting course with tiny explosive jets of ink that bloom like dark nebulae and are instantly shredded.
+
+Scattered across the ridge are the only signs that anything has ever tried to build here. They are not ruins in any ordinary sense. They are partial, larval things—half-formed arches of what might have been coral or bone or concrete, fused to the rock as though the idea of architecture itself tried to crystallize and was immediately aborted. One structure, no larger than a confessional booth, stands half-buried in a crevice: a hollow made of fused glass and black stone with a doorway that opens onto nothing but more violent water. Inside, if you are reckless enough to enter, the roar lessens by a fraction, enough to let you hear your own pulse beating in your ears like a second, slower storm.
+
+The weirdness is not decorative. Reality here is still wet clay. The laws of the world have not finished arguing. Gravity forgets itself in places; entire columns of water will suddenly invert and pour upward in silver ribbons before smashing back down with detonations that flatten the anemones against the rock. Time dilates near the largest obsidian blades—stand too close and minutes stretch into aching hours while the surrounding chaos accelerates into a blur. Echoes sometimes arrive before the sounds that made them. Colors that have no business underwater (deep arterial red, liturgical gold) flare and vanish without source.
+
+The entire ridge feels like a wound that has not yet decided whether it will become a mountain or a canyon or simply tear open and let the sky fall all the way through. It vibrates with becoming. Every few moments a new shard of rock bursts from the parent mass with a scream audible even through the deafening water, sending fresh fractures racing across the stone like lightning frozen in basalt. The place is being born in real time, and it is not gentle about it.
+
+There is no horizon. Only upward and downward gradients of pressure and sound. Only the warm, metallic water that tastes faintly of iron and lightning. Only the sparse, vicious geometry of fresh stone and the handful of half-born structures clinging to it like thoughts that failed to become prayers.
+
+If you stay long enough, the roar begins to sound like language.
+
+If you stay longer, it begins to sound like your own name, spoken by something that has never had a throat before and is still practicing.
+
+Welcome to the young, screaming place where the sky drowned and has not yet learned how to be anything else.

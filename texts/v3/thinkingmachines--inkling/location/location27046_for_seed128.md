@@ -1,0 +1,25 @@
+You are inside the pocket.
+
+Not a cave—there are no caves here, nothing accidental—but a chamber embedded high in the flank of a constructed world, a single-room cavity pressed into the upper lattice of something far larger than itself. The elevation is felt as a kind of pressure, a thinness in the air that has nothing to do with open sky; you are high, enclosed, hidden within a system that extends upward and downward for distances you cannot measure from inside this intimacy. The scale is that of a lung, a mouth, an inner ear—one feature contained, embedded, not part of the landscape but the landscape entire.
+
+Everything is made.
+
+The walls were never stone, never soil, never bone. They are layered substrates—ceramic lattices interwoven with what might once have been metal but has long since become something else, aged into a settled form. The erosion here is not destructive; it is established, weathered into balance. Centuries, perhaps millennia, of warm moisture and internal tide have polished the surfaces to a rounded softness, like the interior of a shell that has been inhabited continuously. The materials hold their shape through physics that current understanding only approximates: they flex microscopically, self-repair in slow pulses visible as faint silver tracings under the dim light, and maintain an equilibrium that feels less like architecture and more like a long exhale.
+
+It is warm. Not hot, but body-warm, the temperature of slow metabolism and circulating liquid. The warmth comes from the walls themselves, a low-grade thermal bloom that keeps the atmosphere from ever cooling, and from the activity within—there is always movement, always process.
+
+Water is everywhere and nowhere specific. At 1.8, it is near the surface, condensing out of the air itself, which is saturated, thick with suspended droplets. The ceiling weeps—thin, continuous rivulets that form along invisible channels in the synthetic membrane overhead and release with a soft, relentless percussion. The floor is concave, collecting these falls into shallow, still pools that do not deepen because they are constantly being drawn away, recycled through pores in the substrate. There is a smell—not of earth, but of warm metal and condensation, of ozone held in suspension by the humidity.
+
+The light is dim—0.6, barely present. It comes not from any lamp but from the walls, a faint phosphorescence in cool blue-green, and from the fauna. Yes: the fauna are abundant, dense with presence, layered near-touching in the volume. In this small space, they are everywhere. Small things, mostly—winged, scaled, jointed in ways that suggest both biology and manufacture. They swarm in constant, low-altitude flight, drinking from the weeping ceiling, crawling across the rounded walls, floating in the shallow pools. They make the sound.
+
+The sound is deafening.
+
+In this pocket-scale, there is no escape from it. The roar is total, not a single source but an accumulation: the rush of recycled water through hidden channels in the walls, a thunderous internal plumbing; the drone and click of the fauna, thousands of small bodies in motion, wings vibrating at frequencies that merge into a continuous shudder; and beneath both, the deep, slow hum of the structure itself, a bass note of energy moving through lattices beyond modern physics. It is loud enough to feel in the teeth, in the ribcage, yet it is not violent. It is the sound of a system working exactly as intended, and it never stops.
+
+Vegetation is sparse—0.6, almost absent. Only in the deepest pool, where the recycled water stills for a moment before being drawn downward, does something grow: a thin, wire-like film of green-black, not quite moss, not quite circuit, feeding on minerals in the synthetic runoff. Otherwise, this is an ecosystem without plants, without roots—just the fauna, the water, the warm machine.
+
+The density is high—1.7—every cubic measure filled. The air is not empty; it is layered with moisture, with the small bodies of the creatures, with microscopic particles that move with purpose, perhaps maintaining the air, perhaps feeding. You feel near-touching with presence, saturated. The fauna do not fear you; they continue their cycles, predator and prey in miniature, a biological pace that keeps the dynamics active, never static.
+
+Despite the technology—2.8, beyond modern—the place is not strange. The weirdness is low, 0.6. There is no disorientation, no surreal contradiction. The logic holds. The water weeps because it is designed to weep. The fauna swarm because this is their environment, engineered or evolved within it, it makes no difference now—the distinction has eroded away with the walls. The sound deafens because the processes are active, cycling, alive in their own constructed way.
+
+You stand—or sit, or simply exist—within the pocket, small, hidden, high, warm, and wet, surrounded by abundance, drowned in noise, held in dim blue-green light by walls that have settled into their long, weathered state. Nothing here is natural. Everything is in balance.

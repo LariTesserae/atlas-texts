@@ -1,0 +1,11 @@
+Beneath the blistering heat of twin suns, a vast subterranean expanse stretches out as far as the eye can see. This is the Hollow Bloom, an ancient network of lava tubes and eroded caverns that snake through the mantle of an airless world. 
+
+At first glance, the place appears barren and lifeless – the rock walls are a dull reddish-gray, worn smooth by eons of mineral-rich winds scouring their surfaces. But look closer, and you'll see vibrant splashes of vibrant colors emanating from every crack and crevice.
+
+These are the Bloom Fields, veritable oases of bizarre lifeforms that thrive in the superheat thanks to their exotic chemistries. Great tangled masses of fibrous, multi-hued growths cling tenaciously to the cavern floors and low shelves, pulsing and shifting with an eerie, shared rhythm. Every now and then, fronds twitch and unfurl from the masses, stirring the thick, vapor-laden air with unsettling breeze-like motions.
+
+The Fields seem to go on forever in archipelagos connected by winding tunnels. Skeletal ruins and primitive rock carvings hint that some ancient race may have once dwelled here, worshipping or simply bearing witness to the eternal shimmering of the Bloom. Perhaps they were driven away, or went extinct – or even evolved into new forms attuned to the alien ecosystem.
+
+Now, only the faintest scuttling and chittering sounds give evidence of mobile life skulking just out of sight amid the mats of alien flora. Most of the time, an oppressive stillness reigns, broken only by the droning vibration of the Fields and the whispers of that ever-present scorched wind finding its way along the tunnels from surface vents far above.
+
+This is a strange realm, existing in the negative space between a dead world's mantle and crust. A luminous, archaic oasis of chemo-organic life independent from any cycle of conventional biochemistry – perhaps even defying the usual constraints of Earthly biology altogether. The rules governing the rise and form of the Bloom remain an inscrutable enigma to those few outworld visitors daring to venture this far into the depths.

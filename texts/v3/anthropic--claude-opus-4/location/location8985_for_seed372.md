@@ -1,0 +1,25 @@
+High on a precipitous volcanic shelf, where the newest stone still holds the earth's fever, steam hisses from a thousand fissures. The rock face rises sharply—a near-vertical wall of fresh obsidian and basalt, its edges still knife-sharp from recent formation. Water seeps everywhere through the porous volcanic stone, condensing from the warm air into rivulets that trace mercury-bright paths down the black surfaces.
+
+The shelf itself spans perhaps a cathedral's width, a narrow ledge pressed between the volcanic cliff and a dizzying drop. Despite the altitude, the air hangs thick and warm, laden with moisture that beads on every surface. The volcanic heat trapped in the stone creates its own weather system—perpetual mist rises from the wet rock, forming clouds that cling to the cliff face before condensing and falling as a constant, gentle rain.
+
+What vegetation exists clings desperately to the few cracks where soil has begun to accumulate. Pale lichens spread like frost across the wettest stones. A few pioneering ferns unfurl from crevices, their fronds perpetually jeweled with droplets. Strange sulfur-loving mosses form thin carpets of acid yellow-green where the volcanic gases still seep.
+
+But it is the creatures that overwhelm this narrow world.
+
+The cliff face writhes with life. Every surface not actively steaming hosts colonies of creatures adapted to this thermal paradise. Millions of heat-loving beetles cluster so densely their metallic shells form a shifting, iridescent second skin on the rock. They click and whir with mechanical precision, their movements synchronized in waves that ripple across the cliff. The sound is industrial—a constant thrumming like distant turbines, punctuated by sharp metallic clicks as they communicate through vibrations in the stone.
+
+Thermal-drinking butterflies hang in curtains from every overhang, their wings modified into heat-collection panels that shimmer with oil-slick colors. When disturbed, entire sections lift away from the rock in clouds so dense they briefly block the light, their wings creating a roar like steam engines.
+
+The air itself swarms with hovering creatures. Transparent aerial jellyfish drift through the mist, their bodies pulsing with bioluminescent patterns that seem almost like circuit diagrams. They feed on the mineral-rich vapor, processing it through organs that glow like tiny furnaces. Metallic dragonflies with wings that buzz at industrial frequencies dart between them, hunting the smaller steam-flies that breed in the thermal pools.
+
+Strange salamanders with copper-bright skin emerge from cracks in the rock, their bodies steaming in the cooler air. They move with mechanical precision across the wet surfaces, leaving trails of chemical reactions that etch the stone. Where many travel the same path, the rock develops a polished, machined appearance, as if carved by tools rather than biology.
+
+In the shallow pools that collect in every depression, creatures even stranger thrive. Colonies of thermal worms form dense, writhing masses that process the mineral-rich water through their bodies, excreting pure metals that accumulate in geometric patterns. Crystal-shelled crustaceans click across these metal deposits, their legs tapping out complex rhythms that echo off the cliff walls.
+
+The entire ecosystem pulses with a slow, patient energy. The heat from below drives everything in careful cycles—water rises as steam, condenses, falls, and seeps back through the rock to be heated again. The creatures follow these rhythms, their seemingly chaotic movements actually synchronized to the thermal breathing of the stone.
+
+As the mist shifts, stranger sights emerge. Certain angles reveal that the beetle colonies arrange themselves in patterns too regular for chance—spirals and grids that suggest purpose beyond survival. The butterflies' heat-collection poses mirror the facets of the volcanic glass with uncanny precision. The salamanders' acid trails interconnect across the cliff face like circuit boards etched in stone.
+
+The sound is constant—a industrial symphony of clicks, hums, buzzes, and hisses. Steam vents provide a bass note, while millions of wing beats and mechanical movements layer into a complex drone. During the peak heat of midday, the entire cliff face resonates with harmonic frequencies as different species synchronize their activities.
+
+This is a place between states—between liquid and gas, between stone and soil, between the mechanical and biological. Fresh from the earth's forge, it hosts a riot of life that processes raw planetary heat into forms that blur the line between organism and machine. The density of life pressed into this narrow vertical world creates its own logic, where creatures stack upon creatures, each finding its thermal niche in the gradient between volcanic heat and mountain cold.

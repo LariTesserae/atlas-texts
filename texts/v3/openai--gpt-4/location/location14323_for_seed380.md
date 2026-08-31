@@ -1,0 +1,15 @@
+Welcome to Sundow Town, a place mysteriously insulated by nature and man from the world above. 
+
+Enveloped in a damp coolness, the town vibe is a union of the natural and manmade, a celebration of their stark contrasts and mutual dependencies. A limestone crust above shields this subterranean borough from the overbearing sun, casting Sundow in an eternally dim light that's akin to the glow of an overcast dusk. Sparse patches of vegetation, stubbornly persevering under the earth's palette of ochre and slate, adds a precious dash of green to the otherwise monochromoatic canvas.
+
+The heart of Sundow is encircled by a large marshland; a composite of standing water pools, moss-draped rocks, and undulating reeds that commune with cool breezy wisps. This natural border acts as the town's self-regulated moat, its waterlogged terrain a weathered product of a slow, patient balance between saturation and evaporation. 
+
+The town's low-slung, industrial architecture, a testament to both its historic and current standing, bears the marks of long-existed erosion. Buildings, constructed from the same limestone that forms the cavernous ceiling, exhibit an organic patina, their blocks fitting together like solved puzzles. Hollow clangs of machinery echo in the heavy air, intertwining with the hum of electricity that powers the lamp-lined streets. 
+
+Sundow's crowning glory, though, is a majestic underground river that cuts across the town. Escaping through cracks and seeping through porous limestone, the river offers a symphony of burbling and dripping sounds. A large water wheel, powered by the river, orchestrates the town's hydro-mechanical life, lending both power and rhythm to Sundow's population.
+
+Life here buzzes murmurously under the cool cavern roof. Streets, though narrow, are punctuated with the chattering of people. Their voices bounce off the limestone walls, creating a subdued harmony, a reassuringly familiar tune that ties the hours of day and night together in a timeless loop. The fauna too, is abundant yet peculiar. A thriving population of blind cave salamanders, bats, and glowworms cohabit the town alongside the humans, all adapted to the town's below-surface eccentricities.
+
+Strange sights exist in corners of Sundow. Abandoned bicycle workshops come to life at midnight, healing injured inanimate objects while the rest of the town snoozes. Townfolk who have 'disappeared' can often be heard conversing through ventilation shafts, their words being mistaken for the wind. The river mysteriously recedes on the third day of every third month, leading to sightings of age-old artifacts and midnight picnics on the river bed. 
+
+In Sundow, the concept of day and night seem merged, and time seems to move at its own tranquil pace. There’s no rush here, only the slow ticking of the industrial heart as it beats in rhythm with the natural elements. Everything, from the moss that freckles the town's stony facades to the iron gear within factory infrastructure, moves with a deliberate cadence, an intoxicating slow dance between the organic and the man-made.

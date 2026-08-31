@@ -1,0 +1,15 @@
+This is not a world that grew; it is a world that was installed.
+
+Under a haze of permanently suspended moisture, the landscape stretches toward a horizon that feels too far away, composed entirely of interlocking, industrial basins. There is no soil, no rock, no bedrock. The substrate is a matte-finished, synthetic polymer—cold to the touch yet radiating a persistent, low-grade warmth. It is a surface designed to outlast entropy, a vast floor of tessellated hexagonal tiles that hum with a faint, tectonic thrum.
+
+The surface is permanently wet. A viscous, nutrient-rich condensate blankets the floor in a shimmering, uniform film. It drips rhythmically from the underside of massive, cantilevered pipes that arc overhead like the ribs of a cathedral, weeping a clear, heavy fluid that pools in the grout lines of the hexagonal grid. There are no plants here, no photosynthesis, no chaotic green struggle for sunlight. Instead, the "fauna" occupies every available coordinate.
+
+The density of this place is claustrophobic, yet the silence is near-total. Thousands of arachnoid maintenance units, built from brushed chrome and pulsing with amber filaments, cling to the vertical pylons. They are the fauna of this world, overlapping in layers, stacking atop one another in a state of perfect, crystalline equilibrium. They do not hunt or play; they simply hover in a state of maintenance, their multi-jointed limbs locked into the grid. They are a mosaic of metal and biological synthesis, an overwhelming architecture of limbs and sensors that never twitch.
+
+Because the physics of the site are locked in a state of permanent "construction-ready" stasis, there is no erosion. The sharp, right-angled corners of the architecture are as aggressive and precise as the moment they were forged. Nothing rusts, nothing flakes, nothing settles. The light, cast from an unseen, diffused source above the condensation layer, treats every surface with a clinical, shadowless honesty.
+
+Everything is wet, yet nothing is washed away. The fluid flows in pre-programmed recirculating loops, pumped through capillary vents in the floor and pulled back into the ceiling pylons by electromagnetic suction. It is a closed circuit of hydration.
+
+If you were to stand in the center of one of these continental basins, you would hear only the soft, rhythmic *click-hiss* of an occasional valve balancing the pressure of the air, and the wet, squelching sound of the ambient fluid being moved across the floor. You would see millions of the chrome-arachnids, their thousands of eyes flickering in unison to a signal that no organism feels but them. 
+
+There is no sky here, only the underside of an immense, layered superstructure of cooling fans and coolant conduits, stretching for thousands of kilometers. This is a factory that has completed its primary objective, yet continues to maintain its own existence with the terrifying, static devotion of an engine that refuses to shut down. The world is a masterpiece of total design, cold, wet, warm, and perfectly, dead-still alive.

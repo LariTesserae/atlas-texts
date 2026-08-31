@@ -1,0 +1,39 @@
+Far beneath a cold northern strait lies a drowned plain that has almost finished becoming flat.
+
+It is not smooth. It is crowded beyond measure: stone packed against stone, slabs over cobbles, cobbles pressed into gravel, gravel worked into every seam. But the relief is low and ancient. Whatever mountains once stood here were planed down by ice, drowned, and planed again by floating ice keels. The seabed extends for many leagues as a dark, shallow basin between worn ridges. Nothing rises sharply. Even the largest outcrops have the blunt backs of animals long asleep.
+
+The sea occupies everything. Water fills cracks inside the rock, the cavities of dead shells, the porous beds of sand. It hangs heavy with glacial flour, so that darkness begins well before the true depth should require it. Above, the surface is rarely visible. At best it appears as a shifting pallor, a remote ceiling continually torn and repaired by waves. Most of the time there is only gradation: black below, iron-gray above.
+
+The water is near freezing. Along the basin floor, dense brine slides in sheets through hollows and channels, colder than the water above it. It pools invisibly in depressions. A fish entering one of these pockets may shudder, slow, and turn away. In winter, needles of anchor ice grow directly from stones. They gather sediment, shell fragments, and bits of weed until the bottom sprouts low, brittle thickets of dirty ice. When the current changes, entire patches tear free and tumble away.
+
+Nothing here is still, though almost everything appears still.
+
+Tides are forced through the long strait and compressed between the submerged ridges. The flow descends in one place and climbs in another, folding over itself in broad, violent rolls. Sand does not drift gently. It races close to the bottom in pale ribbons, vanishes behind a ridge, then bursts upward as a column. Gravel chatters in runnels. Flat stones are worried back and forth for centuries, polishing hollows beneath them. During storms, pressure from the surface reaches down as a slow, bodily heaving. The whole plain seems to breathe, lifting clouds of silt with each pulse and laying them down somewhere else.
+
+Change is constant, but it produces almost no novelty. Every sharp edge is removed. Every mound is eventually spread. Channels open, migrate, and close again; the same material is endlessly rearranged into nearly the same forms. The turbulence is the last labor of erosion, continuing long after there is anything grand left to destroy.
+
+There is little vegetation. In the dimmer shallows, a few tough kelps fasten themselves to stable rock, their blades dark brown and narrow from the cold. They do not form forests. Each stands alone or in small groups, pulled nearly horizontal by the current. Farther down, plant life gives way to thin stains of algae on stone—olive, rust-red, almost black. These films grow so slowly that a passing ice keel can erase decades with one scrape.
+
+Animals are rare enough to become events.
+
+A pale cod may appear at the limit of sight, hold motionless against the flow, and disappear without seeming to swim. Small amphipods shelter beneath stones. Worms live deep in packed sediment where the current cannot lift them. Here and there, a starfish crosses an open slab, its progress perceptible only by returning hours later. Seals sometimes descend from the broken surface, but they do not linger. Their passage is swift and purposeful, a silver exhalation and a turn of the body, then empty water again.
+
+The seabed is densely occupied not by life but by the remains and pressures of the world: stones, compressed mud, buried driftwood blackened by age, shell grit, pockets of old ice, layers of sand stacked one upon another. There is almost no bare space. Push aside one pebble and another lies beneath it. Under that is another, and below that a pavement of bedrock scored in parallel lines by glaciers that vanished thousands of years ago.
+
+No structures stand here. No walls interrupt the current, no stakes rise from the bottom, no worked metal catches what little light reaches down. The place offers no secure foundation and no reason to build. Along the distant coasts, people with stone blades, bone points, hide rope, and small skin-covered boats may know the strait by its surface moods. They know where seals emerge and where currents seize a weighted line. They have names for the waters, perhaps many names, but they leave almost nothing below. A chipped sink-stone or lost bone hook, if dropped here, is quickly swallowed into the crowded gravel and becomes indistinguishable from the natural debris.
+
+Sound is subdued despite the violence. There is no continuous roar. Water carries pressure more than noise: a deep concussion when distant ice breaks, a faint granular hiss as sand moves, the intermittent ticking of stones touching stones. A submerged ridge may hum at the turn of the tide, too low to be heard so much as felt in the jaw and ribs. Between these sounds stretches a thick quiet. Even storms arrive muted, as repeated blows from another world.
+
+The strongest signs of the surface are light and weight. At noon in summer, a dull blue-gray reaches the higher ridges. In winter there may be no daylight at all, only a slight loosening of the dark when snow-covered ice shifts overhead. Storm waves alter the pressure rhythm. Rain is imperceptible from below. Wind has no voice here except through the labor it gives the sea.
+
+Across the basin are broad scars where icebergs have grounded. Some are old and softened, their furrows half-filled with gravel. Others are fresh trenches, raw pale cuts through darker sediment, with stones pushed into ridges along either side. A grounded berg may remain for days, grinding with each tide. It blocks currents, creates sudden eddies, and crushes whatever sparse life had established itself beneath. Then it lifts or fractures, and the water floods back through the wound.
+
+These scars are the nearest thing the plain has to roads, though they lead nowhere and are soon erased.
+
+There are deeper hollows where cold water collects and fine sediment settles. In them, the turbulence falls away. The bottom becomes smooth, almost featureless mud. A dropped shell lands without a sound and sinks halfway. These quiet basins preserve tracks briefly: the five-point trace of a starfish, the paired furrows of a crab, the soft impact of falling debris. But the next tidal surge sends a veil of silt across them, and the record closes.
+
+The landscape is open enough to lose direction in. Ridges repeat. Furrows cross furrows. Visibility contracts and expands with the moving sediment, sometimes several dozen paces, sometimes no farther than an outstretched hand. There is no landmark that remains reliable. A boulder remembered from one passage may be buried on the next. A channel may reverse. The current itself becomes the only orientation, and even that turns with the tide.
+
+Yet this is not an alien place. Nothing here behaves outside the ordinary laws of cold water, gravity, stone, and time. Its severity comes from those laws acting without interruption. The sea moves because it must. Ice descends until buoyancy stops it or rock does. Sediment settles whenever it is allowed and rises whenever it is not. Life enters cautiously, holds for a season or a century, and is scraped away.
+
+The drowned plain has endured so long that endurance no longer resembles permanence. It is perpetual disturbance settling toward the same ancient form: lower, rounder, darker, more tightly packed. Beneath the storming surface, in cold water full of moving earth, the world is being flattened grain by grain.

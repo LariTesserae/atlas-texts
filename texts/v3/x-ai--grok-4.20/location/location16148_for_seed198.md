@@ -1,0 +1,28 @@
+The place is called the **Weeping Stacks**.
+
+It is a high, folded plateau where every surface has been claimed, rebuilt, and kept in continuous mechanical motion for so long that the original geology is only a dim memory beneath kilometers of rust, concrete, and living pipework. Nothing here is raw anymore. The entire regional landscape—hundreds of square kilometers—has been turned into one saturated, dripping machine.
+
+The air itself is wet. A cold, mineral mist condenses on every beam, every cable tray, every cooling fin. Water beads, runs, drips, and is immediately caught by gutters, redirected through thousands of deliberate weeping channels cut into the flanks of the structures. The rocks that still protrude through the built crust are black and glossy, perpetually streaked as though the plateau itself has been crying for centuries. You can hear the water everywhere: a soft, constant ticking and pattering, thousands of separate drips falling at different rhythms, never quite in unison.
+
+Vegetation is outrageous in its density. Pale, cold-loving mosses, ferns, and liverworts have colonized every horizontal surface and every crevice where sediment or lubricant has gathered. Their color is a saturated emerald that almost hurts the eye in the dimness. Thick ropes of ivy-analogues drape between exhaust stacks; mats of clubmoss spill over the lips of vast settling tanks like green waterfalls. The plants do not fight the machine; they have become part of its weather. Their roots tap into condensation pipes for nutrients. Their leaves are perpetually wet, shining, and trembling with the low-grade vibration that never stops.
+
+The temperature is cool enough that your breath fogs, yet the sheer density of operating machinery keeps the air from ever growing truly cold. Heat radiates in slow, invisible pulses from buried turbines and chemical reactors, meeting the weeping mist and creating endless micro-climates: pockets of warmer fog, sudden chilly downdrafts that smell of ozone and wet iron.
+
+Everything is built. There is no ground that is not also a roof, a foundation, a service duct, or a pressure vessel. Walkways, gantries, and service ladders form a three-dimensional lattice so dense that line of sight rarely exceeds thirty meters in any direction. Pipes of every diameter braid and re-braid overhead like steel lianas. Conduits, catenary cables, pneumatic tubes, and fiber-optic vines thread between them until the sky is only a memory seen through a ceiling of infrastructure. The scale is open in the worst way: you can walk for days and the character of the place barely changes. Valley after valley of the same saturated industrial organism stretches away under a low, iron-colored ceiling of cloud.
+
+The sound is mostly quiet, yet never silent. A deep, organ-like thrum lives inside the bones of the plateau—turbines, pumps, and vast slow compressors turning in cavernous halls below. Over that bass note floats the constant delicate percussion of dripping water and the occasional metallic clank or hiss as some valve cycles. Voices rarely carry; the architecture swallows them. When people do speak (maintenance crews in oil-stained coveralls moving in small, serious teams), their words stay close, conspiratorial.
+
+The ecology is strangely stable despite the turbulence. Fauna is rare—mostly small, quick things: pale millipedes the length of your forearm, flightless moths that drink from the weeping rocks, and a species of black-furred rodent that has learned to ride the slow conveyor belts between sectors. Larger animals have long since been engineered out or simply found no purchase in the packed, trembling density.
+
+And the place is turbulent. Not in the sense of storm or explosion, but in permanent, hyperactive metabolic change. Nothing is ever finished. Sections of the Stacks are constantly being demolished by remote cutting machines while, only fifty meters away, new modules are being grown from prefabricated fungal concrete and living steel armatures. Old pipes burst and are immediately sleeved by robotic repair swarms that look like chrome centipedes. Vast chemical gardens of mineral precipitate bloom and are scraped away in the same afternoon. The entire landscape is in a state of continuous, anxious self-repair and self-reinvention, like a body with an immune system that never learned to stop.
+
+Light is dim. What illumination exists is industrial and sickly: sodium lamps behind steel cages, cold blue strips along safety walkways, the occasional orange flare of a vent stack burning off excess gas. Most of the color in the world therefore comes from the wet moss, the rust, and the strange chemical stains that bloom across every surface where different leaks have mixed.
+
+There are rules here, though they are felt rather than written.
+
+- Nothing may remain static for long.  
+- Water must be kept moving and weeping; stagnation is the only real sin.  
+- Every structure must remain connected to the nutrient and data veins that thread the plateau. To be cut off is to be sentenced to demolition.  
+- The mist belongs to everyone and no one; breathe it, drink it, let it coat your lungs. It is the blood of the place.
+
+Stand on any high catwalk and you will feel the whole vast organism breathing beneath your boots: cold, wet, impossibly dense, ancient and newborn at once, quietly roaring with the low industrial hymn that has not ceased for eight hundred years. The Weeping Stacks do not dream of becoming anything else. They are already everything, forever in the middle of remaking themselves.

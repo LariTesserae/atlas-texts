@@ -1,0 +1,47 @@
+# The Crevice Rookery
+
+---
+
+There is a crack in the high plateau — not a canyon, not yet a valley, just a fissure where the earth has begun to disagree with itself. Maybe forty feet long, narrowing at both ends to seams you could press your palm across, widening at the center to perhaps the breadth of two outstretched arms. The walls descend twelve, fifteen feet — raw faces of pale volcanic tuff still sharp-edged, still fresh, the grain of the rock exposed as though the split happened recently in geological time. Centuries ago, maybe. Maybe less. The edges haven't learned to be smooth yet. Fragments of the original surface crust still cling to the upper lips of the walls, and in places thin shelves of rock jut out where the fracture took a lateral step, creating ledges barely wider than a hand.
+
+Every one of those ledges is occupied.
+
+---
+
+The sound hits you before you see down into it. You'd be walking the high plateau — warm basalt dust under your feet, sparse tufts of wiry brown grass growing in wind-scoured patches, the sky a hazy pearl-grey that never fully commits to overcast or clear — and you'd hear it rising out of the ground. A living wall of noise. Shrieks, croaks, a guttural churring that vibrates in your sternum, the papery clatter of wings adjusting and readjusting in tight quarters, the wet percussive sound of beaks fencing. It sounds like the earth itself is arguing.
+
+You approach. The plateau gives no warning — it's flat, featureless, the fissure invisible until you're nearly at its lip. Then the ground simply stops being continuous, and you're looking down into a slot of shadow and motion and noise.
+
+---
+
+Birds. Hundreds of them, maybe over a thousand, packed along every available surface of the interior walls. They are colonial nesters — something between a swift and a petrel in body plan, dark-backed with pale bellies, their eyes large and reflective for the dim interior light. They've claimed every ledge, every crack-within-the-crack, every roughness in the tuff where a body can be wedged and a scrappy nest of dried grass stems and shed feathers and their own hardened guano can be constructed. The nests are crude, barely cupped, but they cover the walls in uneven vertical constellations. Where the fissure widens, the colonies are denser; where it narrows, birds compete for single-occupancy niches with a ferocity that produces most of the shrieking.
+
+They've been here long enough that the lower walls are painted in long streaks of white and grey-green guano, and this — the guano — is what connects everything else. Where it's thickest, where the drippings have accumulated into a crusted substrate along the narrow floor of the fissure, a few plants have taken root. Not many. A single fern, improbably green, uncurling from a crack where moisture and nitrogen meet. Several clumps of moss on the shadowed northern wall, growing on a slick of condensation that forms each night as the warm air rising from the bird-mass meets the cooling rock. A pale lichen, nearly invisible, just beginning to etch its slow chemistry into the raw tuff.
+
+The moisture is all biological and atmospheric. No spring feeds this crevice. No stream runs along its floor. But the birds breathe, and their bodies are warm, and the plateau air is dry enough that when the temperature drops in the evenings the interior of the fissure becomes briefly humid — a pocket of animal warmth exhaling against cold stone. By morning the walls glisten faintly. By midday they're dry again. This is the water cycle here: breath and condensation, a rhythm set not by weather but by the thermodynamics of a thousand small living furnaces pressing themselves against rock.
+
+---
+
+The floor of the fissure — what little of it is visible beneath the guano crust — is new rock. Unweathered. In places you can see where the fracture surface is almost crystalline, the tuff revealing its internal structure of compressed ash and tiny pumice fragments, glinting faintly where the dim light from above reaches down. The rock is still becoming what it will be. Erosion has barely touched it. The only weathering agents are the birds themselves: their acid waste slowly etching the first millimeters of surface, their claws wearing faint grooves into the ledges where they land and shuffle and land again. In a thousand years the walls may be sculpted into something smooth and scalloped. For now they are raw and geometric, the fracture planes still legible, the stone's biography still freshly written.
+
+At the very base of the fissure, where it's darkest, the two walls nearly touch, and here in the permanent shadow small invertebrates live in the guano crust — beetles with flattened bodies, pale and eyeless or nearly so, moving slowly through the compacted layers of waste. Mites. Things too small to name without a lens. They are the decomposers, the quiet foundation of this accidental ecosystem. Occasionally a bird dies — of age, of a nesting dispute, of some unknowable avian failure — and the body falls to the floor and is processed by this community into something the fern can use.
+
+---
+
+There is one built thing. Partway along the fissure, wedged between the walls about four feet below the rim, someone placed — or dropped, or lost — a structure of stacked flat stones. Three stones, each about the size of a dinner plate, balanced atop one another in a deliberate cairn. It is mortared with nothing. It has no obvious purpose. It might have been a marker. It might have been a test of the fissure's width. It might have been a child's game. The birds have incorporated it — two nests sit on the uppermost stone, and the guano has begun to cement the whole assembly into the wall. Whatever human intention placed it there has been consumed by the colony's indifferent use. There are no other signs of people. No paths lead to the fissure's edge. The plateau is too high and too dry and too far from anywhere for regular visitation.
+
+But someone was here once. Someone heard this sound rising from the cracked earth and walked to the edge and looked down.
+
+---
+
+The light inside the fissure is complicated. From above, the opening is narrow enough that direct sun only enters for perhaps an hour around midday, and even then it falls as a sharp blade that moves across the eastern wall, illuminating a strip of nests in blinding detail — every feather barb, every fleck of mineral in the tuff — while the rest of the interior remains in a deep blue-grey shadow. The birds in the lit strip squint and shift uncomfortably, waiting for the beam to pass. Those in shadow are more at ease, their large eyes well-adapted to the ambient glow of reflected and scattered light that is the fissure's normal illumination. In early morning and late evening, the crevice is genuinely dark, and the colony quiets — not to silence, never to silence, but to a lower register, a murmuring, a collective sighing sound of settled bodies and small adjustments, punctuated by the occasional sharp alarm call when something disturbs a sleeper.
+
+Above, on the plateau, the light is different — flat and warm, the hazy sky acting as a diffuser, casting almost no shadows on the dusty ground. The contrast between the open plateau and the interior of the fissure is stark. To look down into the crevice from the bright rim is to look into a world operating under different optical rules.
+
+---
+
+What's unusual about this place — what makes it register as not-quite-ordinary even before you understand why — is the sensation of sound emerging from solid ground. On the open plateau there is almost nothing: the wind, thin at this elevation, moving across the grass. Your own footsteps. Then this upwelling of organic noise from a source you cannot see, as though the rock itself has a voice and opinions. The fissure is so new, geologically, that it hasn't yet appeared on whatever maps or knowledge systems might describe this plateau. It is a hidden feature in a landscape that presents itself as featureless. You could walk the plateau a dozen times and miss it if you passed twenty feet to either side.
+
+And the birds know this. The colony exists precisely because the fissure is invisible from a distance, because the high plateau discourages predators who hunt by sight across open ground, because the raw walls offer a thousand imperfections to nest in. The fissure is not just their home but their strategy. They pour out at dawn — a rushing upward eruption of dark wings that disperses across the sky in every direction, fanning out over the plateau and the lands below to feed — and they pour back in at dusk, converging from all points of the compass into a spot that, from even a modest altitude, is simply a line in the dust. This is the dynamic of the place: the twice-daily pulse of departure and return, the slow accumulation of guano and the slower etching of stone, the fern adding one frond per season, the lichen advancing its frontier by a centimeter per decade, and below it all the rock continuing its patient project of becoming a crack, then a crevice, then — in some unimaginably distant future — perhaps something wide enough to lose its inhabitants, who will move on to find the next fresh wound in the earth.
+
+For now, though, it is theirs. A slot of shadow and warmth and tremendous noise, hidden in a quiet highland, smelling of ammonia and damp feathers and new stone.

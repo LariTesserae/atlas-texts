@@ -1,0 +1,3 @@
+This is the **Mycelial Metropole of the Veingate Lowlands**, a place where the concept of "ground" has been permanently discarded in favor of a roiling, self-assembling architecture of living cellulose and fungal logic. 
+
+There are no rocks here. The substrate is a dense, warm, and hyperactive mass of braided root-towers and chlorophyll-slicked filaments. You stand—or rather, you are cradled—upon a massive, pulsating dais of calcified bark that seems to be in a constant state of digestion and regrowth. It is hot, a persistent, humid warmth that smells of ozone, ferment

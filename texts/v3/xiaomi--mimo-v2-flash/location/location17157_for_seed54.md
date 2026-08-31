@@ -1,0 +1,32 @@
+Here is the Shroud of Silt.
+
+**The Atmosphere and Light**
+You are standing on a high plateau, kilometers above a world you cannot see, yet the air is not thin—it is saturated, dense, and cold enough to freeze breath into immediate dust. The light is a deep, bruised midnight, yet it is not entirely dark. The landscape generates its own illumination: a faint, residual bioluminescence not from biology, but from the ionization of the atmosphere itself. Electrical potential crackles in the air, making the darkness vibrate with invisible currents. The sky is a dome of absolute black, broken only by the strobing arcs of silent lightning that crawl across the cloud layer like slow-moving veins.
+
+**The Terrain and Water**
+The ground underfoot is not soil. It is a spongy, yielding lattice of precipitated minerals—calcium sulfate, silica, and metallic oxides—that have accreted over millennia into a porous stone. This stone is perpetually damp. Water does not flow here; it breathes. From the weeping rock faces and the open fissures in the ground, moisture condenses and exudes in a slow, steady seep, coating every surface in a slick, glass-like film. The air is so cold that this water never freezes; it remains a liquid brine, heavy with dissolved salts and rare earth elements. The ground is a mosaic of shallow, interconnecting pools and capillary channels, reflecting the faint sky-glow in fractured, mirror-like patterns. The sound is a constant, low-frequency thrum—the sound of millions of tons of water seeping through mineral labyrinths, a sub-audible vibration you feel in your teeth.
+
+**The Urban Density**
+This is not a natural landscape, though it is ancient. It is a city, or the ghost of one. The "buildings" are not constructed from blocks or steel, but are grown—precipitated from the atmosphere and the seeping brine into towering, lace-like structures of crystalline mineral. They spiral upward in fractal patterns, their walls thin as paper but strong as diamond, interlocking with a density that makes movement through the streets a claustrophobic squeeze. There are no roads, only channels where the water flows more freely, and footpaths worn into the mineral crust by the presences that still inhabit this place.
+
+The infrastructure is layered. At the surface, the architecture is delicate, crystalline. Below, where the ground is more solid, are the older foundations: massive, geometric plinths of basalt and engineered alloys, their edges softened by millennia of mineral deposition. The entire settlement is a single, continuous structure, grown and built upon itself until the distinction between natural and artificial has been erased.
+
+**The Ecology of Absence and Presence**
+There is no plant life. No moss, no algae, no lichen. The cold and the chemical saturation of the brine make photosynthesis impossible. Yet the place is overwhelmingly alive.
+
+The fauna is not biological in any recognisable sense. It is a swarm of nanoscopic and macroscopic presences that operate on the edge of physics. At the lower scales, the air is thick with self-replicating mineral spores—tiny, geometric particles that drift on the faint air currents, settling on surfaces and adding to the crystalline growth. They are the "dust" of this world, and they are intelligent, processing information through piezoelectric signals.
+
+At the larger scale, there are the **Shroud-Walkers**. These are entities of condensed atmosphere and charged particulates, forming temporary, mobile bodies that drift through the canyons of the city. They are slow, their movements dictated by the gradients of humidity and electrical potential. They are not predators; they are processors. They consume the excess mineral precipitates and reconfigure them, shaping the growth of the city itself. Their forms are cloud-like, dense with light-absorbing particulates, and they emit a low, resonant hum as they restructure their own bodies.
+
+The "fauna" is overwhelming not in numbers, but in saturation. Every cubic meter of air contains millions of these entities, from the microscopic spores to the cloud-like Walkers. The space is never empty. You are constantly brushing against presences that are not solid, but that exert a subtle pressure—a density of information and matter that feels like a constant, gentle push.
+
+**The Rules of theWorld**
+1.  **Growth by Precipitation:** The city grows by drawing water and minerals from the atmosphere. The rate of growth is slow, measured in centimeters per century, but it is relentless. The landscape is always under construction.
+2.  **Information in the Brine:** The seeping water is a data medium. The mineral spores encode information in their crystal structures, and the brine carries this data through the capillary channels of the city. The entire settlement is a single, distributed computer, processing the history of the atmosphere and the slow cycles of the weather.
+3.  **Cold is a Medium, Not a Limit:** The extreme cold does not halt activity; it defines it. Processes are slowed to geological timeframes. The nanoscopic spores operate on quantum principles enhanced by the cold, allowing for coherence over macroscopic distances. The Walkers move with the patience of glaciers, their decision-making cycles lasting years.
+4.  **The Sound is the Data Stream:** The constant, low-frequency thrum is not just the sound of water. It is the carrier wave for information. The vibrations travel through the mineral crust and the brine, a slow, dense communication network. The "loudness" of the landscape is the volume of this data stream, a cacophony of mineral logic that drowns out all biological noise.
+
+**The Experience**
+To stand here is to be immersed in a world that is both deeply silent and overwhelmingly loud. The visual is one of stark, dark beauty—black crystalline towers, slick with condensation, reflecting the faint, stormy light from above. The air is cold enough to ache, but the constant presence of the presences makes the space feel crowded, intimate, and slightly claustrophobic.
+
+You are in a high, wet, dark, and dense city of mineral growth, where the inhabitants are clouds of intelligent dust and the city itself is a slow, cold computer, dreaming in brine and crystal.

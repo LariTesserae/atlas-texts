@@ -1,0 +1,11 @@
+In the humid dimness of a vast subtropical swamp, life teems in overwhelming abundance. The air is thick and still, heavy with the pungent scent of vegetation perpetually rotting and regrowing in a primordial cycle.
+
+Sprawling, tangled mangrove thickets stretch to the horizon, their gnarled roots plunging into shallow, brackish waters. The dense canopy of leaves overhead filters the already weak sunlight into an eternal green twilight, punctuated by shafts of hazy illumination that spotlight the buzzing, chirping, croaking cacophony of the swamp's denizens.
+
+Everywhere, the landscape pulses with life. Dense clouds of insects swarm above stagnant pools coated in fluorescent algal blooms. Armies of burrowing crabs reshape the soggy banks. Legions of frogs and toads populate every surface, occasionally erupting in raucous choruses. Snakes and lizards of all sizes drape from twisted branches and vines. The waters churn with fish, turtles, and the occasional menacing flash of a crocodile's armored tail.
+
+This place feels both lush and oppressive, bursting at the seams with life, yet tinged with a sense of constant decay — an ancient heaviness, a cloying overripeness, the breath of centuries of undisturbed fecundity verging on putrefaction. And yet there is an undeniable raw vitality, a sense of nature asserting itself with unrelenting vigor.
+
+Inky waters glint between buttress roots. Mushrooms in lurid hues sprout from fallen logs. Epiphytes and strangler figs festoon the branches in messy tangles. Strange flowers dangle, oozing nectar and nauseating perfumes to attract the swamp's myriad pollinators. The place seems to invent new forms of life at every glance.
+
+There is an uncanny sense that this proliferation happens independent of outside influence, as if the swamp is dreaming itself into existence from moment to moment in a timeless reverie. A landscape suspended in its own unreality, answering only to the slow accretion of biomass, the languorous unfolding of eons of unwitnessed evolution. Here, nature is the only driving force, playing out its generative whims on an operatic scale, heedless of the world beyond its shroud of steamy air and drooping foliage.

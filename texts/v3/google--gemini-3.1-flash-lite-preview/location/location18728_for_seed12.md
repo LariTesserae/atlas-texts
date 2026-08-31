@@ -1,0 +1,17 @@
+The world of Oor is not found by looking down, but by looking *into*. It is a place of perpetual suspension, where gravity feels like an afterthought. High above the solid crust of the planet, miles of atmospheric density have thickened into a breathable, tepid soup—a vertical ocean of saturated mist and pressurized vapor that supports the growth of the Suspension Cities.
+
+This is a world of high-altitude buoyancy. The landscape is not made of earth, but of gargantuan, bioluminescent fungal mats that have anchored themselves to crystalline spires rising from a hidden, unseen base far below. The vegetation is lush, though it does not photosynthesize; instead, these wide, velvet-soft sponges feed directly on the heavy, nutrient-rich moisture that hangs in the air. 
+
+Everything here is perpetually wet. The "ground" is a spongy, moss-covered scaffolding that ripples when stepped upon, and the architecture of the settlement reflects this lack of rigidity.
+
+The city—if such a word fits—consists of intricately woven platforms tethered to the fungal stalks by thick, fibrous vines. The dwellings are teardrop-shaped husks fashioned from hollowed-out gourds and reinforced with cured seaweed-leather. There is no metal here. Tools are fashioned from the hardened, calcified teeth of the deep-mist drifting jelly-creatures, or carved from the obsidian-like glass that periodically leaches from the raw, embryonic rock faces behind the fungal mats.
+
+Light is a precious, rare commodity. The atmosphere is so dense with suspended water that it acts as a filter, bathing the city in a perpetual, muted twilight—a heavy, bruised violet. Phosphorescent spores drift through the "streets" like living embers, providing the only illumination. These spores are attracted to heat; when a group of people gathers to chant or move, the air glows brighter, a localized warming that draws more drifting light toward them.
+
+The sound is a cathedral-hush. Because the air is so thick, sound traveling any distance is muffled, turned into a dull, thumping bass. You do not hear footsteps; you hear the soft suction of feet pulling away from the damp, sponge-like floor. There is no wind, only the slow, glacial shifting of the hanging gardens. 
+
+Fauna is sparse, limited to the *Silk-Gliders*—translucent, multi-limbed creatures that drift between the fungal plateaus like kites caught in a slow current. They are silent observers, their movements so methodical that they seem more like geological features than living things.
+
+The erosion here is not caused by rain or river, but by the slow, chemical consumption of the environment. The structures are "growing" as much as they are being built. Residents spend their cycles applying nutrient pastes to the walls of their homes, coaxing the organic material to thicken and harden. It is a slow, patient labor. Nothing is finished; everything is in a state of becoming. 
+
+To live in Oor is to recognize that stability is a myth. You move slowly, because to move quickly would be to disturb the delicate pressure balance of the moisture-curtain. One does not walk the streets of Oor; one drifts through them, a passenger in a vast, aqueous monument that is still, after eons, waiting for its final form to settle.

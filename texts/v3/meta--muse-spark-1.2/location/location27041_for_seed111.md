@@ -1,0 +1,43 @@
+At almost the top, there is a room.
+
+Not a room that was made. A room that happened.
+
+The mountain is too young to have learned how to be a mountain. It hasn't been smoothed. It hasn't been worn down into slopes. It was thrust up fast and hard and it is still sharp — a black knife of basalt and raw granite, glassy in places where the lift melted it, flaked and stepped in other places where it shattered as it cooled. There are no soft shoulders, no scree aprons yet. The edges are all still broken edges. You can see where the rock *tore*. 
+
+You have climbed for days to get out of the air. At this elevation, above 5,000 meters perhaps, above any tree, any meadow, the air is thin and cold and wrong in your lungs. It is a cool that lives deeper than wind-chill — a still, high, mineral cold that makes your teeth ache. Each breath is shallow. The sky should be huge here but it isn't; you are so high that the world has narrowed to this one flawed crown of stone.
+
+And then the ridge notches, just below the true summit, and drops into a hollow.
+
+That's the place. The scale of it is almost intimate, embarrassing after the immensity of the ascent. Maybe thirty meters across, an oval bowl, a bitten-out tooth socket in the summit crown. On three sides the walls go straight up — five, seven meters of fresh, unweathered wall, still showing the vertical striations of the uplift, still black-grey and faintly steaming with cold. On the fourth side the bowl is open to the fall. No parapet. One step beyond the lip and the mountain simply ends and becomes air for a kilometer straight down. The wind that circles the peak can't get in here. The hollow is sheltered. That is why everything is here.
+
+At first in the dark you think the floor is stone.
+
+There is almost no light. Not the darkness of night exactly, but the darkness of altitude in shadow — the sun never crests the summit wall, the bowl faces north and is perpetually eclipsed by its own rim. What light there is comes as a diffuse, star-thick indigo, or perhaps as the faint airglow off the thin clouds far below you. It is not enough to see color. It is enough to see texture. And the texture is moving.
+
+The floor is not stone. The stone is there, somewhere underneath — a young, pitted basalt floor, sharp as broken teeth — but you can't see it because it is covered. Packed. Layered. Dense beyond any flock or herd you have expected to find at such a lifeless height.
+
+They are here for the damp.
+
+Water is scarce this high and this cold, but the bowl is a trap for it. During the day, the sun heats the black summit above, sublimating the summit ice. At night — which is almost always in here — that vapor hits the cold trap of the hollow and condenses. It beads on the walls. It weeps down the vertical striations in slow, dark trickles. It collects in shallow, stone-lipped pockets no bigger than a cupped hand, and in a single, central pool no wider than a doorway, black and perfectly still and rimed with a lace of frost that never quite freezes solid. The air itself feels damp, not wet — your lips crack and yet your hair is beaded with dew.
+
+And where there is even intermittent water at the roof of the world, there is life, but this is too much life. This is overwhelming life.
+
+They are the white ones. Or the pale ones. In the dark you can only tell they are pale because they are paler than the rock. They are not birds, not mammals, not insects as you know them, but something that borrows from all three. Each is about the length of your forearm, with a humped back and six jointed limbs folded tight to its body, and a head that is mostly mouth and feathery antennae. Their bodies are covered in a dense, wool-like down that traps heat, and beneath that, translucent wings folded like damp paper. They do not fly here — the air is too thin and the bowl too crowded.
+
+They cover every surface. They coat the floor three and four deep, layered over each other in a slow, breathing mat. They cling to the vertical walls in overlapping shingles, each gripping the sharp basalt with hooked feet. They hang from the overhang of the rim. Where the trickles run, they line up head-to-tail to drink. Where the central pool is, they ring it in a tight, jostling corona. There are thousands. The bowl, which should be empty and silent, is saturated.
+
+Vegetation, by comparison, has almost failed. There are only a few things that can root in this cold trap — a crust of black-green lichen that etches itself onto the wettest scars of the wall, and in the most sheltered crevices, five or six tufts of something like moss but harder, like tiny, stunted pine cushions made of needle-filaments that hold beads of condensation on their tips. They are sparse and low and brittle. The pale ones do not eat them. They seem to farm them, or tend them — you see individuals pause beside a tuft and brush it with their antennae, clearing grit, but never biting.
+
+Nothing here was built. There are no walls but the mountain's walls, no nests, no hives. And yet there is tech, of a sort that makes you uneasy because it is not human. Scattered through the mass are tools. Not made, but *found and kept*. A shard of obsidian glass, flaked to an edge, held delicately in two forelimbs by a larger individual who is using it to scrape lichen from the rock and pass the scrapings back to smaller ones. A hollow bird-bone, or something like it, being used as a straw to draw water from a pocket too deep for a mouth. A flat stone being dragged, inch by inch, to cap a tiny reservoir and slow its evaporation. No one individual owns these things; they are picked up, used, set down, picked up by another. Primitive, manual, hand-held — and used with a carefulness that suggests a long tradition without ever becoming architecture.
+
+The weirdness is not in any one of them. It is in how they are together.
+
+They breathe together. Not metaphorically. The whole mass inhales — a slow, patient draw that takes twenty seconds — and exhales, and with the exhale comes sound. That is the loudness of this place. In a bowl this small, with walls this hard and fresh, even breathing becomes a roar. Thousands of spiracles whistling at once, thousands of downy bodies rustling as they expand and contract, thousands of tiny claws readjusting on stone with a sound like dry leaves skittering. Under it all is a deeper hum, low in your chest, that seems to come from the rock itself or from the synchronized vibration of their wings, shivering without opening, generating heat. The sound is loud and layered and constant, but slow. Everything here is slow.
+
+That is the rule of the bowl: slowness as survival.
+
+At this cold, at this height, every motion is budgeted. The pale ones move as if through honey. An individual crossing the mat from wall to pool may take an hour, flowing over and under its fellows, never hurrying, never breaking contact. When one drinks, it stays at the water for a long time. When one scrapes lichen, the motion is repetitive and unvarying, a hundred careful strokes. Even the condensation is slow — you can watch a single bead form on the basalt, swell for minutes, and finally break and run in a sudden, bright line, and the nearest pale ones will all turn their antennae toward it in unison, as if they heard it coming long before it fell.
+
+The cold preserves. The height isolates. The bowl keeps. This is not a temporary gathering. This may be the entire species, the entire world for them — a single dense hamlet in a single high room at the top of a mountain too young to have eroded, living on intermittent moisture and lichen and each other's heat, sharing a handful of stone tools, breathing together in the dark so loudly that the walls tremble faintly with frost, waiting out the long, slow cycles of the summit winter that lasts years and the brief summer thaw that lasts weeks. They do not seem to notice you, or rather, they notice you as they notice a rockfall — as a temporary change in density that will, with patience, be incorporated or flowed around.
+
+If you stand at the open lip where the bowl gives way to open air, with the pale, humming carpet at your back and the void in front of you, the wind from below hits you for the first time — clean, thin, merciless — and carries with it, up from the world you left, the faintest smell of distant rain that will never reach this high. Behind you, the condensation drips. The mat breathes in. The basalt holds.

@@ -1,0 +1,27 @@
+It is a single room.
+
+Not a cave system. Not a valley. Just one room, sealed for so long and so completely that the world above has forgotten it is there. You get to it by accident — a fault slips, a salt dome thins, a drill bit punches through and drops three feet and stops. Below surface, but not deep. Just below. Shallow enough that the heat of the day still finds it, like a mouth held close to a stone.
+
+The room is about as wide as four people lying head-to-foot in a circle, and twice as tall as it is wide. Young. Obscenely young, geologically. You can tell by the edges. Nothing has had time to soften. The floor is a burst — a black basalt blister that cooled too fast and cracked into sharp, upturned plates, like a shattered windshield that still holds its shape. The walls are salt and sulfur crystal, not smoothed by water because there has never been water here. They are perfect and terrible, stair-stepped, bladed, knife-comb. Everywhere you look there are fresh cleaves that throw back the light.
+
+There is no water. Not a seep, not a stain, not a memory of it. The air is bone-dry and warm, 90, 100, constant, and it smells like hot iron and crushed rock. It should be dead.
+
+It is not dead.
+
+From every crack in that broken basalt floor grows something that is trying very hard to be a plant, and succeeding despite better judgment. Lush - but not green as you know green. These are fat, translucent, amber and smoke-colored things. They are not leaves. They are more like lungs, or sails. Thick columns as wide as your thigh rise a few feet, then open into broad, pleated bells, thin as paper, veined with black. They don't photosynthesize — there is almost no light — they eat the heat itself, they eat the sulfur outgassing from the salt. Waterless succulents that store not water but warm, pressurized air in swollen bladders. When you brush one it sighs. The bells are all faced slightly inward, toward the center of the room, as if listening.
+
+The light comes from them. A dim, milky glow at the seams where the pleats join, a light the color of old honey. It is not bright enough to make shadows sharp. It makes everything look like late afternoon underwater. In this light the crystal walls glitter without illuminating.
+
+And it is loud.
+
+You would expect silence in a sealed room. Instead, the room rings. The basalt floor is still settling, microscopically, forever, a fresh-formed skin. It ticks. Each of the bell-plants has a small, hard pore at its crown, a whistle-mouth. As the heat builds inside their bladders, they vent — a long, low, reedy note, all of them, all the time. Not in sync. Each at its own pitch, from insect-whine to a deep organ groan that you feel in your molars. The crystal walls catch it and throw it back amplified, so the whole pocket thrums. You have to raise your voice to hear yourself think. If you stay, your chest starts to resonate with them.
+
+The animals live inside the sound.
+
+They are abundant, but you don't see them at first because there is too much space between things and they match the bells. Moths — if you can call them moths — with wings made of the same pleated membrane as the plants, so thin you can see the light through them. They roost inside the bells, thousands of them, in the warm exhaust. They never leave the bell they were born in. White pill-bugs big as your fist that roll slowly between columns, scraping salt with a mouth like a rasp, leaving bright, fresh trails that never fade because dust never falls here. Thin black filaments that hang from the ceiling crystals, swaying though there is no breeze, that are actually colonies of something that twitch in time with the venting.
+
+Nothing moves fast. Nothing needs to.
+
+Because this place has come to equilibrium and stopped. That is its strangest law. It is warm, it is loud, it is alive, but it is not changing. The plants do not grow. The moths do not die. The salt bugs carve lines that fill back in behind them with new crystal overnight at the exact same rate. The notes from the bells have been the same three chords for a thousand years. It is not frozen as in cold — it is frozen as in balanced. A sealed equation. Energy in from the warm rock equals energy out as sound and dim light, forever. You could leave a footprint in the fine salt powder at the edge and come back in a century and it would still be there, crisp, because the air doesn't stir.
+
+There are people, or there were. Scattered. Not a settlement — one person at a time, over a long time. Near the far wall, where two crystal blades make a little lean-to, someone has stacked basalt shards into a low altar, three courses high, careful, hand-placed. Inside it: offerings. Tiny braids of dried bell-skin, brittle as straw, tied with hair. A hand-axe chipped from basalt, its edge still fresh enough to cut. Further on, a circle of salt smoothed by palms. A figure scratched into the soft wall with a stone flake — a big bell with a person inside it, arms out. The marks are sparse and reverent. Whoever finds this place knows immediately that you cannot live here. You can only visit, and sit in the loud, warm, impossible garden that drinks no water, and listen to it sing its one unchanging song to itself in the dark.

@@ -1,0 +1,19 @@
+The Weeping Chamber thrums with impossible sound—a deep geological heartbeat that shouldn't exist at this elevation, where the mountain's hollow bones have been carved thin by millennia of patient water. 
+
+You stand in a natural amphitheater no larger than a village square, its walls rising in smooth, water-sculpted curves that glisten perpetually with seepage. The rock here is wrong—it sweats in darkness, beading moisture that runs in reverse sometimes, crawling upward along mineral veins that pulse faintly with their own wet light. The chamber exists in a state of constant deluge without rain; water simply emerges from the stone itself, as if the mountain were a vast sponge being slowly, eternally wrung.
+
+The floor is a maze of shallow pools and worn channels, never more than ankle-deep but never dry. The water moves in patterns that hurt to follow—splitting into fractal tributaries that merge before they've properly separated, flowing uphill in places, pooling in perfect spirals that rotate counterclockwise. Sometimes the water isn't water at all but something thicker, more viscous, that reflects memories instead of light.
+
+Vegetation clings desperately to the few dry ledges—ancient mosses that have learned to photosynthesize sound, drinking in the constant reverberations. Pale shelf fungi sprout in ascending spirals, each one singing a different note in the cacophony. A single stunted tree grows inverted from the ceiling, its roots reaching skyward through a crack that opens onto nothing, its branches dipping into the pools below where they've grown leaves like cupped hands.
+
+The warmth here defies altitude. Steam rises from the pools in columns that twist and braid, forming temporary structures—architecture of vapor that builds and collapses in moments. Sometimes these steam-forms hold too long, solidifying into translucent shells that ring like bells when the sound-waves strike them, before dissolving back into humidity.
+
+The noise is overwhelming—not just the water's voice but something deeper. The chamber resonates with frequencies that bypass the ears entirely. It's the sound of stone remembering when it was sea, of time flowing backward through the pools, of the mountain's slow-motion scream as reality tears along its seams. Each surface reflects and amplifies, creating interference patterns that manifest as brief, impossible geometries in the air—sound made visible, quivering polygons of compressed air that burst like soap bubbles full of static.
+
+In the darkest corners, where no natural light should reach, bioluminescent films creep across the wet rock—primitive organisms that feed on paradox, glowing brighter where the water flows wrong. They pulse in rhythm with sounds that haven't happened yet, casting reverse-shadows that fall upward.
+
+Sometimes, rarely, something moves in the deepest pools. Not quite animal, not quite reflection—a suggestion of scales, a flicker of transparent flesh, gone before the eye can focus. These maybe-creatures seem to exist only in the corner of vision, feeding on the temporal instabilities where water remembers falling as rain on forests that won't exist for another thousand years.
+
+The chamber breathes. Literally. The water level rises and falls in a rhythm unconnected to any tide, and when it exhales, the steam carries scents of places that shouldn't be—salt spray from seas this mountain has never seen, ozone from storms that happen underground, the green smell of growth in total darkness.
+
+This is a place between states—neither fully cave nor basin, neither lake nor spring. It exists in the perpetual now of transformation, where the mountain's ancient patience cracks under the weight of its own impossibility. A wound in the world's logic that weeps constantly, birthing new paradoxes with every drop that falls upward into darkness.

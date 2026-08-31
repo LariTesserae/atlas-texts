@@ -1,0 +1,15 @@
+You are standing within the *Sub-Strata Condensate*, a sprawling industrial cistern built deep beneath the crust of a world that has long since forgotten the sun. 
+
+The environment is entirely artificial. There is no bedrock here, only endless, tiered plates of industrial polymer and riveted iron that stretch away into a gloom so thick it feels pressurized. You are walking on a floor of "weeping" grating—a grid of zinc-alloy mesh that allows the liquid condensate to flow continuously beneath your boots. Every few seconds, the ceiling—a dark, vaulted network of cooling pipes—shudders, venting a chilled, mist-heavy breath that coats everything in a slick, shimmering film of reclaimed moisture.
+
+The air is teeth-achingly cold, clinging to the lungs like frost. The soundscape is a rhythmic, mechanical assault: the deep, bass-heavy groan of massive, slow-moving pumps pulling water from the subterranean deeps, punctuated by the sharp, metallic *clack-hiss* of steam-presses that seem to have no human operator. This is a place of massive, lonely motions; gears the size of houses turn with a grinding patience, their jagged, fresh-tooled edges speaking to a facility that is constantly being rebuilt, scraped, and re-formed.
+
+Vegetation here is not organic but structural. It is "sparse"—long, hanging filaments of copper wiring and moisture-collecting glass cables that dangle from the ceiling like weeping willows made of circuitry. These "vines" pulse with a dim, flickering bioluminescent current, occasionally drawing a spark that illuminates the vast, empty plazas of the cistern for a fleeting second. 
+
+The moisture is pervasive. Because the temperature is so low, condensation behaves strangely—droplets do not simply fall; they crawl along the walls in geometric patterns, guided by magnetic drainage channels built into the very murals of the conduits. 
+
+Fauna, rare and elusive, exists in the form of "Scav-Ticks." These are small, multi-legged mechanical constructs that skitter along the weeping pipes, their pincers designed to harvest the thick, gray slush that collects in the corners of the plates. They move with an erratic, insectoid quickness, their rhythmic clicking adding a frantic counterpoint to the deep, tectonic roar of the facility. They are the only things that seem to be "living" in this sprawling, mid-range valley of steel.
+
+There is a sense of "young" erosion here, though it is not driven by wind or water, but by the relentless abrasive friction of the factory itself. The edges of the floor plates are sharp, almost razor-fine, as if they have only just been extruded from a mold and placed into the grid. Everything is in a state of high-active production, yet there is no product. The cistern simply moves water, heats it, cools it, and moves it again, a closed-loop system of perpetual industry set into a frozen, hollow space.
+
+You are walking through the intestines of a machine that covers the world—a quiet, cold, weeping god of industry that has no need for humanity, only for the constant, rhythmic circulation of its own cold blood.

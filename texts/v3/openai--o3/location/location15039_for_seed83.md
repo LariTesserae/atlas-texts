@@ -1,0 +1,24 @@
+Heat first: a thick, weighty heat that stands in the lungs like another organ. It carries a faint chemical tang—old cutting-oil and iron filings revived by the damp—and it never quite lets skin cool. You are well below the surface, in a single engineered hollow roughly the size of a modest cathedral: sixty paces wide, forty high, a long oval whose edges disappear into black.
+
+Nothing here is bedrock. The floor is a continuous grating of iron, bowed in places by its own age. Beneath the lattice, unseen sump channels glug slowly; once every few minutes a dull metallic gulp marks a pump still doing its duty somewhere far down-shaft. Overhead, layer upon layer of catwalks, pipe-bundles, cable trays and ribbed conduits cram the vertical space so tightly that you could climb them like tree branches if you dared. Some hang so low they almost touch your shoulders; others vanish into the vault, swallowed by darkness. The whole interior feels wound inward, a dense three-dimensional weave of manufactured parts, as though a factory were compacted into a single breathing room.
+
+Light is almost absent. Your eyes work mostly on memory: outlines bloom only when the wrist-sized vents breathe out a wash of ember-red, the last vestiges of an emergency filament system flickering to life for two, maybe three seconds before surrendering to black again. Between those pulses, the only guidance comes from intermittent pinpricks—greenish dots on support columns where colonies of halite-moss fluoresce gently, living on condensation salts and iron oxide. They are the closest thing to vegetation here, and even they space themselves sparsely, miniature constellations mapping stress fractures in the metal.
+
+Water is present only as a behavior. From high pipes the air cools just enough for droplets to form. They gather, fatten, fall: slow, deliberate impacts on the metal decking, each producing a click that rings longer than seems possible. The deck is blistered with thumbnail puddles. In long-untended drip-lines they’ve etched shallow saucer-shapes in the iron, a quiet testament to decades of repetition. Every so often a broader splash suggests a cracked valve or an overflowing condensation pan up above, but you never hear the follow-up; nothing here happens quickly.
+
+Erosion shows itself in velvet rust, mineral blooms, the beveling of once-crisp rivet heads. It is an equilibrium now—no catastrophic failures, just the infinite softening of edges. Brass handrails wear velvety green. Insulation cloth on steam lines has slumped and hardened into stalactite-like folds. The place feels settled, not abandoned so much as surrendered to a new pace.
+
+Fauna is scarce and elusive. A heat-pale beetle the size of a lentil patrols the drip basins, shell mottled with rust pigment. Somewhere in the dark, a single wingbeat—perhaps a blind micro-bat gone astray from deeper ducts—marks the high ceiling then vanishes. Nothing hunts; there is barely enough energy to compete for. Life here has learned patience.
+
+Sound is interval, not continuum. The chamber spends long minutes in breath-held hush, then offers a quiet event: a distant relay clicking open, the sigh of steam purging a relief line, a bead of water parting from aged steel. You notice, eventually, that the most constant tone is your own blood in your ears.
+
+Technology survives only in fragments. A rust-shrouded gear train near the north wall still rotates at a grandfather-clock tempo, driven by a column of slow steam rising from a borehole beneath the floor. Its motion actuates nothing you can see—the conveyor belts it once powered sag forgotten—but habit keeps it turning. Short, thick power cables ascend toward nowhere, still warm; somewhere above, turbines may idle in dark catacombs, making electricity for consumers who no longer exist.
+
+Rules of the place:
+1. Nothing moves quickly. Heat, corrosion and entropy have throttled every cycle to a crawl.
+2. Darkness is the default; illumination is a courtesy of accident.
+3. Moisture appears, acts, and disappears, but never accumulates enough to change the climate.
+4. Everything you touch was shaped by tools, yet nature now writes the maintenance schedule.
+5. The shortest path is blocked; the machine insists you take the long way around.
+
+Stand still long enough and you begin to feel the chamber’s pulse: a faint convection draft spiraling upward, the suction reflex of a node still linked to miles of ventwork and deeper furnaces. It tells you the machine—whatever colossal system once required this condensation nave—has not died; it has merely narrowed its purpose to an almost monastic persistence. You are in a sanctum of endurance, built to boil and cool forever, shedding droplets into the dark like rosary beads clicking across an endless prayer.

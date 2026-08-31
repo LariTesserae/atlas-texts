@@ -1,0 +1,15 @@
+The air is thick, a slow-moving, almost viscous thing. It carries the barest hint of ozone and something else, something mineral and deep, like the scent of cold stone just kissed by water. Almost no light penetrates the enclosed space. The illumination comes from the softly glowing, bioluminescent veins that trace across the surfaces around you. Their light is a pale, cool indigo, enough to make out the shapes of the chamber, but not enough to banish the deep midnight that presses in from all sides.
+
+You are in a cave, or perhaps not a cave at all. The walls curve with a gentle, organic grace, as though the space itself has grown, not been carved. They are of a smooth, dark grey material, like polished obsidian, but subtly different. You press a hand to the cool surface, and feel a faint vibration, a pulse that resonates throughout the chamber.
+
+The air is cold, but not freezing. The dampness here isn't a downpour, but a persistent, gentle condensation. Tiny droplets cling to the walls, like a fine, perpetual dew. Small rivulets of water trace down the curves, feeding into pools that collect in shallow depressions on the floor. 
+
+The vegetation is what truly captures your attention. It's a riot of strange forms, flourishing in this lightless, frigid environment. It is dense, packed tightly in every available space. Some of it appears to be fungal: luminous, umbrella-shaped caps that emit a soft, pulsing light, and mats of mycelium in a thousand shades of violet and emerald. Other life forms are impossibly complex. There are structures that resemble delicate, crystalline trees, their branches tipped with glowing orbs. There are what look like impossibly delicate ferns, their fronds a web of glowing, almost transparent material.
+
+There's no sound, mostly. A gentle hum pervades the entire chamber, barely audible, the thrum of the glowing veins. Here and there, a drip of water, echoes in the darkness. The dynamic of this place is slow, almost imperceptible. This environment has stood for a long time, in a balance you might not fully understand. Erosion is evident, but it’s a process measured in the timescale of ages.
+
+Scattered here and there are objects. Structures of the same material as the walls, but shaped into precise, geometric forms. The architecture feels beyond current understanding. It hints at a deep understanding of the mechanics of this world, of the way the walls hum and the light flows. These scattered structures are all that remains of the once-familiar. Whatever it was that built them, has gone. 
+
+You find no animal life here, but the forms of the plants, the structures, suggest other lives.
+
+Perhaps the hidden scale is not so hidden after all. The more you look, the more apparent it becomes that this entire place is but a single feature, a pocket of another universe, held within this one. It's like looking into an infinity, where every curve of the wall, every vein of glowing light, is a portal to something unknown. The place itself is a single organism, a work of art, a technological marvel, an ecosystem, all woven together.

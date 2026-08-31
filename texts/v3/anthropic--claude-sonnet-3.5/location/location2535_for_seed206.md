@@ -1,0 +1,15 @@
+In the vast, luminous depths of an ocean world, a sprawling ecosystem thrives in near-silence. This is the Luminous Expanse, a realm where water stretches endlessly in all directions, its sheer scale defying comprehension. The water itself seems to glow, suffusing the environment with a soft, omnipresent radiance that casts no shadows.
+
+The cold here is a constant presence, not biting or harsh, but a gentle, pervasive chill that has shaped all life over eons. Despite the low temperatures, vegetation flourishes in abundance. Colossal kelp forests tower hundreds of meters tall, their fronds swaying languidly in slow currents. Bioluminescent algae carpet every surface, painting the underwater landscape in shifting hues of blue, green, and purple.
+
+This world has known no dry land for millions of years. The seafloor, far below, is a gently undulating plain of silt and sand, shaped by ancient currents into vast, sweeping dunes. Here and there, thermal vents release streams of minerals, forming chimney-like structures that have grown over centuries.
+
+The Luminous Expanse teems with life, yet it feels oddly sparse. Creatures here grow to enormous sizes, but they are few and far between. Whale-like beings, translucent and glowing from within, drift by at intervals that might be measured in days. Schools of fish-analogues, each the size of a small ship, move in coordinated patterns that span kilometers.
+
+Strangely, amidst this natural aquatic wonder, there are signs of industry. No structures mar the seascape, but the water itself has been harnessed. Countless microscopic machines float freely, nearly invisible, extracting energy from thermal gradients and chemical processes in the water. These nanobots form a distributed, planet-wide network - a liquid computer that regulates the entire ecosystem.
+
+This technology is so integrated into the environment that it's inseparable from natural processes. It maintains the delicate balance of nutrients, regulates currents, and even gently guides the evolution of species. The result is a world in perfect equilibrium, where change happens so gradually it's imperceptible.
+
+Sound travels differently here. The vastness of the ocean muffles most noises, creating an atmosphere of profound quiet. Yet, occasionally, one might detect the low, resonant songs of the massive creatures that inhabit this realm - communications that can travel for thousands of kilometers through the water.
+
+Time feels different in the Luminous Expanse. With no day or night cycle, no seasons, and no observable change, it exists in a state of timeless stability. The same patterns of life and energy have played out for millennia, and will continue for millennia more, maintained by the invisible, ever-present technology that has become as much a part of this world as the water itself.

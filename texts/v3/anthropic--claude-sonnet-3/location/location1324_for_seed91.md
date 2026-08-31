@@ -1,0 +1,9 @@
+Beneath the scorching heat of twin suns, the subterranean grotto sprawls in a humid tangle of lush, verdant growth. Vines as thick as a person's arm, bearded with furry mosses and lichens, coil across the cavern floor like petrified serpents, their tendrils twining up the rough basalt columns. Towering ferns unfurl fronds the size of shields, dripping moisture that pools in the crannies underfoot.
+
+The air hangs heavy and hot, thick with the scents of decay and new growth, a heady perfume of spores and pollen. A distant chorus of buzzing and chirring and clicking rises from the shifting kaleidoscope of life carpeting every surface. Though no rain has touched this place in eons, rivulets of condensation trickle down the cavern walls, spattering softly.
+
+Here and there, crumbling stone foundations or half-buried artifacts hint at a primitive civilization that once called this grotto home. Simple clay urns and woven baskets lay scattered, reclaimed by winding shoots and vibrant mats of fungi. A massive upright stone slab, its edges smoothed by time, rests at a precarious angle, carved sigils now obscured by encrusting layers of vermillion lichen.
+
+The grotto pulses with a sense of deep timelessness and fecundity. Faint motions draw the eye - the sluggish wriggle of a blind amphibian, the waving stalks of delicate fungi dispersing spores, the ponderous unfurling of a tightly-coiled fiddlehead. This verdant hollow has existed for eons in this sealed, sweltering world below, a thrumming oasis of life isolated from the parched desolation above.
+
+Somewhere in the maze of dripping arches and hanging gardens, something stirs with a soft rasp of chitin on stone. But here, the notion of solitude is an illusion. Every nook and crevice teems with a multitude of tiny, alien existences playing out their singular dramas in earth's last lush and fertile womb.

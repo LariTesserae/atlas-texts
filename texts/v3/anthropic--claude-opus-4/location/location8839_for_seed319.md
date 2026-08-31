@@ -1,0 +1,19 @@
+The Breathing Chamber rises through murky water like a vast throat. Its walls are not stone but something between coral and cartilage—a living architecture that pulses with slow, tidal rhythm. The space is no larger than a cathedral nave, yet it stretches upward through hundreds of feet of ocean, a vertical tunnel packed with life.
+
+Every surface writhes with creatures. Colonies of filter-feeders carpet the ribbed walls in overlapping fans and fronds, their bodies translucent and pulsing with bioluminescent veins. Between them, arthropods the size of dinner plates traverse highways of secreted mucus, their shells clicking and scraping against each other in the cramped space. The density is overwhelming—there is no bare surface, no empty water. Even the water itself is thick with plankton and larvae, a living soup that makes the dim green light even murkier.
+
+The sounds are deafening in their alien chorus. The chamber itself groans and creaks with each slow pulse, a bass note that vibrates through flesh and bone. Layered over this are the clicks, whistles, and grinding sounds of ten thousand creatures feeding, mating, fighting for space. Schools of eel-like fish weave between the larger organisms, their bodies generating electric hums that rise and fall in waves. 
+
+Scattered throughout are the remnants of some previous habitation—not buildings, but deliberate modifications. Hollows have been carved into the fleshy walls, now colonized by clusters of anemone-like creatures. Channels direct water flow in patterns too regular to be natural. Here and there, harder structures emerge from the living mass—ribs of what might be carved bone or shaped coral, suggesting frameworks or supports long since overgrown.
+
+The water is blood-warm and thick with nutrients. It tastes of salt and iron and life. The pressure is substantial but not crushing—this chamber exists at depth, but not the deepest trenches. Perhaps it rises from some abyssal plain like a biological smokestack, or hangs suspended in middle waters like a vast organ.
+
+Time moves differently here. The chamber's pulse might take minutes to complete. The creatures' movements, seemingly frantic in aggregate, reveal themselves as careful, deliberate when observed individually. Generations of polyps rise and fall like slow waves. The modifications in the walls might be decades old, or centuries, or longer—in this living architecture, age becomes fluid.
+
+Light comes not from above but from within. The bioluminescence creates a constellation of blue-green stars that pulse in patterns almost like language. Some creatures flash in response to others. Some glow steady. The combined effect is like being inside a vast, living circuit—bright enough to navigate but too dim to see clearly, everything half-glimpsed and uncertain.
+
+The strangeness is in the coordination. This is not mere reef or random accumulation. The creatures' movements follow patterns. The water circulates in specific ways. The sounds sometimes synchronize into harmonies that make the walls vibrate sympathetically. It's as if the entire chamber is a single super-organism, or perhaps an instrument being played by the ocean itself.
+
+At the chamber's apex, where the walls narrow to a sphincter-like opening, the water churns with particular violence. Things rise and fall through this portal—nutrients, larvae, messages in chemical form. Beyond it might be another chamber, or open ocean, or something else entirely. The creatures cluster thickest here, feeding on whatever passes through, their bodies forming writhing curtains that part and close in hypnotic rhythms.
+
+This is a place between places, a threshold grown into its own world. It exists in the eternal now of deep ocean time, where a century passes like a season, where the boundaries between organism and architecture, individual and collective, have dissolved into something magnificently alien.

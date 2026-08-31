@@ -1,0 +1,13 @@
+A hollow in ancient limestone, worn smooth over millennia. The space feels complete, as if it had always been waiting here, self-contained and permanent. The chamber is roughly circular, perhaps thirty paces across, with a domed ceiling that rises to twice human height at its apex. A few thin shafts pierce the roof, admitting weak starlight that catches on crystalline deposits in the walls.
+
+The air is consistently warm, almost body-temperature, rising from some deep geothermal source. This warmth has created its own microclimate - the chamber holds steady at this temperature regardless of outside conditions. The heat shimmer is barely visible in the dim light, a subtle distortion against the pale stone.
+
+Scattered across the floor are patches of some ancient, primitive form of life - neither quite plant nor fungus. They grow in thin, branching patterns of deep purple-black, like elaborate scripts written in dried ink. These organisms require almost no water, drawing moisture from brief periods of high humidity when warm air meets the cooler stone. They grow with extreme slowness, each tendril extending perhaps a finger's width per decade.
+
+The limestone itself seems to hold echoes, though the space is nearly silent. Any small sound - a whispered word, a shifted stone - returns with a peculiar resonance, as if the chamber remembers it. The walls have been polished by time to an almost metallic smoothness, yet retain an organic quality in their curves and hollows.
+
+There is something altar-like about the space, though it was shaped entirely by natural processes. The floor subtly descends toward the center, where the stone is darkest and most deeply polished. The few drops of condensation that ever form always make their way here, leaving behind minute traces of minerals that have, over vast time, created concentric rings like growth rings in a tree.
+
+The chamber feels both ancient and alive, though in a timeframe so slow it might as well be stillness. It is a place of deep time made visible, where change occurs on a scale of centuries and millennia. The darkness is not oppressive but clarifying - each detail that emerges does so slowly, requiring patience to perceive.
+
+All is in perfect equilibrium here. The temperature never varies, the strange dark growths neither advance nor retreat, the mineral deposits accumulate at their eternal unhurried pace. It is a place that has found its final form and will maintain it, barring some catastrophic disruption from outside.

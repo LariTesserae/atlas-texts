@@ -1,0 +1,41 @@
+The Shelf of Hammers lies high above the true ocean floor, though no part of it approaches the air. It is a continent-sized submarine plateau raised across the middle depths: a black, angular tableland suspended between the bright ceiling of the upper sea and trenches so deep that their water behaves more like compressed glass.
+
+The plateau is young. Its ridges have not yet been softened into hills. Long escarpments break along clean mineral planes, and fields of basalt splinters retain edges sharp enough to open the hide of anything dragged across them. There are cones without craters, fissures without sediment, terraces resembling gigantic steps cut yesterday from dark volcanic stone. Frost-white salts collect in cracks. Iron faces show orange only where industrial currents bring dissolved oxidants past them; elsewhere the rock remains blue-black, metallic, and bare.
+
+Nothing grows upon it. There are no weeds of kelp, no microbial films visible as stains, no rooted things reaching toward light. Even the word *soil* has no use here. Loose matter consists of powdered basalt, nickel grains, fragments of ceramic, and pale drifts of precipitated salts. The water is too cold and chemically austere for familiar plant life. It is clear over extraordinary distances, so that the emptiness becomes measurable: one can look from a ridge and see another ridge hanging fifty kilometers away, its hard silhouette diminished but not concealed.
+
+Light descends evenly from far above. The ocean’s surface cannot be seen, yet daylight has been gathered and redirected by an old orbital and submarine system. Vast lenses somewhere in the upper water distribute a colorless radiance through the depths. There is no sunbeam, no dusk, and almost no shadow except beneath overhangs. The illumination neither brightens nor fades. Every hour resembles a cold noon remembered underwater.
+
+The water itself scarcely moves. Suspended particles do not stream; they hang. Curtains of tiny ice crystals remain fixed above the plateau margins, glittering without falling. Temperature, salinity, and pressure are almost perfectly uniform over immense regions. A body released into the open will drift only from its initial push, slowing over days until it appears nailed to the water.
+
+Yet the Shelf is deafening.
+
+The sound comes through the water and through the rock: a continuous industrial blow too large to be heard as machinery. It is felt in the ribs, joints, teeth, and cavities of the skull. Beneath the plateau, ancient compression engines maintain the equilibrium of the sea. Their pistons complete cycles measured in fractions of a second, but each engine is hundreds of kilometers away from the next. Together they make a single unbroken concussion. There are deeper notes from pressure gates in the trenches, a grinding middle register from mineral pumps, and a high electrical scream conducted along cables buried in the basalt.
+
+Nothing starts. Nothing stops. There is no rhythm by which to count time because every beat overlaps the next. The noise is as stable as gravity.
+
+The industrial works are scattered so widely that the landscape initially seems unbuilt. A traveler may cross two hundred kilometers of naked rock before encountering a structure: a square shaft descending into the plateau; a low pumping station plated in dull titanium; three pylons holding a cable that vanishes into clear blue distance; an inspection shelter with its hatch still lit. There are no cities. The machines were distributed according to geological need, not human convenience, and they possess no roads between them. Their housings are severe, thick-walled, and almost free of ornament. Warning stripes remain vivid because nothing here grows over paint and little moves to abrade it.
+
+Some installations look unfinished. Gantries end above empty pits. Rail cradles wait without rails. Vast bolt patterns mark places where a turbine or habitation block was meant to stand. These are not ruins. They have always been incomplete. Construction ceased when the Shelf reached equilibrium, and equilibrium permits no unnecessary continuation.
+
+The fauna lives within this system.
+
+At first the plateau appears lifeless because almost all creatures remain in the open water, separated from one another by enormous distances. The volume is so vast that even abundant life gives an impression of vacancy. Then the eye adjusts, and the animals resolve from what seemed like defects in the light.
+
+There are glass-bodied drifters kilometers long and no thicker than cables, stretched horizontally through the water. Their internal organs occur as widely spaced knots: a mouth, a pressure bladder, a cluster of reproductive chambers, then hundreds of meters of transparent nerve. Shoals of silver disks surround the electrical pylons, each disk turning edge-on and face-on in precise response to the alternating fields. Dense colonies of white, jointed grazers cover the undersides of pump housings, not feeding on plants or slime but scraping microscopic deposits of manganese and electrically active salts.
+
+Most remarkable are the bell herds. Each animal is a hollow, six-lobed vessel large enough to contain a building, with dense black tissue around its rim. They do not swim in the ordinary sense. They hold position above the escarpments and absorb vibration from the engines. Layered organs inside their bells convert pressure waves into chemical energy. Thus the permanent noise is also the foundation of the ecology. Smaller creatures shelter within their cavities, feeding on secretions, shed cells, mineral granules, and one another.
+
+Predation occurs, but it is slow and nearly ceremonial. Needle-jawed hunters approach along the exact axes of the sound field, masking their pressure signatures inside the industrial roar. They may spend months closing the final kilometer. Prey seldom flees far; violent motion is too energetically expensive in the cold, still water. A chase consists of a few sudden meters after a season of alignment.
+
+Birth and death are equally subdued. Carcasses do not fall quickly. They remain suspended for years while pale scavengers dismantle them into translucent strands. Hard parts eventually descend to the rock, where they lie among machine fragments without decay. Around some pylons, shell and bone have accumulated into broad rings, the nearest thing the Shelf has to reefs.
+
+The animals possess no obvious calendar. There are no seasons, tides, blooms, migrations, or nights. Reproduction is triggered by stable frequencies emitted from particular engines. One station sustains spawning across a region the size of a country; another keeps its surrounding fauna dormant. If an engine’s note were ever to change, whole lineages might wake, breed, or die simultaneously. But the notes do not change.
+
+That is the governing rule of the Shelf: energy may circulate, machines may cycle, creatures may consume and replace one another, but the larger arrangement must remain constant. Every local disturbance is absorbed into the whole. A fallen pylon is counterweighted by ballast chambers beneath the rock. Heat from feeding animals is carried into pressure reservoirs. Mineral loss is replaced through vents so fine that the new material appears atom by atom. Even the sharp escarpments retain their edges. Erosion occurs, but the factories precipitate matching crystals onto each exposed face, rebuilding the stone at the same rate the water wears it away.
+
+From the plateau’s rim, the land drops almost vertically into darkness. Here the even light weakens at last, not gradually but across a distinct boundary, as if illumination itself had a floor. The Shelf can be seen projecting over the abyss: a black continent with a white salt margin, motionless in clear water. Far below, red indicators mark machinery sunk into the trenches. Far above, the artificial daylight remains calm.
+
+Between them is an impossible breadth of cold sea, full of creatures and almost entirely empty.
+
+The noise passes through all of it. It travels beyond visibility, beyond the plateau, perhaps around the planet. To stand—or hover—on the Shelf is to feel that the whole ocean is one enormous operating chamber, and that every ridge, animal, cable, and suspended crystal has been placed at a point where it can remain forever.

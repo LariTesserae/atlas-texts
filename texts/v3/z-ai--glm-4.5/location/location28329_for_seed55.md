@@ -1,0 +1,25 @@
+Here, there is no air. The world is a volume of cold, static dark, a heavy suspension where the only medium is water and the only pressure is the weight of the ocean above.
+
+The cold is absolute, a creeping chill that penetrates not just skin but time itself. It is just above freezing, a liquid ice that slows the movement of everything within it. This is not the freezing point of fresh water, but the braced, brinier chill of a deep sea that has been settled and cooling for epochs.
+
+You are suspended in a vastness that defies the horizon. To call this a "sea floor" is a misnomer of perspective. There is a floor, but it is not rock or sediment. It is a construction.
+
+Stretching away into the obscurant gloom is a limitless, artificial plain. The ground is composed of massive, cyclopean blocks—a masonry of staggering scale. These are not bricks for hands; they are megaliths the size of city blocks, fitted together with a precision that feels geological. The joints between them are so tight, so eroded by the crushing pressure of the water, that they have nearly vanished. The entire surface of the planet, or at least this continent-spanning basin of it, has been paved. It is a tiled floor for a god who left eons ago.
+
+The "Total" nature of the build is unsettling. There is no "nature" here in the geological sense. No mountains formed by tectonic shifts, no canyons carved by rivers. Every rise, every terrace, every flattened step is a deliberate creation of a primitive, massive technology. It suggests a civilization that mastered lever and fulcrum on a planetary scale, stacking stone upon stone until the crust was hidden, only to vanish themselves, leaving their work to drown.
+
+But the water has reclaimed the stonework through a slow, relentless siege.
+
+The Erosion rating is ancient, primordial. The sharp, chiseled edges of the megaliths have been worn down by the ceaseless friction of the current. What was once rigid geometry is now rounded, soft, bone-like. The vast, tiled plain undulates in gentle, artificial hills that have been polished smooth by silt and time. It looks less like a ruin and more like a fossilized idea of a landscape. The world has settled into its final shape; nothing shifts here except the silt. It is the end of history, frozen in stone and water.
+
+Overlaying this black stone architecture is a world of vegetation so dense it feels solid. With a lushness rating of 2.4, life has fought back against the dark. Because there is no animal life—no fish, no crustaceans, no grazing beasts—the plant kingdom has been left to its own devices. It is a silent, choking empire of kelp and algae.
+
+Thick, rope-like strands of bladderwrack the size of redwoods rise from the gaps in the masonry, reaching blindly upward toward a surface they will never touch. They bind the stone blocks together, weaving a living net over the dead architecture. The water is thick with spores and microscopic moss that drifts like snow. Every surface is coated in a wet, velvet nap of dark purple and black algae. It is a garden of Eden that has never known a predator, only the slow,Photosynthetic growth fueled by the faintest trace of nutrient cycling in the water.
+
+The light is nearly absent (0.2). There is no sun here; perhaps the surface is frozen solid, or perhaps the water is simply too deep, too vast, and too filled with sediment to carry light this far. The visual palette is a monochrome of charcoal, slate, and the faintest, ghostly bioluminescence emitted by the deep-pressure kelp. It is a world felt rather than seen. You navigate by texture—the slickness of wet stone, the drag of the heavy water, the soft obstruction of a million swaying leaves.
+
+The silence (0.8) is profound. In a normal ocean, you would hear the crackle of snapping shrimp, the song of whales, the distant rumble of waves. Here, there is nothing. The density of the vegetation muffles what little current exists. There is only the sound of your own presence—perhaps the thud of a heartbeat or the rush of water in your ears—and the slow, groaning creak of the kelp forests shifting in the deep, glacial currents.
+
+It is a place of extreme patience (Dynamic 0.6). The kelp grows at a rate measurable in inches per century. The silt settles with the grace of falling stars. The stone blocks, if they move at all, subside by millimeters per millennium. The atmosphere is one of suspension, a waiting room that has been waiting so long it has forgotten what it was waiting for.
+
+This is a submerged temple-planet, a cenotaph the size of a continent, overgrown by a slow, silent, and cold jungle, drifting in a darkness so complete it feels like a physical weight. It is beautiful in a terrifying, austere way—a world where life persists without eyes, and stone endures without purpose.

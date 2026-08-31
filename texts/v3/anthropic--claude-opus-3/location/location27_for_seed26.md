@@ -1,0 +1,9 @@
+The underground cavern stretches out in a vast, cathedral-like expanse, its distant reaches fading into shadowy obscurity. The air is damp and chilled, just shy of producing visible breath. Water permeates everything here - it drips from the rough hewn ceiling, pools in still black mirrors on the floor, and condenses in a fine mist that clings to every surface.
+
+This is a constructed space, carved and blasted from bedrock by industrial machines that left behind their rusting remnants. Hulking metal skeletons of inscrutable purpose loom out of the gloom, hissing steam and creaking in the deep subterranean drafts. Thick bundles of ancient cabling snake along the walls, their insulation crumbling away. The faint acrid scent of machine oil mixes with wet stone.
+
+Sparse, ghostly lights flicker erratically, powered by some hidden sputtering generator. Their wan luminescence reveals jutting inorganic formations - not stalactites but strange accretions of mineral deposits on massive pipes and valves. It's as if the cavern itself is trying to reclaim the unnatural structures imposed on it.
+
+The space resonates with a haunting industrial din - clanking, grinding, and the forlorn whistle of wind through unseen tunnels. Echoing drips plink into standing water from a great height. Somewhere in the distance, heavier things fall into deeper floods with sodden crashes.
+
+There are signs this place once teemed with organized activity, but now only a few broken mechanisms labour on, out of sync, to uncertain purposes. Lichen and luminous fungi have colonized the dormant machines, hinting at the resurgence of some tenacious subterranean ecology.

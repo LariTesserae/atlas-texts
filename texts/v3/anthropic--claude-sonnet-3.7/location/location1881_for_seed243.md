@@ -1,0 +1,21 @@
+# The Weeping Terraces of Sar Volin
+
+Here the world folds upward in layers of pale stone, vast terraces climbing toward a hazy horizon. The sun is merciless, a white-gold disc that floods every surface with unrelenting brightness. Nothing casts a proper shadow in this light—it seems to bend around objects, to infiltrate every crack and crevice.
+
+Water defines this place, though not in expected ways. The terraced stone formations—young and sharp-edged, geologically speaking—weep continuously. Moisture seeps from the rock faces themselves, as if the mountains are slowly crying away their substance. This produces a constant sound: a cathedral-like chorus of drips, trickles, and occasional splashes that echoes across the open landscape. The water follows ancient salt lines in the stone, creating wet veins that glisten in the harsh light.
+
+The terraces form natural basins where the water collects in shallow pools. These are not still waters but constantly replenished, trembling slightly with each new tear from the rocks above. The pools are tinged with mineral colors—ochre, pale blue, milky white—each basin a different hue depending on what the stone has surrendered to the water. In certain places, the water doesn't pool but rather skims across the surface in impossibly thin sheets, creating mirror-worlds that capture and distort the sky.
+
+Vegetation is sparse but purposeful. Specialized reeds grow in some of the mineral pools, their stalks translucent and showing the passage of water within. Lichen crusts form abstract patterns on drier stone, ranging from pale green to rust-orange. Occasionally, a twisted shrub emerges from a crack, its wood like polished copper, leaves small and waxy to hold whatever moisture they can capture. These plants never cluster; each seems to maintain its distance from others, creating a landscape that feels deliberately arranged.
+
+The warmth is persistent and encompassing. It's not the punishing heat of a desert but rather something more intimate—like being wrapped in a blanket that's been left too long in the sun. The air itself feels thick with it, especially where water vapor rises from the larger pools. This creates occasional pockets of mist that hang motionless until disrupted by the landscape's subtle air currents.
+
+What appears at first to be ruins reveals itself, upon closer inspection, to be something stranger. Stone structures that resemble the foundations of buildings punctuate the terraces at irregular intervals. Yet they show no tool marks, no mortar lines—they appear to have grown from the rock itself, their geometries too regular to be natural but bearing no signs of construction. Some form perfect circles; others create star patterns or spiraling chambers that descend into the rock. Were they extruded from the living stone, or did the mountain grow around structures that once stood here?
+
+The most peculiar feature becomes apparent only after spending time in this place: the sound of the water is not random. The drips and flows form patterns—rhythms that repeat and evolve over hours. Sometimes they seem to create words in no recognizable language, other times pure music. Whether this is pareidolia or intention remains unclear, but the effect is undeniable—the mountain sings through its tears.
+
+Time passes differently here. The sun seems fixed in its position despite hours of observation. The only indication of change comes from the slowly shifting mineral colors in the pools and the gradual evolution of the water-music. This is a place of geological patience made tangible—processes that should take millennia compressed into observable cycles, yet still too slow to witness directly.
+
+In the vast openness between terrace systems, heat shimmer creates optical illusions: phantom pools, impossible bridges between distant formations, and occasionally what appear to be figures moving deliberately among the structures. But approach any of these phenomena and they dissolve into nothing but warm air and brightness.
+
+This is Sar Volin, where mountains weep and sing, where stone grows architecture, and where the boundary between natural and artificial has never been established.

@@ -1,0 +1,19 @@
+The ground is not earth, but an endless, interlocking lattice of fired clay and woven vine, a world-sized architecture of porous terracotta honeycombs that climbs into the thin, warm air of a high-altitude shelf. There is no "nature" here in the sense of a wild, unmanaged substrate; every inch of the topography has been molded, baked, and stacked over epochs. It is a total city of biological intent, though there are no machines to run it, and no lamps to light it.
+
+It is a world of warm, humid darkness. The sky above is a charcoal void, and the deep wells of the terracotta canyons are blacker still. Light is a rare, accidental visitor, muted by the sheer density of the life that clogs every archway and ventilation shaft.
+
+Despite the darkness, the heat is constant—a heavy, radiating warmth held by the massive thermal bulk of the clay foundations. This is a damp world, though not a drowned one. Moisture does not fall as rain so much as it breathes. It condenses on the underside of kiln-fired overhangs and trickles down the textured walls in rhythmic, patient beads. Every few hours, a heavy mist rolls through the lower galleries, slicking the moss-covered ceramics and filling the decorative basins carved into the floors.
+
+Vegetation here is aggressive and sculptural. Epiphytes with leaves as thick as leather carpet the vertical faces of the buildings. Great, ropey succulent vines—some as wide as a torso—bridge the gaps between the high towers, sagging under their own weight. This is "lushness" without green; in the perpetual gloom, the plants are shades of deep bruised purple, indigo, and matte black, optimized to drink what little infrared radiation leaks from the warm stone.
+
+The scale is vast and vertical. To look "out" is to see a thousand terracotta silhouettes receding into a humid haze, a labyrinth of bridges, spires, and tiered gardens that define the horizon. Because the erosion is "established," the sharp edges of the original construction have been softened. The clay has been polished smooth by the passage of billions of carapaces; the corners of the great stairs have been rounded by the slow, grinding influence of time and humidity until the structures look more grown than built.
+
+But it is the fauna that defines the soul of this place. The world is not merely inhabited; it is saturated. 
+
+The air is a soup of wings and chitin. Great, soft-bodied moths with wingspans the size of shields drift through the updrafts, their velvet wings brushing against the walls with a sound like dry paper. Below them, in the crevices of the fired clay, millions of burrowing beetles with iridescent shells vibrate in unison. There are lizards the length of logs that cling to the vertical tiles, their heartbeats visible against the stone. 
+
+The sound is a physical weight. It is a deafening, multi-layered roar of biological existence. It is the communal thrum of wings, the clicking of mandibles, the croaking of amphibians in the damp cisterns, and the constant, rhythmic "thrum-thrum" of the world’s colossal lungs—perhaps the collective breathing of the biomass itself. It is a noise so loud it ceases to be a sound and becomes a vibration in the marrow of one's bones. You do not hear this place; you endure it.
+
+Nothing changes quickly here. The dynamic of the world is a slow, pulsing stasis. A vine might take a decade to cross a plaza; a silt-deposit in a fountain might take a century to harden into new stone. The animals move with a deliberate, languid grace, saving their energy in the thin, high-altitude air. Even the decay is slow, a patient breakdown of matter that feeds the next generation of black ferns.
+
+It is a masterpiece of prehistoric engineering—a world made entirely of brick and bone, humming in the dark, teeming with a billion lives that have never seen a sun, yet flourish in the warm, damp throat of a mountain that has become a city.

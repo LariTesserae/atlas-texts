@@ -1,0 +1,19 @@
+**The Ember Grotto of Aq’theris**  
+
+The grotto is a wound in the earth, a fist-sized hollow carved into the flank of a geothermal chasm. Its walls are obsidian glass, freshly sheared and razor-sharp, still humming with the heat of their recent formation. The air shimmers like a mirage, thick with suspended mineral particles that diffract the light into a blinding, crystalline haze. Every surface weeps—not with water, but with a viscous, luminescent fluid that beads and flows like liquid mercury, pooling in the lowest crevices before seeping into the bedrock. This is *aq’theris*, the "blood of the cradle," a substance older than the ecosystem it sustains.  
+
+Here, plant life is absent, but the grotto is not lifeless. Fungal networks—if they can even be called that—pulse faintly beneath the glassy floor, their hyphae glowing in rhythmic patterns that mimic the heartbeat of a sleeping leviathan. These bioluminescent filaments are the only source of soft light supplementing the harsh, white glow emanating from above: a natural skylight where the cave’s ceiling has thinned to translucence, revealing the scorched sky of a world still cooling from its birth.  
+
+The atmosphere is heavy, pressurized by the weight of the earth overhead. Heat radiates from the walls, a dry, unrelenting force that turns breath to steam and makes the air itself feel liquid. Yet, pockets of coolness linger near the *aq’theris* pools, their surfaces rippling with unseen currents. Tiny, winged silhouettes—barely larger than gnats—skim the edges of these pools, their chitinous bodies metallic and angular, as if machined rather than born. They are the grotto’s only fauna, and they move in silence, their wings beating at frequencies just beyond human hearing.  
+
+The soundscape is sparse but alive with tension. The occasional *clink* of cooling glass, the distant groan of shifting stone, and the faint, rhythmic *thrum* of the fungal network’s pulses. When the *aq’theris* drips, it makes no sound, falling so slowly it seems to defy gravity, each droplet hovering for a breath before merging with the pool below.  
+
+This is a place of paradoxes. The grotto is young—its features sharp, its existence fleeting on a geological timescale—yet it feels ancient, carved by forces beyond time. It is hidden, a microcosm buried beneath layers of rock, yet its brightness is blinding, as if the sun itself has been distilled into this single chamber. And while it appears untouched by hands, the precision of its geometry suggests something deliberate, as though the earth itself has been engineered to create this cradle.  
+
+**Rules of the World**  
+The *aq’theris* is both sustenance and poison. It nourishes the fungal network and the enigmatic fauna, but to organic life from other biomes, it is corrosive. The grotto’s heat warps technology, rendering most tools inert, though the metallic insects seem to thrive on its energetic emissions. Time here feels fluid, as if the grotto exists in a pocket of reality where seconds stretch and contract without warning.  
+
+**Dynamic Processes**  
+Every few hours, the fungal network flares in unison, casting an electric blue light that illuminates the grotto’s hidden corners. During these flares, the *aq’theris* pools churn violently, and the metallic insects swarm in synchronized patterns, their purpose unknown. Afterward, the grotto resettles into stillness, as if holding its breath until the next cycle.  
+
+This is the Ember Grotto of Aq’theris: a womb of glass and light, a secret forge where the boundaries between the mineral and the alive blur, and a reminder that even in the absence of the familiar, life—or something like it—finds a way.

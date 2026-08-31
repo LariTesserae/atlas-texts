@@ -1,0 +1,17 @@
+In the depths of the earth, a vast cavern system is coming into being. The air thrums with a deafening, primordial roar - the sound of stone grinding against stone, of water carving through rock, of the very foundations of the world shifting and settling. This is a place of birth, of raw creation, where the planet itself seems to be exhaling new spaces into existence.
+
+The caverns stretch out in all directions, a labyrinthine network of tunnels and chambers that span for miles. The scale is difficult to comprehend, each new opening leading to another expansive space, the boundaries always just beyond reach. The rock here is young, unweathered, its edges sharp and gleaming where freshly exposed surfaces catch what little light penetrates this subterranean realm.
+
+Water is everywhere, a constant presence that shapes and defines this emerging underworld. It seeps from the walls, forming glistening sheets that cascade down in impromptu waterfalls. It pools on the cavern floors, creating shallow, mirror-like lakes that reflect the chaotic dance of stalactites forming overhead. In some areas, hot springs bubble up from deep fissures, their warm mists mingling with the cool, damp air to create swirling, ghostly patterns.
+
+The atmosphere is thick with moisture, every breath feeling heavy and substantial. Condensation forms rapidly on any surface, giving birth to miniature ecosystems in the span of moments. Tiny, primitive mosses and lichens - the first tentative whispers of plant life - appear and disappear in the blink of an eye, their life cycles accelerated in this turbulent environment.
+
+The few creatures that inhabit this place are strange, adapted to a world of perpetual twilight and constant change. Blind, translucent fish dart through the underground streams, their scales faintly bioluminescent. Pale, eyeless insects scuttle across the damp stone, their antennae hyper-sensitive to the slightest vibration in the ever-shifting landscape.
+
+Scattered throughout this dynamic underworld are the remnants of something older - perhaps a civilization that once dwelled here, or visitors who left their mark. Crude stone tools lie half-buried in freshly deposited sediment. Simple carvings, their edges already softened by the relentless moisture, peek out from behind newly formed stalagmites. A lone wooden structure, miraculously preserved in the wet environment, stands as a silent sentinel in one vast chamber, its purpose lost to time.
+
+The very air seems alive with potential energy. Sparks of static electricity crackle between rock formations, creating brief, dazzling light shows. In some areas, pockets of different gases mix and react, producing strange, swirling colors that dance along the cavern walls.
+
+This is a world in flux, never still, never silent. The constant change is almost dizzying - new passages open as others collapse, underground rivers change course in the blink of an eye, entire chambers seem to breathe, expanding and contracting with the rhythm of the earth itself. It's a place of raw geology, of primal forces at work, where the line between creation and destruction is blurred, and the very concept of permanence seems absurd.
+
+To stand in this place is to witness the birth of a world, to feel the pulse of the planet beneath your feet, to be immersed in the deafening symphony of a landscape writing itself into existence.

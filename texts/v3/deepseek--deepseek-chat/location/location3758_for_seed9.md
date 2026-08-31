@@ -1,0 +1,11 @@
+**The Glassmaker’s Atrium**  
+
+A high, vaulted chamber of pale green glass, ribbed with copper veins, suspended in the mist-wrapped heights of an industrial spire. The air is warm and thick with condensation, droplets forming on the curved panes overhead, trembling before they slide down into narrow gutters that feed a network of shallow canals. The floor is a mosaic of fused ceramic tiles, their surfaces slightly uneven, still settling into their final form—some still soft enough to leave faint impressions underfoot.  
+
+This is a place of making, though not of things so much as *conditions*. The glass itself is alive in a slow, geological sense, still cooling, still shifting, its composition subtly altering as minerals seep up from the hidden reservoirs beneath. The humidity is deliberate, maintained by unseen condensers that hum faintly at the edges of hearing, exhaling vapor into the chamber to keep the walls weeping. The canals guide the runoff in careful spirals, feeding the dense mats of vegetation that cling to the ledges and alcoves—ferns with translucent fronds, vines that pulse faintly with bioluminescent sap, clusters of bulbous moss that swell and contract like lungs.  
+
+There is little fauna here, only the occasional skittering of something small and many-legged, drawn to the warmth but wary of the open space. The true movement comes from the chamber itself: the slow drip of water, the creak of settling glass, the flicker of refracted light as the sun (or something like it) passes through the outer layers of the spire. The air smells of wet metal and crushed herbs, a scent that shifts as the humidity changes, as the plants exhale their thin, medicinal vapors.  
+
+The boundaries of the atrium are unclear—perhaps it was once a single room, but the glass has grown beyond its original frame, fusing with adjacent structures, forming new chambers and passages that branch like capillaries. Somewhere beyond the misted panes, the muffled thrum of machinery persists, a reminder that this is not a wild place, but a cultivated one, a deliberate experiment in controlled decay and growth.  
+
+It is a place caught between states: neither fully formed nor truly unfinished, neither natural nor artificial, but something that breathes in the space between. The rules here are still writing themselves.

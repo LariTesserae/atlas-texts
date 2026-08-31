@@ -1,0 +1,15 @@
+Deep beneath the crust, in a gargantuan, vaulted geode of light-starved limestone, lies The Hum.
+
+It is a world of absolute, frozen stasis. The air here holds a permanent, cool temperature—a shivering 1.3 on the scale—never fluctuating by a fraction of a degree. Because there is no wind and no thermal current, the atmosphere is a thick, dead soup of suspended limestone dust and persistent, heavy condensation. Water does not flow in rivers here; it beads. It clings to the razor-sharp, newly-fractured facets of the obsidian-dark walls in heavy, hemispherical droplets that swell until they succumb to their own weight, falling to shatter against the jagged floor with a rhythmic, percussive *ping*.
+
+The scale of the cavity is immense—a regional sprawl of cavernous interconnected domes—yet it feels empty because of the strange, sparse distribution of the terrain. There is no soil, no sediment, only sharp, crystalline erosion. Every surface is an edge. Stalagmites rise from the ground like upturned knives, still serrated and fresh, untouched by the slow rounding of eons.
+
+But the silence is an illusion. While the landscape is physically frozen in its formation, the *fauna* is where the world overflows. The space is absolutely thick with life. It is not life that runs or hunts, but life that vibrates. 
+
+Millions—perhaps billions—of chitinous, blind, insectoid creatures, each the size of a human palm, cover every square inch of the ceiling and walls. They are the engine of this place. They are creatures of primitive physiology, possessing serrated mandibles capable of scraping against stone to create friction and heat, though they never actually move to a new location. They are locked in a permanent, static posture, legs dug deep into microscopic pores in the rock. 
+
+They are the source of The Hum—a loud, resonant, low-frequency thrum that fills the cavern. It is not a call or a song, but the result of their breathing: a synchronized, rhythmic scraping of wing-covers against their own bodies. Because the environment is so stable, their biological cycles have locked into an eternal, unyielding loop. They are at total equilibrium with their surroundings. 
+
+The light is a sickly, dim luminescence, generated not by a sun, but by the bioluminescent fluid weeping from the crevices of the rocks. It provides just enough visibility to see the sharp geometry of the hall, casting twisted, static shadows that have not shifted in a thousand years.
+
+There is no sign of industry here, no artifacts, no footprints. A traveler—should one descend far enough—would find themselves in a gallery of knives and humming statues. You could walk for miles through the vaulted, echoing dark, your boots crunching on the brittle, mineralized casings of those creatures that have died in situ and calcified into the wall. Everything is unfinished, yet perfectly constant. You are in a subterranean cathedral of glass and chittering, where time has ceased its slow erosion, and the world holds its breath, waiting for a change that the rules of this reality forbid.

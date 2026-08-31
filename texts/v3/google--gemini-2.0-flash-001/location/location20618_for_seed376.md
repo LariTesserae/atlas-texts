@@ -1,0 +1,21 @@
+The air bites with a damp, persistent cold. It’s not the kind of cold that seeps into your bones in a clean, dry way. Instead, it’s a clinging, humid chill that leeches the heat from your skin. You can taste it—metallic and earthy, like the breath of something ancient disturbed from a long sleep.
+
+Elevation is a subtle thing here. The ground seems relatively even, but the constant, low-lying cloud cover emphasizes the drop that takes place beyond a certain point. You are on a sort of plateau, high above a valley filled with a dense mist: the cold descends into that mist, while the wind on the plateau is relatively still.
+
+Vegetation dominates, an oppressive blanket of green in every conceivable shade. It is total. There is no bare rock, no exposed earth. Everything is wrapped, draped, consumed by plant life. It isn't simply growing *on* things; it *is* everything. Trees are less individual specimens and more pillars in a living cathedral, their trunks so thickly covered in mosses, lichens, and climbing vines that the wood beneath is almost irrelevant.
+
+The ground undulates beneath a thick carpet of bioluminescent fungi. These emit a faint green glow, the only visual relief from the otherwise muted palette. Each step sinks into the spongy mass – a symphony of muted squelches as water is displaced from the saturated soil. The plant growth seems to be the only real architecture. There are tunnels through root systems, domes formed by carefully sculpted branches, living shelters created by training vines into particular shapes.
+
+The age of this place is palpable. Erosion has long since ceased being a destructive force and has instead become a defining feature of the landscape. Waterfalls don't carve new paths, but instead flow through channels worn smooth by millennia, almost like polished arteries in the stone. The shapes of the trees, too, have a quality both aged and maintained, as if kept in shape by slow and constant care.
+
+The industrial elements are woven into this verdant tapestry in surprising ways. Narrow-gauge railway tracks, rusted but remarkably intact, snake through the undergrowth. Sections of riveted metal break through moss-covered embankments; the faint aroma of oil hangs in the damp air. Further uphill, where the temperature drops considerably, one can hear the groan of steam, and see the distant shapes of strange factories buried in the heart of the forest, all covered like statues with a thick layer of moss. They hum with a low, persistent vibration, their energy siphoned to the plants that choke their sides. At first they appear to be derelict, but their slow thrumming indicates otherwise. These are not structures of concrete and steel but of iron and gears, operated by steam rather than electricity, and they feed the ecosystem that contains them.
+
+The density is overwhelming. Plants compete fiercely for every inch of space, layering over each other in a constant, silent battle for resources. There is something almost suffocating about the sheer volume of life pressing in from all sides. It is a layered kind of density, each level supporting the next in a complex web of interconnectedness.
+
+Fauna is rare -- but not entirely absent. An occasional flutter of a bioluminescent moth or the rustling of unseen creatures suggests the presence of life beyond vegetation. One might glimpse a pale, eyeless fish in the few open pools of water, or hear it splash as something lands in its water.
+
+The weirdness is subtle. The strangeness is not immediately obvious; it seeps into you gradually, like the cold dampness. The combination of plant-engineered spaces, subterranean factories, and the unnerving silence creates an atmosphere of unease.
+
+The silence is broken only by the occasional drip of water, the creaking of branches under their own weight, and the far-off thrum of the hidden engines. The wind is almost nonexistent, trapped by the forest's density.
+
+Dynamism is in the chaos. This place feels static, but within it festers a powerful engine of change. The growth of every plant, the collapse of any root system, the movement of any water creates new avenues of evolution. It is a system of slow, ever-changing tension. This is a wild garden, but the tending is done from within. A hyper-active ecosystem left to run amok is itself a turbulent, destructive, creative force.

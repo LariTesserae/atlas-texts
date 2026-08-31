@@ -1,0 +1,15 @@
+A vast fungal metropolis stretches through the limestone caverns, its boundaries marked by the constant drip of mineral-laden water from the chamber ceilings. The city, if one could call it that, is a dense mesh of mycelia - pearl-white threads that have colonized every available surface, forming thick mats that pulse almost imperceptibly with chemical exchanges.
+
+The fungal growth has organized itself into distinct districts and levels, creating something that eerily mirrors human urban planning without any conscious design. Shelf-like formations extend from the walls, their undersides streaked with bioluminescent species that provide a soft, diffuse light - just enough to reveal the intricate lacework of life that fills every crevice.
+
+The air is cold and heavy with moisture, creating a perpetual mist that beads on the fungal surfaces. This condensation feeds the ecosystem, trickling down through the layers in established channels that have become calcified over time, forming delicate soda straws and flowstone draperies. The water carries minerals and nutrients, sustaining the dense mat of life that covers everything.
+
+At regular intervals, vast balloon-like structures swell from the general mass - fruiting bodies that will never spawn, as there is no room left for expansion. Instead, they serve as storage organs, slowly processing the limestone itself into more fungal mass. The dissolution of the rock is nearly silent, marked only by the occasional soft crumble of chemically-weakened stone.
+
+The "streets" of this underground city are simply negative space - narrow channels where different fungal colonies meet but refuse to merge, maintaining boundaries through chemical warfare that has been ongoing for centuries. These passages wind and intersect in complex patterns, some leading to underground pools where specialized varieties form floating mats so thick they appear solid.
+
+The whole system moves with glacial patience, expanding fractions of millimeters per year, but the scale of it is breathtaking - extending for kilometers through interconnected chambers, each with its own dominant species creating distinct textures and subtle variations in color: cream, pale yellow, the occasional patch of dusty blue-green where a different kingdom of life has managed to establish itself.
+
+Time here is marked by the steady drip of water and the slow pulse of nutrients through the vast organism-city. There is an eternal quality to it, though it is geologically young - perhaps only a few thousand years old. The freshness shows in the sharp edges of unweathered rock where it still peaks through, and in the vigorous growth that speaks of a system still finding its equilibrium.
+
+In the deeper recesses, where the fungal growth is oldest, the division between organism and mineral has begun to blur. Calcified remnants of earlier growth create rigid structures that new growth follows, leading to repeated patterns that echo through the chambers like architecture designed by some patient, alien intelligence.

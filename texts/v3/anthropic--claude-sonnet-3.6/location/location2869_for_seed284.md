@@ -1,0 +1,15 @@
+In the deep bedrock, there is a pocket of nothing-space. Not a cave - caves are too organic, too shaped by water and time. This is a perfect sphere of emptiness, perhaps fifteen feet in diameter, as if something simply decided that this volume of granite should cease to exist.
+
+The walls are mirror-smooth, impossibly so, and weep constantly with a thin film of condensation that refuses to gather into drops. The moisture simply sheets downward in a perpetual microscopic flow, maintaining a uniform thickness of exactly three molecules. The water carries away heat, keeping the chamber at a constant 3 degrees Celsius.
+
+At precise intervals, a soft mechanical tick emerges from somewhere behind the walls. Each tick is accompanied by a barely-visible pulse of bluish light that seems to pass through the stone itself, illuminating the sphere's interior for a fraction of a second. In these moments, you can see that the air is not empty at all, but filled with intricate patterns of suspended dust motes that rotate and realign themselves with each pulse, like iron filings around a magnet.
+
+The dust is not natural - each particle is a perfect tetrahedron, measuring exactly 7 microns along each edge. They appear to be manufactured from an unknown grey metal that absorbs more light than it should. Occasionally, two particles will drift close enough to touch, and they immediately fuse into a larger geometric form that maintains the same mathematical precision as its components.
+
+There is only one entrance: a perfectly circular tunnel, just wide enough for a person to crawl through, that extends for exactly 100 meters before intersecting with a natural fissure in the rock. The tunnel's walls have the same impossible smoothness as the sphere, but are completely dry. Every few hours, something like a sigh echoes up this passage - not a natural sound, but rather the ghost of some vast machine's exhalation.
+
+The sphere is clearly artificial, clearly purposeful, but its purpose remains opaque. It feels less like a abandoned place and more like an active process - something slowly taking shape, or perhaps slowly unmaking itself, operating on a timescale too vast for human perception. The dust-motes continue their endless dance, the water maintains its precise film, and somewhere in the deep rock, hidden mechanisms tick forward toward some unknown conclusion.
+
+A single species of pale, eyeless arthropod, no larger than a grain of rice, occasionally skitters across the sphere's walls. They seem to follow the geometric patterns traced by the suspended dust, but whether they are part of the sphere's mechanism or merely opportunistic inhabitants remains unclear.
+
+The whole space feels like a comma in the middle of a sentence - a deliberately placed pause in the midst of some larger statement we cannot read.

@@ -1,0 +1,17 @@
+The air hangs thick and cold in the cavern, heavy with a dampness that beads on every surface. It isn't rain, not exactly, though sometimes droplets do plink from the unseen heights of the ceiling. More like a perpetual condensation, a clammy breath exhaled by the rock itself. Pools of water gather in the deeper hollows of the floor, reflecting the meager light like scattered eyes. 
+
+Vegetation is scarce but not absent. Patches of pale, bioluminescent moss cling to the dampest walls, casting a faint, ethereal glow. Here and there, thin, spidery fungi thrust up from the rock, their caps drooping with moisture. Their light is weak, barely competing with the darkness, but enough to see by in small pockets.
+
+The cave is young. Cracks and fissures still run raw, as if cleaved by a giant's hand. This isn't gentle erosion, the work of centuries of dripping water. It feels like the earth has only recently shifted, revealing this hidden chamber. The air tastes of fresh minerals, of exposed rock and something else - something organic.
+
+This cavern opens into a network of passages, a small valley beneath the stone. It's open in that sense, a connected space that extends beyond immediate sight. Sparse illumination allows only glimpses of distant walls and echoing chambers.
+
+Life permeates here. A cacophony echoes in the darkness. Not a pleasant chorus of unseen birds or fluttering wings, but a dense, layered wall of sound that presses on the eardrums. Scuttling, chirping, clicking, growling, rasping, sighing. A high-pitched whine pierces through the lower frequencies like a needle. There are so many creatures in this place, moving in the dark, their voices amplified by the stone.
+
+Among them, the Skitters maintain the little light there is. They are a people, yes, but skitter is also what they do. They are insectile in a way that is unnerving. Six limbs, dark carapaces, and multifaceted eyes. They have simple tools, mostly made of bone and stone, used to cultivate the luminescent moss and gather the few edible fungi. They weave crude baskets from flexible vines, foraged from other dark places. Their settlements are transient - temporary camps erected in the drier sections of the cavern.
+
+The Skitters live in a world of unending night, defined by the constant, overwhelming presence of creatures they can barely understand. They are prey, but they survive through vigilance, cunning, and a deep connection to the rhythms of the cavern. They can sense subtle shifts in the air currents, the vibrations of approaching feet, the unique song of each species.
+
+Despite the dynamism implied by their surroundings, the Skitters' lives are caught in an endless loop: hunt, gather, breed. It's a stable state, a frozen equilibrium. The creatures around them may change, new species may emerge from the depths, but the Skitters' role remains constant. They dance on the razor's edge of survival, forever in the shadows, forever listening to the symphony of the deep.
+
+There are no gods in this place, no grand narratives, only the cold reality of hunger, fear, and the faint, flickering light of the moss. The Skitters understand this. They are a part of the cavern, as much as the rock, the water, and the creatures that crawl in the dark.  They are, in their own way, unchanging.

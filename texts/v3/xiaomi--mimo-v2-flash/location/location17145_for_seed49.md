@@ -1,0 +1,25 @@
+You are standing in a place that never stops breathing.
+
+The ground is not soil, not rock, but a mineralized mosaic of wet, warm stone—veined with water, slick with condensation, and humming with a low-frequency vibration that you feel in your teeth before you hear it. The air is thick, not with humidity alone, but with a dense, layered presence: everything is *here*, and there is no space between things. The scale is continental, but the density is urban, and the boundary between the two has collapsed.
+
+The water is not flowing—it is *present*. It seeps from the stone, rises as vapor, condenses on every surface, and pools in shallow, glimmering basins that reflect a sky of normal light, though that light seems to bend slightly at the edges, as if the atmosphere itself is a lens. Marsh-edge, post-rain, weeping rocks: all of these are true, but the water is not just water. It is part of a system, a circulatory network woven into the mineral substrate, and it moves with purpose. You can see it pooling, draining, rising, falling in cycles that are too regular to be natural and too chaotic to be engineered—until you realize the engineering *is* the natural state here.
+
+There is no plant life. No trees, no grass, no moss. The world is mineral, fungal only in the sense of *mycelial networks*—but those are not biological here. They are energy patterns, crystalline pathways of light and heat, grown in the interstices of the stone, glowing faintly in the dim, wet air. The vegetation parameter is 0.4, and that means *absence of recognized biology*. What grows here is geometry. What blooms is resonance. What roots is vibration.
+
+The temperature is warm—2.0, a gentle, constant warmth that never shifts. No seasons, no night chill, just the perpetual humid heat of a place that holds its own climate. The air does not cool. The stone does not lose heat. It is a thermal equilibrium that feels almost *held*, as if the entire landscape is a closed system, perfectly balanced, and yet—
+
+It is turbulent. Hyperactive. The dynamic is 2.9, and that means the place is in a state of near-constant reconfiguration. The stone *breathes*. Not metaphorically. You can see it: slow pulses along the mineral seams, expansions and contractions that ripple across the ground in waves. The water responds, sloshing in its basins, rising in sudden geysers of vapor that collapse as quickly as they form. The air *shimmers* with invisible motion—nanoscale constructions, perhaps, or post-modern-tech systems operating on principles beyond current physics. The built parameter is 2.4, urban, but this is not a city of walls and roofs. It is a city of *systems*, of layered constructions that grow and decay and reorganize themselves in real time. The infrastructure is not static; it is *alive*, in the way that a weather system is alive.
+
+And the sound is deafening.
+
+Not a single noise, but a chorus: the low hum of the stone, the hiss of vapor rising, the wet slap of water collapsing back into itself, the high-frequency whine of invisible systems at work, the groan of mineral shifting, the *breath* of the place itself—a sound like a million lungs inhaling and exhaling in unison. It is not silence, not peace. It is presence made audible. You have to shout to be heard, but shouting is pointless; the sound swallows all speech.
+
+The fauna is abundant, but not biological. They are not animals. They are *presences*—shimmering forms that move through the vapor, geometric entities that slide along the stone, energy-patterns that feed on heat and vibration. Some are small, like insects, but made of light. Others are large, slow-moving structures that drift through the air like jellyfish, trailing filaments of condensation. They do not notice you. They are part of the system, another layer in the packed, saturated world.
+
+The erosion is established—1.5—but that does not mean it is slow. It means it is *balanced*. The stone wears and regrows in the same breath. The water carves channels and fills them again. The systems destroy and rebuild in cycles so fast they blur into a single, continuous state. This place has existed like this for a long time. It will exist like this for longer still.
+
+And the weirdness—1.1, unusual—seeps in at the edges. A shadow that moves against the light. A sound that repeats your own voice back to you, but slightly wrong. A patch of stone that is warm to the touch when it should be cool, or cool when it should be warm. A sense that the place is *watching*, not with eyes, but with the weight of its own attention.
+
+You are not a visitor here. You are a temporary configuration, a brief anomaly in a world that is already fully occupied, already packed with meaning, already saturated with its own logic. The rules are simple: move with the flow, or be moved. Listen to the sound, or be deafened. Let the stone breathe you in, and breathe you out again.
+
+This is a landscape of perpetual reconfiguration, of mineral breath and vapor thought, of urban systems that grow like coral reefs and fauna made of light. It is warm, wet, vast, and loud. It is not for you. It is itself.

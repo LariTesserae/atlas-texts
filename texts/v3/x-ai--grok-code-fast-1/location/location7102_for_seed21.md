@@ -1,0 +1,1 @@
+The air here clings to you like a damp shroud, thick with moisture drawn from the weeping rocks that dot the landscape, their surfaces beaded and trickling with constant condensation. It's not rain per se—though the sky hangs low with the promise of it, a gray over

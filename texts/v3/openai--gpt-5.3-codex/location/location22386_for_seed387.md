@@ -1,0 +1,30 @@
+At first it feels less like arriving somewhere and more like being inserted into a pressure system.
+
+You descend through warm, particulate water into a cavity beneath the cavity of something larger—a drowned maintenance district hidden under a drowned city. The chamber is not vast; it is pocketed, infrastructural, a buried organ. Its ceiling is low in places, vaulted in others, all ribbed with conduits and old catwalk skeletons. Concrete, ceramic tile, oxidized steel, black rubber gaskets the size of wagon wheels. Nothing grows here. Surfaces are filmed, not greened—slick bacterial sheens and mineral bloom in thin iridescent skins, like oil trying to remember color in dim light.
+
+The light is weak and practical: caged sodium lamps, emergency strips, instrument panels behind thick clouded glass. Most of it is amber, some of it a pale industrial cyan. None of it reaches far. Every beam dies after a few meters in suspended silt and ferric haze. So the district appears in fragments: a staircase ending in water, a gantry with no floor, a row of pressure doors each marked with numbers that have flaked away to pale ghosts.
+
+And then the sound resolves.
+
+It is deafening not as a single roar but as stacked systems: turbine thrum in your bones, valve-hammer impacts like distant artillery, endless hiss of forced flow through narrowed throats, cavitation popping like a storm made of bubble-collapse, alarm tones that have become part of the ecology through repetition. Every pipe sings at a different pitch. Every metal plate contributes a sympathetic buzz. The water itself carries the machinery’s voice cleanly and brutally; you do not hear so much as inhabit vibration. Silence is impossible here. Even in supposedly idle sectors, pressure equalization clicks and relay chatter continue like insect noise, though there are almost no insects, almost no animals at all.
+
+The terrain is civic but eroded into function. Streets, if they were streets, are now canals between equipment blocks. There are plazas of grated flooring where workers once assembled, now bowled by decades of flow into scalloped basins of exposed aggregate. Corners are rounded by current, painted hazard stripes feathered to soft bands. Sediment banks gather in the lee of bulkheads and are periodically stripped away when pumps cycle up. Everything has been in this state a long time—not static, but settled into its turbulence. A place in equilibrium with violence.
+
+You start to understand scale: this is urban in organization, not in crowding. Numbered sectors, traffic markings, switchyards, maintenance kiosks, dormitory modules bolted into dry niches above floodline marks. Yet it feels empty to a near-ritual degree. Long corridors where only one service drone moves every hour. Apartment rows sealed and dark, each with a viewing port now looking into murk. Signage still points to cafeterias, laundry, infirmary, dispatch—ghost institutions under constant mechanical weather. The city survived structurally and evacuated socially. It is a civic shell maintained by process.
+
+Occasionally life appears.
+
+A pale eel-like fish, blind and almost translucent, riding warm outflow near a cracked exchanger. Colonial mats of chemoautotrophic slime where metal-rich seep meets oxygenated intake, pearly and trembling in the current. Once in a while, a six-legged inspection crab—part machine, part crustacean lineage engineered generations ago—clamps to a pipe and waits out pressure surges with perfect stillness. They are few. Scarcity is one of the laws here.
+
+Another law: nothing remains where you leave it. The hydraulic pulse cycle shifts every few minutes to every few hours depending on load from above. A calm channel becomes a whipping chute. Quiet sediment plains erupt into opaque storms. Doors that were passable become inlets. Ladders become weirs. The district is mapped, but maps are temporal documents, accurate only for a moment. Residents once learned to read pre-vibration through handrails, to taste salinity changes, to count the lag between warning siren and gate closure. The place rewards those who treat infrastructure as weather.
+
+Warmth comes from work—geothermal bleed and waste heat from compressors still running deep in shielded rooms. Water near the reactor exchangers is almost bath-hot, carrying metallic tang and a faint sulfur sweetness. Farther out, it cools but never chills. Steam pockets gather under trapped ceilings, making mirrored domes where sounds sharpen and rebound. If you surface inside one, you hear the machinery directly through air: harsher, more jagged, with the shocking intimacy of sheet metal flexing a meter from your face.
+
+There are districts within the district.  
+The Intake Cathedral: vertical shafts with trash screens and spinning drum filters the size of houses, each revolution slow and implacable.  
+The Switch Terrace: rows of knife-switch arrays and breaker towers on raised plinths, all wrapped in insulating varnish and salt crust.  
+The Flood Market: once a true bazaar for shift workers, now an accidental convergence of floating crates, detached signage, and autonomous carts that still navigate obsolete routes, politely yielding to no one.
+
+Weirdness stays just below spectacle. Instruments occasionally display values from sensors that no longer exist. Public address speakers emit maintenance instructions in voices of people dead for decades, because no one ever replaced the tape loops. In one side chamber, a pressure window looks not into adjacent water but into a still black volume that swallows lamp light entirely; engineers labeled it “non-return void” and built around it. The pumps nearby run smoother than anywhere else.
+
+Above all, this hidden undercity is not ruined in the romantic sense. It is operationally haunted. It endures through routines so old they have become geology. Water moves, machines answer, alarms insist, and the whole pocket-world continues to manufacture stability out of constant upheaval—warm, dim, mostly empty, permanently loud, alive only where process allows.

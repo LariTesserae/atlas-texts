@@ -1,0 +1,23 @@
+# The Curators' Greenhouse
+
+You step through a weathered metal door into a realm where plant and machine have achieved an uneasy symbiosis. This is no ordinary greenhouse, but a long-established experimental chamber where vegetation has been given primacy for decades, perhaps centuries.
+
+The space unfolds as a single vast chamber, cathedral-like in its proportions but enclosed entirely in aged glass panels held by ironwork ribs that arch overhead. Most panes remain intact, though here and there a missing section has been colonized by opportunistic vines that dangle inward. The glass is not clear but hazed with time and condensation, lending the substantial daylight a diffuse, golden quality as it filters through.
+
+Every horizontal surface—and many vertical ones—teems with plant life. The original layout must have been orderly: you can just make out the remnants of raised beds, now overflowing with competing species. Wooden walkways intended to separate growing areas have themselves become substrates, sprouting fungi and mosses from every crack. The plants have achieved total dominance of the space, not merely occupying but transforming it into a single interconnected system.
+
+The air hangs warm and heavy with moisture. From above, a network of copper pipes with small perforations releases a perpetual fine mist that drifts downward, catching light in ephemeral rainbows. This ancient irrigation system still functions, fed by rainwater collected in massive tanks visible through the eastern wall. The floor squelches underfoot—what might once have been concrete is now a continuous bog of decomposing plant matter and standing water in shallow pools. In places, the floor has subsided completely, creating deeper pockets where water collects in tea-colored basins.
+
+The sound is what surprises you most. Beyond the expected dripping and the rustle of leaves in the artificial breeze created by ancient ventilation fans, there is a persistent mechanical chorus: clicking timers, the measured thumping of pump systems, hissing steam from pressure-release valves. These industrial elements don't intrude upon the vegetation but serve it—a web of Victorian-era technology that has become integral to the ecosystem.
+
+Cast-iron staircases lead to catwalks that allow access to the upper reaches of the chamber, though many are now impassable due to structural plants that have incorporated the metal into their growth patterns. Brass gauges and control panels are stationed at irregular intervals, their faces nearly illegible beneath patinas of verdigris, still dutifully monitoring conditions their human operators have long since abandoned.
+
+The plants themselves display unusual properties. Some appear to have been bioengineered, with leaves that glow faintly in shadowed corners or flowers that open and close in sequence, creating wave patterns across the canopy. Others have developed peculiar adaptations to the mechanical elements—vines that wrap precisely around pipes, leaves that orient toward the fans rather than the natural light, roots that grow in perfect concentric circles around drainage grates.
+
+Wildlife is notably scarce—an occasional dragonfly darts between pools, and somewhere unseen, a solitary frog calls out at measured intervals, almost like another timing device. The absence of pollinators is conspicuous; many plants have evolved self-pollinating mechanisms, their reproductive structures enlarged and modified in unsettling ways.
+
+In one corner stands an ornate iron desk, its surface cleared of vegetation as though recently used. Logbooks lie open, their pages covered with handwritten observations that stop abruptly mid-sentence. Nearby, glass specimen containers hold preserved plant samples, labeled in a careful script with Latin names followed by notations like "Generation 17" or "Hybrid Series D."
+
+The most disquieting feature becomes apparent only gradually: the plants respond to your presence. Not dramatically, not quickly, but undeniably. Tendrils reorient slightly, flowers turn incrementally, leaves stiffen or relax. The entire chamber seems to be a single organism with distributed awareness, assessing you through countless green sensors.
+
+This is no abandoned experiment—it is an experiment that has outlived its experimenters, continuing its slow evolution according to rules set in motion long ago, recording data no one remains to interpret, maintaining conditions for purposes now forgotten. The greenhouse has become its own curator.

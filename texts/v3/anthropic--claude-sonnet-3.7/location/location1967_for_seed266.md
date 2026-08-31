@@ -1,0 +1,25 @@
+# The Glass Seabed
+
+The water is not merely around you; it is the very essence of this world. A vast, perfectly clear ocean stretches in all directions, its surface so distant above that it exists only as theory. Here, in the deepest reaches, the water has achieved a peculiar stability—a suspended state of perfect clarity that defies the normal physics of turbidity and flow. The ocean is ancient beyond measure, so old that it has settled into its final equilibrium state, with currents so subtle they're measured in centuries rather than hours.
+
+The seabed extends outward in an impossibly flat plain, as though some primordial force had pressed the very earth until no imperfection remained. What was once rock has been worn to a material that resembles neither sand nor stone but something between—crystalline particles that interlock microscopically, forming a surface that feels solid underfoot despite being composed of trillions of discrete elements. The erosion here is complete, total; the landscape has forgotten what it means to have mountains or valleys.
+
+Across this ancient plain stands the settlement. Not a city as you might understand it, but a network of interconnected transparent domes and tunnels that pulse with a soft blue luminescence. The structures are built from a material that appears to be glass but behaves like a living membrane, self-healing and semi-permeable in ways that seem to defy conventional material science. The architecture follows no discernible human logic—curves flow into impossible angles that somehow remain structurally sound despite the crushing pressure of the deep.
+
+Between these structures lie vast, empty expanses of the crystalline seabed, each dome connected to others by slender translucent tubes that stretch for kilometers. The spacing suggests intention—as though proximity were somehow undesirable to whatever intelligence designed this place. Each structure stands like an island in a perfectly still sea of emptiness.
+
+The vegetation is sparse but striking—colonies of what resemble massive crystalline fungi rise from the seabed at irregular intervals. They grow with glacial slowness, some reaching heights of thirty meters, branching into delicate fractal patterns that capture and refract the blue light from the city structures. These are not truly plants as Earth would know them—they're silicon-based life forms that metabolize minerals from the seabed, growing perhaps a centimeter per century.
+
+The ambient temperature hovers just above freezing—a persistent cool that would be uncomfortable to human flesh but seems optimal for the technology that permeates everything. Heat appears to be a byproduct carefully managed and minimized, as though thermal energy were a form of waste.
+
+Sound travels strangely here. The density of the water and the perfect acoustic properties of the seabed create a constant symphony of mechanical operations—low-frequency hums and high-pitched resonances that would be deafening were it not for the way they seem to organize themselves into coherent patterns. It's the sound of machinery operating at scales both quantum and massive, a technological chorus that never rises or falls but maintains a perfect, unchanging intensity.
+
+Inside the domes, automated systems perform functions beyond easy comprehension. Machines that might be computers or might be something else entirely process information through mediums that aren't electronic—using light, quantum states, or properties of water itself to calculate and communicate. There are no interfaces meant for human hands; everything is designed for different appendages or perhaps no physical interaction at all.
+
+Despite the complexity and scale of this settlement, there is no animal life—no fish, no crustaceans, not even microbial clouds. The water is sterile in a way that feels deliberate rather than tragic. Whatever built this place either had no need for biological companions or found their presence incompatible with their work.
+
+The light here is neither bright nor dim but perfectly calibrated—sufficient to illuminate every surface without creating shadows or glare. It emanates not from discrete sources but seems to be a property of the water itself, as though each molecule had been programmed to emit precisely the necessary wavelength.
+
+Time has no meaning here. Nothing grows or decays at a perceptible rate. Nothing moves except the occasional pulse through the transparent tubes—signals or materials being transported between domes. This place reached its final form eons ago and now exists in a state of perfect, unchanging equilibrium.
+
+The overwhelming sense is of stumbling upon the abandoned workshop of gods—or perhaps it isn't abandoned at all, but simply operates on a timescale so vast that its inhabitants might take centuries to complete a single thought, their movements too slow for human perception to register as anything but stillness.

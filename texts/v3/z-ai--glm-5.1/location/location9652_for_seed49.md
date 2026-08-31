@@ -1,0 +1,1 @@
+The first thing that strikes you is theContinuethe sound. Not a sound—*sounds*. A continent of them, layered so dense they become a weather system all their own. TheContinue

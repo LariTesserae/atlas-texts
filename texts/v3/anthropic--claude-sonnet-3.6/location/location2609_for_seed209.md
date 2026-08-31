@@ -1,0 +1,17 @@
+Carved into the face of an ancient mountain range stands the City of Wells, its countless chambers and passages honeycombing the grey stone like the traces of bookworms through paper. The city rises in irregular terraces, each level connected by worn stone stairs and ramps that switch back and forth across the near-vertical faces. At this elevation, the air is thin and bitter cold, yet somehow the city thrums with life.
+
+The inhabitants - a diverse society of cave-dwelling creatures - have gradually expanded their domain over millennia, guided by the presence of thermal springs that dot the mountainside. These springs, warmed by deep geological processes, provide the only liquid water in an otherwise frozen landscape. Around each spring-chamber, concentric rings of dwelling-spaces have been carved, their walls polished smooth by generations of bodies passing through.
+
+The sound is constant: the hollow echoing drip of water through stone, the scraping of claws and chitinous appendages on rock, the deep resonant hooting of vast cave-dwelling birds that nest in the higher chambers, and the perpetual working of stone - the slow, methodical chipping away as new spaces are carved from the living rock using simple tools of harder stone and crude metals.
+
+Every surface bears the marks of extreme age - there are no sharp edges here. Each corner has been rounded by countless brushing passages, each step worn into a smooth depression, each doorway polished to a dull sheen. The rock itself seems to have settled into these shapes, as if the city's forms are not carved but grown, emerged over eons of use.
+
+In place of plants, pale fungi carpet the damper passages, and crystalline formations grow with geological patience wherever water seeps through the stone. These crystals catch and scatter what little light filters down from the high openings or emanates from bioluminescent colonies that pattern the walls in living constellations.
+
+The architecture follows the natural weaknesses in the stone - no straight lines here, but organic curves and unexpected angles. Dwelling spaces cluster around the thermal springs like organs around arteries, connected by a maze of passages that range from grand processional hallways to cramped crawlways barely wide enough for a single body.
+
+The inhabitants have developed intricate social patterns around the springs, with complex hierarchies determining access to the precious warm water. The most ancient and important chambers host elaborate carved reliefs, worn so smooth by time and touch that they're barely legible, depicting what appear to be origin stories or important historical events.
+
+During the frequent periods of mountain storms, the entire city seems to sing - wind finding its way through thousands of carefully carved resonance chambers, creating an ever-shifting harmony that echoes through the passages. These storm-songs are said to carry messages from the ancestors who first carved these halls.
+
+Despite its age - or perhaps because of it - the city feels alive, but with a life that operates on a vastly different timescale than surface dwellers might recognize. It is a place where the boundary between the built and the grown, between the quick and the slow, between the living and the mineral, has long since dissolved into something altogether more profound.

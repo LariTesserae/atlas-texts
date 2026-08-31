@@ -1,0 +1,21 @@
+The first thing that strikes you is the impossible weight of the air, given the altitude. This is a high-elevation world, a vast, sweeping plateau scooped into an immense, regional basin. Yet, rather than crisp mountain breezes, the atmosphere inside this geographical bowl is thick, muggy, and oppressively warm. It feels like inhaling steam. 
+
+The second thing—the thing that quickly subsumes everything else—is the noise.
+
+It is a deafening, physical presence. A continuous, bone-rattling drone of deep bass grinding, intercut with massive, breathy roars that never cease, never fluctuate, and never pause. It is so loud that the concept of individual sounds ceases to exist; you cannot hear footsteps, you cannot hear a shout, you cannot hear the scrape of a stone. The noise is a solid object. You have to lean into it to walk.
+
+The terrain here is deeply, anciently established. Over millions of years, water and wind have sculpted the pale, sandstone-like rock into perfectly smooth, undulating curves. There are no jagged peaks or sharp ravines. Instead, the basin floor rolls in massive, sweeping arcs, pockmarked by immense, terraced sinkholes and smooth, bowl-like valleys. The stone is warm to the touch and slick.
+
+Everywhere, the landscape is weeping. Water does not fall as rain, nor does it rush in wild rivers. Instead, the heavy, humid air constantly condenses against the high-altitude stone. The smooth cliffs and rolling dunes of rock are perpetually coated in a creeping sheen of moisture. Water beads on every surface, tracing slow, winding paths down into the deep, rounded depressions, forming warm, shallow, glassy pools. 
+
+Rising from this wet, sprawling emptiness is a city of machines. 
+
+It is an industrial settlement of staggering scale, yet strangely empty. The architecture is not cramped or claustrophobic; the structures are spaced miles apart, separated by vast stretches of bare, weeping stone. But they are colossal. Plunged deep into the eroded sinkholes and towering into the hazy, daylight sky are great, windowless monoliths of rusted iron, oxidized copper, and stained concrete. Giant turbines, hundreds of feet in diameter, turn with agonizing slowness. Pipes the width of highways snake across the smooth rock valleys, connecting one distant industrial island to the next.
+
+This is the source of the crushing noise. The city is a unified, mechanized leviathan designed for a single, patient purpose. These scattered super-structures are atmospheric condensers and sonic harvesters. They do not pump water; they coax it from the high air through sheer vibrational acoustic force. The deafening, relentless frequency that fills the basin is physically rattling the moisture out of the passing clouds, forcing it to precipitate in the unrelenting heat. 
+
+Because of the noise, the sheer volume of the engineering, and the endless thermal wetness, organic life is almost completely absent. There are no trees to break the sweeping lines of the horizon, no grasses gripping the rocks. Vegetation is reduced to stark, specialized minimalism: thick, leathery mats of rust-colored thermal algae that choke the overflow channels, and iridescent green slimes that cling to the humid, vibrating flanks of the great pipes. Fauna is even rarer. No birds fly here—the acoustic pressure would rupture their organs. If there is animal life, it exists as blind, gelatinous scavengers creeping deep within the flooded culverts, deaf and indifferent to the roar.
+
+Despite the monumental scale of the industry, the world feels utterly static. There is no frantic production, no sudden bursts of steam, no rushing vehicles. The immense turbine blades rotate at the speed of a minute hand. The condensation gathers drop by patient drop. The wide, pale sky above maintains an ordinary, steady, hazy daylight, indifferent to the bruised, vibrating atmosphere below holding its heat. 
+
+It is a strangely balanced ecosystem of geology and mega-technology. The smooth, ancient rock perfectly cradles the colossal machines; the machines scream into the sky to summon the water; the weeping water slowly, over eons, cuts the rock even smoother. It is a slow, hot, deafening eternity, stretching out across the horizon, wet and roaring, locked in a cycle that feels like it will outlast time itself.

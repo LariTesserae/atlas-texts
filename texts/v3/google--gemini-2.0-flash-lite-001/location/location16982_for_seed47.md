@@ -1,0 +1,15 @@
+The world is a vast, ancient expanse of shattered obsidian. Not the smooth, glassy obsidian of earthly volcanoes; this is a coarser stuff, a dark, granular material that stretches across a continent-sized plain. It's a landscape of endless, low relief, a barely-there topography. The elevation is high, but the erosion has done its work. The sharp edges are gone, leaving a surface that is almost, but not quite, flat. It's a land of near-nothingness, with a density so low it feels as though the ground itself is mostly absence.
+
+There is no water. No rivers, no lakes, no oceans. The sparse vegetation reflects this stark reality: small, crystalline structures that occasionally pierce the obsidian ground. They are not like any plant life familiar to us. Instead of absorbing photons, they seem to emit them, tiny sparks of light that flicker erratically. These are the weirdest of the fauna, scattered across the plain like aberrant stars.
+
+The air is cool, carrying with it a sense of deep time. The temperature fluctuates, influenced not by a distant star but by something else entirely, something deeply alien to our understanding of physics. Energy is in constant motion, a turbulent sea of interactions. The scale is vast, the dynamics hyperactive. Great storms of dust, tinged with a faint, iridescent glow, build and collapse in moments.
+
+The light is normal, but the way it interacts with the obsidian changes things. The darkness of the ground absorbs it, while the crystalline structures are illuminated, casting eerie, shifting glimmers. The light, the dust, and the crystals create a kaleidoscope of color across the plain.
+
+Sounds are, at best, quiet. The wind whispers occasionally. Sometimes, very rarely, a crystalline structure might ring out a note so pure as to be impossible, or they might emit other sounds that could be described as the echoes of echoes, or possibly thoughts.
+
+Here and there, scattered across the plains, are remnants of a lost civilization. Small structures, barely visible, built from a material unlike anything we know. They are not designed; they *became*. The best description may be half-imagined fractal mathematics. They are too distant for definitive analysis, yet seem to hum with a latent energy. They are perhaps the focus of, or participants in, the turbulence that defines this world. They are the marks of a beyond-modern technology, something that danced with the forces of creation itself.
+
+The fauna are rare, almost mythical. In the distance, one might see a creature that may be part dust and part crystal, and part nothing. Their movements are erratic, almost as if they are shaped by the chaos of the storms, or perhaps actively choose to use them.
+
+This place is not a world settled into its final form; it *is* the final form. It's a snapshot, a single moment stretched across eons. A landscape sculpted by forces we cannot comprehend, a testament to a cosmic architecture both beautiful, terrifying, and profoundly empty. This is a place beyond definition, a silent symphony of dust, crystal, and the echoes of what was, what is, and what will never be.

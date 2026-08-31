@@ -1,0 +1,17 @@
+The air is thick, not with water, but with particulate—a suspended, metallic dust that glimmers faintly in the gloom. It is a dry heat, a desiccating oven that sucks the moisture from the skin instantly, leaving the throat raw and the eyes gritty. This place is a pocket, a capsule of existence carved into the sheer vertical face of a towering basalt spire. It is not a room, yet it feels like one; a high-altitude cathode of compressed geology, isolated from the world below by miles of empty atmosphere.
+
+The walls are raw, exhibiting an embryonic sharpness. There are no smooth curves here, no wind-worn arches. The rock is fractured, jagged, and fresh, as if the mountain split open only moments ago to reveal this chamber. The mineral faces are black and glassy, obsidian-sharp under a thin coating of gray ash. It is a landscape of edges.
+
+Darkness dominates. Light does not come from a sun, which is likely far above the cloud layer, but from the environment itself—a miserly, bioluminescent gloom. It is a twilight of purples and bruised oranges, just enough to define the sheer density of the space.
+
+And it is packed. There is no empty volume here. The chamber is saturated with life, a writhing, clattering density of fauna that occupies every horizontal surface and climbs the walls in teeming columns. This is the engine room of the mountain.
+
+The creatures are hard-shelled, multi-limbed, and roughly the size of a dinner plate. They resemble a cross between a crab and a steam engine, their exteriors plated in natural chitin that clacks and grinds with a percussive, industrial rhythm. They are the source of the "tech" here—not built, but evolved into machinery. They move with a slow, deliberate, hydraulic patience. Their joints hiss with vented gas; their mandibles click in time with a subsonic thrum that vibrates through the soles of your feet.
+
+There is no vegetation to soften the scene. No moss, no ferns, no vines. The floor is a moving pavement of these carapaces. The ecology is one of pure processing. The creatures feed on the minerals of the fresh rock, using specialized enzymatic drills to bore into the basalt, consuming the stone and excreting a fine, silicate dust that fills the air. They are living smelters, biological converters turning raw elevation into refined heat.
+
+The noise is deafening, a heavy industrial roar. It is the sound of a million chitinous legs skittering over stone, the grinding of rock against shell, the low-frequency thrum of their collective metabolism. It is the auditory equivalent of a locomotive braking in a tunnel, relentless and loud.
+
+Everything is slow. The chaos appears frantic, but observation reveals a glacial pace. A single creature turning to grind against the wall takes minutes to complete the arc. The excavation of the rock is a project of epochs. The dynamic is a slow, crushing pressure. The crowd does not riot; it pulses. It is a solid state of biology, slowly advancing, consuming the room, generating the immense, dry heat that radiates from the living floor.
+
+To stand here is to be an obstruction in a gearbox. The air is too hot to breathe comfortably, too thick with dust to see clearly. The walls press in, jagged and dark. The sound is a physical weight on the chest. It is a factory without a builder, a foundry of flesh and stone operating in the dark, high above the world, slowly eating the mountain alive.

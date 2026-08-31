@@ -1,0 +1,11 @@
+You find yourself in an otherworldly pocket realm, tucked away from the world above. A cool, damp atmosphere envelops you, the air heavy with moisture that seems to condense and weep from the very stones around you.
+
+Underfoot, the ground is strewn with a hodgepodge of peculiar mineral formations, their surfaces smoothed and shaped by eons of slow erosion. Delicate traceries of strange, crystalline structures twist and wind across the rocky terrain, glittering softly in the dim light that filters down from some unseen source above.
+
+Despite the abundance of water and the well-established, ancient feel of this place, there is a striking absence of any recognizable plant life. No verdant mosses or tendrils of ferns grace the nooks and crannies. Instead, a carpet of pale, fleshy fungi spreads across the damp earth, their bulbous forms pulsing gently as if drawing sustenance from the very stones.
+
+While this mineral world may at first seem barren, a closer look reveals a teeming ecosystem of bizarre fauna. Translucent, slug-like creatures inch their way across the fungal blooms, leaving glistening trails in their wake. Clusters of spindly, insectoid beings scuttle and click among the crystalline growths, their multifaceted eyes refracting the dim light.
+
+Scattered throughout this alien landscape are the crumbling remains of what appear to be primitive structures – rough-hewn dwellings or shrines, perhaps, fashioned from the very rock and mineral deposits that make up this realm. Faint etchings and tool marks hint at the presence of some ancient, long-departed civilization that once called this place home.
+
+The entire pocket realm seems to thrum with a constant, low drone – the very vibrations of the living stone itself, punctuated by the occasional piercing trill or click from the strange denizens that dwell here. It is a world unto itself, hidden away from the surface realms, where the usual rules of nature seem to bend and twist into something wholly alien and unfamiliar.

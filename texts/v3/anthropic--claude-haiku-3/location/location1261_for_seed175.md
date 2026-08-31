@@ -1,0 +1,7 @@
+Towering glacial peaks rise up like sentinels, their icy flanks glistening in the muted light. Vast, rolling hills of mossy tundra stretch out as far as the eye can see, interspersed with hundreds of mirror-still lakes and tarns. The air is thick with the scent of damp earth and the lingering chill of long winters.
+
+The soundscape is dominated by a constant, deafening roar - the thunderous grinding of immense glaciers carving their way through the ancient landscape. The rumble of colliding tectonic plates echoes across the valleys, a ceaseless symphony of geologic forces. Occasionally, the booming crack of calving ice echoes through the stillness, a reminder of the dynamism beneath the surface.
+
+Despite the industrial scale and power of the environment, signs of life are sparse. Sparse tufts of hardy, wind-blown vegetation dot the landscape, their colors muted in the dim, diffuse light. No animal life is visible, save for the rare sighting of a lone lichen-covered rock slowly creeping across the tundra, its motion almost imperceptible. 
+
+The overall impression is one of timeless, geological grandeur - a landscape sculpted over eons, frozen in an eternal, high-altitude equilibrium. The sparse, muted palette and lack of dynamism give the impression of a place that exists outside the normal flow of time, a pocket of stillness in an ever-changing world.

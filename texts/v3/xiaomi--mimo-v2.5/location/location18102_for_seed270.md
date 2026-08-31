@@ -1,0 +1,35 @@
+# The Hush
+
+You find it the way you find anything that doesn't want to be found: by stepping into a crack that shouldn't lead anywhere, and then finding that it does.
+
+The terrain here is old. Not old the way a forest is old, or a coastline. Old the way a bone is old — mineralized, compressed, every gradient smoothed by an erosion so complete it has become its own kind of architecture. The ground underfoot is a fine, pale powder, the ghost-grain of stone that spent millions of years surrendering its edges. It rises and falls in low, shallow undulations, like a mattress after someone has gotten up. The ceiling — if there is one — is no more than twice the height of a man, and it presses down with the patient weight of deep time, a lid on a jar that was never meant to be reopened.
+
+The space is small. You could cross it in forty paces. But forty paces here feels like a migration.
+
+There is no water. Not a trace, not a memory of water. The air itself seems to have been dried past the point of dryness, into something more like a solvent — a thin, mineral sharpness that catches the back of your throat and makes you aware of your own wetness. You are, in this place, the most hydrated thing. You carry more water than the landscape. This is not a comfortable thought.
+
+The light is ordinary, which is the strangest thing about it. It doesn't come from anywhere you can identify. It simply exists in the air, the way dust exists in the air — pervasive, directionless, the color of old paper. It falls on everything without preference. Nothing casts a strong shadow. The whole space is its own lantern, powered by some slow mineral process you can't name, perhaps the last dim exhalation of whatever ancient chemistry once filled this void.
+
+And then there are the creatures.
+
+They are *everywhere*.
+
+The density of them is the first thing that overwhelms — not the size, not the danger, but the sheer, saturating *number*. They occupy every surface, every crevice, every cubic inch of available space as though the air itself were a territory to be divided and claimed. They stand on the ground. They cling to the ceiling. They move along the walls in slow, deliberate processions, their legs — and so many of them have legs — finding purchase on the mineral powder with the practiced ease of long generations. They are layered. One species stands atop another. Some ride the backs of others. The space between your body and the nearest wall is full of them: small, medium, some no larger than a dust mite, some the size of a clenched fist, a few the size of a dog, though nothing here has the shape of a dog.
+
+They are *loud*.
+
+Not loud the way a river is loud, or a factory. Loud the way a city is loud — a composite, layered hum of ten thousand independent activities occurring simultaneously. There is chittering, high and rapid, like a thousand tiny gears. There is a deeper, rhythmic thrumming, almost mechanical, coming from some of the larger forms — a vibration you feel in your sternum before your ears recognize it. There is the dry whisper-click of chitin against chitin as they move past each other in the close quarters. There are sounds you cannot categorize: wet bursts, harmonic whistles, a low creaking like a ship in harbor. The noise never pauses. It is not a soundscape. It is a wall.
+
+They are active. Obsessively, ceaselessly active. You watch a species the size of a grape — segmented, translucent, with limbs like bent wire — excavate a tiny tunnel into the powder floor with frenzied, repetitive motions. Behind it, another species follows, a soft-bodied form with no visible legs that simply *flows* into the tunnel after it, and behind *that*, a third species, armored and dark, which seems to be consuming the walls of the tunnel as it goes, widening it. You cannot tell if this is cooperation or predation or something that doesn't have an English word. The tunnel collapses. They begin again. All three species. Immediately. Without hesitation or apparent communication.
+
+Scattered among them — half-buried, pushed aside, occasionally used as scaffolding or shelter — are the remnants of human work. A section of rusted pipe, two feet long, filled and sealed with the same pale powder as the ground, now serving as a corridor for a colony of something with too many legs and no eyes. A bolt, a heavy hexagonal bolt the size of your thumb, lying in the dust like a dropped treasure. A flat plate of metal, corrugated, bent into a shallow U-shape and colonized so thoroughly by a moss-analogue of tiny crawling bodies that it appears to breathe. The metal is old — not decades old but epochs old, corroded past any useful metallurgy, returned almost to ore. Whatever built this place operated with enough force to leave these artifacts, but whatever they were building, the fauna has finished the sentence for them.
+
+There are no plants. There is no green. The food web here, if you could map it, would look like a knot tied by a madman — a tangle of species feeding on minerals, on each other, on the metal, on the dead, on the powder itself, on chemical gradients in the dry air that your lungs can't even register. Some of the creatures have mouths. Some have something worse. Some absorb through their surfaces, their bodies flattening against the ground and the walls like wet paper, drawing in nutrients you can't see. They have been doing this for longer than the word "ecology" has existed. Longer than the concept. They don't need your theory. They don't need your water.
+
+The weirdness is subtle. It lives in the proportions — in the fact that so many species coexist in so small a space without the system collapsing, as though the usual rules about carrying capacity and competition have been quietly, gently set aside. You watch a predator the size of your forearm, all jaws and hooked limbs, stand motionless for ten minutes while smaller creatures cross its body freely. It does not eat them. It seems to be *waiting* for something. You do not learn what.
+
+The temperature is cool — not cold, not forbidding, but cool in the way that a deep cellar is cool, or the inside of a stone wall. It is the coolness of thermal mass, of a space that has spent so long underground that it has become a恒温 thing, a place that has finally, after geological ages, agreed to be one temperature and stay there. Your breath doesn't fog. But your skin knows this is not the surface.
+
+You realize, standing there in the paper-light and the chittering dark, that this is a world. It is not an ecosystem borrowing space from the human one. It is not an infestation. It is a complete, self-sustaining, ancient civilization of bodies and behaviors and rules that existed before you arrived and will continue, dense and loud and writhing, long after the last human bolt has turned to dust. The scale is small. The scope is total.
+
+You step backward, very carefully, into the crack. The sound follows you a few feet and then, as though the space itself has decided you've heard enough, it stops.

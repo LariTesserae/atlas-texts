@@ -1,0 +1,33 @@
+It is not a forest. It is something that replaced a city after the idea of a forest was forgotten.
+
+You are below. A long way below. This is a mine, or it was a mine, or it was cut to be a mine and then kept cutting until it became a valley with a roof.
+
+The first thing you notice is the air. It is cool, 10 or 12 degrees cool, the kind of cool that makes metal painful to hold too long. And it is completely, utterly dry. Not desert dry - drier. Salt-mine dry. The kind of dry where your lips crack in minutes and you can feel the moisture leaving your eyes with every blink. There is no water here. No river, no seep, no standing pool, no humidity. The rock itself was chosen for this. It's a basalt country, or a salt dome, or a deep anhydrite bed - pale, seamless, and raw. The walls are still sharp. This place is young. The cut of the machines is still visible in the stone: enormous, stepped terraces and vertical faces and tool-scars as wide as streets. This cavern didn't erode. It was manufactured. The geology is embryonic - no talus, no softened corners, no dust of ages. Just fresh, broken planes that still look surprised to be exposed.
+
+And yet it is full of vegetation. Not growing *in* it. The vegetation *is* it.
+
+They do not need water. That is the first rule that broke.
+
+They are not green. Not really. Some are a bleached, dusty sage, some are the color of sackcloth and old paper, some are nearly white. Over the generations of growing here they have learned to be made of air and mineral and light. Broad, flat, felted leaves the size of billboards, but no thicker than cardboard, covered in microscopic hairs that comb the faint electric charge out of the air. Fibrous trunks as big around as houses, but hollow, and light, and dry inside as a wasp nest. They do not drink. They harvest static. They are xerophytes taken to an absolute extreme, Tillandsia grown monstrous and architectural.
+
+The city is built inside a plant city which is built inside a mine city.
+
+On the upper terraces of the excavation, where the industrial suns are hung - huge, flat, normal-daylight panels on gantries that crawl along the vault ceiling on rails, buzzing very faintly - the plants grow dense. A canopy that never knew rain. Their leaves overlap into a continuous, dry thatch that creaks. Below that, they send down trunks - not straight down, but at strange, searching angles, some horizontal, some corkscrewing, as if gravity is only a suggestion. In this place, roots and branches are the same thing.
+
+Because there is no rot here. Nothing can rot without water. So when a leaf dies, it stays. When a trunk dies, it stays, hard as concrete, preserving its shape perfectly. The inhabitants learned very early not to clear it. They build with it.
+
+You walk on avenues cut into stone that is still sharp underfoot, and on either side are buildings that are half quarried, half grown. A factory weaving shed whose north wall is a living curtain of matted aerial roots, still growing, still inching a millimeter a day, humming with sap that isn't sap but pressurized air. An apartment stack where the original concrete frame has been completely infiltrated and replaced by dry pith, the rooms now lined with soft, insulating felt that the tenants carve with knives to make shelves, doorways, beds. The city is sparse by design. There is so much space. The cavern is kilometers long - you can see its far end hazy in the lit air - and they have only colonized in nodes, leaving great voids between districts where a single, immense plant-thing stands alone like a radio tower, its crown brushing the lights.
+
+This is an industrial town. It sounds like one, but turned down.
+
+There are no rivers to power it, no combustion that would risk the dry air. Instead, everything is electric and mechanisms of tension. Great looms the size of houses that card and spin the dead leaf fiber into cables, into cloth, into insulation boards that they trade to the surface. Prairies of that cloth drying on frames that never get damp. Elevators that run on counterweights of bundled dead trunks. Ventilator fans, slow-turning and enormous, that keep the air circulating so the plants can feed.
+
+It is mostly quiet. That is the strange part for a factory town. The air eats sound. The felt everywhere eats sound. You hear the creak of growing - an actual, constant, low-level chorus of pops and sighs as dry cellulose tightens. You hear the far-off whine of a gantry moving its sun a few meters to follow a growth cycle. You hear the soft, constant industry of animals.
+
+Because it is full of animals. Not many kinds, but many of them. Abundant, pale, adapted to never drinking. Moths the size of your hand, the color of dust, whose wings are so dry they rustle like parchment. They live their whole lives on a single leaf. Armored beetles that bore into dead trunks and leave perfect, round tunnels that the children of the city later use as conduit for wiring. Glassy, long-legged harvestmen that pick their way across the canopy, herding the moths. Things that look like mice but are not mice - pouched, hairless, with great, fringed ears for condensing what little breath-moisture they can. They thrive in the sparse city, nesting in the abandoned lofts of living wood.
+
+Nothing decays, so nothing is wasted. The moth droppings are instantly dry and become dust. The dead beetles stay in their tunnels like little statues. Even the people here learn to live that way. They are cool-climate people, bundled in woven plant-cloth, faces chapped. They don't sweat.
+
+And the light is normal. That is what disorients you most. You are a kilometer under rock and you are standing in what feels like a bright, overcast October noon. The panels overhead provide a full-spectrum daylight that makes you squint after the service tunnels. The plants lean into it with a slow, patient tropism, curving over decades toward the moving suns, which is why no street stays straight forever. The city is active, not frozen. Buildings are still growing an inch to the left. Factories are being slowly digested by the walls they are attached to. Families abandon a living room because the living room decided to close up.
+
+You stand in the middle of a vast, dry, cool, bright, young stone bowl, in the middle of a sparse town, inside an impossibly dense forest that needs no water, listening to the quiet creak of a place that is building and growing itself at the same time, and that will never, ever rot.

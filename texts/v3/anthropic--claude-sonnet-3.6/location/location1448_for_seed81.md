@@ -1,0 +1,17 @@
+The vast crystalline city rises from endless plateaus of wind-carved stone, its towers impossibly tall and impossibly thin, like frozen rain caught in the moment of falling. No one built this place - it grew, and continues to grow, through processes as natural and mysterious as the formation of snowflakes.
+
+The wind never stops. It howls through the crystalline spires, creating an ever-changing symphony of resonant tones that echo across distances measured in thousands of kilometers. Sometimes the sound swells to an almost unbearable crescendo, as if the entire city were a single instrument being played by the atmosphere itself.
+
+The crystals emerge from the bedrock in perfect geometric patterns, growing upward at visible speeds during certain atmospheric conditions. They're mostly transparent but shot through with veins of metallic compounds that catch and scatter the intense light from the too-bright sky. The light fragments and refracts through the cityscape, creating constantly shifting patterns of rainbow and shadow that dance across the barren stone of the plateau.
+
+Moisture condenses on the crystal faces in the cool air, running down in rivulets that carve minute channels before evaporating or freezing. Over eons, these channels have become elaborate networks - like the streets of a city designed by water rather than minds. The frozen streams catch the light differently than the crystals, creating blue-white lines that map out this natural infrastructure.
+
+Sometimes entire spires shatter in the wind, the crash echoing for minutes as the fragments scatter across the stone. But new growth always begins immediately in the ruins, reaching skyward again in slightly different patterns. The city is constantly destroying and rebuilding itself, maintaining a dynamic equilibrium that has persisted for geological ages.
+
+At certain points, usually where multiple crystal structures intersect, the resonant frequencies create standing waves in the air that are visible as shimmering distortions, like heat waves in reverse. These acoustic nodes sometimes trap the condensing moisture, forming floating droplets that hover and dance in the vibrating air.
+
+The scale is difficult for a human mind to grasp - the crystal towers range from needle-thin spires to massive columns kilometers in diameter, and the plateau they emerge from extends beyond any possible horizon. The sky above is an intense, almost metallic blue that suggests extreme altitude, yet the air pressure remains surprisingly constant despite the elevation.
+
+There's a sense of emptiness that goes beyond the mere absence of life - as if the space between the crystals has been stretched somehow, making distances deceptive and movement through the city oddly dreamlike. Yet despite this emptiness, the place feels more like a living thing than a dead one - constantly growing, changing, singing its strange song to the wind and light.
+
+The only constant is change itself - every moment brings new growth, new destruction, new patterns of light and sound and suspended water. It's a city built by physics instead of intention, an endless dance of crystal and wind and light that has no purpose beyond its own existence.

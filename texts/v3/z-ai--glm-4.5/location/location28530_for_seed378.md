@@ -1,0 +1,25 @@
+The light here is an oppressive, bleaching white. It falls from a sky that is not so much blue as it is a pale, heat-hazed canvas, stretched too tight over the world. There are no clouds, only the shimmer of rising vapor. The sun is an absolute tyrant, stripping away shadow and depth, leaving the landscape exposed and flat under its glare.
+
+This is a high place, a vast, cracked plateau of dark, vitrified earth. The ground is obsidian and basalt, shattered into a jagged crazy-paving that stretches to the horizon. It is incredibly hot. The heat radiates up from the black stone, a suffocating blanket that presses against the skin, but it is a wet heat. The air is thick, humid to the point of liquidity. It feels less like breathing and more like drowning in warm syrup.
+
+There is no green. The vegetation score is a zero; there are no trees, no grass, no moss to soften the mineral hardness. The ground is stained only by the patina of age—rusts of copper and iron, streaks of white silica, and the slick, oily sheen of algae-like bacterial mats that cling to the damper crevices. The only color comes from the stone itself: blacks, grays, and the blinding reflections of the sun.
+
+Water is the defining dynamic of this place, but it is a silent, relentless water. Because of the elevation and the extreme temperature swings between the blinding day and the radiative night, the ground weeps. Every crack, every fissure in the volcanic glass, constantly exudes moisture. It is not rain; it is condensation made manifest. The rocks sweat. Puddles form instantly in the hollows, only to begin steaming away the moment the sunlight touches them. The air is filled with a fine, constant mist that refracts the light into permanent halos.
+
+Sparsely scattered across this immense, open plain are the structures.
+
+They are industrial, immense and skeletal, built from rusted iron and pitted concrete. They look like refineries or water treatment plants, but they are on a scale that defies human utility. Silos tower as tall as mountains, their sides stained with vertical runnels of mineral-heavy water. Pipelines, thick as redwoods, spider-web across the ground, connecting the scattered buildings in a logic that has been lost to time.
+
+The architecture is sparse and open. There are no walls, no roofs left intact. The buildings are frameworks, cages of steel girders supporting massive, silent gears and pistons that have long since ceased their motion. Yet, the place feels maintained. There is no rubble of collapse, only the weathering of centuries. The metal is eroded smooth, rounded off like river stones, settled into a perfect, static balance.
+
+The silence is the strangest thing. It is not the empty silence of a vacuum, but a heavy, muffled quiet. The humidity absorbs sound. A shout would die within twenty feet. The dripping water makes no impact sound; the water simply merges with the wet ground. The wind does not howl through the girders; it is too heavy with moisture to whistle. It just moves, a hot, wet breath against the face.
+
+And there is life. It is abundant, teeming, but it is silent life.
+
+The fauna of this place are adapted to the hush. They are sleek, streamlined creatures that resemble a cross between amphibians and insects. They have no vocal cords. They move through the steam and the standing water on wide, splayed feet that distribute their weight, making no splash, no click of claw on stone. They are the color of wet slate and shadow, difficult to look at directly in the bright glare.
+
+They congregate around the industrial structures. Inside the great, hollow silos, they cling to the walls in the thousands, sleeping through the heat of the day. Around the bases of the pipelines, they wade in the warm runoff, feeding on the mineral sludge and the bacterial mats. They are peaceful, heavy-bodied things that ignore any observer. Their dominance is absolute; they own these ruins. They move with a slow, deliberate grace, their presence felt only by the displacement of air—a ripple in the mist, a shadow passing over the wet stone.
+
+The world here operates on a rule of damp conservation. Nothing is wasted. Heat creates condensation; condensation feeds the slime; slime feeds the beasts; the beasts die and dissolve back into the mineral water of the cracks. The great machines, though still, act as condensers, their vast surface areas gathering the atmospheric moisture and dripping it down to the ground below, artificially irrigating the immediate vicinity and creating the pockets of life.
+
+It is a place of intense, quiet industry. A factory that processes the weather itself. The sun beats down, the water weeps from the stone, the silent beasts stir in the steam, and the great iron skeletons stand watch, rusting slowly into the black, wet earth. It is a landscape that feels as though it is holding its breath, waiting for a shift in the pressure that will never come.

@@ -1,0 +1,43 @@
+# The Cistern
+
+It is called, by those who work it, simply the Cistern, though the word is inadequate the way *ocean* is inadequate. It is a made sea. Somewhere above — no one goes there, no one living — there must be a surface, a sky, a rim. But the rim is so far away that the water here has forgotten it. A diver who swam straight up for a week would still be in the Cistern. The lights would still be around her. The sounds would still be loud.
+
+Everything here was built.
+
+The floor, which is not a floor but a terraced architecture of cast iron and sintered stone, descends in broad shelves and vast flat plains punctuated by the mouths of intake shafts wider than cathedrals. The walls, where walls can be found — and they can be found only by following one of the current-lanes for days — are riveted plate, tarred at the seams, the rivets each the size of a man's head. The construction is young. You can tell because the iron has not yet taken on the soft ochre patina of long submersion; it is still dark, still faintly oiled, and the welds along the great seams still show their heat-colors: straw, violet, peacock. In places the slag has not yet been chipped away. A mason's chalk mark, X and a number, survives on a buttress, undissolved.
+
+The water is cool. Not cold — cool the way a cellar is cool, the way the inside of a stone church is cool in summer. It has a mineral taste when it floods a helmet. It is clear enough that the lamps reach far, and the lamps are everywhere: strung on cables, mounted in sconces along the great piers, hung in chandelier-clusters from the under-ribs of the vaulting so high overhead that looking up is like looking up into a starfield made of gaslight and sodium. There is enough light to read by, almost anywhere, which is strange for a place so deep. The Cistern is lit the way a factory is lit — for work, for continuous shift, for the impossibility of night.
+
+And it is a factory. That is what one eventually understands. The engines are the reason for everything.
+
+They stand at intervals of roughly a league, mountainous pump-engines the height of a hill, their flywheels slowly turning in the water, their pistons chuffing out long plumes of exhaust-bubbles that rise in silver columns toward the unreachable ceiling. Each engine is fed by and feeds into a system of ducts and sluices that run along the floor for distances that would be called continental if the place had continents. You can hear them from everywhere. That is the loudness: not a roar, exactly, but a constant, bone-conducted throb, a *whum-whum-whum* from every direction at once, the beat of one engine laid over the slightly-offset beat of the next, so that the whole Cistern pulses in a slow uneven tide. Under the pulse, higher up the register, the hiss and ring of pressure-valves, the groan of long pipes taking strain, the occasional bell of a diver's hammer ringing pure through the water for miles.
+
+Between the engines: nothing. Or nearly nothing. This is the strangeness of the place — its emptiness despite its construction. You can swim for half a day between one pump-house and the next and see only the lamp-chain dwindling ahead and behind you, the floor dropping away to a further terrace, the water itself, lit and clean and almost featureless. It is vast in a way that feels deliberately vast. Whoever built the Cistern — and something built it, something with resources that beggar the imagination — wanted room.
+
+The sparse vegetation: along the iron, in the long quiet reaches between the engines, a kelp has taken hold. It is not native. Nothing here is native; there is no native. The kelp was seeded, you can tell, because it grows in rows, in the straight lines of planting, though it has begun to stray. It is a pale species, cool-green, lightly phosphorescent at the tips, and it grows in thin forests along the sluice-tops and up the sides of the shallower piers. There are patches of a reddish weed around the warm outflows. There are flat mats of something like coral-lichen on the oldest-looking plates. That is all. The water is mostly water.
+
+The fauna is where the Cistern becomes surprising.
+
+They came, or were brought, and they multiplied. There are fish in enormous, loose, drifting schools — silver-sided, shaped like knives, that catch the lamplight and turn the open water into a slow rotating chandelier whenever one of the schools passes a light-cluster. There are rays, pale as parchment, that hang motionless above the kelp-rows as if reading them. There are eels living in the rivet-holes and in the gaps behind loose plates, and at the intake shafts one sees sometimes a larger thing, glimpsed only in passing — a long body, a flat head, a fin-edge — feeding on whatever the intakes draw. Crabs of various sizes work the iron, cleaning it; the engineers appreciate them and do not molest them. There is a small white octopus, common here, that lives in unused bolt-casings and seems to enjoy the vibration of the engines, clinging to the iron while the whum goes through it.
+
+There are birds. This is the oddest thing, and it took me a long time to accept it. There are diving birds — cormorant-things, with oiled feathers and long muscular necks — that come down from somewhere, from shafts in the far ceiling presumably, and fish the upper waters, and go away again. You will be working on a junction-box two hundred feet down and a dark torpedo will rocket past you trailing bubbles, snatch a silver knife out of a school, and rocket upward again into the lamp-dark. The divers have a name for them I will not write here because it is obscene.
+
+The ecosystem is active, visibly active, busy with itself. Predation, courtship, the slow drift of plankton-clouds through the lamp-columns, the territorial disputes of the larger crabs along the sluice-gates, the spawning runs of the silver fish in the warmer months (there are seasons; the engineers adjust the temperature on a calendar). Weather, of a kind: the great pumps create currents, and the currents collide, and at the collision-lines there is turbulence, silt-storms that roll across the terraces for hours. There are stiller zones where the water stratifies and a diver passes through layers of slightly different temperature, slightly different salinity, each with its own drifting population. A front moves through, now and then, when a distant engine-bank is cycled up or down; you feel it coming in the pressure in your ears.
+
+The rules of the place, so far as I have learned them:
+
+The pumps are never all stopped at once. This is a law; it may be a physical law, in the sense that if they were all stopped something would fail and the Cistern would not be the Cistern anymore. Maintenance is rotated. An engine down is an event; the water around it goes strange, eddies form, fish gather in the unfamiliar quiet.
+
+Distance is measured in engines. A place is four engines south of the Ward Gate, or eleven engines along the Low Arc. No one uses leagues.
+
+The ceiling is not to be approached. This is not a rule imposed by authority; it is a rule arrived at. Those who have tried have not come back, or have come back wrong.
+
+You do not kill the crabs. You do not kill the octopuses. You do not, under any circumstances, interfere with the cormorant-things.
+
+When a new section is flooded — the Cistern is still being built; it is being built outward, always, somewhere along its edges there is hammering — the water is at first bright with rust-bloom and bitter with flux, and nothing lives there. Within a season the kelp-seeders come through. Within two, the first fish. Within three, the place is indistinguishable from the rest, and the engines in that quarter take up the rhythm of the whole, and the whum deepens by one more voice.
+
+I have worked here eleven years. I have not seen a tenth of it. I have met men who have worked here forty years and have not seen a tenth of it. The Cistern is larger than the country I was born in. It is colder and quieter and fuller of life, and the light in it, from the thousand thousand lamps, is steadier than any sun.
+
+We do not know what it is for. The water goes somewhere. The water comes from somewhere. The engines pump, and are tended, and the fish multiply in the long lit spaces between them, and the cormorant-things dive from the unreachable ceiling, and the welds still show their heat-colors along the newest seams.
+
+It is a young place. It has just begun.

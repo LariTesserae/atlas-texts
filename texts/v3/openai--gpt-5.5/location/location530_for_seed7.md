@@ -1,0 +1,43 @@
+It is a low chamber under the skin of the world, not deep enough to belong to the old stone, not shallow enough to remember daylight. A person crossing it would feel that the ceiling is close in intention even where it rises high: a dark, warm vault with fresh fractures still angular along the roof, as if the whole hollow had opened recently and had not yet learned the rounded patience of caves.
+
+The place is about the size of a small grove or an abandoned station hall. Its boundaries can be sensed more than seen. Beyond the reach of a handlamp, the walls fold inward, black and wet in places, dry and heat-blanched in others. The stone is young-looking: chipped, granular, sharp at the edges, with pale seams exposed like bone. Erosion has begun but has not softened anything fully. Water has only just started making its argument here.
+
+Heat comes up from below.
+
+Not fire, not visibly. It is a steady thermal breath through cracks in the floor, through metal grates half-swallowed by mineral bloom, through pipe-mouths that no longer connect to any known machine. The air is hot enough that every surface seems to be sweating or waiting to sweat. Condensation gathers on the underside of beams and falls in single, spaced drops. There is no stream, but there are shallow black pockets of water held in tool marks, stone basins, broken concrete channels, the hollows of old bolts. Some of these pools are clear and mirrorless in the dark; others carry a skin of copper-green film that trembles when the chamber exhales.
+
+The vegetation is lush in form but not continuous. It appears in islands.
+
+A column of waxy leaves rises from a crack beside a rusted compressor housing, broad as paddles, their surfaces dark green to the point of blue. A rope of pale vines travels across the wall, stopping abruptly where the stone becomes too dry. Ferns with thick, almost rubbery fronds occupy the warmest drips, rooted in sediment that has collected on old industrial ledges. There are mats of moss like velvet burns on the lower walls, and tall fungal stalks, not numerous but extravagant, opening umbrella caps beneath leaking seams. Each growth stands with space around it. The chamber is not a jungle; it is a dark room where jungle fragments have been placed far apart, each fed by its own tiny weather.
+
+Nothing moves among them. No insects hide under the leaves. No blind fish disturb the pools. No wingbeat, no claw, no scrape of small bodies in the rubble. The plants and fungi seem to have inherited the place without ever being grazed, pollinated, nested in, or watched. Their abundance has the silence of sealed glasshouses after the keepers have left.
+
+The built remains are scattered and practical, made with no ceremony. Waist-high plinths of poured concrete stand near the center, their corners crisp in places and crumbled in others. Narrow rails vanish under mineral crust and reappear three meters away, ending at a wall of fresh collapse. A ladder of blackened steel climbs only halfway up the chamber side before terminating in empty bolts. Cables hang in loose arcs, insulated skins softened by heat, beaded with condensation. There are gauges, but their needles are fixed at different impossible readings. One dial is furred with moss inside the glass.
+
+The machines are not entirely dead. Or perhaps the chamber itself has taken over their habits.
+
+Every so often, too faint to be called a sound at first, something clicks behind the stone. A relay closing in its sleep. A pipe settling. A droplet striking a metal pan far away. Then silence returns, thick and warm. There is no engine roar, no active factory rhythm, only the afterimage of industry: pressure equalizing, valves remembering function, a slow pulse of heat that may come from buried turbines or from geology pretending to be machinery.
+
+Light is scarce. The darkness is not empty; it has gradients. The wet leaves catch what little illumination exists and hold it as dull green-black planes. Here and there, a fungal rim gives off a faint bruised glow, too weak to light the ground, strong enough to reveal its own outline. Some of the old control boxes have indicator lamps that still burn at intervals, red or amber, but they do not stay on. They wake, show the chamber a corner of itself, and go dark again.
+
+In these brief pulses, the space changes character. A wall becomes a cliff of new fracture. A pool becomes a lens full of descending mineral threads. A vine appears to cross a warning sign whose paint has bubbled and peeled: CAUTION: CONDENSATE CYCLE. Then the pulse ends, and the place returns to heat and blackness.
+
+The rules here are simple but strange.
+
+Moisture does not belong equally to the whole chamber. It chooses routes. It beads on metal before stone, stone before concrete, leaves before dust. A pipe may remain dry for months while a seam beside it weeps every hour. The plants know this and grow in obedience to invisible timings. They do not spread outward greedily; they wait at the margins of their dampness, thickening rather than advancing.
+
+Heat rises but does not disperse. It collects in pockets, making invisible rooms within the room. Step from one patch of floor to another and the air changes against the skin: one place like a furnace vent, one place merely tropical, one place almost cool because a ceiling crack is drawing breath inward from some upper void. The vegetation answers these thermal pockets as much as it answers water. The broad leaves occupy heat. The moss keeps to warm stone. The pale vines cross the cooler margins and stop where warmth falls away.
+
+Decay is slow but recent. Rust has begun its red flowering, but not yet consumed the metal. Stone splinters still lie where they fell, edges keen enough to cut. The concrete bears hairline cracks with clean interiors. New mineral deposits are laying down their first thin skins, milk-white, amber, green. The chamber feels born out of damage: an industrial sublevel split open by pressure, flood, subsidence, or some controlled failure that became uncontrolled. Yet it is not chaotic now. It has settled into a patient, humid pause.
+
+There is a smell of hot stone, wet iron, algae, and electrical insulation warming past its intended life. Sometimes a sharper mineral odor rises from the pools. Sometimes the air tastes faintly metallic, as if batteries are dissolving somewhere unseen.
+
+The floor is uneven, divided between raw rock and constructed surfaces. In the center, old tiles survive under a film of grit; their glaze reflects light in small broken squares. Around them, the ground has buckled into ridges where stone has pushed through the human layer. Roots explore these ridges but do not knit them together. The result is a landscape at room scale: a belowground clearing where factory, cave, greenhouse, and wound overlap without fully becoming one another.
+
+At the far end is the chamber’s most conspicuous feature: a vertical shaft, narrow and black, lined with segmented metal rings. It descends farther than sight can follow. Warm vapor rises from it in slow breaths, each breath condensing into brief clouds under the colder roof. Around the shaft grow the largest plants, spaced like attendants. Their leaves incline toward the vapor though there is no sun to seek. Drops collect on their tips and fall back onto the metal collar below, one by one.
+
+Nothing hurries. The indicator lamps blink perhaps once every several minutes. The condensation gathers, fattens, releases. Minerals accrete by the thickness of a fingernail over seasons. Roots press through cracks with the patience of soft machinery. Rust opens the edges of bolts. Fungal caps widen in darkness. A pool evaporates down to a stain, then fills again after an unseen rain finds the old drainage and enters from above.
+
+If there is weather here, it is delayed weather. Rain from the surface arrives hours or days late, filtered through rubble and ducts, appearing as sudden dripping from a seam that was dry before. The chamber listens to storms it cannot hear. After such events, the plants shine. The concrete darkens. The air becomes almost too thick to breathe. Then the heat reasserts itself, and the water withdraws into pockets.
+
+The silence remains the defining presence. It is not peaceful exactly. It is the silence of a site after evacuation, after shutdown, after the last animal failed to enter. The place is alive without being inhabited. It grows, sweats, corrodes, records pressure, releases heat, drinks occasional rain, and waits in darkness beneath whatever world continues above.

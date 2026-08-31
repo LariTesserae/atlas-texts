@@ -1,0 +1,23 @@
+The Screaming Pools rise from a high plateau like a cluster of wounds in the earth, each one perfectly round and filled with water that defies every law it should follow. Steam billows upward in writhing columns, carrying with it a sound so overwhelming it becomes a physical presence—not quite roar, not quite shriek, but something that exists in the space between hearing and feeling, between water and air itself.
+
+Seven pools, each no wider than a cathedral's nave, pierce the young volcanic rock. The stone around them is sharp-edged and dark, still holding the memory of its violent birth from deep earth. Sparse tufts of silvery grass cling to crevices, their roots somehow finding purchase in stone that hasn't yet learned to crumble. A few stunted trees, their bark pale as bone, lean away from the pools as if trying to escape.
+
+But it's the water that unmakes the world.
+
+In the first pool, the water falls upward—a steady cascade rising toward the dim sky, droplets climbing in perfect formation before dissolving into mist that tastes of copper and ozone. The second holds water that moves like liquid mercury, its surface mirror-bright, reflecting not the gray sky above but star-filled depths that shouldn't exist. The third pool's water exists in multiple states simultaneously: ice crystals floating in steam while liquid currents spiral beneath, all occupying the same impossible space.
+
+The sound builds from their collective impossible physics—the shriek of water climbing against gravity, the deep harmonic hum of mercury-water singing in frequencies that make teeth ache, the sharp crack of ice forming and reforming in endless loops. But beneath it all runs something else: a vast breathing, as if the earth itself were sighing through these wounds in its surface.
+
+The pools pulse with their own rhythm, never quite synchronized. Sometimes the water in one will suddenly surge upward in a geyser that never falls back down, simply dissipating into the warm air thirty feet up. Other times, all seven will go perfectly still at once, their surfaces becoming mirrors that show not reflections but windows into other places—deep ocean trenches, storm-lashed seas, the interior of falling rain.
+
+A single stone building crouches at the plateau's edge, its walls worn smooth by the constant spray. Empty windows stare blindly at the pools, and through its doorway, visitors glimpse only darkness. No one knows who built it or when, but it seems to bend slightly toward the pools, as if even architecture cannot resist their impossible pull.
+
+The few creatures that venture here do not stay long. Occasionally, a bird will attempt to drink from one of the pools and find itself drinking upward, its beak following water that flows the wrong way until it staggers back, confused and dripping. Small insects hover at the pools' edges, their flight patterns becoming strange and mathematical, tracing geometries that hurt to follow with the eye.
+
+The air itself becomes uncertain near the pools. Sometimes it feels thick as water, other times so thin that breathing requires effort. The warmth comes not from any sun—the light here remains perpetually dim, filtered through layers of impossible mist—but from the water itself, which radiates heat while simultaneously producing ice, which gives off steam while remaining liquid.
+
+As the day progresses (though day and night blend strangely in this place), the pools' behavior intensifies. The sound builds until it seems the very rock might shatter, until visitors must press their hands to their ears and still feel their bones vibrating. The water's defiance of physics becomes more pronounced—fountains that spiral sideways, surfaces that curve upward at their edges, temperatures that shift from scalding to freezing within the span of a heartbeat.
+
+And then, without warning, moments of perfect silence fall like snow. In these brief respites, the only sound is the gentle drip of condensation from the bone-white trees, and the pools become mirrors of ordinary water, reflecting ordinary sky. But even in these moments of peace, the wrongness persists—shadows fall at angles that don't match their objects, and the mist moves with purpose rather than wind.
+
+This is a place where the world has torn slightly, where the rules that govern water and stone and sound have come loose at their edges. The Screaming Pools are both wound and wonder, a small cathedral of impossibility carved into young stone, forever writing and rewriting the laws of what water can be.

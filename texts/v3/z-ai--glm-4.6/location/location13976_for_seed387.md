@@ -1,0 +1,21 @@
+The sound here is not a background element; it is the architecture. It is a wall of kinetic violence, a deafening, low-frequency thrum that vibrates through the water and into the bone. There is no air to carry the noise, only the dense, warm liquid medium that conducts the roar of the machinery with perfect fidelity. It is loud enough to deafen, yet the pressure of the depth forces the sound inward, turning it into a physical weight pressing against the chest.
+
+You are below the surface, far below, in a place where the sun is nothing more a half-remembered rumor. The light is dim, a sickly, electric ochre that spills from the bellies of massive, suspended structures. These lights do not illuminate so much as they delineate the boundaries of a gloom that extends infinitely in all directions.
+
+This is a submerged foundry, a sunken industrial pocket hidden within the crust of the world. The scale intimate in the way a watch is intimate—complex, densely packed, and self-contained—but housed within a cavernous void. It is a vertical city of metal, a cluster of rusted iron pipes and riveted pressure tanks hanging like a stalactite from the darkness above, rooted deep in the sedimentary floor.
+
+The water is warm, unnaturally so, bordering on hot. It smells of copper and ozone, thick with suspended particulates—microscopic flecks of rust and who-knows-what-minerals that turn the water into a moving, opaque fog. It is a heavy, oily soup.
+
+There is no green here. The vegetation score is near zero; no algae slicks the metal, no kelp forests sway in the current. It is a mineral world, sterile and hostile. The only "life" is the fungal-orange patina of oxidation blooming across the bulkheads. No fish dart through the superstructure; the fauna is rare, perhaps non-existent, save for the occasional, gelatinous scavenger that clings to the heated vents, pulsating slowly in the gloom.
+
+The construction is unmistakably urban and organized, a town or city repurposed for a sub-aquatic purgatory. Catwalks connect pressurized domes like synapses, airlocks sit agape like screaming mouths, and the skeletal remains of winch cranes stand sentinel against the dark. But despite this density, the place feels empty—a ghost ship of industry. The "buildings" are hollow, their interiors exposed to the water, vast g echoing chambers where gears once turned.
+
+But the gears do turn. Not everywhere, but the place is not dead.
+
+This is the turbulence. The dynamic is storm-state. Massive drills or turbines, deeply embedded in the rock face at the bottom of the complex, are churning the water into a violent frenzy. The turbulence is not weather, it is mechanism. Great plumes of superheated water jet upward from the factory floor, creating chaotic currents that slam the suspended metal city side to side. The water roils with the violence of a boiling pot, crashing against the metal gantries in a silent, thunderous assault.
+
+The erosion is established. This has been here for epochs. The metal is not just rusted; it is sculpted by the flow, worn smooth as river stones in places, pitted like coral in others. The whole scene feels settled-in, as if the ocean and the machine have reached a long, unhappy truce. The metal has become geology.
+
+To be here is to be inside the stomach of a vast, indifferent engine. It is deafening, chaotic, and dark. The weirdness lies in the isolation—who is this for? What is being manufactured in the dark? The sheer energy of the place—deafening sound, turbulent water, heat—suggests a hyperactive hive of production, yet the density is near zero. It is a bazaar of ghosts, a anthill of energy expended for no one.
+
+You drift through a rusted archway meant for pedestrians, now a portal for the current. The vibration of the main engine rattles your teeth. Above, the lights flicker in a stroboscopic rhythm, syncing with the thrum of the pistons, illuminating the empty, waterlogged control rooms where dials spin uselessly and chairs rust in place. It is a room-sized apocalypse, contained, violent, and utterly silent in its screaming.

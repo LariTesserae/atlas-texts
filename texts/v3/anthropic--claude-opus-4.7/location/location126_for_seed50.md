@@ -1,0 +1,31 @@
+# The Cistern in the Cloud
+
+High, very high — high enough that the air thins and the cold settles in your chest — there is a place that has no proper name because it is still deciding what it is.
+
+Imagine a basin of stone no larger than a chapel, scooped out of the summit of a mountain that does not exist on any map because the mountain itself was not here last century. It is a young thing, this peak. Its rock is pale and unweathered, sharp-edged where other mountains are rounded, fresh as a broken tooth. The basin at its crown holds water — and holds it, and holds it — filled past any sensible brim by a wall of rain that falls here and nowhere else.
+
+The rain is the first thing. The rain is almost everything.
+
+It comes down not in drops but in a continuous descending column, a cylinder of water perhaps thirty paces across, plunging from a cloud that sits fixed above the peak like a lid on a pot. The sound inside this column, and for some distance around it, is past hearing — it is pressure, it is the inside of a drum being struck forever. To stand near is to feel your ribs vibrate. To stand beneath would be to be hammered flat. The water arrives with such force that the basin boils white, and a permanent mist of atomized spray hangs in a corona around the falling column, wetting everything within fifty feet, glossing the pale rock until it shines like wet bone.
+
+And yet — and this is the first strangeness — the basin does not overflow. The water goes somewhere. Not down the mountain: the outer slopes are dry, dry enough that lichen crusts them in colorless scabs. The water must be going through. Into the mountain. Into whatever the mountain is still becoming.
+
+The light here is bright. The cloud-lid is thin and white, not a storm cloud but something more like a held breath, and sunlight passes through it in a diffuse, shadowless wash. Everything is clearly visible. The wet stone glitters. The mist throws small, doubled rainbows that appear and collapse as the wind shifts.
+
+The vegetation is almost nothing. A single species of blue-gray moss clings to the basin's inner rim where the spray reaches but the pounding does not, and from the moss, in three places only, grow thin reeds — not really plants, something between a plant and a feather, pale green and hollow, which sway and sing faintly when the mist catches them. They are the only softness for a mile in any direction. Nothing else grows. The cold is too persistent, the rock too new, the sound too violent.
+
+The fauna is stranger and rarer still. There are small white crabs, no larger than a thumbnail, that live in the wet moss and eat — what? No one has determined. They have no eyes. They are translucent enough to show the faint thread of whatever they are digesting, which is always blue. Sometimes, at intervals of hours or days, a single bird the size of a heron will descend through the falling column itself, folded tight and arrow-shaped, and emerge in the boiling basin uninjured, and swim. The birds are black, featherless, slick as otters. They do not call. They surface, breathe, dive again, and eventually leave the way they came, rocketing upward through the water-column and vanishing into the cloud. Perhaps they nest above. Perhaps there is nothing above and they simply dissolve.
+
+Now: the built things.
+
+Someone has been here. Someone is perhaps still here, off and on. On the dry outer slope, sheltered by an overhang, there is a low wall of stacked stones — unmortared, hand-fitted, the work of patient fingers. Behind the wall, a hollow in the rock has been deepened into a small cell, just large enough for a person to sit cross-legged. Inside: a clay bowl, fired but crude. A copper hook, green with age. A bundle of the singing reeds, dried and tied with a cord of braided hair. And scratched into the wall in a script that is not quite any script, a column of marks — tallies, perhaps, or a prayer, or an inventory of the birds.
+
+Further around the slope, a second structure: four poles of bone (whose bone?) driven into a crack and lashed together at the top to make a tripod, from which hangs a flat stone on a cord. The stone is worn smooth on one face. It is a bell, or was meant to be. It is too far from the falling water to be heard over the water, and too close to be heard over anything else.
+
+Whoever made these things worked with their hands, with fire, with patience. They did not have wheels or writing as we know writing. They came here on purpose. They may have come here to listen, or to not-listen, to sit in the membrane between the deafening column and the silent sky and learn something from the contrast.
+
+The whole place is in motion. This is the last thing to understand. The mountain is still rising — you can feel it, faintly, in the soles of your feet, a slow shivering upward. The rain-column drifts a hand's breadth this way, a hand's breadth that way, restless inside its own approximate location. The cloud above pulses, thickens, thins. The basin's waterline trembles. The mist rearranges itself into new geometries every few seconds. The pale rock, where it meets the pounding water, is being dissolved and reshaped almost visibly — a ledge that was there this morning is gone by afternoon, replaced by a new curve, a new lip. Erosion is happening, but it is not the slow erosion of old landscapes; it is something more like sculpting, hurried and ongoing, the hands of the water working wet clay. The place is being made. It has not stopped being made. It may never stop.
+
+And in the middle of all this chaos, this hammering and reshaping and dissolving, the small cell on the outer slope is perfectly still. The clay bowl sits where it was set down. The copper hook does not swing. The tallies on the wall wait to be added to, or read, or forgotten.
+
+A pocket of the world, the size of a chapel, at the top of a young mountain in a cool sky, drowning itself into being — and one person's careful, quiet habitation clinging to its edge like the blue moss, like the reeds, like something that has learned how to live beside a noise that would erase it.

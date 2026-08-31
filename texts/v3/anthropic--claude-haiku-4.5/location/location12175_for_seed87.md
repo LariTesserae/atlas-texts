@@ -1,0 +1,31 @@
+# The Undercroft
+
+You first understand you are *small* by the silence of displacement. No splash. No ripple. The water here doesn't react to entry—it absorbs. The cold settles into you immediately, a weight that isn't pressure so much as *intention*, as if the water itself has decided to pull you deeper with patient inevitability.
+
+The structure emerges as your eyes adjust to the dim bioluminescence—not from above, but from within the architecture itself. This is a sunken city, yes, but not in the way that word suggests ruin. The streets are still *present*, still *functional*. Walls of pale stone lean inward at angles that don't quite obey the geometry you remember from the surface. Archways spiral down to other levels. Windows like eyes, many of them still *inhabited*.
+
+The buildings are close—too close. Not packed with the disorder of a living city, but arranged with the precise density of a honeycomb. The stones themselves feel newborn, their edges not yet smoothed by time. Where they meet the water, crystalline formations branch outward in fractals—still growing, still calcifying, the boundary between architecture and geology blurred. This place is still becoming. It is mid-gestation. The city is not finished building itself.
+
+There is *life* in tremendous abundance.
+
+The fauna press against the logic of water. Schools of something between fish and fingers—creatures with translucent fronds instead of fins—drift through the avenue spaces in synchronized clouds. They don't school so much as *form*, thousands of them creating temporary patterns that dissolve and reform. Their luminescence is faint and bioluminescent, casting everything in gradations of deep violet and grey-blue. When they move past structures, you see the architecture only by its absence—the shadow-shape of a doorframe where creatures have thinned.
+
+Larger things move between the buildings. Slow. Enormous. You perceive them by displacement and the collective panic of smaller organisms. These might be things like squid, or like nothing with a name. They are heavy with intention. They *hunt*, but slowly, the predation here occurring at the pace of tectonic deep-sea patience. A creature twice the size of the buildings branches through an open plaza, its arms (or are they wings?) moving with the deliberate grace of something that has never known haste.
+
+Vegetation is sparse, but what exists is *wrong*—too organized, too purposeful. Structures of what might be kelp or might be something else entirely frame the doorways of certain buildings, growing in perfect spirals that suggest either terrifying design or some form of directed growth. They sway without current. The water here is utterly still. Yet they sway. There are places where the growth forms a filter—a living lattice—and behind it, the darkness deepens. Something is being sorted. Something is being *kept*.
+
+The temperature is constant and cruel. Not freezing, not quite. But such that remaining here for long would mean a slow leaching of heat, a gradual numbing that would eventually feel like nothing at all—the cold so deep you'd forget what warmth meant. Your breath comes as small clouds of disruption, silver bubbles that rise toward a ceiling you cannot see. The scale of the place becomes apparent through this: your breath is infinitesimal. You are a tremor in an ecosystem that exists at a scale both intimate and vast.
+
+The buildings themselves—closer inspection reveals the strangeness. Their construction seems *young*. Not fallen-ancient. But newly-made. The stone is smooth but not polished—rough in a way that suggests it was only recently separated from the bedrock below. In some places, you can see where walls are still fusing to the floor, the junction unclear, the material transitioning rather than joining. These are structures caught mid-formation, as if the city itself is slowly breathing upward from the depths, pushing itself from non-being into structure.
+
+There are *layers* of city here. Looking down through clear sections of street—windows into lower levels—you see the same architecture repeated in miniature, smaller buildings building smaller buildings, spiraling downward into multiplicities of depth. Or looking up, you see the same pattern above, vanishing into silt-hazed darkness. You are not at the bottom. You are *within*. This is not a single city but a *column* of cities, stack upon stack of architecture, each layer densely adjacent to the next.
+
+The silence is absolute, yet not empty. There is *sound* occurring at frequencies you almost perceive—a constant low thrumming that might be the buildings resonating, or the creatures singing at pitches below language, or the planet itself groaning as this new geology forms. Your ears feel pressure from it. You learn quickly not to listen directly, but to let it exist at the edge of perception.
+
+Movement everywhere. Not chaotic—*dynamic*. The creatures flow through corridors in coordinated migrations. The crystalline growths expand infinitesimally, year by year (or is it moment by moment?), their fractals adding new branches in the spaces between buildings. The water, perfectly still yet never static. Somewhere deeper, something is being built. Somewhere above, something is being explored. The whole structure *pulses* with biological process—feeding cycles measured in months, architectural development measured in decades, predation occurring in the patient, slow-motion violence of abyssal hunting.
+
+This place has no tools, no technology—only the organic engineering of creatures and stone, working at scales and paces that suggest intelligence of an order you were not equipped to understand. The buildings might be coral. The creatures might be shepherds. The stone might be conscious. You cannot tell where the city ends and the ecosystem begins.
+
+You cannot tell if you are inside it or if it is inside you.
+
+The cold deepens. The silence waits. And somewhere above, somewhere below, somewhere within the spiral of stacked geometry, something *turns* and notices you—a small, warm disruption in the dense, perfect dark.

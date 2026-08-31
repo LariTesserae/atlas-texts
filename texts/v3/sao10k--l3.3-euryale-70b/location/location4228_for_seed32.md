@@ -1,0 +1,9 @@
+The landscape is an enclosed, artificially constructed environment that exists within a dense, vibrant city. The space is contained within a rectangular, hollowed out cube, measuring about ten feet by ten feet by ten feet -- a pocket of three-dimensional space that's hidden away from the outside world. The outer walls, floor, and ceiling of this space are all metallic, with a smooth, slightly reflective surface. Light pours in from circular openings in the faces of this cube, each of which displays a bright, multicolored pattern. The air inside the cube is cool and crisp.
+
+The primary feature of this space is a fifteen-foot-tall sandstone needle that stands in the center, completely still and stationary from all processes of erosion. This formation is uniform in its width, save for a small patch about three feet wide near the top where it is even wider. The needle is bone dry and is covered in intricate carvings that depict various geometric patterns.
+
+Directly under the carvings is a horizontal line of five small artificial pits. These are shallow -- only about a four inches deep -- and they're all filled to brim with viscous liquid that is just as dry. This substance is fully solid and clear, so it catches the light from the openings and sends fringes of color sprinkling across the surrounding surface.
+
+There is little plant life -- only a few specks of moss, which have no noticeable effect on the sandstone needle or the liquid in the pits, or any other part of the environment either.
+
+There are no loud sounds here, no animals, or motion. No wind; no air streams; no gravitational forces causing erosion or sculpting the sandstone needle. Only pure silence and stillness, untainted by change.

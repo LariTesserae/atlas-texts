@@ -1,0 +1,24 @@
+At this altitude, the sea does not sit *below* the land.  
+It pools in it, through it, above it.
+
+The place is a young high basin — a broken crown of dark volcanic stone whose rim still looks unfinished, as if lifted from the mantle last season. The rock is sharp-edged, glassy in places, not yet worn into familiar shapes. Cliffs end abruptly in blunt shelves. Pillars rise where molten stone once frothed and locked in place. Nothing here has had time to soften. Even the mud is raw: mineral-rich, warm, and faintly metallic, with silver films of suspended clay.
+
+Inside that crown lies a drowned district the size of a valley-town: part lagoon, part cloud-reservoir, part city. Water is everywhere and in several states of confidence. There are true channels, deep and ink-green. There are broad warm flats where your knees disappear in silt and reeds. There are rooms that are permanently flooded to the roof. There are hanging nets that catch horizontal rain drifting through streets like fog with weight. In the mornings, you can stand on a terrace and watch water flowing *through the air* in long slanted sheets between towers, as if the weather has become architecture.
+
+Light arrives reluctantly. The sky is a low membrane of cloud and vapor, bright enough to navigate, too dim to cast hard shadows. Colors sit in muted bands: black basalt, green algae, bronze wood, pale lichen, occasional cloth dyes gone soft in humidity. Night is only a deeper version of day unless lightning walks the cloud-ceiling. Fire is difficult but not impossible; most hearths are enclosed in stone lungs with long dry chimneys.
+
+Vegetation is exuberant where it can anchor. Rootmats lace the shallows. Broad-leaf water figs lean from retaining walls and drink from both rain and canal. Rope-vines bind towers to one another, living cables thick as wrists. Moss grows on tool handles. Ferns colonize roof gutters. Edible paddies float in woven frames, moored in clusters between homes. Everything green is glossy, swollen, and patient; this is warm growth, not frantic growth.
+
+The settlement itself is dense but hand-made. No metal skeletons, no engines — only joinery, lashings, fired clay, carved stone, shell-lime mortar, resin-sealed timber, and endless rope. Buildings stand on basalt pedestals and bundled reed pontoons; many have two addresses, one by ladder and one by waterline. Walkways braid overhead, low enough to brush with your fingers in places. Canals serve as streets, cisterns, waste routes, fish pens, and mirrors. Urban order exists, but it is tactile: knots mark districts, carved buoy-stones mark depth, drum patterns mark assemblies, and tides mark time.
+
+Because this world is still geologically young, people build as if negotiating with a thing still being born. Foundations are provisional. Walls are meant to be unmade and moved. Whole neighborhoods can be untied and poled a little farther upslope when seep-lines change. Maps are stitched cloth, updated by scraping away old ink. The law is less “ownership” and more “mooring rights”: what you can keep stable, maintain, and share.
+
+Sound carries strangely in so much water and vapor. The city is mostly quiet, not from emptiness but from absorption. Splashes are muted. Voices stay close. You hear rope fibers creak, reed hulls kiss stone, drops ticking from eaves into full jars. Now and then: a hollow conch-call from a watch platform, the distant knock of someone shaping wet wood, or the long belly-sound of subterranean water shifting under the basin. Storms are loud when they come, but storms here are not sudden violence; they are long occupations.
+
+Animals are few, and each feels significant. Small blind fish thread the darker canals. Amphibians the color of old jade cling to walls near warm vents. High above, occasionally, a wide-winged scavenger glides through cloud gaps and vanishes. There are stories of larger things in the deepest shafts where the basin cracks downward, but sightings are rare enough to remain half ritual, half warning.
+
+The strange quality of the place isn’t a single marvel; it is the rule that boundaries don’t hold.  
+Street and river, roof and garden, weather and plumbing, public and submerged — all overlap. Water is not scenery here; it is jurisdiction, memory, and medium. People read currents the way others read roads. Children learn to tie knots before they learn letters. Ancestors are remembered by the canals they redirected, the terraces they raised one handspan at a time, the reservoirs they taught to breathe.
+
+And everything changes slowly.  
+Not stillness — accretion. Silt deepens a corner over years. A stair disappears by inches. A new green species appears on one wall, then five. A neighborhood drifts two boat-lengths east over a generation. The basin settles. The city adjusts. The rain keeps threading itself through stone and wood and skin, making this high drowned place more itself, season by season.

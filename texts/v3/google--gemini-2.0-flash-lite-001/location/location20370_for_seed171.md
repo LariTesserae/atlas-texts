@@ -1,0 +1,17 @@
+A perpetual dusk weighs upon the world. The sky, if it can be called that, is less a vault and more a boundary, a subtly pulsing membrane of deep indigo. It shifts and flows, not with the lazy drift of clouds, but with a slow, internal churning, as if the very air is a viscous fluid under immense pressure. Light filters through it in muted bands, the world illuminated by a perpetual twilight.
+
+The land itself is alive. It is a single, colossal organism, a tapestry woven from strands of emerald and jade. This is no ordinary vegetation. It's a single, monolithic plant, an entire planet given over to a colossal, interconnected network of self-replicating, self-organizing structures. It doesn't sprout and grow; it *emerges*. 
+
+Everywhere, the slow, relentless *becoming* of this world is evident. Mountains are not jagged peaks but immense, burgeoning crystalline structures, still in the process of forming, their surfaces constantly weeping a luminescent, opalescent moisture. Valleys are vast, shallow depressions, nascent riverbeds carved not by water but by the plant's own internal processes. They are pathways for a viscous, nutrient-rich fluid that ceaselessly flows through the plant's tissues, a network of arteries on a scale incomprehensible to modern human sensibilities.
+
+Water permeates everything. It’s not just in the rivers, which are like veins in this vast plant. It’s in the very rock, which sweats with a perpetual condensation. The air itself is thick with moisture, the silence always on the edge of the world's most deafening sound. 
+
+The sound is not an ambient noise; it is, quite literally, the sound *of* the world. It is a pulsing, resonating hum that permeates everything. This is a sound the mind struggles to process, a deep thrumming that vibrates through bone and sinew. It shifts and changes, a complex symphony of geological and biological processes, the music of creation itself. The sound seems to pour out of the emergent geological features.
+
+The planet's scale is beyond human comprehension. Weather systems swirl around the continents, their movements governed by forces that seem to defy known physics. The plant's internal structures are constantly adjusting, growing, rearranging themselves, responding to unknown stimuli. These processes are dynamic and restless.
+
+The density is immense. There is no empty space. Everything is packed, all of it *alive*. The plant-as-substrate is the *only* substrate. Within the endless network of plant matter, there are structures built by the plant itself, nano- or cosmo-scale, but always of plant-stuff. It is an engineering achievement that manipulates forces beyond known physics and bends them to the plant's will; always expanding, contracting, shifting, building, dissolving. There is nothing dead.
+
+There are no animals here, no creatures to scurry or flit. This place is a monument of pure, unadulterated plant life. The absence of movement, however, does not equate to stillness. The entire planet is a symphony of biological and geological processes, a constant state of becoming.
+
+The light is dim, filtered through the plant's layers, yet it is enough to see. The world's color palette is one of living emeralds, opalescent whites, and deep, resonant indigos. It is a world of incredible beauty, yet it has an unsettling quality. It is always shifting, always changing. This world is a constant state of genesis. It is new, dangerous, and utterly alien.

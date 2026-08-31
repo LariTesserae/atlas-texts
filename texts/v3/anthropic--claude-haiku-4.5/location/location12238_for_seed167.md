@@ -1,0 +1,33 @@
+# The Mangrove Dark
+
+Water everywhere. Not in drops or waves—this is the texture of the world itself. The atmosphere is water. Breathing here means drawing in warmth and salt-suspension, each inhalation thickening the back of your throat. You exist in a perpetual inhale, humidity so complete that skin and air have become negotiable boundaries.
+
+The mangroves rise from the murk in segmented columns—roots like arthritic fingers splayed across what was once substrate, now indistinguishable from water. These are old trees, their trunks scarred with parallel grooves where water cycles have worn them smooth over centuries. The bark is the color of submerged iron: rust-grey, almost black where wetness has soaked in deepest. Some trees are so laden with algae and creeping fungi that they appear bioluminescent in the near-total dark, though the luminescence is just moisture catching what little light penetrates from above—sporadic, greenish, offering no actual illumination, only the *suggestion* of it.
+
+The water is perhaps chest-deep at your position, though depth here is meaningless. Twenty steps forward it may be overhead. The floor—if you can call it that—is a sediment so fine and dense that walking releases columns of silt that take hours to settle. The silt smells of iron and rot and something older: the bottom-smell of places where light hasn't reached in ages. Your footprints fill immediately, erased before your next step.
+
+Light is a rumor. A barely-remembered thing. What reaches here is diffuse, monochromatic, arriving from no particular direction—as though the darkness itself is luminous but too dim to cast shadows. The result is absolute flatness. Distance becomes untrustworthy. A snag of branch fifty meters ahead looks equally distant to one five meters away. Perspective drowns.
+
+The vegetation is sparse in the way a crowd of millions is sparse when they're all the same—there are mangroves, endless mangroves, their repetition creating a kind of visual null space. Between them: stillness. No understory. No sprawling ferns or hanging vines. Just water, mangrove, water, mangrove, the pattern extending into dimness and continuing, you're certain, into dimness beyond that. The canopy is high and impenetrable, a lattice of small leaves that filters what little exists of daylight into invisibility.
+
+But the creatures. The creatures make their presences known.
+
+Fish move in schools so coordinated they appear to be a single organism: silver-black shapes that materialize and dissolve. They avoid you but not by much, passing close enough that you feel their slipstream, a pressure-change in the water. Smaller things—shrimplike, unidentifiable—drift in clouds near the root-systems, their bodies catching imperceptible gleams. Larger shapes move in the deeper water, their movements a shift in water-density rather than anything you see directly. You've learned not to look directly at them. The ones that know you're watching move differently.
+
+The sound here is the sound of listening: the absence of sound, which is itself a texture. Occasional drips from the canopy, but mostly the water is silent. Movement happens without announcement. Somewhere far off—maybe—there is a sound like breathing, or wind through a vast mouth, but it could be your own lungs, could be the forest processing its own moisture. The quiet is dense. Pressurized. It has weight.
+
+The temperature holds steady at blood-warmth, never climbing toward discomfort, never dropping toward relief. You stop noticing it, which is worse. The warmth becomes ambient, becomes *you*, and then you can't remember what you were before it.
+
+The mangrove system is old. Not in the way of ancient forests with their massive hollow trunks and accumulation of decades. Old in the sense of being established in its own state, having found an equilibrium and maintained it. The trees show no signs of growth or die-off—they simply *are*, have been, will be. The roots have settled into patterns that work. The water has reached a level it maintains. Some internal homeostasis has been achieved and the forest rests in it.
+
+The scale of it defeats estimation. You can see maybe a hundred meters before the mangroves dissolve into grey murk. That's perhaps a thousandth of the actual extent. The forest runs for what locals—if locals existed here—might call an ocean. North, south, east, west: the same lattice of root and trunk and shallow water. Here and there, settlements exist. Not human settlements. Aggregations of structure that might be nests or might be byproducts of the forest's own biology.
+
+One such structure: ahead, a mass of the roots has woven itself into something like a platform or island, perhaps two meters across. The platform is crowded with life—things that perch, things that cling, things that exist in the folds of the entanglement. Some are egg cases, papery and thin. Some are the animals themselves: crustaceans the size of your hand, mollusks with shells that've calcified into spiraling towers, smaller creatures moving through the gaps. The density here is disorienting—in a region of such visual sameness, this gathering feels obscene with presence.
+
+Activity. Always activity. The fish don't stop moving. The creatures on the root-masses are constantly shifting, feeding, repositing themselves. In the water column, things rise and sink. The canopy drops leaves at a steady pace—you notice the leaf-fall because it's one of the few events with any verticality to it. The leaves descend slowly, spiraling, and disappear into the silt. Decomposition is happening everywhere at once, invisible but certain. You smell it: the rich, warm smell of things returning to their elements.
+
+The rules here are not the rules of land. Erosion has happened and finished. What you see is what has survived becoming what it is. The mangroves endure not through strength but through acceptance of the water, integration with it. The water itself is patient. It is moving, gradually, always moving—toward the sea or toward some internal ocean-space—but its motion is geological, imperceptible at the scale of an hour or a day.
+
+Temperature-wise: warm, always warm, sometimes disturbingly warm near the densest root-masses, as though biological heat has accumulated in the tangles. This warmth is part of the place's signature. It's not tropical—that would imply beaches, clearings, coconuts. This is humid warmth, the warmth of respiration, of organisms in close quarters generating heat through sheer density of living.
+
+You've been here for what feels like minutes. It might be hours. Might be days. Time moves differently in the dark. The mangrove dark doesn't rush. It accumulates.

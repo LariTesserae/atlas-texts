@@ -1,0 +1,13 @@
+In the cold, thin atmosphere of this immense world, a vast megacity stretches from horizon to horizon across high plateaus and mountain ranges still emerging from the planet's crust. Soaring towers of impossible height pierce the clouds, their spires lost in wisps of condensation. Bridges of light arc between the towers, pulsing with the flow of countless vehicles.
+
+Despite its scale, the city feels strangely sparse, with wide gulfs of open space between many structures. Huge parks and reserves are woven through the urban fabric, home to rich ecosystems quite unlike the still-barren wilderness beyond the city limits. Lush moss clings to shadowed building foundations while glittering insect-like drones flit between flowering vines that drape from gleaming facades.
+
+The city is built from materials that seem to grow from the planet itself, as if the world birthed this settlement from its own substance. Surfaces shimmer with opalescent hues or shift transparently to follow the sun. Certain towers seem sculpted from mile-high crystals that hum softly in resonant frequencies. Arched domes contain miniature weather systems of their own.
+
+Pockets of mist gather in low-lying districts, fed by vapors that seep from the porous bedrock. Pristine canals wind between city blocks, carrying shimmering skeins of microbial life. The water has an electric taste, laced with complex minerals leached from deep within the young planet.
+
+Beyond the city, herds of grazing creatures roam the sparse vegetation that clings to the jagged foothills, dwarfed by the vast landscape. Smaller darting shapes hunt among them. Gliders with wingspans wider than most buildings ride thermal updrafts rising from the plains, soaring for days without landing.
+
+Though the wilderness seems quiet and still, the city hums with the muted industry of an advanced but intentionally discrete society. High above, immense conical transports descend silently from orbit to vanish within the city's heart, bearing resources from the far reaches of the solar system. The spaceport's scale hints at energies and technologies beyond the grasp of early space-faring species.
+
+This is a young world still shaking off the violence of its birth, a place where the thrum of an active planetary core can be felt in the soles of one's feet. And yet here a civilization has already risen and dug deep roots, building wonders that sing in harmony with the planet's dynamic nature, a settlement both utterly foreign and deeply attuned to its environment. The city's quiet bustle suggests great works underway - this world and its inhabitants still have much yet to become.

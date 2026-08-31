@@ -1,0 +1,19 @@
+## The Singing Chambers
+
+High in the mountain's shoulder, where the rock face splits and weathers into a maze of shallow cavities, there exists a hidden world of pockets and hollows. Each depression in the stone spans no wider than a small room, carved by patient centuries of wind carrying moisture from distant storms. The rock here is young in geological terms—soft sandstone still remembering its birth from compressed dunes, crumbling at the edges where new alcoves begin their slow formation.
+
+The warmth rises from below, trapped and concentrated in these natural bowls, creating a perpetual cycle of condensation. Water beads on the upper lips of each cavity in the cooler morning, trickling down in thin films that evaporate before noon, only to reform again as evening approaches. Some pockets hold shallow pools no deeper than a thumb's width, mirrors of sky that persist for days after the occasional rain before vanishing into vapor.
+
+Sparse vegetation clings to the dampest crevices—wire-thin succulents with waxy leaves, spreading in slow motion across the years, and colonies of moss that bloom green for hours after moisture touches them, then retreat to dormancy, appearing as grey stains on the rock. A few twisted shrubs, no taller than a child's waist, have found purchase where pockets of blown soil accumulate.
+
+But it is the fauna that rules these chambers. The spaces throng with life adapted to these precise conditions. Thousands of beetles with shells like polished jade navigate the vertical surfaces, their bodies designed to channel condensation into their mouths. The air vibrates with wings—clouds of metallic flies that breed in the ephemeral pools, their life cycles timed to the rhythm of evaporation and renewal. Cave swallows have built cities of mud nests in the deeper recesses, their constant chittering and the whisper of their wings creating a wall of sound that echoes between the chambers.
+
+The true cacophony comes from the sphinx moths, each as large as a spread hand, their wings drumming against the hollow rock as they seek the few night-blooming flowers. But loudest of all are the pocket frogs—tiny creatures no bigger than a fingernail that have evolved throat sacs capable of impossible volume. Their choruses boom from the shallow pools, each species claiming a different pitch, the sound amplified by the bowl-shaped rock until the entire cliff face resonates like a badly-tuned orchestra.
+
+Scattered throughout are the faintest traces of those who found these chambers before—a few handholds carved to ease passage between pockets, circles of stones arranged with purpose now forgotten, and in one deep alcove, marks on the wall that might be tallies or might be natural scratches, weathering away grain by grain.
+
+The light here is always indirect, filtered and softened by the depth of the pockets and the angle of the cliff face. Even at midday, the chambers hold a gentle dimness, the rock glowing with reflected warmth while shadows pool in the depths. As the sun tracks across the sky, different chambers illuminate and fade in sequence, a slow progression of spotlight and shadow that the resident creatures have learned to anticipate.
+
+Time moves differently in the chambers. The rock erodes so slowly that a human lifetime would witness no perceptible change, yet fast enough that the wind-carved pockets are visibly younger than the parent cliff, their edges still sharp, not yet worn smooth. Water arrives and departs on its own schedule. The cacophony of life pulses louder and softer with the hours but never truly quiets. 
+
+This is a place between states—neither fully wet nor dry, neither cave nor open air, neither silent nor musical, but something altogether its own. A hidden world where small lives unfold in magnificent abundance, tucked into the mountain's slowly-forming embrace.

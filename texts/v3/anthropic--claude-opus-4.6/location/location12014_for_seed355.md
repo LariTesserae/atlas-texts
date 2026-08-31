@@ -1,0 +1,63 @@
+# The Drowned Courts
+
+---
+
+The city is here. You know this because the water remembers it.
+
+You stand at what was once a threshold — a lintel of cut stone, smoothed not by hands but by the long patient tongues of centuries. Below it, water. Not deep. Never deep here. Shin-height, maybe, if you had shins you trusted to measure with. The water is warm, blood-warm, and it does not reflect. It absorbs light the way a throat absorbs sound. What little illumination exists comes from no identifiable direction — a sourceless ambient murk, the bruised non-color of a sky that hasn't decided whether it's dusk or the inside of a closed eye.
+
+The city extends.
+
+Streets run in their old patterns, disciplined, organized — you can tell this was planned, that minds once argued about the angle of this avenue, the width of that processional way. The buildings stand to varying heights: some to their full original stature, others dissolved at the second or third story into soft eroded stumps, like teeth worn to the gumline. The stone is all the same material — a pale calcium something,ite or ate, some mineral that drinks moisture and sweats it back in slow beads. Every surface weeps. The walls weep. The stairs descending into the shallows weep. The broad public squares, still legible as gathering spaces, weep into themselves, their flagstones darkened in shifting patterns as water finds its way up through the joins.
+
+There is no rain. There hasn't been rain in a way you'd recognize. The water simply *is here*, has always been here, rising and subsiding in its own slow tidal rhythm — but there is no moon to pull it, no ocean to source it. The water table is the ground. The ground is the water table. They have become the same thing through sheer duration.
+
+---
+
+Walk forward. The water resists you — not through depth or current but through *thickness*. It is warm enough that you don't feel its edges against your skin. You feel, instead, a kind of reluctance, as though the medium you move through has opinions about being disturbed. Your passage leaves no wake. The surface closes behind you with the patience of something that has been doing this forever.
+
+The streets fork. There are rules to this city's geometry that you can almost parse — a radial logic, maybe, or a grid that curves to accommodate something at its center. The buildings are made without mortar. The blocks were cut so precisely that water cannot enter between them, and yet water *exits* between them freely, beading from invisible seams, running in sheets down facades that were once ornamented. You can see the ghosts of carvings — scroll-shapes, repeated geometric borders, what might have been figures before the stone's own moisture softened them into suggestions. A row of faces along a cornice has become a row of smooth lozenges, each one slightly different in its degree of erasure, like a diagram of forgetting.
+
+No trees. No moss, even, which is wrong — a place this wet should be furred with life. But the stone remains bare. Occasionally, in a joint between flagstones or in the bowl of a fountain long overflowed, something that is not quite lichen and not quite mineral deposit makes a faint discoloration — rust-orange, the dull red of old blood. It does not grow. It does not not-grow. It occupies its space in a state that refuses to declare itself biological or geological, and the warmth of the water around it suggests no preference either way.
+
+The heat is close and total. It does not come from above — there is nothing above, or rather, what is above is the same bruised murk that provides the not-light, an undifferentiated ceiling that could be cloud or stone or the underside of another water table pressing down. The heat comes from the water, from the stone, from the thick air that refuses to move. You breathe it and it feels like breathing the exhalation of the city itself — humid, mineral, faintly sweet in a way that is not organic sweetness but the sweetness of calcium dissolving over millennia, of rock becoming water becoming rock.
+
+---
+
+There are no animals. You listen and confirm this. The silence is not total — that would be a different kind of place — but what sounds exist belong to water and stone and their ancient negotiation. A drip, amplified by some acoustic trick of an interior courtyard, sounds once every few seconds with the regularity of a mechanism, though there is no mechanism. A low, pervasive hum travels through the water, felt more than heard, a resonance that might be the city's foundations vibrating at some frequency determined by their mass and the water saturating them. Occasionally, a soft exhalation — not breath, not wind, but a pressure equalization as water rises in one district and the air above it compresses and escapes through a doorway or a window socket.
+
+You pass through what was a market. You know this from the stalls — stone counters, stone benches, all of a piece with the streets they serve, as though the market grew from the ground rather than being placed upon it. The counters are smooth as soap. Their edges have been rounded by water into forms that look almost deliberately sensual — the curves too perfect, the proportions too pleasing. This is what erosion does when given enough time and no interruption: it finds the shapes that water wants, and those shapes are always beautiful, and the beauty is always indifferent.
+
+Beyond the market, the geometry of the city begins to trouble you.
+
+---
+
+It happens gradually. A street you've been following makes a gentle leftward curve that does not end. You walk it for what should be long enough to complete a full circle, but the buildings on either side are not repeating. They are new buildings — new configurations of the same eroded stone, new arrangements of blind windows and weeping walls — and the curve continues, continues, and you realize you have walked something that a circle cannot account for. The street has turned more than 360 degrees without returning to itself. This is not possible in a space that behaves, but the space here has been soaking for so long that its rules have softened like its stone.
+
+You stop. The water around your legs continues its imperceptible rise — or maybe it's your imagination, or maybe imagination is what the water does when it enters a mind that walks here.
+
+You try a different route. You take a side street that cuts straight through a block of residential structures — low doorways, interior chambers visible through openings where doors have dissolved, rooms with carved basins set into the walls (baths? altars? both?). The street is straight, you are sure of it, you can see its full length, and the building at its end is a large public structure with a colonnade, the columns worn into sinuous pillars that look like they're mid-gesture, caught in the act of becoming something else.
+
+You walk the straight street and arrive at the colonnade, and when you turn around, the street behind you is not straight. It bends. Not dramatically — just enough. Just enough that you could not have seen the colonnade from where you started. Just enough that the space has rearranged itself by an amount that could be a mistake, could be your own disorientation, could be the murky non-light playing tricks, could be the heat.
+
+But it isn't any of those things. The city's geometry is *wet*. It has absorbed so much water, over such profound stretches of time, that the angles have softened just as the carvings have softened, just as the edges of the counters in the market have softened. Right angles are now almost-right angles. Parallel lines converge and diverge by fractions of a degree over their lengths. The grid that once organized this settlement has become approximate, and in that approximation, distances lie. Directions pool and eddy. Space here is not broken — it's *eroded*.
+
+---
+
+The colonnade leads into a building whose interior is its own weather system. The ceiling is high enough to host condensation — the murk thickens as it rises, and at some invisible altitude, the moisture releases, falling back as a fine warm mist that is not quite rain. It beads on your skin. It beads on the columns. It collects in the grooves of what was once writing — long inscriptions running along the upper walls, their characters swollen and blurred until each one is just a softened rectangular shape, a word that knows it was a word and no longer remembers what it meant.
+
+The floor here is submerged to knee depth. The water is warmer than outside, and it has a quality you haven't encountered before — a very faint luminescence, or rather, a lessening of darkness, as though light has been dissolved into it. You can see the floor through it: more flagstones, and set into the floor, a pattern — a mosaic, maybe, of darker and lighter stone, still legible despite the softening. It shows something radial. A design that spirals inward. A map, perhaps. A diagram of the city as it was before its angles gave way.
+
+Or a diagram of what it is becoming.
+
+The pattern in the floor is not static. You watch — you have nothing but time, in this place — and the darker stones are very slightly darker than they were a moment ago, and the lighter stones slightly lighter, and the whole pattern has shifted, rotated, by an amount too small to measure but too definite to deny. The mosaic is moving. The floor is rearranging itself at the speed of geology, at the speed of water dissolving mineral and redepositing it one molecule at a time, and the pattern is alive in the way that stalactites are alive, which is to say: not alive at all, but animated by processes so slow that witnessing them feels like witnessing intention.
+
+---
+
+You could stay here. Many things have stayed here. The city is full of presences that are not presences — impressions in the stone where something once rested and the stone remembers. A cylindrical depression in a counter where a vessel sat for so long that the water eroded around it. A smooth channel worn into a threshold by passage — by the passage of feet or water or both, indistinguishable now. The city remembers use the way a riverbed remembers a river: by becoming the shape the use required.
+
+And the use continues. The water rises. Not dangerously, not urgently, but *actively*. This is what makes the place feel like a living system despite its emptiness — there are processes in motion, cycles that have nothing to do with biology. Water rises through the stone. Stone dissolves into the water. Water deposits minerals in new configurations. Configurations alter the flow of water. The feedback loop has been running long enough that the city is no longer a thing the water happens to — the city *is* what happens when this particular water meets this particular stone in this particular arrangement of low land and sealed sky and sourceless heat.
+
+Somewhere deeper in, toward whatever center the radial streets once pointed to, the geometry is worse. Or better. The streets there have eroded past approximation into something genuinely impossible — a cul-de-sac that is also a throughway, a staircase that descends and arrives at a rooftop, a plaza where the water flows uphill along its own gentle gradient because the gradient is no longer answerable to the same definition of "down" as the water at the city's edges. The center is where the erosion is oldest, where the softening has had the longest to work. The center is where space has been soaking for so long that it has begun to dissolve entirely, the way the carvings dissolved, the way the inscriptions dissolved, the way the faces on the cornice dissolved into smooth unknowing shapes.
+
+You do not go to the center. Not yet. You stand in the colonnade building and feel the warm mist on your face and watch the mosaic turn, and you listen to the silence that is not quite silence — the drip, the hum, the soft hydraulic sighs of a city breathing water instead of air — and you understand that this place is not dead. It is not alive. It is *solved*. It has reached some state that is past the question of living or dying, some equilibrium where water and stone and heat and darkness have negotiated a permanent arrangement, a city that exists in the continuous present tense of its own erosion, wearing itself into new shapes that are also old shapes that are also the only shapes water and stone can agree on, and will go on agreeing on, long after the concept of time has itself been worn smooth and unreadable, another inscription the warm dark water has made its own.

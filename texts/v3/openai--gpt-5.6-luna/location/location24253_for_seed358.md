@@ -1,0 +1,35 @@
+The landscape lies beneath the ground in a broad, shallow basin where the roof of the world has not yet decided whether to become a cavern.
+
+It is not a finished cave. The ceiling hangs low in some places and lifts into immense, unfinished vaults in others, its surfaces raw and pale, scored with the first channels of erosion. Stone sweats constantly. Water beads along the walls, gathers in seams, and falls in close, persistent curtains. The floor is a mixture of warm mud, black gravel, soft clay, and plates of newly exposed rock. Here and there, the ground has opened into long, narrow trenches, not yet deep enough to be ravines but already filling with brown, mineral-rich water.
+
+The basin extends far beyond the reach of any one lamp. Its passages are broad enough to suggest a buried valley, with ridges, shelves, low escarpments, and distant rises hidden behind vapor. Water is everywhere, though seldom in one clean body. It lies under the mud, runs beneath thin crusts of stone, threads through cracks, collects in shallow pools, and presses upward in clear domes that tremble when stepped near. The air is warm and saturated. Every surface glistens. Breath is unnecessary but comforting; the atmosphere seems to enter the body by itself.
+
+Vegetation is scarce, reduced to the places where light or waste has made a foothold. Clumps of gray moss cling to cable anchors and ledges. Thin, colorless shoots grow in the warm mud around drainage outlets, their leaves more like translucent scales than leaves. A few tough grasses have established themselves beneath old lamps, bending toward the weak yellow bulbs. Their roots disappear into the wet ground and seem to spread much farther than their stems, occupying hidden networks beneath the basin.
+
+The rest of the landscape is crowded with animals.
+
+They move through every layer of it: pale fish in the drainage channels, blind eels in the submerged cracks, jointed things slipping through the mud, and clouds of small winged insects gathering around every source of light. Frogs call from flooded hollows. Their voices overlap until no individual call can be distinguished. Colonies of bats hang from the unfinished ceiling in dense, breathing masses, dropping and rising in slow dark waves whenever the machinery changes pitch. Along the warmest banks, squat mammals with wet fur forage among rusted pipes and heaps of gravel. They are neither tame nor particularly afraid. They have learned the routes of the place: where the pumps spill, where the walls shed minerals, where food collects in the warm runoff.
+
+Nothing is still, but almost nothing is fast.
+
+The water advances by fractions. A new rivulet takes days to cut a visible line. Mineral deposits thicken around bolts and chain links one grain at a time. Mud settles over tire tracks and then preserves them beneath a thin skin of clear water. The unfinished channels slowly deepen. Columns begin where dripping water has found the same point for years, though they are only knuckles of stone so far—small, blunt, and pale.
+
+The deafening sound comes from the whole basin.
+
+There are pumps somewhere beyond the visible ridges, old industrial machines drawing water from one chamber and forcing it into another. Their engines turn with a deep, continuous violence that can be felt through the soles of the feet. Pressure valves release in long hissing bursts. Water strikes metal grates, pours through culverts, pounds against the walls of holding tanks. Conveyor belts groan under loads of wet stone. In the distance, something enormous cycles on and off with a slow mechanical thunder, and each time it starts, the shallow pools shiver.
+
+The animal noise rises within this: the relentless clicking of insects, the wet croak of frogs, the wingbeats of bats, the splashing and scraping of creatures that cannot be seen. Sound does not travel cleanly here. It ricochets from the raw walls and gathers beneath the low ceilings, turning every movement into a surrounding presence. A person can shout beside another person and still fail to be heard. The place speaks in vibration more than in language.
+
+Built things appear intermittently, never enough to organize the basin but too many to be accidental. A concrete service platform stands above one flooded section, its railings furred with mineral crust. A line of red lamps continues into the dark, every third one still glowing. Narrow walkways cross channels that have risen since they were installed. Their supports vanish into the mud. A small pumping station has been overtaken by condensation; its windows are opaque, its walls streaked green and brown, but the machinery inside continues to work with patient, indifferent strength.
+
+There are scattered towers of stacked crates, half-sunken sheds, cable junctions, warning signs, and wheeled carts abandoned where the floor softened beneath them. The industry is not ruined so much as absorbed. Belts disappear under sediment and emerge again farther on. Pipes pass through stone that has begun to grow around them. A ladder descends into water and ends at a rung that is now beneath the surface. The old geometry of the works remains visible, but the basin is slowly making a different geometry around it.
+
+The light is weak and local. Lamps cast short cones through the damp air, and the darkness begins immediately beyond them. Their reflections multiply in the water until it seems that every pool contains a submerged, trembling version of the same small room. In the unlit reaches, the rock is only a pressure against the eye: a darker mass, a warm wall, a ceiling somewhere above the sound.
+
+There is little mystery in the place. No impossible colors, no violations of nature, no hidden intelligence in the machinery. Its strangeness comes from ordinary processes continuing at an unusual scale and in an unusual enclosure: water sinking through stone, animals adapting to darkness, engines performing their work, minerals collecting around anything that remains still.
+
+The entire basin feels occupied. Every ledge holds moisture or moss or sleeping animals. Every pool has movement beneath its surface. Every wall bears a cable, a root, a trickle, a nest, or the beginning of a mineral bloom. There is no clean interval between one presence and the next. Even the empty spaces are full of humidity, echo, suspended droplets, and the slow pressure of the surrounding earth.
+
+And beneath it all, the ground is still forming.
+
+Water finds its paths. Stone softens. Mud settles. New channels open while old machinery continues to pump. The basin is not being destroyed and not yet fully created. It is a landscape in the long middle of becoming—warm, wet, crowded, dim, and thunderous, while its changes proceed too slowly for any creature standing within it to notice them happen.

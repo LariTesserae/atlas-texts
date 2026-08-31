@@ -1,0 +1,25 @@
+# The Cistern House
+
+The pumping station sits forty feet below the surface of the flooded city, a cathedral of iron and tile built in the last century to move drinking water through pipes as wide as subway tunnels. Now the pipes are silent, the pumps stilled, and the station itself has become what it once fought against: a chamber given entirely over to water.
+
+The main hall spans perhaps eighty feet across, its barrel-vaulted ceiling held up by cast-iron columns painted in chipped institutional green. Everything here was made by human hands—the glazed brick walls in their herringbone pattern, the riveted steel walkways that ring the perimeter three feet above the current waterline, the massive brass fittings gone verdigris with age. The floor lies somewhere below, invisible beneath twelve feet of cool, still water the color of weak tea.
+
+What light exists filters down through grated openings in the ceiling far above, shafts of gray illumination that shift when clouds pass over whatever remains of the surface world. The light catches on the water and throws slow-moving reflections across the curved ceiling, an endless wavering that makes the whole space feel like the inside of a living thing, breathing.
+
+The water is not silent. It speaks constantly—the hollow plunk of drips falling from condensation on the pipes, the gurgle of slow currents moving through partially blocked intake valves, the deeper resonance of pressure changes somewhere in the connected tunnel system that makes the whole chamber hum at irregular intervals. When the municipal pumps three blocks away cycle on, the sound travels through the water itself, a grinding industrial moan that rises and falls over the span of minutes.
+
+Sparse vegetation clings where it can. Some engineer decades ago installed emergency lighting in waterproof housings along the walkway, and though the lights themselves died long ago, the housings remain, and in them small ferns have taken root, their fronds reaching toward the ceiling grates. A single willow sapling grows from a crack where the walkway meets the wall, its roots trailing down into the water like pale fingers. The tree cannot be more than three years old, and already it has begun to tilt, following the light.
+
+But it is the animals that have claimed this place.
+
+Carp move through the deeper water in loose schools, their bronze backs breaking the surface when they rise to feed on whatever organic matter washes down from above. They are old fish, some of them, grown large in the absence of predators—the biggest must weigh twenty pounds, and they patrol the chamber with the proprietary calm of landlords. Smaller fish flash silver in the light shafts: minnows, young bluegill, things that found their way in through the flood-connected waterways and discovered a world where food falls from the ceiling and the temperature never changes.
+
+Above the waterline, the walkway has become a rookery. Pigeons nest in the junction boxes and behind the rusted control panels, their cooing a constant undersound beneath the water's voice. They have worn the railings smooth with their feet, left white streaks down every vertical surface. A pair of mallards paddles through the hall's center, unbothered by the carp that surface near them. Once, someone saw a great blue heron standing motionless on the walkway's edge, but that was months ago, and no one has seen it since.
+
+The air smells of wet iron, of bird, of the particular mustiness of water that has sat too long in enclosed spaces. It is cool but not cold—the mass of water moderates everything, holds the temperature steady at something like a spring evening, year-round. Sound carries strangely; a whisper at one end of the hall arrives at the other end seconds later, reflected off the curved ceiling, arriving as a ghost of itself.
+
+The pumps themselves still stand at the hall's far end, three massive units with flywheels eight feet across, their brass nameplates still legible beneath the grime: *Metropolitan Water Authority, 1908*. They have not moved in decades. Their intake pipes descend into the water and continue down, down, to wherever the original water table waited before the floods made such distinctions meaningless. Rust has frozen their joints. The flywheels would not turn now if a thousand men pushed against them.
+
+But the station is not dead. Water moves through it, slowly, following pressure gradients too subtle to see. Fish feed and breed and die, their bodies sinking to whatever sediment has accumulated on the tile floor far below. The pigeons raise clutch after clutch, and the failed fledglings fall to feed the carp. The willow grows another inch, and its roots drink, and somewhere in the tunnel system a pump cycles on and the whole chamber groans with the memory of purpose.
+
+This is what remains when the built world fills with water and learns to breathe.

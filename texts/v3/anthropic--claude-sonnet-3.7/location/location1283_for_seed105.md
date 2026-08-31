@@ -1,0 +1,23 @@
+# Shal'Karasit
+
+The Glass Plains stretch before you, a brittle expanse of silicate that captures no reflections. Here, beneath the faded stars of a dying sky, exists a world worn to its essential nature—a place so ancient that time itself seems exhausted by its passage.
+
+The plains undulate in shallow, continent-spanning waves, once mountains now beaten down to the barest suggestions of elevation. What stands above the plains are not peaks but skeletal remnants: impossibly thin spires of obsidian-like material twisted into helical formations that reach hundreds of meters skyward. These *khirost* towers, as the wandering Shaln call them, cast no shadows despite the perpetual twilight, as if light simply passes through their structure without acknowledgment.
+
+The surface crunches underfoot with a sound like breaking ice, though nothing truly breaks—the crystalline surface is hard enough to withstand most pressure, yet somehow records every footfall as microscopic fractures that slowly heal over weeks. The plateau extends beyond sight in all directions, occasionally interrupted by vast shallow bowls where the world has collapsed into itself over eons.
+
+Temperature hovers just below freezing, though nothing freezes here—there is nothing to freeze. No water exists on Shal'Karasit, not as liquid, ice, or vapor. Instead, what little moisture once existed has been converted over billions of years into the stabilized mineral matrices that form the plains themselves. The atmosphere is thin but breathable, carrying a faint scent like heated copper.
+
+Life, as we might recognize it, is virtually nonexistent. In place of vegetation, hairline fractures in the plains occasionally release wisps of luminescent vapor that coalesce into slow-growing crystalline formations. These *breath-crystals* are neither alive nor wholly inert—they respond to sound by changing color, from deep violet to pale blue, and very gradually migrate toward sources of warmth. The Shaln harvest these formations using bone tools, grinding them to powder for their mild psychoactive properties.
+
+The only true fauna are the *skitterlings*—translucent arthropod-like creatures no larger than a hand, with twelve legs and no visible sensory organs. They emerge from beneath the plains during the dim periods when the distant sun is lowest, leaving behind perfectly circular holes that seal themselves within hours. Skitterlings appear to sustain themselves by absorbing vibrations from the ground, becoming more active when the Shaln perform their walking ceremonies.
+
+The Shaln themselves are not native to this world. Perhaps a hundred of these nomads exist across the entire plateau, divided into three or four clans that meet once per local year at the Grand Bowl. Tall and gaunt, they move about in loose hide garments adorned with breath-crystal dust that makes them shimmer faintly against the dim horizon. They construct no permanent dwellings, instead raising temporary shelters from curved panels of polished bone harvested from the enormous fossilized remains that occasionally protrude from the plains.
+
+Their most sacred sites are the *whisperwells*—perfectly circular depressions thirty meters across where the glassy surface turns black and seems to absorb all sound. The Shaln gather at these sites to conduct their only technological activity: the crafting of spiral tools from skitterling carapaces and slivers of the khirost towers. These implements serve no obvious practical purpose but are traded between clans during meetings.
+
+Sound travels strangely across the Glass Plains. Voices don't echo but sometimes arrive at distant points minutes after being spoken, as if the very substance of the world delays and redirects acoustic energy. The Shaln have developed a complex language that accounts for this phenomenon, intentionally speaking phrases that will arrive at meaningful moments in the future.
+
+Most unsettling is the occasional *deep tone*—a resonance that passes through everything, coming from everywhere and nowhere. When it sounds, which might be once per month or once per decade with no discernible pattern, the breath-crystals all align their growth toward a central point somewhere beyond the known regions of the plains, and the Shaln fall into a trance-like state for exactly seventeen minutes.
+
+The most ancient Shaln tales speak of a time before the flattening, when the world held different forms and purposes. They reference entities called the *Formers* who may return when the plains finally wear completely smooth—an event their calculations place several million years in the future, yet which they prepare for with slow, deliberate certainty.

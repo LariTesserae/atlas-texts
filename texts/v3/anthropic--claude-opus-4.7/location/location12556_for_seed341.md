@@ -1,0 +1,27 @@
+# The Sump Quarter
+
+It is always just after rain here, and the rain itself is always just about to start again. The air does not so much contain water as negotiate with it — a permanent suspension at the edge of condensation, where breathing feels like drinking through cloth. Heat presses down from a sky the color of wet pewter, low and lidded, and the heat and the wet together make everything feel closer than it is.
+
+The Quarter occupies the floor of an old basin, perhaps half a mile across, ringed by slumped earthworks softened into long green shoulders. You can walk its boundary in an hour. Inside that boundary: a town. Outside: not your concern. The basin keeps its own weather.
+
+The buildings rise out of standing water. Not flooded — *founded*. Brick and dark timber and sweating copper sheet, three and four stories, leaning companionably toward one another over canals that are really just the streets, undrained, accepted. Walkways of slick black planking thread between them at the level of second-story windows. Lower doors are sealed with tar and disuse; everyone enters from above. The brick is so colonized with moss and small ferns and a pale flat lichen that the walls appear upholstered. Water beads constantly on every vertical surface and runs in slow rosaries down to the canals, which steam.
+
+There are perhaps forty buildings. They are not crowded. Between them stand the trees — bottle-trunked things with smooth grey bark and high crowns of fat waxy leaves, rooted directly in the canal water, their roots making knees and elbows that the walkways detour around. Also: tall reeds in stands, broad-leafed climbers furring the drainpipes, and a kind of pale green succulent that grows on the eaves and drips a clear sap. The plants seem placed rather than planted, which is to say the town and the swamp have negotiated terms and the lines run jaggedly between them.
+
+What makes the Quarter loud is the machinery.
+
+Every building, or nearly every building, houses an engine. Great low-rpm beam engines, by the sound — long sighing strokes, the *whuff* and the *whuff*, overlapping out of phase across the basin so that the air is always full of slow breathing. Brass flywheels turn behind open arched windows. Leather belts slap. Somewhere a governor whirrs up and a relief valve coughs steam in a wet white plume that joins the general low ceiling of vapor hanging beneath the sky. Pipes run everywhere — lagged in tar-soaked rope, weeping at the joints, slung between buildings on iron brackets, ducking under walkways, plunging into the canals and emerging elsewhere. The pipes carry hot water, or steam, or something that wants to be both. The town is a single distributed engine and no one I can find will tell me what it is for.
+
+The light is dim because the sky is low and because the steam diffuses everything. Gas mantles burn behind beveled glass at the walkway corners, each one wearing a corona of moisture. At noon it is the light of a long dusk. At dusk it is the light of a long deeper dusk. Lamps reflect in the canals in trembling soft columns, broken by the wakes of nothing — there are no fish here, no frogs, no mosquitoes despite everything. That is the strangeness that takes longest to name. A wet hot lush place should sing with insects and shimmer with small lives. This one does not. The plants thrive without pollinators by some arrangement of their own. The water is clean of larvae. No bird crosses the basin. The ecology is botanical and mechanical and that is all, and it is in perfect balance, and it has been so for a long time.
+
+The people — there are people, though sparse, perhaps two hundred souls in the whole Quarter — move along the high walkways in light clothes that cling. They tend the engines. They open valves and close them. They oil things. They are not unfriendly but they are quiet in a way that suggests the loudness has become their silence; they speak in the half-second pauses between piston strokes, and a stranger learns the cadence quickly or gives up talking. They wear sandals because shoes rot. Their forearms are very strong and their faces are calm.
+
+The rules of the place, as best I can determine them:
+
+The engines must not all stop at once. If one falters, a neighbor's takes up a heavier load; you can hear it deepen its breath. There is a redundancy in the breathing of the town that suggests centuries of practice.
+
+The water level does not change. Rain falls — when it falls, briefly and warmly, every few hours — and yet the canals stay exactly where they stay. Somewhere the basin is draining as fast as the sky fills it, and the engines may have to do with this, and may not.
+
+Nothing is built new. Nothing is allowed to fall. The erosion has reached its terms with the construction and they hold each other up, brick leaning on moss leaning on iron leaning on root.
+
+At night — and night here is only a deepening of the grey, the gas mantles taking on more authority — the engines slow. Not stop: slow. The breathing lengthens. The whole basin inhales for what feels like ten seconds and exhales for twelve, and the trees, I swear, move slightly with it, their high leaves turning. The steam plumes go lazy. Lamps double in the still canals. And in that slowness you understand, without being told, that the Quarter is not a town that happens to contain engines. It is an engine that happens to contain a town, and the town is the part of the engine that remembers why.

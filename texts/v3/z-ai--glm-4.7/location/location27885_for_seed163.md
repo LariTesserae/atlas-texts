@@ -1,0 +1,23 @@
+The light here is an assault. It is not the warm, dappled gold of a forest floor, nor the soft haze of a coastal dawn. It is a clinical, absolute white, bouncing off the wet surfaces with a ferocity that leaves the eye scrabbling for purchase. There are no shadows to hide in, only deep, cutting contrasts where the massive stalks of vegetation block the sun.
+
+You are high up—breath comes thin and sharp—but the geography feels wrong, unfinished. The ground is a chaotic jumble of raw, grey stone that looks less like earth and more like a wound in the planet’s crust. This is the embryonic world: erosion has not yet had time to soften the edges. The rock faces are jagged, sharded, and vertical, rising like broken teeth from the soil-less floor. It is a landscape of sharp angles and unstable scree, a geology still convulsing with the memory of its birth.
+
+Yet, despite the raw stone, the world is soaking. The water parameter is high, manifesting not as standing lakes or gentle streams, but as a constant, vertical weeping. The atmosphere is saturated; it is less air and more breathable fog. Condensation clings to every surface, turning the jagged rocks into slick, treacherous mirrors. Water trickles everywhere, a constant, rhythmic plinking sound that would be soothing were it not for the roar of the place.
+
+The roar is deafening.
+
+It is a mechanical scream, a heavy, thrumming industrial vibration that shakes the marrow in your bones. This is the tech level: industrial, loud, and intrusive. Scattered across the raw, high-altitude plateau are the machines. They are not sleek; they are functional, rusting iron and rivets, belching steam that vanishes instantly into the thin, bright air. They are vast, scaffolded drilling rigs and pumping stations, clawing at the raw geology. They are mining the rock, processing the water, but their scale is dwarfed by the life around them.
+
+And the life… that is the true architecture here.
+
+Because the soil is thin and the rock is sharp, the vegetation has evolved not as a carpet, but as a pillar society. The "trees" here are colossal, solitary columns of biological mass, spaced far apart (sparse density) but filling the vertical volume with terrifying totality (high vegetation). They are not merely plants; they are structures. Their trunks are as thick as skyscrapers, covered in a bark that resembles hammered iron, their roots wrapping around the jagged boulders like massive pythons, crushing the stone as they grow.
+
+These floral titans support a complex ecosystem of lesser vines and mosses that hang from their branches like green curtains, creating "rooms" and "corridors" in the air between the trunks. The plants *are* the buildings. You walk through the landscape by moving through the hollows inside these massive root systems or crossing the slippery, metal-grated bridges that the industrialists have slung between the branches.
+
+It is cool, the kind of damp chill that seeps through clothing. The temperature strips away any comfort the bright light might offer. The combination of the white glare, the grey stone, and the deep, bruised purple-green of the giant leaves creates a color palette that feels both hyper-real and washed out.
+
+There are almost no animals. The silence of biology is absolute. No birds sing, no insects chirp. The only movement in the ecology is the slow, relentless expansion of the plant matter and the dripping of the water. The fauna is rare, perhaps limited to microscopic organisms in the water or a few silent, heavy-bodied things that hide deep in the interstices of the root-architecture. The world belongs to the machines and the trees, and they ignore each other.
+
+The sound is the unrelenting constant. The engines do not stop; the rush of water over the raw, uneroded stone creates a white noise that fills the ears. It is a deafening, exhausting loudness that makes thought difficult. You have to shout to be heard by the person next to you, but mostly, no one speaks.
+
+And beneath it all, the change is agonizingly slow. This is a dynamic of deep time. You can watch the massive drill-bits chew into the rock for an hour and see the progress of a millimeter. You can watch a giant vine thicken over a year and notice no difference. The noise implies urgency, but the landscape operates on a geological schedule. It is a place of waiting, suspended in a bright, wet, noisy limbo where the mountains are still being born and the plants are slowly turning them into ruins.

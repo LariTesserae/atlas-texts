@@ -1,0 +1,13 @@
+The landscape opens onto a vast, low-lying valley, still young and raw after some cataclysmic upheaval or weathering process. Gnarled rock formations jut at odd angles from the damp earth, their surfaces erosion-etched into alien forms. The air hangs heavy and warm with humidity, the omnipresent dampness seeping from the very ground.
+
+Dotting the sparse landscape are the occasional cluster of trees or thick clumps of fungal growths - evidence that some hardy flora clings to life in this throbbing environment. But these pocket ecosystems are isolated, islands of lushness drifting in seas of naked rock and bare red soil.
+
+A sluggish river winds its way through the valley's center, its flow choked by wind and water-carved chasms in the bedrock. Frequent rains swell it into raging flash-floods only to have it dwindle again to a trickle. The wide banks are covered in glittering microbial mats and oily black lichens.
+
+The dimmer lighting could be due to high cloud cover, haze, sulpheric plumes, or arcane obscurement. An occasional chime or drone emanates from the arrangement of standing stones, shrines and comm towers threaded with pulsing fiber optics that stud scattered population centers.
+
+Sporadic mists condense into sparkling phantasms - titantic writhing forms that stream across the sky. The ground, affect to vibrate all hours. Slow embers of phosphorescent sparks here and there that are not quite littered with subtle debris and scrap but nothing large.
+
+Though life seems sparse, a careful eye spots lidless fae flitting between stones, chitinous carapaces clicking over the terrain, and other peeking out of the fungal clumps and phorads where they pause to father spores. The stillness is only a facade - the biotype's gears click and whir away beneath the scene's surface, vibrating up through talon and femur.
+
+You sense the previous urbanization, demolition. Now patched but still it has the aspect of being held together, re-purposed, reconstructed or perhaps retro-fitted into something abound with slick-lit transmogrifiers. Some heirarchical. Though the base is some earthly plant they ambitiously transfigure their surroundings. Tubular mainlines heave and sigh here and there in a tangle of double-vanes like pistils of algae on limbs. Hard to see where the base stone abuts the fretted liveries of wainscoting. These pearly phantasms stomping to and fro in t оборудование-нающих стеллажах to и fro that are streaked with gumball jizz .

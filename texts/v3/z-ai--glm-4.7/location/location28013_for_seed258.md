@@ -1,0 +1,25 @@
+The air here does not move; it hangs heavy, warm, and thick with the breath of a billion stomata. You are standing on a high plateau, but the ground underfoot feels spongy and alive, yielding slightly like the rind of a great fruit. This is the Weft.
+
+**Terrain and Geology: The Emerging Construct**
+The landscape feels jarringly, preternaturally new. There are no worn slopes, no rounded river stones, no valleys smoothed by the patience of millennia. Instead, the terrain rises in sharp, raw geometric facets—sheer cliffs that look less like rock and more like exposed cartilage or fresh, un-weathered hardwood. The "mountains" here are not geological upthrusts but architectural heaves, massive eruptions of biological matter that have only just breached the surface. The erosion score is near zero; nothing here has begun to decay. Every edge is crisp, every angle is precise, as if the entire world was hatched yesterday and frozen in that moment of freshness. It is a raw embryonic architecture, vast and open, stretching to a horizon that feels artificially straight.
+
+**Vegetation as Architecture**
+The "plants" here do not grow in soil; they *are* the soil, the walls, and the sky. The vegetation parameter is total, creating a mono-biome of colossal, interlocking fibrous structures. Imagine groves of titanic, ivory-colored pillars that stretch hundreds of feet into the air, their surfaces smooth and polished like bone. These pillars are not wood in the traditional sense, but a dense, vascular material that hums with low energy. Between them span vast, arching bridges of woven vine-matter, thick as suspension cables, forming a canopy that filters the normal light into a soft, diffuse glow.
+
+Despite being total, the vegetation is strangely sparse in arrangement (Density 0.6). It is not a chaotic jungle; it is an open city of giants. You could drive a carriage through the gaps between these massive trunks. The "ground" is a lattice of interwoven root-mats, pale and clean, creating a continuous, level floor that lacks mud or debris. It is a constructed environment, a built world made entirely of living tissue, devoid of stone or metal.
+
+**Water: The Suspended Dew**
+Water is everywhere, yet it does not flow. The atmosphere is supersaturated (Water 2.0). The air is so wet you can almost chew it. Condensation does not merely gather; it drapes the landscape like a wet silk sheet. Every massive pillar weeps clear, viscous fluid that slides down the vertical surfaces but refuses to pool. The surface tension is high; the water beads up into perfect, large spheres that cling to the plant-architecture like glass ornaments.
+
+Because the dynamic is frozen, there are no streams, no rushing rivers. The water is static, a hanging humidity that creates permanent lenses of liquid suspended in the air between the pillars. The landscape feels like the inside of a lung, humid and respiratory.
+
+**Sound: The Great Drone**
+It is loud here (Sound 2.0), but the noise is not the cacophony of animals or wind. It is a constant, deep thrumming—a sub-bass frequency that vibrates in your chest. It is the sound of the construction, the metabolic roar of a world-sized organism processing itself. Occasionally, a wet *thwack* echoes through the open spaces as a sphere of condensation grows too heavy and finally drops from the high canopy, striking the root-floor with the weight of a stone. These percussive drops are the only punctuation in the endless, monotonous drone of growth.
+
+**Ecology and Fauna**
+Life is rare (Fauna 1.3). There are no birds, no insects, no chattering monkeys. The silence of animal life is eerie. The only movement is the slow, imperceptible pulse of the pillars themselves. Occasionally, you might see a "shepherd"—a rare, silent, translucent amoeba-like creature the size of a bus, gliding slowly over the root-mats. It does not eat; it seems to groom the surfaces, slurping up the heavy condensation and leaving the ivory surfaces pristine. It is the only mobile thing in a static world.
+
+**Atmosphere and Rules**
+The temperature is a balmy, constant warmth (1.8). There is no day or night cycle to speak of, only a perpetual, balanced twilight (Normal Light). The most unsettling rule of this world is its stasis (Dynamic 0.5). Nothing happens quickly. You could watch a pillar for a year and see it grow only an inch, yet you know it is growing. It is a frozen equilibrium. The landscape is "emerging" eternally—it is always in the state of becoming, never arriving. It is a construction site where the builders have paused, holding their breath, while the scaffolding remains living and wet.
+
+It is a place that feels profoundly artificial yet purely biological. It is a factory without machines, a temple without gods, a high, wet, open cathedral made of flesh and wood, waiting for a purpose that never comes.

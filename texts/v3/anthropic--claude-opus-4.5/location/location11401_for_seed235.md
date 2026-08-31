@@ -1,0 +1,37 @@
+# The Roaring Plateau of Unmade Things
+
+The sound comes first—a wall of noise so absolute it becomes texture, becomes pressure against the skin, becomes the medium through which all else exists. It is not wind, though the air moves. It is not water, though water is everywhere. It is the sound of the plateau itself, the continuous exhalation of a high place that has forgotten how to be silent.
+
+You stand at the edge of a vast urban ruin that covers the crown of an immense elevated landmass—a fractured mesa rising nearly three kilometers above the haze-shrouded lowlands, its edges dropping away in terraced cliffs softened by millennia of subtropical rain. The city sprawls across this tableland for kilometers in every direction, its architecture grown rather than built, walls of fused mineral and crystallized vegetation rising in organic spirals, domes like the caps of enormous fungi, boulevards that curve in patterns suggesting growth rings. No tool shaped this place. No hand laid these stones. Yet it is undeniably a city—organized, infrastructured, *intended*.
+
+The buildings sweat. Water beads on every surface, runs in continuous sheets down walls of pale green calcium carbonate, pools in cisterns that are also plazas that are also the cupped hands of structures reaching toward the perpetually weeping sky. The humidity approaches totality—the air itself seems uncertain whether it is gas or liquid, and breathing feels like drinking something thin. Steam rises from channels cut into streets, from vents in rooftops, from the countless hot springs that bubble up through the plateau's porous stone. The water table here isn't below ground; it *is* the ground, pressing upward, emerging everywhere, warm from the volcanic heat that keeps this high place tropical when it should be cold.
+
+Vegetation claims every surface but the walking paths—and perhaps *allows* the walking paths to remain clear. Moss-analogues coat the buildings in pelts of deep emerald and copper-red, so thick they blur architectural details into soft organic forms. Vines with leaves like wet leather climb in spirals around towers, their tendrils moving imperceptibly, or perhaps not moving at all but merely *being* in new positions when you look again. Enormous ferns erupt from rooftop gardens, from window-wells, from cracks in the streets—their fronds heavy with condensation, dripping in rhythms that add undertones to the endless roar. Everything grows into everything else. The city and the jungle have negotiated a permanent treaty, or have forgotten they were ever separate categories.
+
+The heat presses down like a hand. Even at this altitude, the air holds warmth close, the moisture trapping it, the volcanic vents below adding more. Sweat springs up instantly and goes nowhere—the air cannot accept more water. Your skin becomes another wet surface among thousands. The temperature never drops. Never rises either. The plateau exists in thermal equilibrium, has existed there for so long that the concept of seasonal change has become meaningless here.
+
+And the sound—you must return to the sound, because it never leaves.
+
+It emerges from fissures in the plateau's surface, from the mouths of buildings, from the resonant chambers of the city's own architecture. The hot water rising from below passes through caverns and channels worn into the stone over geological time, and the stone sings. Not melodically—chaotically, continuously, at every frequency simultaneously. A chord containing all chords. A roar that is also a whisper multiplied a billionfold. The city was built—*grew*—around this sound, and its structures amplify it, shape it, give it new harmonics. The domes catch certain frequencies and hum. The towers create standing waves. The streets act as waveguides, carrying the noise to every corner of this place.
+
+You cannot think in words here. The sound occupies the verbal centers of the brain and leaves only images, only impressions, only the direct experience of being a sensing creature in an overwhelming place.
+
+Nothing moves that you can see. No insects trouble the pools. No birds wheel above the steaming towers. No creatures rustle in the undergrowth. The plants grow, but their growth is geological—imperceptible across a human lifetime. The water flows, but it has always flowed exactly this way, following channels worn so deep and smooth they could not be deeper or smoother. The steam rises in patterns that repeat precisely, eternally. You watch for change and find none. The city is not dead—death implies a prior life, implies decay, implies transformation. The city simply *is*, in a continuous present tense that contains no past or future.
+
+Yet something is wrong with reality here.
+
+You notice it first in your peripheral vision—the way buildings seem to have more corners than geometry allows, the way a street clearly curves left while simultaneously curving right, the way you can see the far edge of the plateau *through* the towers between you and it, the towers still fully present, still occupying their space, but somehow transparent to distance while opaque to light. You turn to look directly at these impossibilities and they do not resolve—they simply become harder to think about, your mind sliding off them like water off the slick moss-covered walls.
+
+The ferns growing from a nearby rooftop have fronds that extend downward below the roof's edge, and also upward above it, and the two directions are the same direction. A pool in the street reflects a sky that contains different clouds than the sky above you, except both skies are the same sky, the reflection merely showing what was always there if you knew how to look. The sound, you realize, is coming from both inside your head and outside it, is both deafening and silent, is the presence and absence of all vibration simultaneously.
+
+The plateau exists at an altitude where the rules thin. Where the weight of atmosphere and the weight of meaning both grow less. Where a city can grow without builders, where silence can roar, where water can be stone and stone can flow. The erosion here is not physical but ontological—reality itself has been worn smooth by the passage of deep time, and what remains is only the most fundamental shapes, only the most essential truths, only the patterns that could survive being sanded down to their conceptual bones.
+
+You walk the streets that are also rivers that are also the spaces between buildings that are also the buildings themselves. The vegetation watches without eyes, grows without time, exists without the arbitrary distinction between subject and environment. The heat wraps around you until you cannot tell where your body ends and the wet air begins. The sound fills you until you cannot tell where hearing ends and being heard begins.
+
+The plateau has always been here. The city has always grown upon it. The water has always risen, the stone has always sung, the reality has always been uncertain at the edges and absolute at the center. Nothing will ever change because nothing ever has—the dynamic is frozen, the equilibrium eternal, the moment of now stretched across all moments that were and will be.
+
+You are here.
+
+You have always been here.
+
+The sound agrees with you.

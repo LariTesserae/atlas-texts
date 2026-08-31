@@ -1,0 +1,18 @@
+At first it feels like a mistake in the map: a shallow fold of land near sea level, nothing dramatic, just a long, eroded trough between old stone ridges. Then you step down into it and realize why people speak of it as if it were a room.
+
+The basin is low and cold, held in the shadow of its own walls. Not high walls—just enough rise to hide it from a distance. The rock is old, rubbed smooth by ages of frost and grit, dark with mineral stain. In dry stretches it looks almost dusty, but moisture is always nearby: beads of condensation on stone, slick seams in the clay, pockets of peat that release water when stepped on, and thin rain that comes and goes without ceremony. There are no big lakes here, only temporary mirrors in hollows and slow black trickles that vanish into gravel.
+
+Despite the cold, plant life is thick where it can get a grip. Moss takes the north-facing stone in dense velvet sheets. Sedge and rush grow in fans around seeps. Dwarf willow crouches low to avoid the wind, and lichen paints the exposed rock in pale maps. It is lush in patches, not in blanket form—green islands in a lot of empty ground. You can cross ten quiet meters of bare shale and then suddenly sink ankle-deep into springy moss.
+
+The darkness is not cave-dark, but long-night dark: a place where daylight is weak, angled, and brief for much of the year. Even when there is “day,” the basin keeps its own dimness. The air is often full of fine mist, and the little light that enters gets flattened. Colors simplify: iron black, peat brown, dull green, bone gray.
+
+And then the sound—this is what defines the place.  
+The trough opens at one end into a narrow break in the coastal rock, and ocean swell drives air through hidden stone channels under the basin. Wind from above meets pressure from below. The result is a constant, body-filling roar: part surf, part wind tunnel, part distant thunder that never fully stops. Reeds clatter. Loose shale chatters. Sometimes the whole ground seems to hum. You do not hear individual things easily here; you feel them in your ribs. Speech turns into hand signals and shoulder taps.
+
+Life is sparse in motion, though not absent. A few seabirds nest on ledges when weather allows. Small pale fish appear in flood pools after heavy rain and disappear again. Fox prints cross the mud occasionally, straight and purposeful. Insects are seasonal and sudden. Most of the basin’s “population” is rooted: plants, fungal mats, and the thin skin of microbes on wet stone.
+
+There are signs of people, but only scattered ones. Low turf shelters tucked behind boulders. Driftwood frames tied with hide cord. Stone cairns marking the safer paths across bog pockets. Bone or antler pegs hammered into cracks where ropes once hung. Nothing like a village; more like repeated temporary use over generations by people with simple tools and good memory. The built things here are practical and quiet, made to survive damp and wind rather than to be seen.
+
+Change comes slowly. Erosion has already done the dramatic work. Now it is refinement: one more layer of peat, one more season of rock polish, one collapsed shelter replaced by another in almost the same spot. The basin is established in itself, a mature shape. It does not transform quickly; it persists.
+
+The local rule is simple: in the roaring hollow, distance is measured by sight, not sound. If you lose line of sight, you are alone immediately. So paths are low, straight, and marked. Fires are shielded. Movements are deliberate. In a world that otherwise feels open and empty, this one hidden place is intimate, deafening, and alive mostly in stillness.

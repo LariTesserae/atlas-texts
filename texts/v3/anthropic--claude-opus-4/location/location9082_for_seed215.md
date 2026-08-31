@@ -1,0 +1,19 @@
+The chamber exists within something else—a cavity carved or grown inside a larger structure whose nature remains deliberately unclear. Steam rises from shallow pools that collect in the uneven floor, each depression lined with hammered copper that has taken on a green-black patina from constant moisture. The air tastes of minerals and heat.
+
+The walls curve inward, built from thousands of small fired clay tablets, each no larger than a palm. They overlap like scales or shingles, mortared with something that sweats constantly, beading and dripping in slow, irregular rhythms. Behind these tablets, you can hear water moving—not flowing exactly, but shifting, as if the whole space breathes moisture through its constructed skin.
+
+The heat comes from below. Through gaps where floor tiles have shifted, you glimpse a deeper architecture: stone channels carrying water hot enough to steam, carved with simple tools whose marks still show in the rock. The engineering is crude but effective—whoever built this understood water's behavior intimately, how it wants to move, how heat makes it rise and cool makes it fall.
+
+No plants grow here, have never grown here. The only colors come from minerals leaching through the walls—rust orange, copper green, sulfur yellow—painting slow patterns down the clay tablets. Some sections have built up thick crystalline crusts that crack and reform as moisture levels shift through their patient cycles.
+
+The ceiling arches just out of reach, pierced by dozens of small shafts that angle upward into darkness. Light filters down through these openings, but it's wrong somehow—too steady, coming from no natural angle. The illumination has a quality like daylight reflected through water, creating subtle caustics on the walls that shift almost imperceptibly.
+
+In certain places, the clay tablets have been arranged to form patterns—not decorative, but functional in ways that aren't immediately clear. Spirals that might channel condensation. Grids that could be counting something. The logic feels both primitive and sophisticated, as if profound understanding has been expressed through limited means.
+
+The space is dense with intention. Every surface serves multiple purposes: the floor collects and channels water, the walls breathe and sweat, the ceiling admits light while preventing something else from entering. Even the air itself feels designed, held at this specific temperature and humidity for reasons the builders knew but didn't need to explain.
+
+Sound barely travels here. The constant white noise of dripping and seeping swallows smaller sounds. Footsteps vanish. Voices turn strange, as if the chamber disagrees with human frequencies. Only the deepest sounds persist—the groan of thermal expansion in hidden pipes, the occasional crack of clay under pressure, the bass note of water moving far below.
+
+Time moves differently in this constructed wetness. The only clock is mineralogical—the slow accumulation of deposits, the patient erosion of edges where water has found its favorite paths. This place is young in some ways, its corners still sharp, its systems still settling into their cycles. But it's built to outlast its makers, to continue its warm, wet work long after the hands that shaped these tablets have forgotten their purpose.
+
+The strangeness isn't in any single element but in their combination—this deliberate creation of an environment that serves no obvious human need, yet required enormous effort to construct. It's as if someone needed to build a place where specific conditions could be maintained indefinitely: this temperature, this humidity, this particular quality of slow change and patient transformation. A womb or an engine or an altar to processes that happen too slowly for human perception, but fast enough for whatever counts time in crystallization and oxidation, in the marriage of heat and water and shaped earth.

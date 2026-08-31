@@ -1,0 +1,21 @@
+The Bright Mire of Hollowfell is not a place one finds; it is a place one stumbles *into.* The transition is abrupt. One moment, tangled boreal forest, the next, a sudden, plunging drop into a hidden hollow filled with a light that seems to emanate from the very mud.
+
+Low elevation isn't quite right. It's *below.* Below the normal world, a scooped-out pocket, a well of dense, strange life sunk into the flank of the larger hills. The edges are steep, treacherous scrambles of slick clay and moss-covered roots, but the air inside... the air is different. Heavy, humid, and almost blindingly bright.
+
+"Mire" is also a misleading word, conjuring images of sucking mud and treacherous bogs. While the ground is perpetually damp, closer to the consistency of wet clay than flowing water, it's stable. Established. For eons, perhaps. The water is there – condensed in the air, beaded on every leaf, pooling in the countless tiny bowls and depressions that pockmark the landscape. Occasional trickles seep from the walls of the hollow, no more than glistening threads that disappear quickly into the overwhelming green.
+
+And green does not do it justice. It is a riot of viridian, chartreuse, forest, emerald, and shades that have no name in human tongues. Vegetation doesn't just *grow* here; it *explodes.* Lush is an understatement. Imagine every available surface, every nook and cranny, carpeted, draped, and adorned with living things. Mosses like velvet, ferns like lace, fungi like miniature, bioluminescent cities. Giant, bulbous plants with leaves like hammered brass push towards the blinding light, their forms echoing the architecture above.
+
+That's the oddest thing about Hollowfell. It's not truly natural. The plants, though wildly overgrown, arrange themselves with a disturbing regularity. Colonnades of fungal stalks support arches of woven vines. Flat, paved surfaces of hardened clay are inscribed with patterns of intertwined roots. The place is built, undeniably so, yet not by hands as we understand them. Architecture of biology, a city sculpted from living flesh.
+
+Primitive technology has altered the land. The residents, whatever they may be, have mastered simple fabrication. The larger plant-like structures have been carefully cultivated to create dwellings and pathways. Walls of wattle and daub are constructed from woven reeds and mud, reinforced with carefully placed stones. Basic tools – digging sticks hardened in fire, crude axes made of sharpened stone lashed to wooden handles – lie discarded near half-finished projects.
+
+The scale is crucial. The entire hollow might be a hundred paces across at its widest point. One feels folded into it, swallowed by its intensity. Every inch is occupied, every available space utilized. The density is overwhelming. It feels less like walking through a landscape and more like navigating the interior of a vast, pulsating organism.
+
+The light is incessant. It bounces and refracts from every glistening surface, creating a diffuse, almost painful brightness that casts no shadows. It seems to nourish everything, driving the frenzied growth and saturating the air with a palpable energy.
+
+And then you notice the silence. Or rather, the *almost* silence. A faint buzzing hum pervades the air, a low thrumming that vibrates in your bones. The sounds of the forest – the rustle of leaves, the call of birds – are absent. Here, there is only that underlying hum, and the almost imperceptible rustling of the countless tiny creatures that swarm the space.
+
+Abundant fauna, certainly. Insects gleam like jewels. Tiny, amphibian-like creatures with iridescent scales dart between the plants. Glowing worms burrow in the damp earth. But something is *missing.* There are no birds, no mammals, nothing larger than a hand. As if only small creatures can find their place within this intense and stable ecosystem.
+
+That weirdness, that slight dissonance, is what truly defines Hollowfell. It is a place of equilibrium, a frozen moment in time. The erosion has stopped at this point. The settlement has been completed. The creatures have adapted to this world. Everything is saturated and complete. The bright light illuminates a city made of plants, pulsing with silent energy. An impossible balance, perfectly, strangely, sustained.

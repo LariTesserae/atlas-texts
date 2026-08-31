@@ -1,0 +1,17 @@
+In the perpetual cool dimness, the glass-steel lattices rise and fall like frozen waves. This is a city built for beings that were never human, spread across high plateaus where every surface has been claimed and transformed. The structural mesh extends for kilometers, its fractal patterns holding countless chambers and corridors that pulse with subtle movement.
+
+Water is everywhere but contained - flowing through transparent arteries that web through the lattice-work, carrying nutrients and information in gleaming streams. Where the arteries intersect, they form glowing nodes of accumulated liquid, their surfaces rippling with bioluminescent patterns. In certain areas, the water precipitates as a fine mist, creating halos around the industrial-organic machinery that hums at the heart of this place.
+
+The inhabitants move like schools of fish through the mesh-work - translucent creatures that might be biological or mechanical or both, their forms suggesting both insects and data packets. They flow in coordinated swarms through the arterial networks, tending to the city's systems with precise, algorithmic movements. Their bodies catch and scatter the dim light that filters through the upper layers of the lattice, creating shifting patterns of illumination that pulse in slow waves across the landscape.
+
+There are no plants here, but colonies of crystalline formations grow in careful cultivation, fed by the regulated moisture and electromagnetic fields. They climb the support structures in geometric progressions, their facets occasionally catching and amplifying the sparse light into sudden, brief rainbows.
+
+The sound is minimal but omnipresent - a bass tremor that rides the edge of hearing, punctuated by the liquid music of water moving through the arteries and the soft clicks and whirs of the city's inhabitants going about their work. Occasionally, deeper tones emerge from the machinery centers, resonating through the entire structure like the breath of some vast organism.
+
+In the lower levels, accumulated moisture forms pools that reflect the lattice-work above, creating mirror-worlds that seem to extend infinitely downward. These pools serve as breeding grounds for strange creatures that might be living machines - they assemble and disassemble themselves in cycles, their components shifting between solid and liquid states as they process the mineral-rich waters.
+
+The whole system moves in complex patterns, like a clock made of water and light. Weather systems form in the vast enclosed spaces between lattice layers - miniature clouds condensing and dispersing, carrying charged particles that feed the city's power systems. The engineering is so advanced it appears organic, yet so biological it reads as manufactured - a perfect integration that makes the distinction meaningless.
+
+At certain junctions, the lattice opens into vast chambers where the swarm-inhabitants gather in spiral formations, perhaps in some form of communication or data exchange. The air in these spaces is thick with suspended moisture droplets, each one catching and reflecting the movements of the others, creating three-dimensional displays of living information.
+
+This is a place that follows rules, but they're rules that seem to bend human understanding of physics and biology. It's a city that might have grown itself, or been grown by its inhabitants, or perhaps the distinction between the two has long since dissolved into something else entirely.

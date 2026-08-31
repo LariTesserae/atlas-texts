@@ -1,0 +1,31 @@
+# The Terraces of Vask-Omerin
+
+The plateau was not formed; it was *assembled*. This is the first thing you understand standing at its edge, looking out over what should be a horizon and is instead a receding grid of platforms, each one a slightly different height, each one bolted, riveted, or fused to the one before it, climbing toward a sky the color of struck brass.
+
+There is no ground here. Or rather: the ground is the most recent floor someone built, and beneath it are older floors, and beneath those, older still, descending — though no one descends — into strata of construction so old the rivets have grown a kind of crystalline rust-lichen, gray-green, the only vegetation that thrives. It grows in the seams. It is the only thing that grows.
+
+## The Terraces
+
+The scale is regional — you could walk for three days and still be within the structure, still be reading the same grammar of plate and joint and girder, just rendered at a different elevation, a different age of fabrication. The terraces rise unevenly, like a staircase built by several architects who never spoke to each other but who, by accident or design, made something that holds together. High up, near 1.9 of whatever scale matters here, the air thins and goes sharp and cool, and the light — which is bright everywhere, a flat shadowless brightness that seems to come from no single source — turns the metal terraces into long pale ribbons.
+
+The materials are total. There is no soil, no stone that wasn't quarried and placed, no water that wasn't routed. Everything is made. But it is not the cold totality of a clean machine — it's *dense*, layered, near-touching: ducts run beside pipes run beside cable-trunks run beside walkways run beside the undersides of the terrace above, all stacked with the patience of something built over a very long time by builders who never stopped, who kept adding without ever clearing away what came before. The density reads less like a city and more like a coral reef of industry — accretive, crowded, every surface adjacent to three other surfaces.
+
+## Damp in the Dry Machine
+
+Water here is rare and precious in a place otherwise utterly dry — not desert-dry, but *machine*-dry, the dryness of climate-controlled interiors. Moisture shows up as condensation: beads sweating along the cold undersides of pipe-runs, slicks on north-facing plates where the bright light never reaches, fog that pools in the lower joints of terraces during the cool hours and burns away by midday into nothing. There are no rivers, but there are runnels — narrow channels cut into terrace floors, clearly intentional, clearly engineered, that carry trace condensate from the high cold places down toward collection cisterns nobody has seen opened. The dampness is intermittent, occasional — it arrives like a held breath releasing, and then it's gone again, and the terraces are dry and ringing underfoot.
+
+## What Lives Here
+
+Fauna is abundant, almost startlingly so against the sparse vegetation — the lichen-rust supports almost nothing, yet the terraces teem. Things move through the conduit-spaces that aren't quite animals in any way you'd recognize: jointed, segmented presences that seem machined themselves, gray-metal carapaces indistinguishable from the architecture until they shift. They are quiet. Everything here is quiet — a mostly-quiet world, sound arriving as occasional clinks, distant venting sighs, the long low groan of a terrace settling on its ancient mounts. You hear them more than see them: the click of articulated legs on plate-steel, a sound like rain that isn't rain, moving through pipe-space just behind the wall.
+
+Larger forms roost on the terrace edges — things with too many wing-joints, who launch themselves into the bright still air and glide between platforms on currents that shouldn't exist this high, this enclosed. They are the only proof that air moves here at all.
+
+## The Wrongness
+
+And here is where the place stops behaving. The terraces, in long sightlines, do not converge the way distance should make them converge — perspective gives up partway across the scale, and platforms that should recede instead seem to widen, or to fold back toward the viewer, so that looking far is like looking through a lens that has its own opinions about geometry. Walkways that you crossed an hour ago reappear ahead of you, identical in every rivet, and you cannot tell if you've circled back or if the terrace has simply *repeated itself*, manufactured a duplicate the way it manufactures everything else.
+
+Doors open onto terraces higher than the one you just left, though you only climbed a single short stair. Some terraces show wear — decades of rust-lichen, sagging girders, the patina of true age — directly adjacent to terraces that are pristine, edges still sharp, rivets still bright, as if installed within the week. The erosion is young everywhere it should be old and old nowhere it should be young, and the boundary between a fresh-cut plate and a century-worn one is sometimes a single seam, no transition at all.
+
+The engines are the only proof of cause. Far below — or far within, it's hard to say which — a slow mechanism turns, generating the light that has no source, the cool that has no weather behind it, the brightness that doesn't fall in any particular direction and so casts no real shadows, only soft gray suggestions of shadow that don't match the things that should be casting them. The hum of it is so low it registers more as a pressure against the eardrum than as sound, and it has been running, evidently, for a very long time, and shows no sign — in this slow, patient, gradually-cycling place — of ever being allowed to stop.
+
+No one builds here anymore, as far as you can tell. And yet the terraces are not finished. New plate keeps appearing at the indistinct edges of sight, keeps joining itself to the old, keeps extending the total, built, breathing structure further into whatever was here before it — assuming anything ever was.

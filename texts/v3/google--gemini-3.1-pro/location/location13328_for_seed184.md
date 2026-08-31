@@ -1,0 +1,19 @@
+To enter this place is to sink into a heavy, amniotic twilight. 
+
+You are entirely submerged in a vast, subterranean cylinder—a flooded cathedral of industry sealed deep within the bedrock. The water here is not the cold, stinging brine of the open ocean. It is profoundly warm, holding a steady, tepid heat like drawn bathwater, heated by the slumbering, subterranean engines that serve as the foundation of this drowned architecture. 
+
+The space is finite, bounded by smoothed, ancient basalt walls that are barely visible through the astonishing density of what occupies the water. There is virtually no negative space here. The cavern is a hyper-saturated, three-dimensional labyrinth of distinctly urban, mechanized infrastructure that has achieved a strange, settled equilibrium with a riotous explosion of aquatic flora. 
+
+Colossal iron pipes, thick as redwood trunks, crisscross the space in complex, calculated grids. Catwalks, service elevators, and the massive, bulbous housings of industrial turbines are stacked atop one another in a dense, settlement-scale tangle. But none of this metal is bare. Every surface, every wire, every gear is choked in a lush, bizarre overgrowth. 
+
+Thick curtains of plum-colored kelp drape from rusted girders like theater curtains. Soft, velvet-like mosses in deep emeralds and sickly rust-reds blanket the machinery, padding the hard edges of the industrial world. Strangest of all are the wire-weeds—a species of botanical anomaly that has learned to root directly into the exposed, electrified copper of severed cables. These plants feed on the faint, bleeding currents of the facility, their translucent stalks pulsing with a slow, rhythmic bioluminescence that matches the electrical frequency of the submerged grid. 
+
+Because of the depth and the rock above, there is no sun. The landscape is lit only by this ghostly, creeping bio-glow and the dying, heavily filtered amber light of industrial halogen fixtures, sealed behind thick glass and coated in centuries of algae. The light is weak, casting long, wavering, velvet shadows that hide the true depth of the machinery. 
+
+Despite the sheer volume of material and the intimidating scale of the construction, the environment is exceptionally quiet. The water is a perfect dampener. The only sound is a bone-deep, ultra-low frequency thrum—a vibration you feel in your teeth and chest rather than hear. It is the sound of a single, monumentally massive turbine blade turning in the depths, pushing the heavy water. 
+
+Everything here exists in a state of suspended, sluggish eternity. The dynamic of the space is infinitely slow. That great, rusted turbine takes a full five minutes to complete a single rotation, shedding a soft cloud of oxidized dust that is immediately caught by the filtering fronds of a nearby fan-coral. The built environment is decaying, yes, but at a glacial pace; it is heavily weathered but intimately held together by the very root systems that are breaking it apart. It has reached a steady-state. The calcium deposits from the warm water have welded loose joints shut, and the vines act as structural rigging, holding collapsing walkways aloft in the buoyant liquid.
+
+There are no fish here. No quick, darting silhouettes. The warmth and the metallic taint of the water—tasting faintly of oxidized iron and old ozone—deter complex animals. The only fauna are tiny, translucent benthic mites, completely silent, moving at the imperceptible pace of minute-hands across the glass faces of pressure gauges, grazing on the bio-electric moss. 
+
+It is a machine that became a garden, or a garden that learned to be a machine. It does not hurry. It simply stews in its warm, dark, over-packed boundaries, churning the same heavy water over the same lush, electrified vines, breathing perfectly, silently, for ages at a time.

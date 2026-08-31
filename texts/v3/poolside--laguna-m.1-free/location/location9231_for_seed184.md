@@ -1,0 +1,24 @@
+**The Sunken Forge of Duskvale**  
+
+Beneath miles of ocean lie the remnants of Duskvale, a city swallowed whole by a cataclysmic tide centuries ago. The water here is perpetually warm, tinged amber by dissolved minerals from ancient thermal vents that bubble faintly in the distance. Sunlight never reaches this depth, but the darkness is not absolute. Bioluminescent corals—*Lumen coral*, as the archives call it—clinging to rusted girders and collapsed spires emit a ghostly blue-green glow, casting the ruins in an underwater twilight. The light is faint but persistent, enough to navigate by, though shadows cling to the crevices where the glow fades.  
+
+**Terrain & Materials**  
+The landscape is a maze of collapsed infrastructure, where nature and machinery have fused into something unrecognizable. Towering structures made of iron and steel, now pitted and green with corrosion, rise like tombstones from a seabed choked with sediment. Their skeletons are draped in thick curtains of kelp-like *veilweed*, a plant that thrives in warm, low-light waters, its fronds swaying lazily in the current. Between the buildings, the ground is carpeted with a soft, spongy moss that grows in dense clusters, its roots knitting together broken concrete and twisted rebar.  
+
+The *built* nature of the place is still evident, but twisted by time and pressure. A massive, circular chamber—the remnants of a drowned cathedral—dominates the central area. Its dome, once a skylight, is now a jagged hole through which schools of blind, translucent fish drift like living ghosts. The walls are lined with pipes and gears, some still half-functional, their rhythmic creaks and groans echoing in the silence. These mechanisms, powered by geothermal energy or long-dead engines, pump water through the city’s veins, maintaining a fragile ecosystem.  
+
+**Ecology & Fauna**  
+Life here is sparse but hardy. The *fauna* are mostly relics of the past—giant isopods skittering over rubble, their shells dulled by silt—and oddities like the *glassfish*, which have evolved transparency to avoid predators that no longer hunt them. In the cathedral’s depths, a lone *leviathan anemone* pulses with bioluminescence, its tentacles swaying in slow, ceremonial rhythms. These creatures are rare, adapted to the unique conditions of the forge: warm, mineral-rich water, dim light, and the strange energy that seeps from the old machines.  
+
+The *vegetation* is a riot of contrasts. *Lumen coral* and veilweed form thickets in some areas, while in others, the seabed is stripped bare by the slow, grinding erosion of the tides. The flora clings to the ruins with stubborn tenacity, growing through cracks in the stone and metal, their roots prying apart the city’s bones.  
+
+**Atmosphere & Sound**  
+The *sound* here is muffled, as if the water itself absorbs all but the deepest echoes. The dominant noise is the hum of distant machinery—the residual thrum of pumps and generators, their rhythms irregular and ancient. Occasionally, a pipe will burst or a valve will shift, releasing a metallic *clang* that reverberates through the ruins like a funeral bell. The silence between these sounds is oppressive, broken only by the creaking of the city’s frame or the distant, almost inaudible clicks of unseen creatures.  
+
+**Weirdness & Rules**  
+There is an odd, almost intentional harmony to Duskvale. The old machines still function, tended by no one, their gears turning in sync with the growth of the coral. Some have theorized that the city operates on a *slow-cycle logic*, where its systems reset and rebuild themselves over decades, driven by the interplay of thermal energy and biological processes. The *weirdness* lies in this coexistence—metal and flesh, industry and wildness, decay and renewal. Occasionally, the bioluminescence of the coral will shift color, or a valve will open to release a plume of steam that burns with an eerie, chemical flame, suggesting that the city’s heart still beats, albeit faintly.  
+
+**Scale & Density**  
+The scale is intimate yet grand. A cathedral’s worth of space, but packed so tightly with structures, coral, and mechanical detritus that movement is a careful dance. Every inch is occupied, saturated with presence. The density creates a sense of claustrophobia, as if the city is holding its breath, waiting for something. Yet there is beauty in this chaos, in the way the *veilweed* softens the harsh lines of the ruins and the corals transform rusted iron into something almost organic.  
+
+Duskvale exists in a state of suspended animation, a place where time moves like molasses, and the only constant is the slow, patient work of water and life reshaping the world above.

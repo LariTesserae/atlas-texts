@@ -1,0 +1,19 @@
+At first, it's unclear if you're underwater or within the sky itself—so utterly submerged is this strange world in a perpetual torrent of airborne ocean. Here, the boundary between sea and atmosphere is indistinct. High, near some atmospheric pinnacle or forgotten peak, you float or drift, surrounded entirely by a relentless, roaring wall of liquid suspended in chaotic suspension.
+
+The terrain exists as floating islands and fractured spires, primitive stone columns piercing through the thick liquid air. These islands are new, almost embryonic, freshly birthed from seismic upheavals. They are not fully formed yet, edges jagged and sharp, untouched by the smoothing hands of erosion. Raw minerals glint faintly in the diffuse, normal light that filters through layers of turbulent water, casting strange dancing shadows everywhere.
+
+Vegetation clings desperately to these precarious islands. Sparse, stubborn shrubs with dark, waxy leaves anchor themselves to rock crevices, their roots winding and knotting fiercely to resist being torn loose by the currents. They bear odd fruit that glows subtly, pulsing in slow rhythms—one of the few signs of life and nourishment here. Every leaf trembles constantly, battered by turbulent waves that batter from above and below simultaneously.
+
+The temperature remains cool, never freezing, but always uncomfortable—like a damp twilight on a mountain's peak. The liquid atmosphere chills skin, though curiously, the droplets themselves never freeze, as though the world itself refuses the simplicity of ice formation.
+
+Though the scale is intimate, pocket-like in dimension, it feels paradoxically infinite due to the emptiness. Each island is separated by wide voids of roiling waterscape. Yet despite their closeness, moving from one to another feels impossibly distant, as though traversing whole worlds suspended in watery isolation.
+
+Here and there, scattered and half-submerged, you find traces of primitive habitation. Small shelters of stacked stone, rough-hewn timber bound with vines—structures made by hands unsure of permanence. There are crude tools, too, simple stone and bone instruments that hint at humble attempts at civilization. Perhaps explorers or exiles left them, remnants of transient lives stranded or sheltered in this place between ocean and sky.
+
+Animal life is rare, elusive, and always peculiar. Strange, gelatinous creatures, translucent and faintly luminous, swim through the watery air with ease. They appear and vanish unpredictably, phasing in and out of sight as they ride unseen currents. Occasionally, larger beings glide silently overhead or beneath, shadowy giants seen only as blurred outlines.
+
+Sound defines this landscape more powerfully than anything else: a deafening cacophony of rushing torrents, thunderous crashes, roaring liquid currents colliding continuously in violent embraces. Each island hums and vibrates from the ceaseless turbulence. This roaring is not mere noise—it feels alive, as though the world itself breathes and screams, shaping and reshaping its embryonic islands through sheer sonic force.
+
+The place itself is strangely dynamic—caught in endless turmoil and instability. Islands may suddenly fracture or merge. Vegetation may bloom and vanish overnight. Structures collapse as swiftly as they appear. And yet, despite its instability, a peculiar order seems to emerge: an ecosystem defined by turbulence, by constant destruction and creation, a landscape forever on the brink of becoming something new.
+
+Above all, there is an unshakeable sense of strange beauty—raw, uncomfortable, wild—a tiny universe suspended in watery turbulence, alive with echoes of dreams and chaos, and forever unresolved.

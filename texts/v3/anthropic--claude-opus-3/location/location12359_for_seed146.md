@@ -1,0 +1,9 @@
+Deep beneath a barren, rust-hued planetary surface devoid of liquid water or vegetation, a vast cavern system spreads in dense fractal branches, honeycombing the warm lithosphere for countless kilometers. The scale is titanic - individual tunnels and chambers large enough to house their own atmospheres, magma flows, and seismic activity. 
+
+Eerily flickering bioluminescence from ubiquitous fungal mats and curtains provides faint, bluish-green illumination to the never-ending labyrinth. The fungi have evolved to feed on mineral chemosynthesis and geothermal energy, forming intricate symbiotic networks that are the only macroscopic 'life' in this buried realm.
+
+Densely interwoven with the fungal ecology is an abundant and bizarre fauna of insectile burrowing things - eyeless, ghostly pale, chittering and scurrying. They range from finger-length to dog-size, skittering endlessly through cracks and along tunnel walls. Intricate behaviors hint at communal hive-minds and an alien collective intelligence.
+
+Scattered remnants of simple structures hewn from the omnipresent rusty stone appear here and there - evidence of long-ago visits or habitation by early tool-using explorers or colonists, now long-gone. Primitive carvings, broken clay pots, corroded metal hand-tools. Artifacts so ancient their makers and purpose can only be guessed at.
+
+The air is thick, warm, and utterly still. Sound travels only short distances before being swallowed by claustrophobic closeness. Eons pass with little change in these depths - a strange equilibrium of slow fungal growth, skittering cryptofauna, and gradual mineral deposition and erosion in an endless dark realm, hidden and sealed away beneath an arid, empty world.

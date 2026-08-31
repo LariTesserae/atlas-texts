@@ -1,0 +1,46 @@
+It’s easiest to find by accident: a seam in a salt-brittle plain, a hairline fracture that shouldn’t admit anything larger than a finger. You press close, you feel cold air leaking out—not wet, not even damp, just cool and mineral, like the inside of a clay jar kept in shade for centuries. The crack widens if you lean your shoulder into it, not because the rock is loose, but because something inside yields with a slow, practiced compliance, like a door made of roots remembering how to open.
+
+Beyond is darkness that behaves like a material. It fills space the way silt fills a riverbed—except there is no river here, and no water smell, no algae rot, no slickness. Your breath doesn’t bead. Your tongue stays dry. The air holds dust in suspension the way a still room holds old incense: fine salts, powdered stone, a faint sourness of oxidized metals.
+
+And then the sound arrives.
+
+Not a single noise, but a city’s worth of it—loud, layered, echoing off cavities you can’t see. A long, continuous groan like a ship’s hull under strain. Clicks that travel in waves. A deep, organ-like note that swells and fades as if some enormous throat is breathing somewhere below. The loudness isn’t frantic; it’s patient. The place has been making these sounds for a very long time, and it will keep making them whether you’re here or not.
+
+The terrain inside is low and settled, anciently worn into its final decisions. There are no jagged cliffs, no fresh breaks. Everything has been rounded by time without water: edges blunted by salt creep, by thermal fatigue, by endless microscopic shifts as minerals expand and contract in the cold. The ground underfoot is a crust—hard, chalky, faintly porous—over a hollow that rings when you step.
+
+You walk down into it and realize it is not a cave in the usual sense. It’s a pocket-city carved into a single enormous void: a contained world hidden inside a block of old geology. The “sky” is just a ceiling that never reflects light because there is none. Distances are hard to judge. The emptiness is immense—great volumes of air with almost nothing occupying them—and then, abruptly, something touches your shoulder: a wall, a column, a hanging archway.
+
+Those are the plants.
+
+Vegetation here is not decoration, not a border around rock. It is the structural idea of the place. Everything you can put your hand on—every railing, every buttress, every terrace edge—is living tissue trained into shape. The plants are not green. In the dark they have no use for that. They are deep charcoal, ash-grey, bone-white in places where mineral salts plate their skin. Their surfaces are dry and slightly warm to the touch compared to the air, not because they generate heat, but because they hold it—thick, dense, waxed fibers that resist giving anything away.
+
+They grow as cables and ribs more than as leaves. Instead of foliage they produce thin, overlapping scales that rasp against one another when the air moves, making a steady paper-shiver that joins the larger groans. Here and there are bladders—sealed sacs like glazed pottery—filled not with water but with dense, clear oils and volatile solvents that the plants circulate slowly through capillary meshes. If you puncture one (the place makes it feel like a sin), the scent is sharp and resinous, and the liquid flashes away into the air with a cold sting, leaving a dry stain.
+
+The city’s “streets” are terraces of stone and packed salt, but their borders are living. The plants have been braided into steps; they have been coaxed into arches; they have been knotted into lattices that hold up platforms with a tensile strength that stone never had. This is an urban place built with primitive hands, but built over ages: no poured metal, no glass, no precision machining. Instead you see the marks of wedges, scrapers, and hammerstones. You see fiber lashings made from stripped plant cords, blackened with pitch-like sap. You see masonry that looks careful rather than clever—stones stacked, keyed, and then stitched together by roots that were guided into cracks like patient sewing.
+
+No one needs lanterns because light doesn’t function here as a resource. There are no bioluminescent cheats. Darkness is a rule. The city is navigated by other senses: by the way sound changes around a corner, by the texture underfoot, by the cold draft that always pulls toward the central shaft, by the faint vibration that runs through the living walls.
+
+That vibration is part of the ecology. Without animals, without wings or feet or teeth, the plants have become the only moving life, and they move in slow ways that still manage to be loud. They flex. They tighten. They release.
+
+In the largest open volume—an atrium the size of a public square, though you only know it by the way your footsteps echo—there hangs a forest of vertical cords descending from the ceiling like the rigging of a buried ship. They do not sway quickly. They don’t need to. Over hours they drift a finger-width as pressure changes in the hidden lungs of the city. When they rub, they sing: a choir of frictions, squeaks, and low drones. Some cords are hollow and ribbed, and when a cold draft pours down the central shaft it turns them into flutes. The loud organ note you heard at the entrance is simply wind being made audible by living architecture.
+
+The place has no visible water because water is not the medium of life here. The plants run on dryness and chemistry: salts as scaffolding, oils as blood, mineral dust as food. Their roots don’t seek damp; they seek veins of reactive rock. Where the stone contains iron, the roots thicken and darken. Where it holds sulfur, they crust over with pale blooms. In the deepest niches, where air is thin and still, they grow slow fans of crystalline tissue that look like petrified coral but feel like wood—structures that harvest trace gases the way leaves harvest sunlight.
+
+Everything is cool. Not freezing, but perpetually shaded, with a cold that seeps rather than bites. The temperature barely changes. If there is a cycle here, it is so slow you sense it only in the city’s long noises: a daily tightening, a seasonal loosening, a century-scale settling as the ancient void continues its imperceptible collapse.
+
+There are plazas—real plazas, deliberate emptiness in a place already defined by emptiness. Their edges are marked by low walls grown from braided stems, and the centers are bare stone worn smooth by something that once crossed them often. But there are no tracks now, no scat, no nests, no insect husks. No animal life means no small movements to fill the gaps, no chirps or scrabbles, nothing to interrupt the long, infrastructural voice of wind and strain.
+
+Even decay behaves differently. With so little water, nothing rots. Dead plant tissue doesn’t melt into soil; it desiccates into husks and paper-thin sheets that can persist for ages, accumulating like archives. In side chambers—rooms you find by following a change in echo—you can brush your hand across a wall and lift off layers: dry membranes, older membranes beneath, a stratigraphy of growth. Each layer records a period in the city’s life: a time when the air carried more salt, a time when the roots drank more metallic dust, a time when a collapse somewhere sent a tremor through the whole structure and every living beam responded by thickening.
+
+Strangeness here isn’t in monsters or miracles; it’s in governance without governors. The city is ordered—streets, terraces, buttressed halls—yet it has no citizens in the usual sense. The rules of this world are architectural and botanical:
+
+- **No light arrives.** Anything that needs sight either leaves or never evolves.
+- **Water is too precious to appear.** If any exists, it is locked inside chemistry, traded hand-to-hand in molecules and never pooled.
+- **Movement is structural.** Change is the slow flexing of load-bearing life, not the scuttle of animals.
+- **Sound is navigation.** The loudness is not a byproduct; it is the city’s nervous system made audible—pressure, tension, airflow, constant reporting.
+
+If you stand still long enough in one of the open chambers, you can tell when the city “notices” you—not as a mind notices, but as a building notices a new load. The nearest living rail tightens slightly. A hanging cord shifts to a new resting angle. The pitch of the wind-organ changes by a fraction. Your presence becomes part of the acoustic map.
+
+Eventually you find the central shaft: a vertical throat that drops out of sight, rimmed with thick, ropey growth. Cold air pours down it in a steady fall, dragging dust with it. The walls around the shaft are worn smoother than anywhere else, as if for millennia the city has been breathing through this single opening, letting the outer desert’s thin atmosphere scrape past its inner surfaces.
+
+You cannot see the bottom. You can only hear it: the deep note, the endless groan, and beneath them a slow, periodic crack—like an old beam settling, like a continent adjusting, like the oldest stable state of a hidden world continuing, very calmly, to become more itself.

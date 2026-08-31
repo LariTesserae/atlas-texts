@@ -1,0 +1,23 @@
+The air here has weight, a humid, thermal blanket that presses against the skin like a warm, wet hand. You descend into a hollow, a low-lying depression where the wind dies and the atmosphere stagnates, rich with the scent of wet iron and blooming decay.
+
+This is not a forest in the traditional sense, for there is no earth beneath your feet. The ground is a tangled architecture of root and rhizome so dense it has calcified into a solid, walking surface. It is a single, continuous organism that has overgrown the bones of something else. Where the "ground" gives slightly underfoot, it springs back—the sensation of walking on the living hull of some immense, dormant beast.
+
+Overhead, the vegetation forms a vaulted ceiling, a cathedral of interlocking fronds and thick, ropy vines that arch high above in gothic complexity. The light is normal—bright, afternoon sun—but it is filtered through so many layers of verdant glass that it arrives at the floor as a fractured, dusty gold. Shadows are not dark here; they are merely a deeper shade of green.
+
+The water level of 1.6 is evident in the constant weeping of the environment. It is not raining, but the condensation is heavy. Large, droplet-shaped bulbs hang from the upper canopy, swollen with clear fluid, until they become too heavy and burst, showering the floor with a rhythmic *plink-plink-plink* that echoes in the enclosed space. This is the dominant sound: a loud, metallic drumming of water dripping onto oxidized metal and pulpy wood. The acoustics of the hollow amplify the sound, making the single drips sound like the footsteps of giants.
+
+The vegetation (2.9) is total. It fills the volume of the space completely. Every niche, corner, and horizontal surface is occupied. The plants grow in geometric clusters that seem too organized to be entirely natural, mimicking the symmetry of the industrial artifacts they consume.
+
+These artifacts are the scattered ruins (1.3) of a bygone efficiency. Jutting out of the rampant green mass are the skeletal remains of a machine age. A rusted boiler the size of a small house sits half-swallowed by a mat of moss and climbing creepers. A row of vertical pistons, long since frozen in place, now serves as the trellis for a colony of flowering vines. The plants are not just covering the metal; they are integrating with it. You see vines that have wrapped themselves around copper conduits so tightly they have taken on the shape of the wire, becoming biological cables.
+
+The weirdness (2.3) lies in this integration. The technology here is dead, yet it feels animated by the plant life. Large, funnel-shaped flowers have grown directly into the ventilation shafts of the old machines, as if they are breathing through the metal lungs. Occasionally, a low, groaning sound vibrates through the floor—the settling of the metal or the slow shifting of the massive root-ball—mimicking the idle hum of an engine that hasn't turned over in a century.
+
+The ecology is silent. Fauna (0.6) is rare. You see no birds, hear no insects chittering. It is a sterile paradise. The only movement is the slow, inexorable growth of the plants (1.4) and the constant dripping of water. The lack of animals lends the place a mournful, lonely quality. It is a ghost town where the ghosts have been replaced by ferns.
+
+As you move further into the hollow, the density (2.7) becomes claustrophobic. The towering growth narrows into a tunnel-like corridor. Here, the industrial influence is stronger. You pass through a frame of riveted steel girders that now serve as archways for hanging gardens. The air is warmer here, and the smell of ozone faintly lingers—a phantom memory of electricity.
+
+You emerge into a small, circular clearing, the heart of this sunken cathedral. In the center stands the largest construct: a silvery engine, sleek and monolithic, now entombed in the embrace of a colossal banyan-like tree. The tree’s trunk has fused with the metal casing, creating a hybrid bark of steel and wood. From the fusion point, a viscous, amber sap weeps, mixing with the condensation to form small, golden puddles on the floor.
+
+The sound here is louder, a rhythmic hiss of steam escaping from a fracture in the earth, or perhaps from the plant itself. It is a slow, patient breath. The dynamic of the place is glacial; you can see the layers of time in the strata of moss and rust. Nothing happens quickly, but everything is in the process of becoming something else.
+
+The light catches the wet surfaces—slick leaves, polished rivet heads, the glossy eyes of unseen observers that are only knots in the wood. It is a place that feels constructed yet entirely wild, a warm, wet tomb for machines, nursed by a silent, suffocating mother of infinite green.

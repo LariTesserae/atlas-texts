@@ -1,0 +1,25 @@
+**The Flywheel Basin**
+
+You arrive from above, which is the only way to arrive: down through twenty meters of cold green water, the light thinning but never failing, until the floor of the basin resolves beneath you like a photograph developing.
+
+It is a small place. A bowl in the seabed, maybe sixty meters across, rimmed by low shoulders of grey marl that close it off from whatever ocean lies beyond. The water inside is colder than the water above — you feel the boundary as you descend, a clean thermocline like passing through a pane of glass — and stiller. Almost nothing stirs the silt. The basin holds its water the way a cellar holds its air.
+
+The light is the strange gift here. The water is unusually clear — there is so little living in it to cloud it — and the surface far overhead acts as a vast pale ceiling, so that the basin floor sits in a permanent dim noon. Not gloom. A grey-green daylight, sourceless and even, the kind of light a museum might choose. Everything casts a faint soft shadow straight down.
+
+The floor is mostly empty. That is the first thing you understand about it: emptiness as a deliberate-seeming arrangement. Fine pale sediment, undisturbed, lying in long shallow ripples that were laid down by some current that no longer comes. Here and there a dark boulder breaks the silt, furred with a skin of mineral crust. Spaced widely — never crowding — stand a few ribbons of olive-brown weed, sea lettuce and a sparse kelp gone leathery and slow, rooted to whatever hard point they could find. They do not wave. The water barely moves, so the weed stands the way candle flames stand in a sealed room: upright, attentive, almost solid.
+
+Nothing swims. Nothing crawls. The lower water of the basin runs lean on oxygen — not poison, just poverty — and animal life passed over this place long ago and never returned. There are no shells in the silt, no burrows, no tracks. The weed grows because light reaches it; nothing grows because anything eats it or dies. It is an ecology with most of its parts removed, and what remains has settled into the slow patience of plants alone.
+
+And then, off-center in the bowl, there is the engine.
+
+It is the only made thing here, and it has been here so long it has half stopped being made. A marine turbine assembly — the heavy rotary heart of some vessel or platform, shed or sunk in a time nobody recorded — lying canted in the sediment like an erratic boulder. Its housing has corroded, mineralized, and re-hardened into something between iron and stone. Concretion has rounded every edge. Bolts have become nubs. The casing wears the same grey crust as the natural rocks around it, and a few strands of weed have taken root along its upper flank, so that at first glance it reads as geology. Only its symmetry gives it away: the long axis, the circular face, the radial seam of what was once an inspection plate.
+
+Its flywheel still turns.
+
+Not fast. Not with any urgency. The shaft, polished by its own motion and somehow spared the seizure that froze everything else, rotates at a constant, unhurried rate — fed by the one thread of current that does enter the basin, a thin cold seep through a gap in the eastern rim, channeled by accident of bathymetry directly across the old blades. The current is steady. The bearing wore itself, over decades, into a state of perfect indifferent smoothness. So the wheel turns, day and night, at the same rate it turned last year and the rate it will turn next year: a slow industrial pulse, perhaps one revolution every four or five seconds, with nothing connected to it, driving nothing, producing nothing but its own continuation.
+
+The sound it makes is the sound of the basin. Underwater, you feel it as much as hear it: a low, regular, soft mechanical note — *whum… whum… whum…* — conducted through the water and the sediment, faint at the rim, distinct at the center. There is nothing else. No surf reaches down here, no animal calls, no current hiss. Just the turning, and beneath it the absolute felt silence of cold still water. The sound never speeds and never slows. After a while you stop hearing it the way you stop hearing your own heart, and the basin seems silent again — until you notice you've been breathing in time with it.
+
+Nothing here is in transition. The crust on the engine is as thick as it will get. The weed grows as fast as it decays. The seep flows as it has always flowed. Even the silt has finished settling; your own passage stirs a small grey cloud that hangs, drifts, and lies back down exactly where it was, repairing the floor behind you. The basin is not dead so much as *finished* — a small room at the bottom of the sea where one machine and a handful of plants long ago negotiated their terms with the water, and where nothing has had any reason, since, to renegotiate.
+
+You can hover at the rim and take the whole place in at once: the pale floor, the scattered dark stones, the standing ribbons of weed, the stone-grey engine with its one moving part catching the dim light on each rotation — a brief gleam, gone, a brief gleam, gone — keeping time for no one.

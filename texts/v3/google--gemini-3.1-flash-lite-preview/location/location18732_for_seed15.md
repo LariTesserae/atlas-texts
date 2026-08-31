@@ -1,0 +1,13 @@
+The space is a pressurized, translucent sphere no larger than a cathedral’s antechamber, submerged deep within a warm, oceanic reservoir of unknown depth. Everything here is fabricated. There is no natural sediment; the floor, walls, and ceiling are composed of interlocking tiles of smooth, heat-treated resin and polished ceramic, all bolted into place by manual, hand-wrought iron rivets.
+
+Gravity feels sluggish here, though the heat is pervasive, radiating from the very walls as if the structure is drawing energy directly from the crushing weight of the liquid pressing against it from the outside.
+
+There is no "water" inside in the traditional sense, yet the environment is entirely aquatic by proxy. The air is so thick with dense, humid mist—a constant, rhythmic condensation—that one must breathe with care. Every few moments, the ceiling vents a torrent of recycled water which cascades down the artificial walls in a sheet of brilliant, shimmering mercury. This is the only "weather" this world knows: a relentless, cyclical downpour that creates a deafening, percussive roar. The sound is constant, a booming symphony of liquid hitting hollow floor-plates, vibrating through the rivets and into the very bones of the structure.
+
+Because the light is so bright—filtered through the dense, vaporous atmosphere until the entire room glows with a stark, milky luminescence—the lack of life is striking. There are no insects, no moss clinging to the grout, no microbes dancing in the humidity. It is an antiseptic, lonely theater.
+
+The "vegetation" consists of sparse, rigid sculptures made of copper wire and rigid, woven reed. These objects are shaped like ferns or stalks of wheat, pinned to the corners of the room as if to mimic a biology that once was, or perhaps one that is expected to arrive. They are clean, bright, and utterly inert. 
+
+The erosion is artificial; the edges of the floor tiles are still factory-sharp, their geometric precision unsoftened by time or wear. One can see the finger-marks of the makers in the way the resin was smoothed, the slight imperfections in the hand-turned iron fasteners. There is no mystery here, just the heavy, humid stillness of a waiting room built for someone who never arrived.
+
+You feel the ocean pushing against the walls—the structure groans under the external pressure, a deep, metallic *thrum* that vibrates through the floor, syncopating with the falling water. It is a world of motion without life, a high-pressure aquarium made by hand, shimmering and loud, cycling through its own small, lonely patterns in the deep.

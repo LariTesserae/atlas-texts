@@ -1,0 +1,7 @@
+You find yourself in a dimly lit, deeply eroded underwater chamber. The walls, floor, and ceiling are made of a porous, rusted metal that seems to be slowly disintegrating, giving the impression of ancient age. Despite the cool water temperature, the machinery that litters the space hums and churns, producing a cacophony of loud noises that echo through the chamber.
+
+Sparse, twisted metal pipes sprout from the walls and floor, wispy strands of limp, dead seaweed clinging to them. The only signs of life are clusters of bioluminescent fish darting through the darkness, and large, slow-moving jellyfish that pulse with a soft blue light, illuminating the dark water.
+
+The space is mostly empty, with occasional piles of discarded machinery and makeshift repairs scattered about. At the center of the room, a large industrial pump churns, pulling water in from one side and expelling it out the other. The pump is covered in barnacles and anemones, and schools of small fish dart in and out of its intake and outlet.
+
+Despite the dim light and cool water, there is a sense of activity and movement in this place. Water flows through the pump, fish swim through the chamber, and the machinery creaks and groans as it operates. It's a strange, industrial ecosystem that seems to be clinging to life in this submerged, man-made environment.

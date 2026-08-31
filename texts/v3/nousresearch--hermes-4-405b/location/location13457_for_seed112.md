@@ -1,0 +1,15 @@
+The High Verdant Scarp
+
+This is a world where the plant has become the substrate, the air, the very substance of existence. At a high elevation, bathed in bright, clinical light that seems to come from everywhere at once, lies the Verdant Plain: a vast, almost continental expanse of pure, unbroken vegetation. It's not a jungle, but a single, colossal organism, something like a cross between a fungal network and a field of giant, interconnected grasses, its surface a gently undulating plain of smooth, resilient, dark green fiber. The temperature is cool, like a perpetual autumn afternoon, the air still and heavy with the scent of chlorophyll and damp earth, and there is no water to be found—not a river, not a lake, not even a puddle.
+
+But beneath that calm, weathered surface, chaos reigns.
+
+As you step onto the plain, the ground begins to hum and shudder, a low, building roar that quickly becomes deafening. The surface fibers ripple and part like a living sea, revealing glimpses of the intricate, churning machinery below. This is the true nature of the Verdant Plain: a vast, subterranean engine, all pistons, gears, conveyor belts, and hissing vents, powered by the plant-life itself and operating at a scale almost too large to comprehend.
+
+The Plain is not just alive, it is *working*. It is a sprawling, decentralized, self-sustaining factory, producing something—seeds, perhaps, or a strange, glowing nectar—in enormous, ever-shifting quantities. Huge, intricate structures rise and fall from the surface, assembled by unseen mechanisms and just as quickly disassembled, only to be rebuilt anew.
+
+The air above is filled with the Plain's products—and its byproducts. Clouds of tiny, glittering spores drift on the cool breeze, catching the light like minuscule galaxies. Vast columns of steam, thick and smelling of ozone and ammonia, rise from the vents below, climbing until the wind catches them and sends them streaming across the sky like ghostly rivers.
+
+And everywhere, there is life. The Plain is home to an abundant, diverse ecosystem, all of it adapted to the deafening, turbulent environment. Vast flocks of six-winged, feathered things wheel and dive through the spore clouds, their piping calls adding to the overwhelming din. Schools of smaller, quicker creatures, like clockwork birds or flying insects made of twisted wire, flit between the steam plumes. Herds of lumbering, shaggy beasts, all gentle eyes and grinding teeth, browse the Plain's surface, nibbling at the living substrate and the strange fruits it produces.
+
+It is a place of constant creation and destruction, a vast, breathing, churning engine of life and industry, sublime and unsettling in its scale and its sheer, unrelenting vitality. Everything here is part of the machine, from the smallest spore to the Plain itself, all turning, all working, all singing the deafening song of the world.

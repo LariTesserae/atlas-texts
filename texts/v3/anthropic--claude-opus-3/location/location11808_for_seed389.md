@@ -1,0 +1,11 @@
+In the scorched heights of the Kiln Spires, the rusting remnants of a once-thriving industrial city cling to sheer basalt cliffs. The extreme elevation and oppressive heat have long since driven away most living things, leaving only the hardiest of microorganisms and a few desolate creatures eking out an existence in the cracks and shadows.
+
+The city itself is a dense labyrinth of factories, towers, and arcologies interconnected by a web of skywalks, cable cars, and pneumatic tubes. Built in layers upon the towering volcanic plugs, the architecture is a strange amalgam of Art Deco, Gothic, and Brutalist styles, adorned with heat-warped metalwork and soot-stained ornamentation.
+
+Despite the lack of rain, moisture permeates the Kiln Spires. Scalding steam billows from the depths of the earth, condensing on the cooler surfaces above and creating pockets of humidity amidst the arid heat. The steam powers ancient turbines and heat engines, their clanking and hissing echoing through the cavernous spaces.
+
+In the dim light that filters through the ever-present haze, the city appears frozen in time, its growth and decay locked in a slow, patient cycle. Rust consumes exposed metal, while the basalt bones of the cliffs emerge from crumbling concrete. The air is heavy with the acrid scents of oxidation and petrochemicals.
+
+The denizens of this vertical necropolis are an enigmatic lot, seldom seen outside their insular enclaves. Some say they are the descendants of the original builders, adapted to the harsh conditions through arcane technologies and esoteric practices. Others whisper of a new type of being, born from the synthesis of geothermal energy, forgotten science, and the unyielding stone.
+
+In the rare moments of quiet, when the machines briefly slumber, one can hear the groaning of metal under immense stress, the far-off skittering of unseen creatures, and perhaps even the muffled chants of strange rituals, echoing up from the depths of the Kiln Spires. It is a place both mesmerizing and unsettling, a monument to ambition and folly, eternal and yet ever-changing in its slow, inexorable dance with time.

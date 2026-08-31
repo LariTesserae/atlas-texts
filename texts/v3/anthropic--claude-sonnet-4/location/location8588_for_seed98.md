@@ -1,0 +1,21 @@
+**The Chlorophyll Foundry**
+
+Rising from the high plateau like a verdant mechanical fever dream, the Foundry occupies perhaps two city blocks—small enough to walk its perimeter in twenty minutes, yet so densely packed that every square meter thrums with purpose. Here, in this waterless cathedral of green industry, plants have learned to work metal.
+
+The air shimmers with dry heat, not the oppressive humidity you'd expect from such lush vegetation, but a mineral warmth that carries the taste of copper and ozone. No water flows here—instead, the plants have evolved to process liquid metals and synthetic polymers through their root systems, drawing sustenance from underground reservoirs of industrial coolant and nutrient-rich hydraulic fluids that seep up through carefully engineered substrates.
+
+Towering bio-mechanical trees stretch forty feet overhead, their trunks wrapped in spiraling copper conduits and fiber optic cables that pulse with soft bioluminescence. These are not trees as nature once knew them, but living factories—their bark ridged with heat exchangers, their branches ending in spinning turbines that generate power from the constant warm winds that sweep across the plateau. The turbines emit a deep, thrumming music, hundreds of different pitches harmonizing into an industrial symphony that never quite resolves.
+
+Between these giant organic machines, the undergrowth grows impossibly thick—a tangle of vine-wrapped conveyor systems, photosynthetic circuit boards that sprout from the ground like metallic ferns, and flowering bushes whose blooms are actually precision manufacturing nodes, slowly extruding delicate components with patient, millimeter-by-millimeter accuracy. The vegetation glows with an inner light, chlorophyll enhanced with phosphorescent elements that turn every leaf into a soft green beacon.
+
+Steam vents punctuate the landscape—not water vapor, but clouds of heated synthetic gases that the plant-machines exhale as they metabolize rare earth elements and industrial compounds. These plumes catch the bright light that floods down from above, creating rainbow prisms that dance across the metallic leaves.
+
+The few structures that interrupt this bio-industrial garden are clearly recent additions—crystalline monitoring stations that jut from the green mass like geometric flowers, their surfaces still sharp and unmarked by time. Sensor arrays bloom from their faceted surfaces, recording the slow, patient work of this evolved ecosystem.
+
+Everything here operates on geological time. A single component might take months to grow and form. The conveyor vines move so slowly their progress is imperceptible, carrying their precious cargo of bio-manufactured goods in a circulation that mirrors sap flow. Yet the accumulation is constant—somewhere in this density, finished products emerge, though where they go or what purpose they serve remains unclear.
+
+The soundscape is overwhelming yet oddly musical—the harmonic drone of the turbine-trees provides a bass foundation, while smaller manufacturing nodes contribute percussive clicking, soft pneumatic sighs, and the crystalline ring of metal being worked at molecular speeds. Occasionally, a deep resonant pulse travels through the substrate, felt as much as heard, as some massive underground process completes another cycle.
+
+No creatures move through this space—the ecosystem is entirely autotrophic, each plant-machine both producer and consumer in an endless cycle of creation. The bright light reveals every detail of this impossible fusion, where evolution and industry have merged into something that follows neither natural selection nor human design, but some stranger logic that emerged from their collision.
+
+The borders are clearly defined—beyond the Foundry's edges, the plateau returns to bare stone and sparse mineral formations. But within its boundaries, every surface teems with purposeful green life, reaching toward the light, reaching toward some slow and patient future that only the plants themselves understand.

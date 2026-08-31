@@ -1,0 +1,45 @@
+At first it appears to be a high green plain beneath an almost white sky.
+
+The light is immense. It comes not only from the sun but from the cloud deck, from veils of mist, from water filmed over every leaf. Shadows are pale and brief. The plateau extends in broad, shallow terraces, each one apparently level until its far edge reveals itself in a silver line of overflow. Beyond that line the land drops to another green shelf, and another, descending through the open distance toward valleys that cannot be seen through the brightness.
+
+There is almost no exposed ground.
+
+What seems from afar to be turf is a deep, composite vegetation: braided roots, hollow stems, moss chambers, sedge fiber, pale fungal lace, and generations of compressed leaf matter. The plants are not merely growing on the plateau. They have become its upper geology. In places the living mat is several meters thick, strong enough to carry a person, though it gives slowly underfoot and exhales cold water around the boot. Its surface is low and continuous, making the country feel sparse despite its nearly total plant cover. There are few trees, few upright forms, little to interrupt the sky. Everything living has spread sideways.
+
+Close to the ground, the apparent simplicity dissolves. Needle-fine rushes grow through translucent moss. Flat leaves overlap like green scales, channeling rain toward communal cisterns formed by knotted roots. Rosettes hold clear pools in their centers. Small white flowers open only in the most intense daylight, not toward the sun but toward the whole luminous atmosphere. Where water runs persistently, dark red plants form smooth lips around the flow, toughening the edges of the young channels.
+
+The plateau is wet even after weeks without rain. Water lies near the surface everywhere, moving through the vegetative mass in innumerable hidden threads. It beads on stems, wells up in footprints, condenses along the undersides of broad leaves, and drips from root vaults into cavities below. The rock beneath is newly raised and scarcely shaped. It has not yet acquired deep ravines, scree slopes, or mature soil. Its fractures are fresh, blunt, and mineral-blue. The streams have only begun to decide where they belong.
+
+As a result, the drainage is unstable on the scale of centuries but almost motionless to the eye. Water advances through the mat by fractions. A saturated basin overtops; a new runnel begins. Roots reinforce one bank and abandon another. A waterfall may wander fifty meters over a human lifetime, yet on any given day it seems fixed beyond dispute.
+
+The sound is overwhelming.
+
+All along the plateau margins, water passes through and under the living ground before plunging from the terraces. Hundreds of falls descend at once. Some are visible as bright banners hanging in the distance; many are concealed beneath green lips or inside vertical curtains of root. Together they produce an uninterrupted concussion, too broad and constant to locate. The air itself seems to roar. Conversation is possible only at close range, mouth to ear. Loose metal shivers. Water in shallow pools stipples continuously, though there may be no rain.
+
+Under this natural thunder lies another register: the deep, regular turning of machinery.
+
+The industrial works are scattered rather than concentrated. A turbine house stands alone beside one overflow, low and rectangular, its concrete walls darkened by spray. Several kilometers farther on, a steel intake tower rises from a basin of floating reeds. Between them, narrow service tracks cross the vegetation on perforated metal causeways, their supports driven through the root mass to the unweathered stone below. Power lines are uncommon; most cables are buried in watertight conduits, surfacing only at ceramic junction posts whose bright warning paint has faded to lichen-colored yellow.
+
+Nothing here resembles a city or even a factory district. The infrastructure is an archipelago: one valve shed, one instrument mast, one abandoned winch platform, then long expanses of open green and dazzling water. Yet the isolated structures belong to a single regional machine. Deep beneath the plateau, slow water is collected from the porous rock and guided through pressure tunnels to turbines cut into the escarpment. The system does not dam the country so much as persuade its seepage. Intake gates adjust by millimeters. Flywheels turn for decades. Maintenance crews arrive infrequently in sealed crawlers with wide, soft tracks that distribute their weight across the plant mat.
+
+Older artifacts are being taken back by growth. A disused gauge house has become a mound with one window. Moss has bridged its gutters to the roof, and sedges grow from the accumulated rain inside. A rusted pipeline crosses a shallow hollow, but roots have wrapped it so completely that it resembles the rib of some enormous buried animal. Even working structures acquire green margins. Plants are cut away only from vents, hinges, warning lamps, and the narrow arcs through which gates must move.
+
+The machines seem loud when approached, but their clang and turbine whine are small against the falls. The true deafening force belongs to the landscape. Industry has merely found a way to place its rhythm inside that force.
+
+The air remains cool despite the brightness. Spray draws heat from every surface. Wind comes gently across the plateau, carrying the clean mineral smell of fresh stone, the sourness of saturated roots, and occasionally a trace of hot oil from a distant housing. In exposed places the wind presses the low vegetation flat, revealing thousands of parallel channels in the leaves. In sheltered depressions, mist gathers waist-high while the sky above stays brilliant. One can stand in clear sunlight with the lower body erased by cloud.
+
+Animals are rare enough to become events. A few dark, long-winged birds cross the open air near the escarpments, using the updraft from the falls and seldom landing. Tiny pale insects live within closed flowers and root chambers, largely unseen. In the deeper pools there may be slender, nearly colorless fish carried up through the subterranean waterworks, though many workers consider these a story invented to discourage drinking directly from the inspection wells.
+
+There are no herds and almost no tracks. The softness of the ground preserves an imprint for months, so the occasional bird mark, crawler tread, or human boot becomes strangely prominent. Plant growth does not erase these disturbances quickly. It accommodates them. Water gathers in the depressions; moss darkens their edges; a line of footsteps may become, years later, a chain of small flowering pools.
+
+Travel follows rules imposed by the living surface. Dark green is usually firm. Yellow-green may conceal water. Blue-green growth marks a skin stretched over an empty root chamber and must not be stepped on. The safest route is often along the slightly raised seams where separate plant colonies have met and woven themselves together. During maintenance season, crews carry sounding poles not to test mud but to listen for hollowness under the roots. The roar makes hearing difficult, so the poles also transmit vibration into the hand.
+
+Fire is almost impossible. Rot is slow in the cold, saturated interior, and dead vegetation accumulates downward, becoming denser rather than disappearing. Thus the plateau rises by its own growth while water and gravity attempt to lower it. The rock is young; the plant-land above it is younger still, yet already thicker and more intricate than the mineral surface. The place is being built from both directions: stone lifting from below, roots laying down terrain from above.
+
+At the outer terraces, this construction can be seen in section. The green mat overhangs the cliff in heavy shelves. Water streams from its underside through curtains of exposed roots. Behind them lies raw rock, angular and barely stained, as if quarried that morning. New mineral faces wait in the spray while moss advances across them in small, dark islands. There is little fallen debris at the base. The cliffs have not had time to become ruins of themselves.
+
+Nothing happens quickly, though nothing is quiet. The falls maintain their endless uproar; turbines rotate; mist lifts and settles; water presses through stems. The landscape’s great changes are patient ones. A root shelf thickens. A fracture fills. A basin creeps toward overflow. A concrete footing tilts by a degree and is marked for observation over the next forty years.
+
+In the blinding afternoon, the scattered towers and sheds become small black strokes across the green. Beyond them, terrace after terrace shines toward the horizon. The country seems empty, yet every apparent emptiness is occupied by leaves, water, and concealed structure. It seems natural, yet deep underground steel gates are turning. It seems ancient in its vastness and unfinished in every detail.
+
+Above all, it is a place still deciding what kind of land it will be.

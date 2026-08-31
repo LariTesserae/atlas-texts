@@ -1,0 +1,49 @@
+This is the High Felt.
+
+You are standing on the back of the world, where the continent has worn itself down to almost nothing.
+
+The elevation is what you feel first, even before the cold. The air is thin and cool — not bitter, not freezing, just a steady 5 or 6 degrees that never quite leaves. Your breath doesn't plume, because there is almost no moisture to plume with, but the inside of your nose dries and the back of your throat goes papery within minutes. The sky is a deep, dim indigo, even at noon. The sun here is small and old, a pinprick white dwarf that gives light without heat, like a streetlamp seen from miles away. Shadows are not sharp. There is no glare. Everything is visible but nothing is bright, as if the whole plateau is held in the hour just before a storm that never comes.
+
+Under your feet, the ground is not ground.
+
+There is no soil exposed anywhere. There is no rock, either, except where the wind has flayed it bare. The entire plateau — from horizon to horizon, for a hundred kilometers in every direction — is substrate. A continent-wide mat of vegetation so complete that geology has become biology. It is not a forest growing *on* land. It *is* the land.
+
+It is dry. Utterly, impossibly dry. This is not a desert where you could dig for water. There has been no rain here in ten thousand years, no standing water, no river, no dew that beads. The chemistry of this place does not use water at all.
+
+The plants here are anhydrous. They drink the air itself and they drink stone.
+
+The dominant form — the one that makes the hills and the valleys — is called black felt by the people who live in it, though that doesn't capture it. It grows as a dense, interwoven thatch of fibers as thick as your wrist and as fine as hair, matted together into a living upholstery. In cross-section it would be meters deep, a compressed history of itself. The living layer is on top, a dull olive-black that drinks the dim light with near-perfect efficiency, and beneath it are generations of its own dead, not rotted — there is no rot without water — but cured, desiccated, pressed into a fibrous peat, then into something like cork, then into something like coal. You walk on centuries. When you step, the mat gives slightly and then exhales a puff of cool, cinnamon-smelling spores and dust. It is soft and it is, paradoxically, harsh; the fibers are glassy, silica-reinforced, and they will abrade your palms if you catch yourself.
+
+From this endless felt, the larger growths rise. Not trees. Trees need sap. These are Sparse Towers — that is the paradox of the density here. The vegetation is total, it covers everything, but the vertical presences are scattered. Far apart. You can see for kilometers between them through clean, empty air.
+
+They rise every few hundred meters, irregularly, like the pillars of a ruined cathedral. Each one is a single organism, a hollow, fluted column twenty to forty meters tall, made of the same felt but grown upward and braided into a trunk that splits at the top into a crown of dish-like leaves. Each leaf is a meter across, perfectly flat, matte black on top and covered underneath with a fine, silver down that hums. They are not leaves for catching rain. They are acoustic and electrostatic collectors. They tremble and they turn, slowly, not toward the dim sun but toward the planet's magnetic field, tracking invisible lines of force. At twilight they all align at once with a soft, collective creak you can feel in your teeth.
+
+This is an ancient place. Elevation here does not mean jaggedness. The mountains that made this plateau died a long time ago. Erosion has had so much time it has finished its work. What remains are vast, slow undulations — the buried shoulders of a range that once could have scraped the sky, now reduced to long, whale-backed swells in the felt. The wind has planed everything smooth. Where the felt has torn, you can see the true bedrock underneath: not sharp granite but salt and basalt polished to a soft, pitted sheen, like old bone worn by hands.
+
+The wind never stops, because there is nothing to stop it. And the place is *loud*.
+
+The dim air moves over the felt and through the Towers and the whole world becomes an instrument. The low felt vibrates like a drumhead, a constant, breathy shushing. The fluted Towers act as organ pipes; wind forced through their hollow cores makes a deep, resonant moan that shifts through chords as gusts pass. The dish-leaves shiver and produce a high, metallic thrumming, millions of silver hairs vibrating at once. It is not wind-noise. It is the vegetation singing with the wind. You have to raise your voice to be heard ten feet away, and even then your words are half-lost. The locals don't fight it. They wear sound on their bodies.
+
+And there is abundant fauna. You don't see it at first because it lives *in* the sound and *in* the spaces between.
+
+The air is full of them though the ground seems empty. They are the Gliders and the Skimmers, and they never land in water because there is none to land in. They are dry-bodied, leathery, almost plant-like themselves — built on the same non-aqueous chemistry, their blood if they have it is oil and ammonia. The most common are the size of hawks, with translucent, veined wings stretched over filamentous ribs that catch the electrostatic charge thrown off by the Tower leaves. They ride the magnetic lines without beating their wings, tacking silently and then screaming. When they cry out it is a sharp, glassy shriek that cuts straight through the organ-moan. Below, in the felt itself, things move constantly: long, flat grazers like living carpets that shear the top millimeter of felt with rasping mouths, and behind them, hunters — quick, leggy things like bundles of dry twigs that sprint across the springy surface, making a frantic pattering. Life here is active, always chewing, always regrowing, always hunting, but it conserves everything. Nothing bleeds water. When something dies, it is instantly desiccated by the air and felted over.
+
+And built into all of this is the city.
+
+It is not a city on the felt. It is a city *of* the felt, and that is where the tech is, though you have to know how to look.
+
+From a distance you might miss it entirely. There are no roads. There are no straight lines. The settlement — large enough for a few tens of thousands, extending across an entire shallow valley-bowl between two of those ancient swells — is low and integrated. Its structures are not erected but coaxed. The people here, who have been here long enough that their lungs have adapted to the dry, thin air, learned how to program the felt at the nanoscale. Lattice-weavers, they call them.
+
+You see a dwelling and at first you think it's just a particularly dense tangle of felt that has domed over itself. Then you see the doorway, a perfect oval that irises open when you approach, and the interior wall glowing faintly with bioluminescent filaments that are not electric but chemical, cold light that follows your hand. The struts of the buildings are the Tower-fiber, but braided by machines too small to see into cables stronger than steel that grow themselves under instruction. Power is not generated. It is harvested from the same gradient the plants use: the charge differential between the cold ground and the dim sky, the flex of the Towers in the wind. Every surface slightly repels dust. Every roof is also a water trap that never traps water — instead, thin black vanes unfold at night and condense the parts-per-million of atmospheric vapor, not into liquid but directly into a gel that the house drinks and offers to its inhabitants in waxen skins. To waste that gel by spilling it would be sacrilege.
+
+The infrastructure is audible before it is visible. Between the organ-moan of the Towers there is another sound, a precise, overtone-rich chord that is not natural. The transit filaments — invisible threads of engineered felt stretched taut between Towers a kilometer apart, on which cargo pods slide without friction, levitated by the field — sing as they tension and relax. The city talks on the wind. At night, the dim light makes the filaments visible only when they flicker with packets of light-data running their length.
+
+The rules of this place are simple and non-negotiable:
+
+*Nothing is wet. To introduce free liquid water is to poison the felt. The felt will seal around it, isolate it, kill the patch and leave a white scar that takes decades to regrow.*
+
+*Everything listens. Because sight is poor in the dimness and smell is dulled by the dry air, life navigates by vibration. If you stand still long enough, the felt beneath you will learn the rhythm of your heart and stop noticing you. If you run, everything notices.*
+
+*Nothing is permanent, but nothing truly erodes either. What is built can be un-grown and regrown elsewhere. The city has moved three times in living memory, not because it was destroyed but because the felt beneath it got tired and the Towers shifted their magnetic alignment.*
+
+If you climb to the top of one of the taller swells and look out, you can take in the scale of it: an open, breathing country the size of a small nation, but unified, a single organism wearing a single city like a piece of jewelry. The Towers to the horizon all slowly inclining together, the felt shivering like the pelt of a sleeping animal, the gliders cutting their silent, screaming arcs overhead, the filaments singing their transit chords through the loud, cold, dry air. It is ancient and it is active. It is empty and it is full. It is utterly strange and it makes perfect, immediate sense once you have breathed its dust for an hour and felt the hum come up through the soles of your feet.

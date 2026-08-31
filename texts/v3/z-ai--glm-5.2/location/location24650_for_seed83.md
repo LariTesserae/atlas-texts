@@ -1,0 +1,39 @@
+# The Cistern Engine
+
+You descend. There is no other word for it. Even the access ladder — iron rungs set into a channel cut through twenty meters of poured concrete — feels like a throat swallowing something. The air changes before the light does. It thickens, warms, takes on a mineral sweetness that coats the tongue.
+
+---
+
+The chamber is not large. You could walk its perimeter in four minutes if you moved quickly, but you will not move quickly. The floor is a grating — iron lattice, decades of corrosion scaled back to a dull graphite patina — and below the grating, perhaps two meters down, dark water moves with the patience of something that has forgotten why it started flowing. Not much water. A skin of it, a sheet barely covering the concrete basin. It travels from a capped pipe on the eastern wall to a drain on the western, a journey of fifteen meters that it takes forty seconds to complete. You know this because you count. There is nothing else to count.
+
+Above the grating, everything is machine.
+
+Not one machine. Not a single elegant device with a clear purpose. Instead: a congestion. Pipes — some thumb-thick, some wide enough to crawl into — run in directions that seem to contradict each other, crossing and recrossing, strapped together with iron brackets that have rusted into a single unified mass with the pipes they hold. Valves protrude at intervals, most frozen, a few still capable of quarter-turns that produce sounds too small to properly hear — more a vibration in the teeth than a noise in the air. Tanks squat in corners, riveted steel, their surfaces pocked with scale and mineral deposit that has built up like a geological formation over years of condensation. Gauges face the walls. Every gauge faces a wall, as if the room itself lost interest in its own measurements long ago.
+
+This is a made place. There is no stone here that was not poured, no surface that was not machined or cast or stamped. Even the walls — concrete, but not poured in a single act; you can see the form-line seams, the ghost impressions of wooden planks that shaped it section by section. Someone built this the way one builds a organ: deliberately, densely, with each component touching its neighbors because there was no room for space between them. The chamber is perhaps eight meters at its widest, with a ceiling that rises to a shallow vault — four meters, maybe four and a half — and every cubic centimeter of that volume is occupied by something. Pipe. Duct. Tank. Cable housing. Junction box. The walkable space is what's left over, a negative volume, a path carved through machinery by the simple fact that a human body needed to pass.
+
+---
+
+The heat is not dramatic. It does not blast or radiate from a single source. It is simply present, the way memory is present — a uniform warmth that seems to come from the materials themselves rather than from any process. The concrete holds it. The iron holds it. Touch any surface and it is warm, not hot, the temperature of skin, almost, as if the room has a faint metabolism. Somewhere in the tangle, something is still working. Not steam — nothing so visible, so audible — but some slow thermal process, a boiler cycling at minimum output, a heat exchanger drawing from a source you cannot identify. The warmth has been here so long it has become structural. Removing it would feel like removing a load-bearing wall.
+
+And the damp. Condensation is the room's primary weather. Every metal surface carries a film. Not dripping — not quite — but close, a persistent wetness that never fully evaporates because the temperature never drops enough to allow it. In the coldest corners, where two pipes meet at a junction and create a slight draft, the condensation gathers into drops that hang, swell, and fall with irregular patience. *Tink. Tink.* Long pause. *Tink.* The room's only reliable clock.
+
+---
+
+The darkness is not absolute. It is near-absolute. A single indicator light — amber, fist-sized, a glass dome housing a filament that has been burning so long its housing has yellowed to the color of old teeth — glows on a panel near the northern wall. It illuminates nothing. It is simply a point, a reference, a thing that says *something here still cares about being seen.* Beyond it, darkness. Your eyes adjust and you gain nothing for it, because there is nothing to gain. The chamber's geometry is felt, not seen. You navigate by touch, by the heat differential of surfaces, by the sound your knuckles make against different materials. Hollow. Solid. Hollow. The pipe that rings slightly higher than the others.
+
+After enough time — an hour, perhaps — your eyes begin to invent. The amber light seems to cast a penumbra that isn't there. Shapes at the edge of perception resolve and dissolve. This is not hallucination. It is the visual cortex doing what it does when starved: building, constructing, offering. You learn to ignore it. You learn to navigate by the map your hands draw.
+
+---
+
+Life, here, is nearly absent but not entirely absent. In one corner — the southern, the warmest, where a steam pipe runs so close to the concrete wall that the wall has cracked from decades of thermal expansion — there is a growth. Not a plant. Not quite. A biofilm, dark gray-green, that spreads across the crack in a pattern that resembles a river delta viewed from great height. It lives on the moisture that seeps through the crack and the faint mineral content of the concrete dust that collects in the crevices. It does not move. It does not visibly grow during the span of a human visit. But it is there, and it has been there long enough to have a texture, a slight fuzziness at its edges that suggests hyphae or something hyphae-adjacent, something that has found a niche and settled into it with the same patience as the machinery around it.
+
+Elsewhere, rarely: a scraping sound. Something small, something with chitin or keratin, something that lives in the pipes or behind the tanks and emerges only when the room is absolutely still. You will not see it. You may hear it once, a brief tick of contact between claw and metal, and then nothing. It is not hiding from you. It simply has no use for you.
+
+---
+
+The room does not change. This is its most striking quality. Not that it is static — things move, the water moves, the heat cycles, the condensation falls, the amber light might at some unknowable future moment finally exhaust its filament — but that the *rate* of change is so slow it becomes a form of permanence. The rust on the pipes is not progressing in any way you could measure. The mineral deposits on the tanks are not thickening. The biofilm is not spreading. Everything has arrived at a state of equilibrium that is, for all practical purposes, a kind of stillness. The room has settled into itself the way a river settles into its course. It found its shape and it stopped looking.
+
+You realize, eventually, that this is not a forgotten room. It is a room that has been left to its own conclusions. Someone designed it to operate at a certain level, and it operates at that level, and the level is this: warm, dark, damp, slow, and quiet. The machines do not need you. The water does not need you. The biofilm does not need you. The room is not waiting. It is simply being, with the thoroughness and self-containment of a clock that has never been wound by any hand but its own.
+
+When you leave — ascending the ladder, the air cooling by degrees, the mineral sweetness fading from your tongue — you will have the distinct sense of having visited something that did not notice your visit and will not notice your absence. Not out of indifference. Out of completion. The room is finished. It just hasn't stopped.

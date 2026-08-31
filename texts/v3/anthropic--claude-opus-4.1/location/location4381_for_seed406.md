@@ -1,0 +1,17 @@
+## The Breathing Chamber
+
+You discover it by accident—a thumb-sized aperture in the mountainside, exhaling the faintest warmth. Widening it with primitive bone tools takes hours, but eventually you can squeeze through into the hollow beyond.
+
+The chamber spans perhaps twelve paces at its widest, carved from some crystalline mineral that drinks light and multiplies it. Every surface blazes with captured radiance, though no sun reaches here. The walls themselves seem to generate their luminosity from within, pulsing so slowly you must watch for minutes to perceive the rhythm. Cool, despite the light—a clean mountain cold that never varies.
+
+What fills this space defies naming. Not plants exactly, though they grow with vegetable patience. Translucent bladders cluster and stack from floor to ceiling, pressed so tightly together they deform against each other into hexagonal columns, pentagonal faces, irregular polyhedra of living glass. Each contains its own ecology—filaments that branch and rebranch in fractal spirals, colorless until the light catches them just so, then blazing emerald, violet, copper. No two bladders hold the same pattern. Some contain what might be roots, or circulatory systems, or maps of rivers that never held water.
+
+The growth medium is air itself, somehow thickened. The bladders feed on minerals that precipitate from nothing, accumulating as delicate frost on their inner surfaces before being absorbed. You can watch this happening—crystalline dust forming, vanishing, the bladders swelling imperceptibly. They've been at this for centuries, perhaps longer, growing into and around each other in a silent competition for space that will not resolve for another thousand years.
+
+Where the bladders press against the chamber walls, they've begun to merge with the stone itself, their translucent tissue mineralizing at the edges, becoming part of the mountain's bones. The boundary between organism and geology blurs. Perhaps the entire hollow is digestive, the mountain slowly consuming what grows within it, or perhaps the bladders are colonizing the rock, converting it cell by cell into something alive.
+
+No sound here but your own breathing. The bladders make no noise as they grow, as they press against each other, as their internal filaments twist and spread. Even where they crack—and some do, their surfaces crazed with fine lines like old porcelain—the breaking is silent. The damaged ones seal themselves with secretions that harden to amber, trapping pockets of that thick air, preserving the moment of injury forever.
+
+You could make tools from the broken pieces. The material is harder than bone when cured, sharp enough to score stone, light enough to feel hollow. But taking anything from here seems wrong. This place has its own logic, its own careful balance maintained across geological time. The bladders will outlive you by millennia, growing ever more complex, ever more compressed, until perhaps they merge into a single organism or until the mountain seals the chamber forever.
+
+The light never dims. The cold never deepens. The silence holds absolute. You are the only thing here that moves at the scale of seconds rather than centuries, a brief disturbance in a place that measures change in the slow accumulation of mineral frost and the patient pressing of life against life against stone.

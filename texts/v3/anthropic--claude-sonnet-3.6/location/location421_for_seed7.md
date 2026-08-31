@@ -1,0 +1,17 @@
+Below the surface, there is a chamber where heat rises from deeper places. The walls are ancient metamorphic rock, but the space itself feels young - as if it was hollowed out recently, its surfaces still bearing the sharp marks of its creation. The chamber is roughly circular, perhaps forty meters across, with a domed ceiling that rises to a central point some fifteen meters up.
+
+The heat has transformed this place. Condensation forms constantly on the upper walls where cooler rock meets the humid air, creating persistent rivulets that trace geometric patterns downward. These water trails feed a scattered forest of bioluminescent fungi, their stalks rising chest-high, casting a dim blue-green light that barely illuminates the space. The fungi grow in dense clusters wherever the water runs, but leave wide dark gaps between their colonies.
+
+The chamber houses what appears to be an automated atmospheric processing station. Victorian-looking brass and copper machinery rises in several towers, their surfaces kept meticulously clean by small maintenance automatons that endlessly polish and adjust. The machines draw in the hot, humid air through elaborate ductwork, separating out various gases and storing them in pressurized tanks. They work almost silently - just the occasional soft hiss of escaping steam or click of a valve adjusting.
+
+The floor is uneven, with shallow pools collecting in its depressions. These pools reflect the bioluminescence above, creating the illusion of small constellations below. The water is perfectly still except when a drop falls from the ceiling, sending ripples across these mirror-surfaces in slow, hypnotic patterns.
+
+Between the machine towers and fungal colonies, there are wide empty spaces where the bare rock is visible. The rock here has an unusual property - it seems to absorb sound completely, creating pockets of absolute silence. Walking through the chamber is an exercise in moving between subtle acoustic spaces - from the soft drip of water, to the whisper of steam, to complete stillness.
+
+The maintenance automatons appear to be the only moving things here, aside from the water and steam. They're small, efficient things, moving with deliberate slowness along their programmed paths. Their brass joints occasionally catch the blue-green light as they work, creating brief flashes in the dimness.
+
+The air is thick and tropical, but not stagnant - the machines create slow currents that move through the space in regular patterns. These currents carry tiny spores from the fungi, visible as faint swirls of bioluminescent dust in the darkness.
+
+At regular intervals, one of the machines releases a measured quantity of processed gas into a series of crystalline tubes that run up through the ceiling. The gas glows faintly as it moves upward, creating brief pulses of purple-white light that illuminate the chamber like distant heat lightning.
+
+The overall effect is of a place that operates according to its own careful rhythms - a deliberate, automated garden where technology and biology have reached a kind of equilibrium. It feels both industrial and organic, a hybrid space that seems to be slowly evolving toward some unknown purpose.

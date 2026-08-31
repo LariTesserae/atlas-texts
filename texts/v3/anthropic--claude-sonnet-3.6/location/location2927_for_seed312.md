@@ -1,0 +1,19 @@
+The rats run the factories now. Their tiny claws work the modified control panels, their whiskers twitch in the steam, their endless squeaking harmonizes with the perpetual grinding of gears. Nobody knows when they gained sentience - perhaps they always had it - but the city belongs to them now, spreading through the shallow caverns that were once basement levels and subway tunnels.
+
+The architecture is a hybrid of human industrial heritage and rodent adaptation. Vast halls that once housed manufacturing equipment have been subdivided into warrens of tubes and channels, old machinery repurposed into elaborate systems whose purpose no human could deduce. Steam pipes and electrical conduits interweave with organic-looking structures that might be nest material or might be something else entirely - forms that seem to shift when viewed directly, suggesting geometries that shouldn't exist.
+
+Moisture beads constantly on the cool metal surfaces, creating a perpetual light drizzle in the larger chambers. The water flows in rivulets down walls covered in bioluminescent fungi - another innovation of the rat civilization - providing ambient illumination that ranges from gentle blue-green to harsh ultraviolet. The fungi respond to the rats' presence, pulsing in patterns that might be communication or might be pure aesthetics.
+
+The noise is overwhelming: the churning of mysterious machines, the chittering of millions of rats, the hiss of steam, the crackle of electricity, and underneath it all a deep resonant hum that seems to come from everywhere and nowhere. The sound has a strange quality - sometimes it seems to form words or music, but trying to focus on any particular element causes it to dissolve into chaos again.
+
+The rats are everywhere, moving in coordinated waves that suggest a higher organization. Some wear tiny tools or instruments, others operate vehicles made from repurposed human detritus. They seem to phase between acting as individuals and moving as a collective intelligence, especially in the larger spaces where they flow like a living river through their modified urban landscape.
+
+Vegetation is minimal but deliberate - hardy mosses and lichens cultivated in specific patterns, fungal gardens that might be food sources or might serve some industrial purpose. The rats appear to tend these growths with careful attention, though their methods are inscrutable.
+
+The whole complex extends for miles in every direction, a subterranean city-state of rats that seems to be constantly rebuilding and reimagining itself. New structures appear and disappear daily, old systems are cannibalized to create new ones, and through it all the rats work with frenzied purpose. Their civilization seems to operate on principles that defy human logic - perhaps they've discovered new laws of physics, or perhaps reality itself works differently in their domain.
+
+The air is thick with the smell of oil and ozone, overlaid with organic musks and chemical traces that human noses can't quite process. Sometimes visitors report seeing impossible colors in the shadows, or hearing conversations in languages that don't exist, or feeling the weight of countless tiny minds pressing against their consciousness.
+
+The boundary between machine and organism, between built and grown, between individual and collective - all seem to blur in this realm of the rats. It's as if they've created their own pocket universe in these repurposed spaces, operating on rules that make perfect sense to them but appear as controlled chaos to outside observers.
+
+And always, always, they build and modify and experiment, their tiny paws never still, their purposes unknown but clearly urgent. The city churns and changes beneath their ministrations, a living thing itself, forever in motion, forever becoming something new.

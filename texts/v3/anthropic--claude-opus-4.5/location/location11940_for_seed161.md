@@ -1,0 +1,33 @@
+# The Hanging Gardens of the Dust Sea
+
+At the summit of what was once the tallest peak in a range now worn to its bones, a settlement clings to the last stub of stone that erosion has not yet claimed. The mountain is ancient beyond reckoning—what rises now is merely the root of what stood, a plug of volcanic basalt that refused to weather when everything around it surrendered to wind and time. It juts perhaps two hundred feet above the surrounding salt flats, its sides vertical and grooved like a column left standing in a ruined temple.
+
+The people who live here—and there are people, several dozen families—have carved their homes into these grooves, widening natural fissures into chambers, connecting them with rope bridges and wooden ladders that creak in the constant thermal wind rising from the white-hot plains below. The architecture spirals around the tower in three ascending rings, each level marked by different generations of construction. The lowest and oldest chambers are worn smooth as river stones from centuries of habitation. The highest are rougher, newer, still showing chisel marks.
+
+---
+
+There is no water here. There has been no water for so long that the concept exists only in corrupted oral tradition—stories of a "falling sky-drink" that the elders' elders' elders supposedly witnessed. What sustains life instead is a different fluid entirely: the sap of the dust-root vines.
+
+These vines are everywhere. They pour down the cliff face in curtains of gray-green, each tendril thick as a human arm, covered in fine silver hairs that catch moisture from the air itself—not water vapor, but something else, some chemical suspended in the hot winds that blow up from the mineral flats below. The vines have no leaves in any traditional sense. Instead they produce bladders, translucent and amber-colored, that swell slowly over the course of seasons with a viscous, nutrient-rich sap. The people harvest these carefully, puncturing them with bone awls, collecting the fluid in clay vessels they fire in kilns heated by dried vine-fiber. The sap tastes of nothing—it has no flavor the tongue can name—but it sustains.
+
+The vines grow in such profusion that in places they form impassable walls of vegetation, chambers within chambers, natural rooms where the tendrils have woven themselves into living architecture. Some families make their homes entirely within these vine-caves, preferring the organic warmth to the cold permanence of carved stone. The density of growth means that walking through the settlement requires constant negotiation with the plant—pushing aside curtains of tendrils, ducking beneath low-hanging bladders, stepping carefully over root-masses that grip the stone with terrible patience.
+
+---
+
+The fauna here has adapted to the vertical. Creatures like flattened geckos, pale as the salt below, cling to every surface—the stone, the vines, the walls of homes. They are harmless and ubiquitous, eating the small moths that emerge at dusk from pupae hidden in the vine-flesh. The moths themselves number in the thousands; each evening they rise in soft clouds, their wings making a collective whisper like distant conversation. Larger creatures exist too: a species of climbing mammal roughly the size of a cat, furred in dust-brown, that travels in family groups along the vine-highways. The people call them *kheth* and do not eat them—some taboo so old its reasoning has been forgotten—but they do not revere them either. The kheth simply exist, another fact of life at this altitude.
+
+Birds nest in the highest reaches of the tower, above even the uppermost human habitation. Their calls echo down through the settlement throughout the day—harsh, repetitive cries that blend into the background until a visitor notices them and then cannot stop noticing. At night they fall silent and the moths take over, their wing-whisper combining with the creak of rope bridges and the distant moan of wind across the salt flats into a soundscape that never quite becomes quiet.
+
+---
+
+The light here is strange. The sun, when it appears, is a pale disk filtered through a permanent haze of mineral dust that rises from the eroded plains below. It casts illumination without heat-shadows, a diffuse glow that makes noon look like an endless golden twilight. By actual evening the light dims further into amber, then rust, then a darkness that is never complete—the salt flats below hold some residual luminescence, reflecting starlight in ways the eye reads as faint phosphorescence.
+
+The people work by this dimness. Their eyes have not adapted physically—they are human still, or something so close the difference matters only to scholars—but they have adapted their crafts. Pottery is made by feel as much as sight, the shapes emerging under knowing fingers. Weaving is done with thick fibers that can be distinguished by texture in low light. The bone tools they use are carved with raised patterns, identifying each implement to the hand rather than the eye.
+
+---
+
+What strikes a visitor most, perhaps, is the patience of the place. Nothing happens quickly here. The vines grow at a rate measurable in inches per year. The stone erodes so slowly that marks carved by great-great-grandparents remain sharp-edged and legible. The sap-bladders take three seasons to fill. The people move at a pace that matches their world—conversations unfold over hours, meals are eaten in slow stages throughout the day, work is done in increments that would frustrate anyone accustomed to urgency.
+
+Even the settlement's few communal rituals are unhurried: a yearly marking of the longest-light day conducted as a slow procession around the tower's middle ring, taking most of the day to complete. A coming-of-age ceremony where young people sit in silence among the vines for three days, waiting for a kheth to approach them. A burial practice that involves wrapping the dead in fresh-cut vine tendrils and allowing the slow growth of the plant to gradually incorporate the body into itself, a process that takes decades and is considered complete only when the last trace of the wrapping has been absorbed.
+
+The mountain is dying—the people know this in the way they know all truths here, patiently and without distress. In another thousand generations, perhaps ten thousand, the basalt plug will be worn to nothing and the settlement will have nowhere left to cling. But that is so far away as to be meaningless. For now there is the stone and the vine and the pale light and the slow accretion of days, and that is enough.

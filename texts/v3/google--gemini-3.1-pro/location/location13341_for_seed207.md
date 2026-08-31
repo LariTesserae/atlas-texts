@@ -1,0 +1,20 @@
+Deep within the planetary crust, sealed miles beneath the bedrock, there is a spherical pocket of space no larger than a root cellar. The air here is aggressively, bitterly cold, hovering perpetually in the fractional margin just above absolute freezing. 
+
+To enter this space is to step into an ocean of sheer darkness. Light is an alien concept here; there is only the profound, suffocating black of a buried world. Yet, the blackness is entirely physical, crowded and saturated with invisible presences. 
+
+Brush a hand out into the dark, and you will immediately encounter the vegetation. It is a blindingly thick, lush jungle compressed into a claustrophobic volume. Despite the freezing temperatures, broad, meaty leaves and dense, spongy ropes of moss dominate every square inch of the chamber. These plants do not photosynthesize. They are stark white or perhaps deep, bruised violet—though color has no meaning in the pitch—and their tissues are laced with naturally secreted antifreezes. They grow in a frantic, overlapping tangle, stem wrapping around stem, producing a hyper-dense thicket that leaves scarcely enough room to stand. 
+
+Woven through this lightless, frozen jungle are the artifacts. They are scattered haphazardly—a splinter of a geometric pillar here, a half-buried arch made of utterly frictionless metamaterial there. They belong to a physics that sidesteps modern understanding, built of substances that remain flawlessly smooth and uncorroded even after countless millennia. They do not emit light, but occasionally, if one were to brush the exposed edge of a metallic shard, it hums with an almost imperceptible, sub-molecular vibration. These scattered machines are thermodynamic sinks, tapping directly into the zero-point energy field to endlessly siphon heat out of the chamber. It is their silent, eternal operation that keeps the pocket locked in its biting cold. 
+
+The ecology of the chamber is bound to the long, patient respiration of these scattered structures. This is a damp world, governed by a painfully slow water cycle. As the subterranean humidity seeps through micro-fissures in the surrounding deep-rock, it enters the chamber and immediately condenses on the impossibly cold surfaces of the metallic artifacts. The moisture crawls along the hyper-machined curves and bleeds onto the surrounding leaves, quickly frosting over. Ice-rime builds up on the edges of the thick flora, heavy and crisp.
+
+But the machines are not entirely static. Every few months, in a cycle timed to astronomical or atomic rhythms too vast to guess, the network undergoes a minute thermal purge. A microscopic wave of waste-heat ripples through the dark nodes. It is barely enough to register on a thermometer, but it is enough to break the freezing point. 
+
+During this purge, the chamber begins to weep. The hoarfrost coating millions of leaves softens and melts. Drops of icy water form, heavy and round, before sliding down the waxy cuticles. 
+
+*Tick.* A drop hits the floor. 
+*Splat.* Another strikes a broad leaf below. 
+
+For a few hours, the dark pocket is filled with a soft, rhythmic patter—the sound of an entire jungle slowly dripping. The water feeds the deep, interlocking root beds and the frost-shale mosses at the bottom of the chamber. Then, the machines re-engage their unyielding thermodynamic draw. The temperature plummets back toward zero. The dampness freezes instantly into a fresh, crisp glaze over the vegetation, returning the room to near-absolute silence. 
+
+This ecosystem has established itself in perfect, unyielding equilibrium. The flora has grown over, under, and around the remnants of the ancient technology, its roots seeking out the faint quantum-static radiation the artifacts bleed into the soil. It is a quiet, steady state of long-duration survival. There are no insects to gnaw the leaves, no animals to rustle the vines, no eyes to pierce the dark. There is only the overwhelming, crushing density of the cold foliage, the perfectly smooth touch of scattered, physics-defying metal, and the slow, icy exhalations of a forgotten machine waiting to shed its next tear.

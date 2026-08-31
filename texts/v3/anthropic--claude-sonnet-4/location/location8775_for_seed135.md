@@ -1,0 +1,19 @@
+The Quarry Courts
+
+In a shallow depression where the land dips toward an ancient riverbed, a dense maze of stone workshops crowds against itself like teeth in a too-small mouth. This is neither village nor city, but something between—a working settlement carved from living rock, where every surface weeps with perpetual moisture.
+
+The limestone here is young and soft, recently lifted from some vanished sea floor. It cuts clean under chisel and pick, splitting along grain lines that spiral through the stone like frozen whirlpools. Water seeps constantly through hairline fissures, leaving everything slick and dark. The rock faces glisten black in the pale light, and every carved channel runs with thin streams that pool in perfectly circular basins—some natural, some deliberately shaped by human hands.
+
+No green thing grows here. The stone is too wet, too freshly cut, too dense with human presence. Where soil might have gathered, there are instead neat piles of stone chips and dust, carefully sorted by size and color. The workers have learned to read the rock's moods—which layers will split true, which will crumble, which will hold an edge. Their tools are simple but precisely made: iron chisels wrapped in leather, wooden mallets worn smooth by countless hands, copper measuring rods green with verdigris.
+
+The workshops press so close together their eaves nearly touch. Each carved chamber opens directly onto a narrow court barely wide enough for two people to pass. These courts form an intricate network—some straight as ruled lines, others curved to follow the rock's natural grain. Water channels run down their centers, carrying away stone dust and connecting workshop to workshop with the constant sound of flowing water.
+
+The acoustic is extraordinary. Every hammer blow echoes off wet stone walls and multiplies into a dense percussion that never quite resolves. Chisels ring against rock in overlapping rhythms. Water gurgles and drips from a hundred surfaces. Voices calling measurements and instructions bounce between the narrow passages, creating layers of sound that build and fade and build again. The noise is constant but never quite overwhelming—it has the quality of rainfall, of something that surrounds rather than intrudes.
+
+Steam rises from the warmer pools where stone dust settles, creating a perpetual mist that softens edges and makes the already-close quarters feel even more intimate. The air tastes of wet limestone and iron and human sweat. Sometimes a bird lands on the rim of the quarry—ravens, mostly, drawn by food scraps—but they never stay long in this loud, wet, stone-bounded world.
+
+The quarrymen have developed their craft over generations, but the techniques remain deliberately simple. They work by eye and by feel, reading the stone's natural fault lines, following its willingness to split. The settlement has grown by accretion, each new workshop carved into whatever space the rock offered, creating a dense, organic geometry that seems almost grown rather than planned.
+
+Day after day, the same rhythms repeat: the morning assessment of stone, the careful placement of chisel, the measured swing of mallet, the patient following of grain and flaw. The rock gives up its secrets slowly, but it gives them up completely. Nothing here changes except by the deliberate accumulation of countless small cuts, each one exactly where it needs to be.
+
+The place holds its breath in perpetual present tense—ancient stone, patient hands, the eternal conversation between human will and mineral resistance, all of it suspended in cool mist and the endless, layered music of metal meeting stone.

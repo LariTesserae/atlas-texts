@@ -1,0 +1,47 @@
+The landscape unfolds not as a place you enter, but as a condition that *seeps* into your awareness.
+
+You are not on a surface. You are *within* a deep, slow-dripping breath of the world. The water is not a body—it is a state of being. It is warm, yes, but not as you would expect warmth to be. This warmth is internal, a kind of thermal memory in the liquid, a low hum of kinetic energy just below the threshold of sensation—like a body feverish with a forgotten illness. The water has the viscosity of mercury laced with syrup, thick enough to support weight, yet so transparent it feels like walking through a dream of glass. It presses in not with pressure, but with *inertia*—a slow, enveloping gravity of substance. It is not deep in the sense of abyssal; it is *submerged* in a more total way: the very air above, the ground below, the space between objects—all fused into one vast, churning aqueous medium.
+
+You are beneath something. Not a surface, not a ceiling, but an unseen plane of density—the world’s *floor*, if the world were a bowl tipped sideways. The elevation is barely registered, but it is *lower*, in a way that suggests the entire structure is built into a vast, submerged cavity. Think not of a subterranean river, but of a city swallowed by a primordial wetness, now living in the quiet after the flood, but one that has never truly stopped. The ceiling of the submersion is not solid; it is a slow, pulsating veil of water that thickens and thins like a lung, cycling through opacity and translucence every few hours. The space feels as though it is breathing.
+
+But the water alone does not tell the story.
+
+Beneath it, below the visible layer of liquid, is a faint, shimmering network—thin, gauzy threads that pulse with a faint internal glow. They are not veins, not wires, not nerves. They are *traces*: the ghost-prints of a long-dissolved technology. They are the remnants of a civilization that once built in this wet medium not to resist it, but to *move with it*. These lines glow with a dim, industrial luminescence—electric blue, dull violet, the occasional sickly green—like old neon in a submerged basement. Some pulse in time with each other; others stutter and flicker, as though half-connected. They seem to form circuitry of a kind, but not of any known architecture. More like neural pathways, or a language written in light, still whispering its syntax into the water.
+
+The city is here, *and* the water is here, and they are fused.
+
+It is layered construction, not in a vertical sense, but in a *material* sense. The built environment is not concrete or steel—it is a synthetic mineraloid, something engineered from deep-sea deposits and bio-silicates. The structures are smooth, seamless, like grown bone or coral of iron. They are curved, elongated, and fused into clusters that resemble the interior of a colossal hive—architectural *bubbles* connected by duct-like tunnels, all embedded *within* the water. The city does not float; it is *suspended*—held in place by turgor and slow, internal oscillations in the liquid matrix. There are no foundations, no piles. It exists in a state of arrested sinking, as though the water both supports and tries to devour it, but both forces have agreed to a quiet détente.
+
+There are no plants. No trees, no moss, nothing green. The world is mineral and machined. But the absence of vegetation is not silent. It is replaced by *micro-fungi*, or something near them—fleshy, translucent colonies that bloom on walls like living stains. They are gelatinous, undulating slowly, their edges bleeding out in faint trails. They are not rooted. They *drift*, slowly, like a slow-motion algae, feeding on dissolved metals and electrochemical gradients in the water. They do not die. They dissolve, and the water remembers their shape for a while.
+
+The air—or what passes for air—is humid, thick, and charged. It is barely breathable. But the *sound*—the sound is everywhere.
+
+It is *deafening*.
+
+And yet, not loud in the way of noise. More like a constant, omnipresent *thrum*—a chorus of vibrations from a million tiny engines. The water itself hums. Each structure has a resonant frequency, and since the city is built on a system of harmonic dampening and feedback loops, the whole mass vibrates in a complex, dissonant symphony. You feel it in your teeth, in your molars, in the marrow of your arms. You hear it as if through bone—like the sound of a factory built inside your skull. There are rhythmic pulses: a slow, bass throb that echoes from deeper within the submerged cavity, punctuated by sharp *clicks*, *squeals*, and *grinds*—the noise of machines working in water, their gears slowed, their functions distorted by the density.
+
+This is not a dead city. It is *active*. But not inhabited.
+
+There are no visible creatures. No people, no animals. Yet, the environment is *dynamic*. Things move. The structures shift. Water swirls in patterns that resemble writing, though no script is known. Occasionally, a cluster of the gelatinous growths will flare with bioluminescence, then collapse in a wave-like retreat, as though responding to an unseen signal.
+
+This is a system in *equilibrium*, but not a stable one. The erosion is *established*, yes, but not worn down. The forms are *weathered*, but not eroded—they have a settled, aged look, like a sculpture made of wet glass, but its surface has been etched over centuries with slow currents and the grind of dissolved matter. The architecture is preserved through constant *metamorphism*: the walls slowly reform, the tunnels rebuild themselves, the lighting circuits re-route. The city is not maintained. It *regenerates*. It is the result of some long-dormant system of automated renewal, perhaps ancient, perhaps never human-designed.
+
+And yet, it is *industrial*. Not the industry of steam and coal, but of *process*. Of energy conversion. Of heat being siphoned from the warm water and funneled through the glowing traces—those neural-like lines. There are no factories as you’d imagine: no smoke, no gears, no fire. But there are *engines*: not mechanical, but *biomechanical*—structures that pulse, flex, and emit energy, like organoid reactors embedded in walls. Their power feeds the light, the sound, the water’s perpetual motion.
+
+It is a world of *hidden scale*. You are not in a city, not in a valley, not in a cave. You are in a *pocket*. A single, self-contained environment—perhaps a section of a larger system, perhaps a self-enclosed machine. The space is *intimate* in its vastness. You cannot see the edges, but the sensation of enclosure is profound. It feels like the inner chamber of something immense, like the stomach of a dormant leviathan—wet, pulsating, warm, and filled with the residue of a complex internal process.
+
+The light is dim, but it is *artificial*, and *layered*. It does not come from any sky or sun. It is generated by the city’s own networks—the dim glow of the traces, the occasional flare of the gelatinous growths, the steady thrum of the engines. It is not illumination but *presence*—a kind of ambient visibility that allows the shapes of structures to form and dissolve in and out of your vision. The light does not cast shadows; it *distorts*—making the curved walls ripple like heat waves, the water appear to flow upwards, the edges of the tunnels seem to breathe.
+
+There is no fauna—no known animals. But there are *things*. Rare, fleeting. Once, you see a long, thin column of shadow move through the water, not swimming, but *drifting*, like sediment suspended in a current. It has no visible form, only a trail of distorted light behind it. Then, a cluster of the gelatinous colonies briefly emits a signal—a rapid pulse of light—followed by an echo, as though it was *answered*. The signal travels not through sound or water, but through the glowing traces. A response comes from another structure, far away across the dim space. A circuit of communication, but not *intentional*. It is *emergent*. The system *thinks*, but it does not *know*.
+
+Weirdness is not a quality—it is a *feature*. The very rules of causality feel soft around the edges. A wall may reform itself in a different configuration overnight. A tunnel may close, only to reopen in a different path. The water does not always flow in expected directions. The sound is not just noise—it seems to *shape* the water, to *mold* the structures, to *influence* the behavior of the gelatinous colonies. There is a sense that the environment is not inert. It *resists* being understood.
+
+This is a place of *post-life industry*—a machine that still runs, not because it is powered, but because it *has no choice*. It is the final echo of a civilization that built something so complex, so deeply integrated with its environment, that once started, it could not stop. It does not serve. It *is*. It hums. It breathes. It remembers.
+
+And you, standing—or floating—in this submerged chamber, feel small, but not insignificant. You are an observer, but not a guest. You are *recognized*, not as a person, but as *a presence*—and the system, in its slow, pulsing way, adjusts slightly. The water grows a fraction warmer. The dim light shifts. The hum deepens. As if it is *listening*.
+
+And then, just as the silence seems unbearable, a new sound starts—low, rhythmic, like the pulse of a heart you cannot locate—and it grows.
+
+The city is waking.
+
+Or perhaps it never slept at all.

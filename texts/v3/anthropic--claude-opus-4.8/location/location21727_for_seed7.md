@@ -1,0 +1,23 @@
+There is a room beneath the ground, and it is hot, and things grow there.
+
+You come down to it the way you'd come down anywhere — but the stairs are wrong, freshly cut, the tool-marks still bright in the stone, no smoothing from feet or water. Someone made this recently. The cuts have not yet learned to be old.
+
+At the bottom, warmth. Not the dry warmth of an oven but the close warmth of a mouth, of a held breath. The air is thick at the edges of being wet. It doesn't rain here exactly — but the ceiling sweats. Every so often a drop releases and falls and you hear it land, and that sound is most of the sound there is. Tick. Then a long nothing. Then, somewhere else in the dark, tick.
+
+The space is small. You could cross it in a few dozen paces if you could see, and you can't, not really. The light is the kind that arrives only after long patience, a dim blue-green that might be your eyes inventing it and might be real — there are growths on the far wall that hold a faint phosphorescence, the way certain mosses do, the way deep things do when they have to make their own. It is enough to suggest shapes. Not enough to trust them.
+
+What grows here grows lushly, which is strange in the dark, but the heat feeds it and the moisture feeds it and it does not seem to need the sun. Ferns, or things shaped like ferns, unspooling slow from the seams in the rock. Pale stalks, almost translucent, fat with held water. They are scattered — not a jungle, not a carpet, but clusters with broad empty floor between them. You feel you are walking through a garden that was planted, or seeded itself in the pattern a garden would take: spaced, intentional, room to move. Between the green there is bare wet stone, sharp-edged, young, unworn.
+
+And among the green: the machine.
+
+It is not large. It would fit in a corner of the room and it does fit in a corner of the room, and you understand after a while that the room may have been cut to hold it. It is industrial in the old sense — iron and brass gone green-black with the damp, pistons, a wheel, a belt, valves. It is the kind of engine that should roar. It does not roar. It turns. Once every long while, with a patience that is almost painful to witness, some part of it completes a single motion — a piston eases down, a wheel advances one tooth, a valve exhales a breath of warm vapor into the already-warm air — and then it rests again, gathering itself for the next slow gesture, which will come in minutes, or in an hour. You cannot tell what it makes. Perhaps it makes the heat. Perhaps it makes the water that sweats from the ceiling. Perhaps it makes the green grow, breathing out something the plants drink. It is the slow heart of the room and it keeps a tempo that has nothing to do with any pulse you know.
+
+There are no animals. Nothing scuttles, nothing watches, nothing eats the lush growth or pollinates the pale unflowering stalks. This is a place of plants and stone and the machine, and the only motion that is not growth is the machine's, and growth is too slow to be called motion. You stand in a hot wet dark room where nothing breathes but you and the engine, and the engine breathes once an hour.
+
+The weirdness of it settles in gradually. It is this: everything here is recent. The stairs, the cuts, the machine's green patina is the only old thing and even that seems hurried, as though the iron rusted faster than iron should, eager to look established. The ferns are new growth on new stone. You have arrived early in the life of this place — it has only just begun being itself, and it is doing so underground, in the heat, away from any sun, on purpose, by some hand that came down these fresh stairs before you and built an engine to make a garden in the dark and then, apparently, left.
+
+The drop falls. Tick. The wheel advances one tooth with a sound like a held note finally let go. The phosphorescence pulses, or your eyes invent that it does. The warmth presses close like company.
+
+Somewhere the next drop is forming on the ceiling, swelling, not yet ready to fall. You could wait for it. There is nothing else to do, and the room seems built for waiting, seems to be waiting itself — for the green to fill the empty floor, for the machine to finish whatever long sentence it is speaking one word an hour, for the someone who cut the stairs to come back down and see what has grown.
+
+It is hot. It is dark. It is small and patient and alive in the way a seed is alive: mostly future, holding very still.

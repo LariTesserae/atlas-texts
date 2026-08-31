@@ -1,0 +1,15 @@
+High atop a forgotten plateau, rimmed by jagged, lichen-stained basalt, lies a self-contained basin no larger than a village square. It is a place of perpetual saturation, cradled in the fold of a mountain range that seems to wring the very breath from the clouds.
+
+The air here is thick, tasting of mineral salts and crushed fern-spores; it clings to the skin like a humid shroud. Because the basin is small and bowl-shaped, the scale is intimate—a cathedral of velvet green where the sky feels like a heavy, low-hanging ceiling of bruised violet and pearl.
+
+There is no sign of industry, nor even the jagged scrape of a flint knife. The landscape is "settled" in a geologic sense; the rock faces are rounded by aeons of soft, persistent abrasion, their edges smoothed into recumbent forms that resemble sleeping beasts draped in emerald moss. 
+
+The vegetation is aggressive in its vitality. Gigantic, weeping ferns—leaves nearly five feet long—arch over pools formed in the shallow depressions of the bedrock. These pools do not drain; they simply hold, mirroring the diffuse, constant light that filters through the thick canopy. Water is everywhere, not as a river, but as a condition: it beads on every surface, runs in slow, rhythmic trickles down the weeping rock faces (a sound like a thousand tiny needles hitting taut drumheads), and saturates the earth until every footfall sends up a dark, ringing *thwack* that seems to amplify in this tight space.
+
+The sound is the true occupant of this place. Because of the acoustics of the basin, the constant drip, drip, drip of water from the upper strata creates a loud, hypnotic percussion. It is a slow, patient sound, steady as a heartbeat, punctuated only occasionally by the muffled, wet slap of some displaced leaf or the distant, resonant groan of shifting basalt deep beneath the silt.
+
+Fauna is rare, almost theoretical. You might glimpse a pale, translucent gastropod—a snail the size of a human palm—crawling with agonizing deliberation across a stone, its shell etched with naturally occurring vortices that suggest a primitive kind of fractal order. It moves so slowly that the eye cannot register motion, only the change of position over hours.
+
+There is a subtle, creeping weirdness here. The gravity feels slightly skewed, as if the water pools are not settling into the basins but *pulling* toward them with a distinct, magnetic intention. The ferns do not track the light; they track the sound, shifting their fronds in imperceptible increments toward the loudest drips, as if they are feeding on the resonance of the falling water. 
+
+No one has ever built here, and nothing has ever been forged. The world is untouched, yet it feels watched, as if the landscape itself is a single, slow-thinking organism that has spent the last ten thousand years contemplating the shape of a single rain-drop. To stand in the center of this bowl is to feel like an intruder in a room that has been locked from the inside, waiting for a clock to strike an hour that never arrives.

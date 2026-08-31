@@ -1,0 +1,9 @@
+In the heart of an underground city, a vast subterranean cavern stretches out into the darkness. The air is damp and cold, with a faint mist hanging over the cavern floor like a damp blanket. The walls of the cavern are covered in a lush carpet of fluorescent bioluminescent plants, their soft glow illuminating the space and casting an eerie light.
+
+The cavern floor is dotted with the occasional puddle of water, reflecting the light of the plants like tiny mirrors. A small, slow-moving river flows through the cavern, its source and destination unknown. The sound of the water echoing off the walls is almost deafening, filling the air with a constant hum.
+
+Scattered throughout the cavern are small, industrial-era factories, their metal bodies rusting and corroding in the damp environment. The buildings appear to be connected by a network of pipes and cables, the occasional glow of a working light flickering through the gloom.
+
+Despite the pervasive dampness, the overall feel of the cavern is sparse and open, with plenty of empty space between the factories and the walls. The only life in the cavern is the plants, which seem to be the primary source of illumination.
+
+As you look deeper into the cavern, you notice that the walls are sharp and angular, with none of the smoothness that comes from years of erosion. This is a young cavern, one that has been carved out in a relatively short period of time. Despite this, the overall feel of the cavern is one of gradual change, with the slow flow of the river and the steady glow of the plants giving the impression of a place that is slowly, patiently evolving over time.

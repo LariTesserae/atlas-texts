@@ -1,0 +1,21 @@
+The air here is heavy with a cool, wet silence, hanging like a suspended breath in a vast lung. It is a place of constant, gentle weeping; not a deluge, but a pervasive dampness that collects on every surface. The light is grey and diffuse, filtered through a high, drifting ceiling of mist and the interlocking canopy above, landing soft on the skin.
+
+You stand in a low, broad basin—a kind of crater or hollowed-out valley that feels curiously enclosed, giving the impression of a room rather than an open landscape. This is the "Hamlet of Pistons," though no human voice breaks the quiet.
+
+The architecture is the most striking feature, though it blurs completely with the vegetation. The structures here are not built from dead stone or lumber, but are grown immense, hulking arboreal constructs that have been painstakingly trained and grafted over centuries into the shapes of municipal buildings and factories.
+
+They stand like titans, perhaps a dozen of them, scattered across the damp basin. Because the density is low, there is a profound sense of space between them. You can see the entirety of a single structure from wherever you stand—their vast, buttressed roots spreading like starfish across the wet earth, their trunks rising cathedral-high to support vaulted canopies of thick, waxy leaves.
+
+These tree-buildings are the "built" environment. Their bark is textured like rusted iron plate, hard and cold to the touch. Where windows might be in a city, there are instead clusters of translucent bioluminescent fungi or hardened resin lenses that glow with a dull, interior light. Pipes—actual copper and brass piping, or perhaps veins of mineralized wood—are grafted directly into the bark, winding up the trunks like ivy. They drip condensation constantly, the water pattering rhythmically onto the mossy, sprawling root-systems below.
+
+The technology is industrial, but it is entirely biological in origin. This is a factory-town where the assembly lines are internal. You can hear it if you press your ear against a trunk: a low, rhythmic *thrum-hiss, thrum-hiss*. It is the sound of great hearts pumping sap, of hydraulic pressures building in massive xylem chambers, of digestive acids breaking down soil nutrients in vats the size of houses. The "smoke" from the chimneys is not soot, but billowing clouds of cool, sterile steam and oxygen, released in timed bursts that whistle softly before fading into the mist.
+
+The ground underfoot is a mosaic of wet stone slabs and exposed root, slick with moss. Puddles dot the open spaces, reflecting the grey sky. There are no crowds here; the scale is small and intimate, almost domestic, despite the industrial nature of the giants towering overhead. It feels like a village that has frozen in time, or perhaps is simply moving at a glacial pace that human eyes cannot track.
+
+Fauna is rare. There are no birds singing in the canopy, no squirrels darting up the iron-bark. The silence is absolute, save for the dripping water and the deep, subsonic thrum of the tree-factories. Occasionally, a solitary, insectoid drone—mechanical or biological, it is hard to tell—buzzes lazily from one ventilation shaft to another, performing maintenance on the leaves.
+
+The erosion of the place tells of a deep, settled history. The corners of the stone plazas are worn smooth, rounded off by centuries of damp boots and dripping water. The grafts where metal meets wood are seamless, fused so long ago that the bark has grown over the bolts, swallowing the infrastructure whole.
+
+It is a world of slow, deliberate action. Even the wind seems to move sluggishly here, loitering in the courtyards before wandering off. Every so often, the pressure within one of the great trees shifts, and the entire structure groans—a long, metallic creak of wood and tendon—causing the very air to vibrate. A vent high in the canopy opens with a hiss, releasing a plume of sweet-smelling vapor, and then it seals shut again.
+
+The dynamic nature of the place is relentless but nearly invisible. It is a metabolic city, breathing, digesting, and excreting in a cycle that feels both alien and strangely comforting. You are a visitor in the stomach of a living machine, waiting for the next slow beat of the heart.

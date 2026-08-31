@@ -1,0 +1,29 @@
+The place is a pocket of raw, unmade reality, tucked inside the living body of a mountain. It is not a place you find, but one that finds you—if you are small enough, if you are quiet enough, if you are ready to be swallowed by the impossible.
+
+On the outside, the mountain is a jagged, molten monolith, its slopes still smoldering from the last eruption, its surface a tangle of obsidian and basalt. But within, inside the core of the mountain, there is a space that does not obey the rules of the world. It is a cavern not dug by time or human hands, but built by something else—something that shapes the earth as a sculptor shapes clay, but with a mind that does not think in human terms.
+
+The scale is hidden, as per the parameter. It is a single room, but it is vast. It is a single feature, but it is a world. You could walk its length in minutes, but the space stretches in ways that make your sense of direction betray you. It is not that it is large. It is that it is *alive* in a way that makes the concept of size irrelevant.
+
+The elevation is extreme—but here, elevation is not about altitude. It is about position in the hierarchy of creation. This place is not on top of anything. It is *before* anything. It is the raw, unshaped potential of a world, and it is being shaped as you stand in it.
+
+The erosion is zero. There is no wear, no weathering, no time. The rocks are not broken. They are *in process*. They are *emerging*. The stones are not solid. They are *in the act of becoming*. Some are still molten, their surfaces rippling as if just pulled from a forge. Others are half-formed, like sculptures that have not yet been completed. There are no natural substrates, because everything is made. The place is entirely constructed, but by what?
+
+The built environment is total. Every surface, every surface of the walls, the ground, the ceiling is made. But it is not made by human hands. It is made by something else—something that does not use tools, but that shapes the world with intent. The materials are not wood or metal. They are things that do not have names. They are textures that shift, shapes that move, and substances that do not follow the logic of density or weight.
+
+The water is 1.9/3. It is everywhere, but it is not water as you know it. It is a kind of liquid that flows in reverse. It rises from the ground like steam, coalesces into pools that shimmer in the dim light, and then disappears, only to reappear in another place. The air is thick with it, and it condenses on the walls, dripping down in slow, deliberate streams. Some of it is warm. Some of it is cold. Some of it is both. The rocks weep, not from rain, but from the memory of something that once lived here.
+
+The vegetation is 1.8/3. Lush, but not in the way you expect. It is not trees or grass. It is a kind of growth that pulses, that breathes, that moves. It is not rooted. It floats. It drifts. It is more like a living mist that clings to the walls, forming shapes that seem to watch you. They are not flowers. They are not plants. They are something in between. They are *aware*.
+
+The temperature is 2.8/3—hot. But it is not the heat of fire. It is the heat of something that is *active*, that is *living*. The air is thick with warmth, but not oppressive. It is a heat that makes your skin tingle, that makes your thoughts feel lighter, as if the air itself is thinking. It is a heat that is not uncomfortable, but that makes you feel as though you are being watched by the place itself.
+
+The density is 2.8/3—packed. The space is full. There is no empty space. The air, the walls, the ground, the ceiling—all are filled with presences. Some are things you can name. Some are not. The space is saturated with life, but not in the way of a forest. It is saturated with *meaning*, with *intent*, with *construction*.
+
+The fauna is 1.2/3—rare. There are creatures here, but they are not the creatures you know. They are small, but they are not harmless. They are not animals. They are *agents*. They move in the shadows between the floating vegetation, their eyes glowing faintly. They do not make much sound, but when they do, it is loud. Their movements are deliberate, their presence is felt. They do not speak, but they *communicate*, in ways that vibrate through the rocks and the air.
+
+The sound is 2.1/3—loud. The place is not silent. It is full of sounds that do not belong to any known ecosystem. There is the low, humming vibration of the earth itself, the sound of things being shaped, the sound of liquid slipping and sliding. There is also the sound of something else—something that is not mechanical, not biological, but that is *alive*. It is not a voice, but it is a presence. It is the sound of a world that is not yet finished.
+
+The dynamic is 2.5/3—active. Everything is changing. The walls shift. The ceiling pulses. The water moves in patterns that do not make sense. The vegetation flares and dims. The creatures move in and out of view, like shadows that know they are being watched. The air is alive with motion, not just of things, but of *processes*. This is not a place that is static. It is a place that is *becoming*.
+
+The weirdness is 3.0/3—reality breakdown. This is not a place that can be described in normal terms. The rules of physics do not apply. The rules of biology do not apply. The rules of time do not apply. This is a place that exists outside of the structure of the world. It is not a place that can be mapped, or remembered, or understood. It is a place that *redefines* the concept of place.
+
+You stand in it, and it is as if you are not standing at all. You are *inside* the act of creation. You are not a visitor. You are a part of it. You are not separate from the landscape. You are the landscape. And as you stand there, you feel the shape of something new forming in your mind. Something that has never been thought before. Something that is *just coming into being*.

@@ -1,0 +1,11 @@
+**The Glass Marsh of Hissing Steam**  
+
+The air is thick with condensation, a slow-breathed fog that clings to everything. The ground is a fractured plain of black volcanic glass, its surface slick with a perpetual sheen of moisture, as if the earth itself is sweating. Pools of warm water gather in the hollows, steaming faintly where they meet the cooler air, their surfaces rippling with unseen currents. The glass beneath is not smooth—it is cracked, webbed with hairline fractures that weep slow beads of mineral-rich fluid, forming tiny rivulets that vanish into the mist.  
+
+There are no plants here. No roots, no leaves, no green. Instead, the landscape is shaped by slow chemical reactions—patches of iridescent salts bloom where water meets heat, their crystalline structures spreading like lichen across the glass. Occasionally, a faint hiss rises from the ground as some unseen reaction takes place, a pocket of gas escaping through the fractures.  
+
+The city rises from this steaming expanse like a mirage—a sprawl of low, blocky structures built from the same volcanic glass, fused together at the edges as if grown rather than constructed. The buildings are squat and windowless, their surfaces etched with patterns that catch the dim light, refracting it into dull rainbows. Smoke rises from chimneys, not from fires but from great subterranean engines, their rhythmic thrumming felt more than heard. The streets are empty, not out of abandonment, but because the inhabitants move unseen—through tunnels beneath the glass, through narrow alleys where the steam is thickest.  
+
+The sky is a muted gray, the sun a dull smear behind the haze. The heat is oppressive, but not dry—it clings, it lingers, it makes every breath feel heavy. The only sounds are the occasional hiss of escaping steam, the distant groan of machinery, and the slow, rhythmic dripping of water from the edges of the glass.  
+
+Something moves in the mist—not an animal, not exactly. A shifting of shadows, a ripple in the steam, gone before it can be seen. The air tastes metallic, like rust and ozone. The rules of this place are unclear, but they are not human rules. The glass remembers. The water is patient. The city hums, and waits.

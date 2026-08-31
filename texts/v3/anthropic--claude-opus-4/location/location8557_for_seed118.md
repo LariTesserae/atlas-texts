@@ -1,0 +1,21 @@
+The moss city breathes in the perpetual twilight of the canopy floor.
+
+Here, in this pocket between the buttress roots of an ancient tree, civilization has taken hold in miniature. The settlement spreads across perhaps thirty paces, though every pace reveals another lifetime of detail. Streets are carved channels through the deep moss substrate, their walls living green that weeps constant moisture down onto the walkways below. These passages wind between structures that are themselves sculpted from the living plant mass—hollowed chambers within tremendous cushions of moss, their doorways marked by careful training of fern fronds into archways.
+
+The cold seeps through everything. This low place, barely above the water table, maintains a constant chill that condenses breath into visible mist. Droplets bead on every surface, running down the moss walls in tiny rivulets that feed the channel-streets. The inhabitants have learned to work with this perpetual dampness, carving elaborate drainage systems that guide water through their settlement in a network of hair-thin streams.
+
+Buildings rise in organic tiers, following the natural undulation of the moss substrate. Some structures are excavated directly into the spongy mass, their walls packed firm and lined with woven grass. Others are built up using a primitive mortar of compressed plant matter and sap, forming dense, breathing walls that slowly merge back into the living landscape. Wooden tools—sharpened sticks and stone scrapers hafted with plant fiber—lean against doorways. Ladders made from twisted vines connect different levels of the settlement.
+
+The vegetation here is absolute. Even the air seems green, thick with spores and the exhaled moisture of a trillion leaves. Moss forms the foundation, but above it grows a dense understory of ferns, their fronds creating secondary roofs over the passages. Climbing plants use the moss buildings as substrate, their roots penetrating the walls without destroying them. Tiny flowers bloom in the perpetual dampness, their colors muted in the filtered light.
+
+The fauna is everywhere but rarely seen. Beetles traverse the moss walls like living jewels. Salamanders slip through the drainage channels, their skin matching the wet stone. Small birds nest in the eaves of moss houses, their calls soft chirps that barely disturb the quiet. In the cultivation chambers—hollow spaces within the moss where the inhabitants grow their food—pale grubs turn plant matter into protein, tended like livestock.
+
+This is a young settlement, its edges still sharp where tools have recently cut into the moss. The channel-streets haven't yet softened into the organic curves they will assume with age. Fresh excavations reveal the layered structure of the moss substrate, each stratum marking a year of growth. The inhabitants work constantly to maintain their carved spaces against the plant's desire to fill every void.
+
+Sound here is muffled, absorbed by the living walls. Footsteps make only the softest compress of wet moss. Conversations happen in whispers that seem appropriate to the scale. Water drips with irregular rhythm. Tools scraping against plant matter create brief, soft sounds that die immediately in the dense air.
+
+Everything moves here, but slowly. The moss grows, swelling and shifting the foundation of buildings. Water cycles through in daily rhythms of condensation and absorption. The inhabitants repair, expand, excavate—always working to maintain the delicate balance between settlement and substrate. Nutrients cycle rapidly in the warm dampness. What falls is absorbed within days, feeding the endless growth.
+
+The light filters down green and gold through layers of leaves above. It's adequate for the inhabitants' work, bright enough to navigate the twisted streets but dim enough that eyes must adjust when entering the darker interior spaces. Patches of bioluminescent fungi have been cultivated in the deeper chambers, providing gentle blue-green glow where needed.
+
+This is architecture as negotiation with a living landscape, urban planning at the scale of a single tree's root system, civilization built not on dead stone but on and within the perpetually growing, perpetually dying mass of plant life that is the only reality these people have ever known.

@@ -1,0 +1,23 @@
+The world is called the **Abyssal Lattice**.
+
+It is not an ocean. It is a single, planetary body of cold, black water that has no surface and no floor—only depth that has learned to remember its own shape. Every cubic meter is saturated, heavy, and ancient. The water itself feels thickened, as though time has partially crystallized inside it. Light has not touched this place in geological epochs. What little illumination exists is phosphorescent, funerary, the dying glow of things that were once alive and have now become architecture.
+
+Everything here is built.
+
+There is no natural substrate left. The primordial seabed, whatever it once was, has been completely replaced by layer upon layer of hand-crafted relics, drowned cities, temple complexes, and unknowable machines that have settled into one another like sediment. These structures have not merely sunk—they have *intergrown*. Over inconceivable spans of time, generation after generation of a long-vanished people kept building downward and outward, stacking, fusing, mortaring, carving. Eventually the distinction between their works and the geology dissolved. The entire abyssal volume is now a single continuous artifact: a cold, drowned megastructure the size of a planet, dense with overlapping chambers, colonnades, aqueducts, and vaults that press against one another in near-suffocating proximity.
+
+The vegetation is the only thing that still moves with anything resembling life. It is not plant in any surface sense. Vast forests of black, leathery fronds and gelatinous fronds drift in the sluggish currents, growing directly out of the carved stone and fused metal. Their “leaves” are meters across, heavy as wet leather, pulsing faintly with internal chemiluminescence the color of old bruises. They grow in dense, overlapping tiers, so thick in places that they form living walls and ceilings between the ancient structures. Their growth is so slow it is almost imperceptible; a single frond may lengthen by a centimeter in a human lifetime. Yet they are everywhere. They have become the new skin of the world.
+
+Temperature hovers just above freezing. The cold is patient, crushing, and total. It does not shock; it sedates. Sound travels strangely here—low, deliberate, and muffled, as though the water itself has aged into a thick felt. The only noises are occasional deep tectonic groans from the oldest masonry settling another fraction of a millimeter, the soft creak of colossal wooden beams (still holding after a hundred thousand years), and the faint, rhythmic ticking of water clocks and drip-carved mechanisms that have never stopped measuring time no one will ever read.
+
+There is no animal life. Not even microbes in the usual sense. The ecology is almost entirely lithic and botanical in the slowest possible register. What little “fauna” once existed has long since been translated into ornament or fuel or memory. The only movement belongs to the water itself—vast, lazy convection cells that take centuries to complete a single rotation, carrying spores and dissolved minerals across the abyssal continents.
+
+Everything feels flattened by time. Erosion has reached its final victory: every edge is rounded, every surface softened, every once-sharp relief worn into gentle, almost fleshy curves. Corners have become thighs and shoulders of stone. The oldest temples have sunk so completely into the living architecture that their original purpose is unreadable. Yet nothing has collapsed. The Lattice has achieved a kind of terminal stability—primordial, post-civilizational, older than regret.
+
+You drift between titanic colonnades whose capitals are lost in the black above you. Below, another city hangs upside-down, fused to the ceiling of the level beneath. Staircases spiral into darkness both upward and downward with no clear orientation; gravity here is a suggestion the architecture only half obeys. Lanterns of hollowed bone and phosphorescent kelp hang in long chains, lit once a year by unknown hands that may no longer exist. Their light is so weak it barely pushes the dark away; mostly it reveals how thick the dark truly is.
+
+This is not ruin.  
+This is the final, settled form of a world that was entirely remade by hand, then abandoned to the slow victory of water, cold, and time. A planetary-scale crypt built by a species that tried to out-engineer death, only to discover that death simply became patient and architectural.
+
+The Abyssal Lattice does not end.  
+It only grows quieter, denser, and more perfectly itself with every passing millennium.

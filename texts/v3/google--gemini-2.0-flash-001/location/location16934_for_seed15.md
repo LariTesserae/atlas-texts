@@ -1,0 +1,15 @@
+The light is almost unbearable, a white, diffuse glare that penetrates everything, even the murky water. And the sound... a deafening, incessant roar that vibrates through the very bones. It's difficult to discern its source, a complex din of rushing, grinding, and a strange, rhythmic pulse, like a colossal heart beating slowly, deliberately.
+
+We're submerged, deep within an artificial lagoon, a pocket of lukewarm water carved into the heart of a massive, built structure. The scale is deceptive; it feels vast, yet constrained. Above, the light suggests a broader world, but the perimeter is never far away, a wall of rough-hewn stone blocks, fitted together with a crude precision that speaks of immense, patient labor.
+
+The water itself is far from pristine. Murky with suspended particles, it refracts the harsh light into shimmering, chaotic patterns. Patches of a slimy, pale green algae cling to the stonework, the only sign of vegetation. It's sparse, almost pathetic, a stubborn assertion of life in this otherwise sterile environment.
+
+Erosion is everywhere, but it's not the gentle, patient erosion of wind and rain. Here, the stone is being worn away by active processes – scouring currents that swirl unpredictably, the relentless rasping of some unseen mechanism, and chemicals leaching from the stone itself, leaving a chalky residue. It's an erosion of manufacture, not nature.
+
+There are no fish, no insects, no birds. Only the algae, and something else: the structure itself. It is alive, in a sense. Not sentient, perhaps, but undeniably active. The rhythmic pulse I hear isn't a heartbeat, not literally, but it is a cyclical reinforcement, a deliberate application of strain to a particular location, the source of which remains concealed.
+
+The inhabitants of this place, whoever they were, or are, were master stone-masons, but their technology is rudimentary. The blocks are massive, their placement precise, yet the tools used to shape them must have been simple, reliant on leverage and persistence. The surfaces are rough, imperfect, bearing the marks of hand-tools and endless repetition. Perhaps they used the currents themselves to grind and shape the stone, harnessing its energy in surprising ways.
+
+The whole place feels like a giant, failed experiment. The bright light suggests a purpose – photosynthesis, perhaps, feeding the algae, which were then somehow extracted and processed. The pulse, the applied stress, might be an attempt to fracture certain substances, or to accelerate particular processes.
+
+It's a landscape of intention, of failed ambition. The roar is the sound of that failure – the echo of a project abandoned long ago, now grinding endlessly in the half-light, a monument to a civilization that understood the power of stone, but lacked the finesse to shape it to their will. A world without animals, where manufactured process is all, with water and stone.

@@ -1,0 +1,15 @@
+The world is built, yet entirely organic. There is no bedrock here, no tectonic plate, no granite core. The entire landscape is a gargantuan, self-sustaining architecture of interlocking, calcified root systems and hardened, amber-like sap-masts that have been growing and weaving for eons. It is a hive-city of biology, where every surface, every wall, and every vaulted ceiling is the work of a prehistoric, slow-motion labor.
+
+It is a vertical city of bone and resin. You stand on a wide, weathered platform of ossified bark that stretches for miles, scarred by time and the slow tramping of ten thousand generations. The floor is smooth, polished by the dampness that persists in the air—a constant, heavy condensation that beads on every surface and drips from the high, vaulted ribs of the ceiling miles above. 
+
+The light is suffocatingly dim. It is not pitch black, but a deep, bruised violet, filtered through the thick, translucent membranes of the outer canopy that keeps the warmth trapped inside. There is no sun, only the faint, rhythmic bioluminescence of the lichen that coats every spire and support beam. 
+
+But if the light is poor, the sound is absolute. The density of life here is staggering. Millions of creatures—insects the size of hounds, flightless, humming beetles, and soft-bodied climbers—press against every cranny of this structure. They do not move quickly; they crawl with agonizing deliberation, their chitinous plates rasping against the calcified walls, creating a constant, grinding symphony of friction. It is a roar of scraping legs, a cacophony of breathing, and the wet, slapping sounds of moisture cycling through the vast, vertical veins of the world. 
+
+There is no "nature" apart from the construction. The atmosphere is thick with the scent of damp moss, dry cellulose, and the pungent, musk-heavy secretions of the fauna. You walk through grand halls of organic masonry, past tunnels lined with pulsating, gelatinous filters, and over bridges made of twisted, petrified vines. 
+
+Everything is in balance. The erosion isn't decay; it is the slow, patient shaping of the city-organism. A wall is worn thin in one century, only to be reinforced by the secretions of a thousand crawling things over the next three. It is a world that has reached its stable state—a static, roaring, teeming permanence. 
+
+When it rains, it does not come from the sky, but from the condensation gathering on the massive, overarching boughs three miles up. It falls as a heavy, lukewarm mist that turns into a cascade by the time it reaches the lower tiers, feeding the sponge-like reservoirs built into the architecture. You feel the constant humidity against your skin, a warm, claustrophobic embrace. 
+
+There is no steel, no electricity, no spark of artifice. There is only the biological labor of the inhabitants and their ancestors, who have built this high-altitude monolith from their own bodies and the endless, slow accumulation of their existence. You are walking inside a living, breathing cathedral of bone, listening to the deafening pulse of a world that is too dense, too crowded, and too perfectly settled to ever change.

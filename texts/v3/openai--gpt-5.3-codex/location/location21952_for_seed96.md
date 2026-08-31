@@ -1,0 +1,25 @@
+From a distance, it looks like a mountain valley in full thaw: pale slopes, silver runnels, bright air.  
+Up close, nothing is natural. The “valley” is a worked basin made entirely of hand-set material—slabs, stacked courses, poured lime, ceramic flumes, pegged timber walkways, all of it fitted so tightly that even the horizon feels assembled.
+
+The ground underfoot is not ground but masonry skin. It rises and falls in hard, fresh planes, as if the whole place was finished only a few seasons ago. Edges are still sharp. Chisel grooves are visible on retaining faces. Steps are too regular to belong to any geology, though they imitate it: escarpments shaped like cliffs, ledges shaped like shelves of sediment, a ridge line built from interlocked stone teeth. At this elevation the air is cool and thin, but the light is fierce—high white glare pouring down from a cloud-bright sky, turning every wet surface into a mirror.
+
+Water is everywhere, and nowhere deep. It lives at the surface. It beads from walls, gathers in seams, clings to undercuts, slides down channels no wider than a hand. The basin is packed with conduits: open gutters, covered culverts, stepped spillways, cistern mouths, overflow throats cut with simple tools and lined with fired clay. Water does not rush here; it persists. It seeps, threads, hangs, and returns. Even when there is no rain, the place weeps. Cool air condenses on stone and drips in patient rhythms, drop after drop into carved basins that are already full.
+
+Because everything is built and everything is close, the landscape feels dense in a way forests do—except instead of trunks and leaves there are buttresses and walls and sluice towers, each one shoulder-to-shoulder with the next. There is almost no empty interval. If you stand in one of the broader terraces and look out, you can see across a regional spread of structures: hundreds of catchment fields tiled in angled plates; low domed reservoirs; staircases climbing to pressure-head tanks; rows of upright marker stones showing water level with simple notch marks. Open in scale, crowded in composition.
+
+No plants root here. There is no soil. No moss in cracks, no reeds in the channels, no seeds riding runoff. The only “growth” is mineral: white blooms of salt at evaporation lips, copper-green staining below certain outlets, translucent crusts that build along drip lines like frozen lace. In bright weather these deposits glitter enough to mimic life from far off, but they are chemistry and time, nothing more.
+
+There are no animals either—no insects skimming the water, no birds cutting shadows overhead, no burrows, no tracks. The silence that results is a structural silence, interrupted only by water and stone. You hear drips at different pitches depending on depth. You hear the occasional tick of cooling slabs in morning shade, the soft scrape of a rope on a pulley where a counterweighted gate slowly lowers itself, the distant hollow knock when a siphon chamber clears its throat. Wind is present but muted; the architecture breaks it into low eddies and brief fluted tones through vent slots.
+
+The technology of the place is simple, almost austere: gravity, grade, capillary draw, siphon, float, lever, weight. No hidden engines. No humming lines. Every function is legible in material. A child with patience could understand the system by walking it. Yet the totality is monumental: an entire highland remade into a water body without a lake, an infrastructure as landscape. Primitive means at civilizational scale.
+
+The unusual quality is not any single impossible object, but the consistency of intent. The world follows a few strict rules and never breaks them:
+
+1. **Nothing touches raw earth.** If there was earth here once, it is sealed beneath layered construction.  
+2. **Water must remain moving, however slowly.** Even storage chambers are designed with infinitesimal turnover.  
+3. **Every surface is dual-purpose.** A wall is also a condensing face; a stair is also a measuring spill; a roof is also a catchment.  
+4. **Repair outruns weathering.** Structures are young not because time is short, but because maintenance is constant and conservative—worn stones are swapped before they round.
+
+Change happens in long pulses. Days brighten and cool; mist forms and burns off; channels fill and thin. Seasonal shifts are broader but still patient: long wet months when every cut line shines, then clearer spans when deposits build and workers—if any remain, unseen—would chip and reset and relime. Nothing erupts. Nothing collapses dramatically. The basin transforms by millimeters, by sheen, by the slow migration of water marks up and down calibrated walls.
+
+In late afternoon, when light angles low but stays hard, the whole constructed valley turns into a field of reflected sky. You can stand on a high parapet and see no green, no fur, no flutter—only stone, clay, timber, and water in ten thousand narrow forms, each one catching brightness, each one quietly doing the same work it was shaped to do.

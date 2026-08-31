@@ -1,0 +1,21 @@
+This is a pocket of absolute, velvety blackness, buried deep within a world that contain no stone, no soil, and no water. 
+
+Here, the substrate of existence is entirely vegetable. There is no wet sap, no green leaf, no damp rot. The setting is a room-sized hollow—scarcely ten meters across—embedded deep within the fossil-dry heart of a colossal, dead woody mass. This is a universe of bone-dry lignin, cork, and compressed pith that has existed in this settled, mummified state for millions of years.
+
+The space is cool, holding a draftless, desiccated chill that smells faintly of dried thyme, nutmeg, and ancient charcoal. There is no moisture to decay the structures here; the air is so dry that it throat-dries the imagination. The floor is covered in a deep, undisturbed sediment of vegetable flour—an incredibly fine, flour-soft dust of ground bark and disintegrated seed pods. To touch the floor is to sink into a cold, weightless powder that does not cling, but falls away like dry silk.
+
+Although this chamber is tiny—a mere bubble in an infinite husk—it is the site of an incomprehensibly detailed, abandoned metropolis. 
+
+Clinging to the curving walls of the hollow are thousands of miniature, layered dwellings. It is a city built on a scale for creatures no larger than a finger, though none remain. The architecture is dense, complex, and desperately primitive. It is made of dry, skeletal leaves stitched together with stiff plant-thorns; of tiny, hand-twisted ropes of inner-bark fiber; and of miniature terraces shaped from a mortar of wood-meal and long-hardened, amber-like resin. There are no metal fittings, no smoothed stone blocks. Everything is woven, tied, or pasted by patient, tiny hands. 
+
+Wicker-work suspension bridges, no wider than a blade of grass, span the margins of the dark void, linking one apartment-clump to another. Tiny ladders made of dry, hollow reed-segments dangle into the empty air, leading down to the powdery floor. The city climbs the sheer vertical curve of the chamber in dense, cellular tiers, like the abandoned comb of a microscopic hive. Yet, despite the dense layout of this miniature infrastructure, the chamber feels utterly empty. The city is a hollow crust on the edge of a void; the center of the pocket is nothing but still, dark air. There is no warmth of life here, no scurrying legs, no rustle of wings. The builders have been gone for epochs.
+
+In the absolute darkness, the world reveals itself through sound. 
+
+The chamber acts as the interior of a titanic, dry acoustic instrument. Because the surrounding world is an infinite, interconnected labyrinth of dry, hollow woody pipes and resonant cork walls, it conducts vibration with terrifying efficiency. There is no wind, yet the dark is incredibly loud. 
+
+Every few minutes, a deep, earth-shaking *THRRR-UMMM* rolls through the hollow. It is the sound of the colossal plant-mass miles above or below, slowly settling under its own dry weight. The friction of wood-on-wood, miles away, travel through the fibers and emerges in this chamber as a sharp, amplified bang—like a dry hammer striking a hollow log—followed by a low, vibrating groan that takes several minutes to die away. The air itself seems to tremble, causing the tiny, woven wicker bridges of the abandoned city to hum and sway in the dark like the strings of a harp. Sometimes, a single, microscopic fiber in the ceiling finally snaps under the tension of centuries, producing a sound like a pistol shot that echoes round and round the empty room.
+
+The dynamics of this place are agonizingly slow. The only change is the gradual, micro-millimeter settling of the giant woody structure and the slow accumulation of the vegetable dust. A single leaf-tile on an abandoned roof might take three centuries to slide free and fall to the floor. The dust from its landing will hang suspend in the cool, dry air for weeks before settling into the velvet drifts below.
+
+In this pitch-black, ringing womb of dry fiber, the empty city sits in perfect, ancient equilibrium. It is a monument of dust and thread, locked in a cold, loud, and eternal sleep.

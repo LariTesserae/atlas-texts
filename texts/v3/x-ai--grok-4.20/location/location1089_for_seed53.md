@@ -1,0 +1,19 @@
+The place is called the **Shattered Lantern**.
+
+It is a high-altitude basin no larger than a modest cathedral, cupped inside the knife-edge rim of an extinct stratovolcano whose final eruption happened so long ago that even memory has forgotten its name. The elevation is punishing: thin air, merciless ultraviolet, and a cold that lives in the bone. Yet the light is savage. A permanent lenticular cloud cap refracts raw sunlight into a cold, actinic glare that never quite sets, turning every surface into a mirror or a blade.
+
+There is no vegetation. Not a lichen, not a moss, not even a bacterium visible to the eye. The ground is entirely mineral: fractured obsidian, white feldspar, and seams of translucent gypsum that have grown into delicate, blade-like crystals over millennia. These crystals cluster so densely that the entire basin looks like it has been packed with millions of tiny translucent knives. They chime faintly when the wind moves between them.
+
+Water exists here only as a miserly, intermittent presence. Every few days a thin mist condenses on the highest crystal edges, gathers into trembling beads, and runs in trembling silver threads down into shallow, perfectly circular basins worn into the obsidian floor. These basins never overflow; the water simply vanishes again after a few hours, either sublimating in the dry air or slipping through hairline fissures into deeper, hidden vaults. The sound of those single drops striking the stone is the loudest noise the place ever makes.
+
+Scattered among the crystal thicket are the remains of a forgotten people who clearly never meant to stay. Seven small shelters—little more than half-domes of stacked basalt blocks—huddle in a loose ring near the center. Their roofs have collapsed in perfect symmetry, as though the mountain itself exhaled once and shrugged them down. Inside each dome lies a single primitive tool: a hand-axe of smoky quartz, a bone awl, a coil of braided sinew turned to stone by mineral infusion. No bones. No graves. Only the tools, left upright as though their owners stepped outside for a moment and never came back.
+
+The crystals themselves are the true inhabitants. Over uncounted centuries they have grown into each other, forming layered curtains, spiraling lattices, and impossible geodesic arches that touch without quite merging. Some surfaces have been etched by wind and occasional ice into shallow, repeating waveforms—almost glyphs, almost maps, almost music. Looking at them too long produces the distinct impression that the patterns are trying to finish themselves.
+
+The air is never still. A slow, breathing wind moves in a perpetual counterclockwise gyre inside the basin, sliding between the crystal blades with a sound like a blade being drawn across a whetstone—soft, continuous, mournful. Every few hours the wind changes timbre as temperature gradients shift, and the entire crystal field answers with a delicate glassy chorus that lasts only seconds before silence returns.
+
+Nothing lives here, yet the place is not dead. It is pre-life, or post-life, or something that has chosen mineral permanence over biology. The crystals grow. The water arrives and departs like a shy pilgrim. The light burns. The stone remembers tools that were once held by hands that are no longer permitted to exist in this altitude and clarity.
+
+If you stand in the exact center, between the seven fallen domes, you can sometimes hear—at the very edge of perception—a single drop falling into one of the hidden basins far below. The sound arrives clean, perfect, and impossibly lonely, as though the mountain itself were counting time in heartbeats it no longer possesses.
+
+This is the Shattered Lantern: a cold, bright, dense little world of knives and memory, where water weeps, stone dreams, and nothing is allowed to rot or grow or bleed—only to persist, brilliantly, forever.

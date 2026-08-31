@@ -1,0 +1,55 @@
+# The Loma Pocket
+
+You enter through a fissure in the mesa wall — a crack no wider than a man's shoulders, vertical, rough with the ghosts of minerals that once coursed through it in a hotter age. The stone here is so old it has forgotten being stone. It has the texture of compressed dust, of something already halfway to soil, the last survivor of a mountain range that was worn to nothing a billion years before anything with eyes could watch it go. The mesa is all that remains. Everything else is flatness to the horizon. This is the high country: not a place that rose, but a place that refused to fall.
+
+---
+
+The fissure opens after thirty meters into a pocket — a space maybe the size of a market square, perhaps forty paces long and twenty wide, though it's difficult to measure because the walls are not walls. They are curtains. They are layered.
+
+Hanging from the ceiling and draping down the sides are thick masses of *barba de piedra* — beard moss, though it's not moss, not really, nothing here is really what the names want it to be. Pale green-grey tendrils, some a meter long, dense as horse manes, each strand coated in a fine fur that catches moisture from the air. Because there is moisture here. Not water. No water. No streams, no pools, no rain. The parameter reads 0.3 and it means it. But the air inside the pocket is thick and warm and still, and the stone breathes. Condensation forms on the undersides of the overhang — a slow, patient weeping that never accumulates, never gathers, never pools. It clings. The moss drinks it directly from the rock face. And the moss is everywhere.
+
+---
+
+This is how you get lushness without water: you find the one place where the atmosphere does the work the rivers once did. The pocket sits at the top of the mesa, open to the sky through a jagged ocular gap maybe three meters across — enough to let dim, filtered light fall in, not enough to let the heat escape. The warm air rises from the lowlands far below during the day, hits the cool stone of the mesa cap, and condenses. Every surface inside the pocket is damp to the touch. Not wet. Damp. The way a cheek is damp after pressing against a cool pillow.
+
+The vegetation exploits this ruthlessly. Beyond the hanging mosses, the floor of the pocket is a dense mat of low, broad-leaved succulents — flat rosettes in grey-green and bruised purple, overlapping like shingles, each one pressing against its neighbors with the urgency of a crowd at a gate. Between the rosettes, climbing vines with waxy, cup-shaped leaves funnel condensation down to buried tuber systems. There are no trees. Nothing here has the structural investment of wood. Everything is soft-bodied, creeping, opportunistic. The tallest plants are knee-high fern analogs with curling fronds that uncurl and recurl through the day in response to the shifting angle of light from the ocular opening above. The whole floor moves. Not quickly. But if you sit and watch, you can see the fronds track the light like slow sunflowers.
+
+---
+
+The settlement is older than you'd expect for something so small. Twelve structures, maybe fourteen — it's hard to count because some have been built into others, and some have been abandoned and half-consumed by the vegetation. They are made from the mesa stone itself, which is soft enough to cut with stone tools — and that is what was used. Hand-axes of flint, chisels of harder igneous rock carried up from the lowlands generations ago. The walls are built of irregular blocks, fitted dry, no mortar, and already they are failing. Not collapsing — *dissolving*. The stone returns to dust faster than it holds shape. The oldest structures have walls that sag outward like bread dough, their faces softened to curves, their corners gone. You can run your hand along a wall and come away with a fine powder. The people who live here rebuild constantly. It is not a burden. It is simply what living here means.
+
+There are perhaps thirty people. They are small — not in stature, but in the scale of their ambition. They do not farm. They do not store food. They harvest the pocket, and the pocket feeds them, and when something in the pocket is exhausted, they move to the next thing. There are tubers. There are the thick, sweet stems of the vine plants. There is a kind of edible crustose lichen that grows on the upper walls where more light reaches — it tastes like salt and iron and the people scrape it off with flint flakes, eating it raw. There is nothing to cook with. No fuel. Nothing here burns.
+
+---
+
+The fauna is the thing you notice first, last, and always.
+
+It begins as sound, before you even enter the fissure. A low, continuous murmur — not one noise but the sum of thousands. Clicking. Chittering. The papery rustle of wings too small to see. When you step through the crack and the pocket opens before you, the sound becomes a wall. It is not deafening. It is saturating. Every frequency seems occupied. There is no silence here, no gap. Even at night — and especially at night, when the nocturnal species wake — the sound is a physical thing, a pressure against the eardrums.
+
+The air is full of insects. Not swarming, not in clouds — but there are always five or ten within arm's reach at any moment, and the eye can never quite settle on any one of them. Moth-like creatures the color of the moss, with flat bodies and fringed wings, land on the hanging tendrils and drink the condensation directly. Beetles — hundreds of species, a relentless diversity — work the floor, turning the leaf litter, eating the rotting succulent bases, laying eggs in the soft stone dust. Winged things the size of fingernails orbit the light shaft from above, their paths complex and purposeful, tracing spirals that seem to have meaning if you could only watch long enough.
+
+And then the larger ones.
+
+Lizards — or something close enough. Small, quick, heat-loving, they cling to the vertical stone in clusters of three or four, their flat bodies pressed to the rock, their eyes open and unblinking. They eat the insects. They are everywhere. On the walls, on the roofs of the structures, on the floor, inside the structures, inside the bedding. The people do not try to keep them out. Some of the lizards have been here longer than the people. There is a species of pale, nearly translucent gecko-analog that lives exclusively inside the oldest structure — the one whose walls are nearly shapeless — and the people consider them part of the building. If the geckos leave, the structure is dead, and it is time to abandon it and build a new one.
+
+Above, in the moss curtains, there are birds. Tiny things, sparrow-sized, with long curved beaks evolved to probe the moss strands for the larvae of the moth-creatures. They build hanging nests woven from the moss itself, and their songs — high, thin, reedy — cut through the insect noise like threads through cloth. There are always chicks. The temperature never drops, the food supply never falters, and so the birds breed continuously. Nests in every stage: construction, incubation, feeding, fledging, abandonment, reclamation by the lizards. The cycle is not seasonal. It is not a cycle at all. It is a steady state, a permanent hum of biological process that never began and never ends.
+
+And on the floor, moving through the succulent mats, things that are harder to classify. Not mammals — too few joints in the legs, too flat. Not reptiles — they are warm to the touch. The people call them *piso-caminantes*, floor-walkers, and they are the largest animals in the pocket — the size of small cats, low-slung, with smooth hides the color of wet stone and too many teeth. They eat the beetles. They eat the lizards when they can catch them. They are not dangerous to the people. But they are always there. Always underfoot. Always moving. The people step over them without looking.
+
+---
+
+The light comes from above, filtered through the ocular gap, and it is never bright. At midday, a beam falls through the opening and paints a bright ellipse on the floor — and everything else in the pocket is in a warm, amber dimness, light bouncing off the pale stone and the pale moss and the pale lichen until the whole space glows like the inside of a lamp. The shadows are soft. There are no hard edges. The ancient stone has been worn so round, so smooth, so *finished*, that the pocket feels less like a cave and more like the interior of a body — a chamber inside something vast and alive, though the vast thing died long ago and only its shape remains.
+
+As the day moves, the ellipse slides across the floor. The fronds track it. The insects orbit it. The lizards bask in its leading edge and retreat from its trailing edge. The people work in it — scraping lichen, harvesting tubers, repairing the wall that has gone soft again. When the ellipse reaches the far wall and narrows to a line and disappears, the pocket goes nearly dark — but not fully. The stone holds some light, radiating it back slowly, a dim phosphorescence of retained warmth. The night is never black here. It is a deep grey-brown, like the inside of a closed hand.
+
+---
+
+At night the sound changes. The insects lower their pitch. The birds go quiet. The floor-walkers begin to vocalize — a low, rhythmic clicking that is almost like breathing, almost like percussion, and it carries through the stone itself so that you feel it in your feet before you hear it with your ears. The people sleep in the structures, in beds of dried moss, and the geckos sleep on the walls above them, and the floor-walkers click in the dark, and the condensation forms on the ceiling and falls in slow, large drops that hit the succulent leaves with flat, clean sounds like fingers tapping a table.
+
+This place has been like this for a very long time. The stone is almost done. The pocket is almost done. The mesa is almost done. In another million years — maybe less — the stone will have softened enough that the ceiling collapses, and the pocket opens to the sky, and the moisture escapes, and the moss dries, and the insects leave, and the birds leave, and the lizards leave, and the people leave, and the floor-walkers, who have nowhere else to go, will stay and eat each other until there is one left, and then none.
+
+But that is a million years from now, and the stone is patient, and the people are patient, and the pocket is still here, and the light falls through the gap, and the condensation forms on the ceiling, and the moss drinks it, and the beetles eat the moss, and the lizards eat the beetles, and the floor-walkers eat the lizards, and the people eat what they can, and everything is warm and dim and loud with the sound of living.
+
+---
+
+You are inside something. You are inside the last shape of something that was once a mountain, and the shape has become a room, and the room has become a world, and the world is very small and very full and very nearly over, and it does not know it, and it does not care.

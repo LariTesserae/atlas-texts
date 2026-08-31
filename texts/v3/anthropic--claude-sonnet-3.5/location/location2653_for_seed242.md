@@ -1,0 +1,15 @@
+The cavern unfolds beneath the surface, a vast subterranean expanse that defies the imagination. The air is cool and heavy with moisture, clinging to the skin like a damp shroud. Massive stalactites, their surfaces glistening with perpetual condensation, hang from the distant ceiling, their tips occasionally releasing fat droplets that plummet into the depths below.
+
+The floor of this underground realm is a dense metropolis of stone and crystal, a sprawling urban landscape crafted not by hands but by the patient artistry of mineral-laden water. Countless spires and towers of calcite rise from the ground, packed so tightly together that one can barely discern where one formation ends and another begins. These structures, sharp-edged and newly formed, create a jagged skyline that stretches as far as the eye can see in the dim light.
+
+Thin rivulets of water snake between the crystal towers, forming a complex network of channels and pools that reflect what little light exists, creating an otherworldly, shimmering effect. The water's surface is rarely still, disturbed by the constant dripping from above and the occasional bubble rising from below.
+
+Vegetation is sparse in this mineral forest, but not entirely absent. Pale, ghostly fungi cling to the damp surfaces, their bioluminescent spores drifting lazily through the air, providing fleeting moments of soft, eerie illumination. In some areas, thin, translucent algae form delicate veils over the stone, their presence barely perceptible save for the faint green tinge they lend to the surrounding rock.
+
+The most striking feature of this underground city, however, is the sound. A cacophony of noise fills the cavern, echoing off the walls and reverberating through the crystal formations. It's a deafening symphony of drips, trickles, and splashes, punctuated by the occasional thunderous crash of a distant rockfall or the collapse of an overgrown stalactite. The sound is so pervasive, so all-encompassing, that it seems to take on a physical presence, vibrating through the very stone itself.
+
+Despite the constant noise and motion of the water, animal life is scarce. Occasionally, a pale, eyeless fish can be glimpsed darting through the pools, or a translucent cave cricket might skitter across a damp surface. But these sightings are rare, mere ghosts in a world dominated by mineral and water.
+
+The landscape is in constant flux, shaped by the ceaseless action of water on stone. New formations emerge as others are worn away, creating an ever-changing topography. In some areas, the water has carved out deep chasms, their depths lost in shadow. In others, it has built up delicate terraces of travertine, forming stepped pools that cascade one into another.
+
+This underground realm operates on its own timescale, indifferent to the passage of days above. The only measure of time here is the slow accretion of minerals, the gradual shift of water courses, and the steady growth of the stone forest. It's a place of primitive forces and elemental interactions, where the line between living and non-living blurs, and where the very rock seems to breathe with the rhythm of dripping water.

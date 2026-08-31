@@ -1,0 +1,17 @@
+This landscape is set in a vast, seemingly endless, yet low-lying cave system that gently undulates across an ancient, eroded terrain. The rock itself is worn, polished smooth by the relentless passage of time and weather. Water seeps and trickles through the stone, feeding a fragmented network of narrow rivers that meander across the walls and floor. These rivers sometimes disappear into rifts, only to reappear nearby or farther away, creating a damp, misty environment that never quite dries out.
+
+Despite the feeling of dampness, water is not abundant. Pools gather where the rivers widen into various natural basins, but these pockets are small and deep enough to be mysterious, their surfaces reflecting the flickering light of scattered fires lit by ancient, scattered settlements.
+
+These settlements consist of small, hand-hewn stone buildings whose age is evident in the wear of the stones and the simplicity of their construction. Metal is used sparingly; tools, door handles, and the occasional decorative figurehead are the extent of its application. It's clear that life here has followed a slow, unambitious pace for a very long time.
+
+Vegetation thrives where light and water abound, forming lush, dense curtains of moss and vines that hang from ceilings and grow up walls, their roots deep in cracks and fissures of the rock. The variety of flora is stunning for such a confined and seemingly inhospitable environment, likely nourished by a unique ecology that has evolved over millennia in this hidden world.
+
+Despite the surprise of lush vegetation, the space feels almost empty. So much of the area is bare, rocky expanse without any discernable feature, stretching between settlements and patches of growth. Entities rarely move here; the fauna is rare, typically small animals adapted to life in this dimly lit environment, and they are heard more often than seen.
+
+The air is incredibly, deafeningly loud. Water rushing through narrow channels at various levels and distances creates an almost ear-plugging background hum that varies subtly as rivers swell and contract with the irregular pulse of the system's moisture. This water noise is punctuated by distant echoes of animals, the whistle of the desiccated wind that slips into the cave, and the slow, heavy creaking of ancient timbers and stone that shifts under the weight of water and vegetation. It's as if the landscape itself has become an instrument resonating with the pulse of wet and dry, its songs echoing through eternity.
+
+Temperature here is generally cold, though fluctuating slightly with the depth and the time of year (if such cycles even affect the distant, buried cave). In deeper areas, you can see a thin frost on mornings after colder nights, only to melt away through the day to seep into the ever-thirsty rock.
+
+The land — or rather, the cave — has clearly been in this state for a long, long time. Everything feels worn, weathered, and aged, from the rounded edges of the eroded stone to the growth patterns of the vegetation. Patterns of moss and lichen make artwork on the rock walls and built structures, a testament to the slowness of change in this hidden, murmuring world.
+
+This is not a world of agile movement or sudden changes. Everything here moves slowly — from the rivers that wear the stone, to the vines that slowly push their roots deeper into the rock, to the slow-footed creatures that roam the greater emptiness.

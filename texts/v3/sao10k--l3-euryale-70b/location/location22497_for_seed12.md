@@ -1,0 +1,9 @@
+A warm, dense fog hangs low over the slumbering town, obscuring the undulating streets and closely-packed wooden structures, their peaked roofs barely distinguishable in the thick gray mist. Sounds are muffled - the clanging of hammer on anvil, faint sepulchral chimes, and the occasional cough or muffled shout drifting through the humid air. 
+
+The buildings seem to twist and merge into one another, making the town feel like an organic entity of its own, slowly emerging from the mire and brackish waters that encircle it. Buttressed by rows of stone pilings, against which waves lap and surge, the entire development appears on the cusp of submersion, as if the sea is patiently waiting to reclaim this difficultly-tamed terrestrial patch.
+
+Tendrils and ropy vines hang down from the rafters, sprouting strange plants of deep crimson or violet hues, and feeding back into the swampy waters like lung-roots. Pale, bioluminescent fungi carpet the slick cobblestones in ghostly patches.
+
+Robust folk stalk the narrow ways and wooden walkways, swathed in alpaca wool and waxcloth or dripping oilcloaks against the fog and creeping damp. Those glimpsed dashing through the murk, catchpocket lanterns and wharf-lanterns measure their passage. Others haul heavy fishing nets or cox(help me, I'm not a sailorCommerce and sailing lingo?) Commerce and sailing lingo?Coax] nets from their flat debenched prows, voicing the nasal nasalsonorous wailing cries of vowel-rich sanctioned epithets to the air, intermingling with the lugubrious tolling of the drowned temple's bells.
+
+Misty haze slinks between weathervanes and scrolling k						  el did his, doctor?Particularly engaging pieces and phrasings.)el did his, doctor?)

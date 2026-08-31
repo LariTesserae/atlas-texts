@@ -1,0 +1,19 @@
+The air hangs thick and warm, a breath held too long. It is heavy with the scent of wet earth and something metallic, like old machinery. This is not a place of open sky; the world curves inward, a hollow scooped from the belly of the earth. Walls of living, breathing, pulsing green surround you, not rock but a dense, packed vegetation that has somehow become the architecture of this place.
+
+The light is dim, filtered through countless layers of broad, veined leaves. They catch the moisture-laden air and drip steadily, a constant soft percussion against the husks and casings of… something. What was once built, engineered, is now overgrown, consumed. Buildings? Factories? They have been swallowed by the relentless advance of the plants. The forms are still there, discernible even in the near-darkness if you look closely: straight lines of walls and supports, the suggestion of windows and paths. But the geometry has blurred into something organic, something slow.
+
+The dominant sound is a mechanical sigh, a rhythmic *wheeze-chug*. It comes from everywhere and nowhere, a deep, pervasive noise that vibrates through the very ground. Machinery, once the heart of this place, is still functioning, but seems tethered, barely kept alive by the relentless growth all around. The machinery is not in charge but it endures. Its function is unknown.
+
+The walls are close. To move is to brush against leaves, to step on a mat of soft decay. The ground is a saturated swamp, giving way underfoot. No paths are visible, only the suggestion of channels, barely-there changes in vegetation. Where the plants don't grow, the moisture pools, reflecting the weak, filtered light in inky puddles. The water is everywhere, seeping out of the earth, dripping from the walls, condensing on every surface. It contributes to the chorus with its own little noises: the *drip... drip... drip...* of water against metal husks, the sucking sound as you pull your foot from the mud. 
+
+The plants themselves are a marvel. They are not merely growing *on* things; they *are* things. The buildings are living scaffolding, their skeletal structures now the veins and bones of gigantic, hybrid organisms. The walls pulse with life, a slow, gentle undulation like breathing. There is no visible fauna. The air is still, save for the rhythmic rise and fall of this plant-city. No birds sing. Leaves fall, and become substrate for more leaves. 
+
+The scale is intimate. This is not a city of grand avenues and towering skyscrapers, but a series of interconnected chambers, groves, and tunnels. Everything is close. The vegetation is packed, pressing in from all sides, creating a sense of both claustrophobia and protection. There is no escape, but there is also a profound sense of containment.
+
+Erosion is ever present. The metal structures are weathered, rusted, worn down by the constant moisture and the slow, relentless advance of the plants. The slow pace of change, the humid air, the absence of any obvious destructive forces other than entropy. It is a place of slow, inevitable decay, a place that has settled into its own strange, permanent state.
+
+The technology is visible. The industrial elements are present, though failing or in an end-state function. Cables hang from the walls like vines, some sparking with residual electricity. Machines slowly grind and whir. Their function is not clear, but is surely long forgotten. The weirdness factor is low; this is not clearly a fantasy place.
+
+Movement is slow. The plants, the decay, the machinery, all operate on a slow, deliberate timescale. Change happens gradually, at a pace that is almost imperceptible. This place does not rush and is not rushed; time is not of the essence. 
+
+The air is saturated, the vegetation is all. The sound of the machinery and the life force of the plants is constant. This is a place of industrial rot, of slow, organic takeover.

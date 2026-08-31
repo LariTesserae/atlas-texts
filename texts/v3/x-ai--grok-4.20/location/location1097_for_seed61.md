@@ -1,0 +1,20 @@
+The place is called the **Under-Rafters**, a single, self-contained cavern-pocket no larger than a modest amphitheater, lodged deep inside the mineral flesh of the world. It has existed in precisely this form for so long that time itself seems to have forgotten it.
+
+Everything here is wet, yet nothing flows. Water does not run; it *presses*. It sweats from every surface in fat, slow beads that tremble but never fall. The air itself is half-condensed, a cold mist that clings to the lungs like wet wool. The temperature is locked at the edge of uncomfortable chill, a constant 4 °C that has not varied in ten thousand years.
+
+There is no soil and no sunlight. Vegetation is entirely absent; not even lichen or algae has ever gained purchase. The only living color belongs to a thin, luminous scum of chemosynthetic bacteria that streaks the wet rock in ghostly teal and violet, so faint it looks like memory rather than life.
+
+The cavern is built—deliberately, laboriously—by hands that used nothing more advanced than antler picks, stone chisels, and patient centuries. Every wall, every pillar, every low vaulted ceiling has been shaped and re-shaped until the stone itself appears to have decided on its final form. The architecture is dense, almost suffocating. Columns stand no more than an arm’s length apart, each one carved into squat, faceless figures that seem to be holding the ceiling on their shoulders. Between them, narrow lanes and crawl-ways thread like capillaries. Nothing is wasted. Every cubic meter is claimed.
+
+The sound is constant and overwhelming. It is not the roar of a waterfall; it is the roar of *ten thousand* tiny trickles and drips and seeps, each one echoing and multiplying off the dense forest of carved stone until the noise becomes a solid, physical pressure against the ears. The cavern sings with its own dripping. The sound never changes, never ebbs. It is the heartbeat of a place that has achieved equilibrium so perfect it has become deafening.
+
+Light is almost an afterthought. A few dozen fist-sized oil lamps burn in perpetual niches, their primitive wicks floating in rendered fat. Their flames are small, sullen, and yellowish. They do not flicker; the air is too still. The light they cast is immediately swallowed by wet black stone and the thick mist, so the entire chamber exists in a state of perpetual dusk. Shadows are heavier than the stone.
+
+Fauna is rare, but not absent. Pale, blind crustaceans the size of thumbnails move with agonizing slowness across the wet surfaces, their legs clicking faintly beneath the roar. Once every few years a larger creature—something eel-like and translucent—slips through a water-filled fissure, feeds, and leaves again. Nothing lives here permanently except the bacteria and the patient, deliberate architecture.
+
+The weirdness is subtle but absolute. The carved figures on the columns are not quite symmetrical. If you stare long enough, you begin to suspect they have changed position while your attention was elsewhere, though the sound never alters and the lamps never gutter. Water condenses on their stone shoulders and runs down their blank faces like cold tears that never reach the floor; the droplets simply vanish halfway, drawn back into the rock. The entire chamber is weeping, yet the water table never rises and never falls.
+
+This is a finished place.  
+It has reached its final shape and has no intention of changing again. The builders—long gone, or perhaps still present in some mineral sense—are no longer needed. The stone has learned their intention so completely that it now maintains itself.
+
+To stand in the center of the Under-Rafters is to feel like an intruder inside a breathing, dripping machine that has already decided what the next ten million years will sound like, and has chosen this exact, deafening, unchanging wetness forever.

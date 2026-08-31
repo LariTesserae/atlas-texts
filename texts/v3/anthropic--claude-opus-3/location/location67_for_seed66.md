@@ -1,0 +1,9 @@
+In the thin air of a towering plateau, moisture condenses and pools in the weathered channels of ancient roads and plazas. No flora takes root in the mineral surface, only dense colonies of hardy lichen and occasional outcroppings of luminous crystals.
+
+Ruins of a vast, sprawling city stretch to the horizon. Layer upon layer of crumbling architecture testifies to ages of expansion, destruction, and new construction. Now, only a skeleton remains. Broken aqueducts end in cascades that echo endlessly off stone canyons. Walls have eroded into organic, wind-sculpted forms. A few colossal monuments still thrust up defiantly.
+
+The daylight has a thin, silvery quality at this altitude. It glints off mica-flecked flagstones and cast-iron lampposts green with verdigris. At dusk, bioluminescent lichen emits an eerie glow and shadows congeal in empty doorways.
+
+What brings this petrified megalopolis to astonishing life is the ceaseless presence of birds. An incredible diversity of species roosts in every nook and ledge. Predators soar between towers on updrafts. Murmurations of starlings billow like living smoke. Their raucous voices – caws, shrieks, melodic whistles, rattling bugles – reverberate until the very stones seem to sing.
+
+Moisture, slow chemistry, and the steady traffic of birds' feet, beaks and guano are the only forces of change here now. Ancient carvings slowly soften and blur. Collapsed roofs fill with gleaming pools where swallows scoop mud for nests wedged in baroque stonework. Atop eroded stumps of towers, eagles brood chicks in nests wide enough to hold a human. This is a place where nothing remains but eternity, water, stone and wings.

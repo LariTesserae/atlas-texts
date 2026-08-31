@@ -1,0 +1,15 @@
+Deep within the hollow of a singular, massive, calcified ribcage—presumably the skeleton of some leviathan that died eons ago—lies the city of Ool. It is a place the size of a cathedral’s nave, protected from the biting, sub-zero winds of the outer tundra, yet perpetually bathed in a blinding, refracted white light that spills down through the translucent, porous bone-arches overhead.
+
+The scale is intimate; it is a world contained. 
+
+Here, the density is absolute. Every square inch of the basin floor is occupied by the architecture of a civilization that has long since ceased to grow. The buildings are terraced, hive-like structures woven from thick, fibrous moss and hardened resin, clinging to the skeletal ribs like barnacles on a ship's hull. The infrastructure is a vertical labyrinth of rope bridges, pulleys operated by hand-cranked wooden gears, and narrow, winding tunnels carved directly into the bedrock of the ancient creature’s marrow.
+
+Nature and the city have reached a state of frozen equilibrium. Thick, velvet-like mosses, vibrant and neon-green, swallow the stonework. Tiny, pale, bioluminescent fungi bloom in the damp pockets where condensation drips from the overhead bone-vault—a slow, rhythmic *plink* that is the only sound permitted in the stillness. The erosion of the bone is ancient and settled; it has turned into smooth, ivory-colored stone, polished by centuries of human touch and the relentless, slow weeping of moisture.
+
+There is no wind here. The air is stagnant, smelling of wet earth, cold limestone, and the faint, sweet decay of ancient greenery.
+
+The inhabitants, draped in heavy, crude wool pelts, move with the slow, deliberate grace of people who know that any sudden motion would be an affront to the delicate balance of their pocket-world. They are quiet, not by prohibition, but by habit; the environment has a way of swallowing sound. Even the fauna—small, six-legged marmots with fur like frosted glass and long-limbed beetles that scavenge the dew-moistened walls—move in silence, their feet padded by the ubiquitous moss.
+
+Light is the soul of Ool. It cascades through the bone rafters, bouncing off the polished, white surfaces so that every corner is illuminated with an unforgiving, sterile brightness. Shadows are nonexistent, squeezed out of existence by the sheer uniformity of the glow. There is no day or night, no seasons, no growth, and no decay; the city exists in a permanent, golden-afternoon-white stasis. 
+
+One could spend a lifetime in Ool and never see a horizon, yet the people—who carve their history into the very ribs that house them—believe they live at the center of a limitless, holy white expanse. They have polished their world into a work of art, and they maintain it with a reverence that borders on the religious. Nothing changes, nothing moves without purpose, and the silence remains unbroken, a heavy, cold cloth draped over the city and everything that stirs within it.

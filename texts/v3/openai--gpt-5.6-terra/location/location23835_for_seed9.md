@@ -1,0 +1,33 @@
+At the upper shoulder of the mountain, where the air ought to thin into bare stone and cold grass, there is a manufactured ravine no larger than a village square.
+
+Nothing beneath it is earth.
+
+The floor is a tessellation of dark cast-iron plates, each one shallowly dished, bolted to a hidden framework. Warm water runs in their seams. The walls rise on three sides in faceted concrete, brick, glazed ceramic, and old green-painted steel, all assembled to imitate a cliff without ever becoming one. Even the “rock” is made: porous slag blocks, rough-faced mortar, stacks of artificial stone fed from behind by pipes. Their surfaces sweat constantly. Water emerges from hairline joints, gathers in beaded films, and falls in narrow threads from ledges designed for that purpose.
+
+At the center is a basin, perhaps twenty paces across. It is never quite full. Pumps lift water through the mountain of machinery under the floor, and the basin breathes with their cycle: swelling, lowering, trembling in rings. A stone-colored intake tower rises from it, square and blunt, clothed so heavily in moss that its metal grilles are nearly hidden. Every few minutes the grille opens with a damp internal click, and a slow draw begins. Floating leaves tilt toward it. A little whirlpool forms and fades.
+
+The place is high enough that clouds pass close overhead, yet it is warm. Heat comes up through the floor in a steady buried exhalation. In the mornings, mist catches among the planted structures and does not leave until noon. It pearls on the black leaves of water taro, on fern fronds, on the cables that cross from one wall to another. Condensation gathers beneath catwalks and falls intermittently, so that the ravine has its own weather: a tiny, continuous rain, localized beneath the beams.
+
+Vegetation has been given every possible advantage. Roots grow in trays of fiber, crushed brick, mineral wool, and black compost manufactured in drums elsewhere in the complex. Vines climb cable ladders and disappear into ventilation shafts. Orchids crowd the warm seams of the imitation cliff. Broad-leaved shrubs stand in welded steel planters disguised as boulders. Moss covers the joins between materials, and liverwort makes soft maps over old paint. In places, the growth is too successful. A creeper has crossed an inspection hatch and held it shut. Ferns have filled the gutter intended to carry overflow. A small tree, planted years ago in a deep reservoir sleeve, has bent against the roof and spread its crown sideways, making a dense green ceiling over one corner of the basin.
+
+The height of the place is felt not in exposure but in glimpses. Openings high in the enclosing walls frame portions of an enormous pale sky. Through them, cloud can be seen shouldering against the mountain infrastructure: upper rail lines, service towers, suspended tanks, the undersides of distant platforms. Sometimes the cloud comes through the openings and occupies the ravine itself. It enters as vapor and leaves as water. The plants darken. The metal rails become slick. For an hour, the edges of everything soften until the constructed valley seems almost convincing.
+
+But the construction is always present if one looks closely.
+
+There are numbered valves tucked behind bromeliads. There are pressure gauges fogged from within. A yellow handrail crosses a waterfall. A drainage channel, lined with white tile, runs beneath a tangle of pandanus roots. The floor vibrates faintly where the circulation pumps work. Somewhere inside the false cliff, chains move over sprockets, softly and without urgency. Periodically, a shutter opens near the ceiling and releases a measured spill of pale granular substrate onto a planting slope. This is how the ravine grows its soil. It is still being made.
+
+Its rawness is not the rawness of wilderness; it is the rawness of a system not yet finished with becoming. New shelves of mineral composite protrude from the walls, too clean and angular, waiting for water and spores to soften them. Fresh pipework shines among older, oxidized lines. One portion of the floor remains exposed as a grid of open channels, where warm water, root matter, silt, and rust-colored sediments collect in little mechanical deltas. The landforms are miniature and provisional. A few hours of pumping can rearrange them. A maintenance worker might clear them with a flat shovel and create a new shoreline by evening.
+
+There are almost no animals.
+
+Small pale moths sometimes gather near a lamp above the eastern wall, though no one knows whether they arrived from outside or emerged from the compost works. A frog has been heard in the basin during wet weeks, one low pulse hidden among the pipes, but it is seldom seen. There are snails in the moss, translucent and deliberate, and a thin-bodied beetle that walks the wet railings. Their rarity makes each movement noticeable. The landscape belongs more completely to water, plant growth, and machinery than to creatures.
+
+Sound is subdued by the leaves and wet surfaces. There is no broad mountain wind here, only occasional drafts slipping through the high apertures. Mostly there is dripping: from frond tips, from the underside of an iron stair, from the lip of a ceramic spillway. There is the muted rush of water in enclosed channels. A pump starts somewhere below, and the basin answers by quivering. Vines rub lightly against a mesh wall. When the cloud clears, a distant industrial bell from the larger mountain installation may arrive as a single dull note, already softened by height.
+
+In daylight the ravine is neither dim nor bright. It receives ordinary sky-light, silvered by mist, then sun in brief angled bars. Those bars move across an ecosystem too crowded to be still. Leaves turn toward heat pipes. Droplets gather, join, fall. Moss advances over concrete. Filters clog; overflow trenches activate; sluices open and redraw the basin’s edge. Every surface is either being wetted, rooted into, heated, drained, measured, or quietly replaced.
+
+There are rules, though no signs state them.
+
+Water is never allowed to stop entirely. Soil is never allowed to become ground. Any empty surface will be planted, and any plant that blocks a vital mechanism will be cut back—but never completely removed. The ravine must remain lush enough to conceal its artifice, and artificial enough to survive at this altitude. Its wilderness is maintained by shifts, valves, schedules, and repairs. Its cliffs do not erode; they are revised.
+
+Standing at its center, one can feel that it is a small place with a large task: an experiment in making a warm wet valley where there should only be mountain air and machinery, and in keeping that valley forever at the beginning of itself.

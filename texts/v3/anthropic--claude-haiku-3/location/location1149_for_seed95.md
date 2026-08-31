@@ -1,0 +1,9 @@
+A vast, deep ocean swells and churns, its waters a brilliant, alien blue-green. Suspended in this liquid expanse, an archipelago of islands rises up, their rugged, weathered peaks piercing the surface like ancient teeth. These are not the lush, verdant landforms of a tropical paradise, but something far more primordial and inhospitable.
+
+The islands are composed of a dense, glassy material, the product of eons of volcanic activity and erosion. Sharp ridges and jagged cliffs dominate the landscape, sculpted by the relentless currents and tides that surge around them. Scattered across the islands are the remnants of a long-vanished civilization – crumbling structures, half-buried in the dense, mineral-rich soil, their purpose and origins obscured by the passage of time.
+
+The atmosphere is warm, thick with the scent of ozone and the tang of salt. Bursts of electrical discharge occasionally crackle across the sky, illuminating the scene with a ghostly, otherworldly glow. The only sounds that break the silence are the muffled rumble of distant machinery, the lapping of the waves, and the occasional, eerie call of some unseen creature.
+
+The islands themselves are sparsely populated, home to only the hardiest of lifeforms. Rare, tentacled creatures drift through the water, their bioluminescent bodies pulsing with an alien rhythm. Thick mats of resilient, lichen-like growths cling to the rocky surfaces, the only visible sign of life in this ancient, mineral world.
+
+The overall impression is one of a place frozen in time, a relic of a bygone era when the planet was still young and untamed. The high, rugged islands, the dense, thrashing waters, and the faint remnants of long-vanished civilizations all contribute to a sense of profound, primal isolation – a hidden pocket of a world that has endured for eons, largely untouched by the march of progress.

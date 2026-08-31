@@ -1,0 +1,25 @@
+# The Congregation of Still Wings
+
+The plateau rises so high that the sky has forgotten its color. It hangs above you—a trembling membrane of pearl and static, neither day nor night but something the world settled into long ago and never left. The air is thin and cool, carrying no moisture, tasting faintly of chalk and something older than stone.
+
+They cover everything.
+
+Birds. Or what were birds, or what birds became, or what borrowed the shape of birds when shape still meant something here. They blanket the ancient rockscape in uncountable millions—perched on every weathered tor, filling every wind-carved hollow, standing wing-to-wing across the vast eroded shelves of pale mineral that stretch toward horizons you can barely distinguish from the colorless sky. They do not move. They do not call. Their eyes—those that still have eyes in the conventional sense—remain open, black and wet and watching nothing, watching everything, watching the space where time used to pass.
+
+The plateau itself has been dying for so long it has forgotten what living felt like. Aeons of wind have softened every edge into something approaching geometry—not sharp, not round, but *resolved*, as if the stone reached some mathematical conclusion about its own existence and stopped changing. Shallow basins pock the surface where lakes might have been in some unimaginable epoch, now holding only pale powder that might be calcium, might beite mattered bone meal, might be the ground-down remnants of earlier congregations. Here and there, tufts of grey vegetation cling to crevices—not dead, not alive, but suspended in the same eternal almost that governs everything else. Their leaves are the color of old teeth. They do not photosynthesize so much as *remember* photosynthesis.
+
+The birds come in every size. Sparrow-small bodies pressed together like feathered cobblestones. Vulture-vast shapes hunched atop the taller formations, their wings half-spread and fossilizing in that position. Between them, species that don't map to any taxonomy—things with too many legs folded beneath them, with beaks that spiral inward, with plumage that seems to exist slightly adjacent to the visible spectrum, leaving afterimages when you look away.
+
+And yet they breathe. You can see it if you watch long enough—the barely perceptible rise and fall of countless chests, synchronized in waves that roll across the congregation like wind through grass, though there is no wind. They blink. Slowly. Over the course of minutes. One eye closing, then the other, then both at once, spreading through the gathered millions in patterns that might be communication, might be reflex, might be prayer.
+
+Scattered among them: the structures. Low cairns of stacked stone, clearly deliberate, clearly ancient, clearly made by hands that were not wings. They rise chest-high in places, marking paths or boundaries or something else entirely. Some have been colonized—birds perched atop them indistinguishable from birds perched on natural stone—but a few remain clear, as if by unspoken agreement. Near one cairn lies a grinding stone, its surface worn to a mirror smoothness, a pestle beside it that might be carved bone. What they ground here, and when, and why, exists beyond recovery.
+
+The silence is not empty. It has *texture*—a pressure against your ears, a presence that suggests sound is not absent but *held*, suspended like the birds themselves in this endless arrested moment. When you move, your footsteps make noise that feels transgressive, too loud, wrong. The birds nearest you do not startle. They turn their heads—a slow rotation taking thirty seconds, forty, their eyes tracking you with the patience of continental drift.
+
+Some of them have been here so long they have begun to merge with the stone. Talons fused to mineral surfaces. Feathers growing crystalline at the tips. One enormous specimen—an albatross or its cousin, something meant for endless oceanic flight—has become a bas-relief, its body flattened into the rock while its head still moves, still breathes, still watches from its prison of geological time.
+
+The boundaries of things break down the longer you look. That formation on the horizon—is it stone, or a single bird of impossible scale? The powder beneath your feet shifts, and you see bones, and then you see small birds curled fetal and dormant among the bones, and then you are uncertain whether they are bones at all or simply more birds who forgot what soft tissue was for. Space folds strangely here. The plateau extends for miles in every direction, yet distances compress and expand without logic. A cairn that seemed hours away stands suddenly beside you. The horizon breathes.
+
+Occasionally—rarely—one of the birds opens its beak. Nothing emerges. No sound. But the air around it *crimps*, reality pleating like fabric, and for a moment you can see something behind the world: a scaffolding of intention, a framework older than the plateau itself, the architectural bones of a universe that has been waiting this long for something to end or begin.
+
+This is what patience looks like when it has outlived the thing it was waiting for.

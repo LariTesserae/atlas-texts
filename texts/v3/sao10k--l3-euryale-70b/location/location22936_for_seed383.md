@@ -1,0 +1,11 @@
+The landscape stretches out in a bizarre patchwork, an eternally roiling sea of churning mist and bubbling lava interspersed with islands of jagged obsidian and warped ruined stonework intercut with meandering directed rivers of iridescent glowing fluid. The colorscape is muted and then flashing - pale grays and browns overlaid with periodic pulses and gleams in the spectrum of hot-running molten ore. Heat shimmers the air.
+
+Flecks of lush vegetation cling in crevices of the blasted rocks - snaggletooth fungal caps, wisps of smoldering moss, bruised fruits still humming with trickle-charged energies. Insectoids the size of a hand flit among the growths, chitin wings clattering, multi-faceted eyes burning.
+
+A breeze sighs through, stinking of occult reagents and half-formed proteins. It hauls pseudoseawrack debris to clutter the stark land - retreated into crumbling casings, cryptic sigil-inscribed key-fossils of forgotten chassis. The wrack heaves and rattles in foamy creeks of the lava as the pains of the planet generate new land.
+
+The lunar presence above flares with slow coruscating pulsedonnas. Global satellites of unknown purpose heel across its face, casting tracked phase-ruins of the land below with their power-beams, etching thixotactic patterns as they rotate. In the few clear skies between moving stormclots, skin-scalding stars blink out glints of paintbox color.
+
+Ethereal smog roils over all, brittle-flicking with flow-pattern current. Cocooned in it, floating or rammed into slopes, are hundreds of the ruined spires I mentioned earlier, scraped of any features other than those needed to focuss the occult world-stress around their heights. Gneissic hang-gliders circle them in ritual curls, diving between their peak-peaks.
+
+The place feels like an unfinished temple, a renovating appeasement to monad interlopers. The landscape's warp and wrack is only a skin condition; underneath, disguised, the real land weathers and wounds around animating doodabases, wound up and working its changes. A living thing of it, after its own fashion.

@@ -1,0 +1,45 @@
+It isn’t a marsh, not exactly, though everything about it behaves like one.
+
+The place is bounded. You can feel that as soon as you step into it: a hamlet-sized basin, oval and shallow, like the footprint of a vanished building. The “ground” has no soil. Under your boots is a skin of hand-laid things—flat river-stones set on edge, tiles of fired clay, patches of plank and pegged lattice—stitched together in repairs that have been repeated so often they’ve become a pattern. Even the edges are made: retaining walls of stacked block, mortared with a pale lime that has been gnawed for generations by water and breath.
+
+Low elevation, cool air. The basin holds it. Mist doesn’t drift here so much as condense; it sits in the hollows, clings to the underside of beams, gathers into beads along every seam. The place is wet the way a cellar is wet, except the “cellar” is open to the sky.
+
+Dim light comes from above, but the above is not a clean sky. Thin slats span portions of the basin like ribs—old roofing frames, unshingled, silvered with age. Over them are stretched mats of woven reed and hair-rope that have sagged into gentle catenaries, catching drizzle, slowing it, letting it fall where the builders wanted it to fall. On overcast days the whole structure becomes a diffuser; nothing casts a sharp shadow. In the morning the light is a dull pewter that seems to originate inside the fog itself.
+
+Water is near the surface because there is no “surface” in the natural sense—there are channels. Everywhere. They are cut, not eroded; their erosion is the slow rounding of edges and the polishing of stone where flow has been guided for a very long time. Thin rills run along grooves in the tilework and vanish into grates made of split wood. Larger runnels define the basin’s geometry: three concentric rings like a target, connected by narrow spokes. When you look down one of these spokes you can see it fall away by mere inches, but the water moves decisively, as if it knows where it is going.
+
+It is loud. Not the roar of a river, but a constant, layered clatter: drip on tile; drip on hollow plank; the click of water in clay pipes; the slap of something alive in a channel; the chorus of throats.
+
+Sound is part of the construction. Some of the channels pass beneath hollow boxes—old resonance chambers made from joined boards sealed with pitch. As water crosses their mouths it makes a note, a low wind-in-bottle moan that changes with the day’s wetness. In other places the water is forced through narrowed throats in clay, producing a bright, insistent gurgle like laughter. When the wind pushes mist through the roof-slats, it whistles over the reed mats. If you stand still long enough, you can tell where the water is moving by ear, as if the basin is an instrument being played continuously.
+
+Vegetation is sparse, but stubborn in the places the builders accidentally invited it. A thin frosting of moss lives where lime mortar stays damp. Lichen stipples the blocks with pale greens and chalky oranges. In the deepest joints, tiny reedlike plants take hold—nothing tall, nothing thick. There are no shrubs, no trees; the structure will not let them establish. Root systems that would pry are quietly killed off by the constant scouring and the shallowness of “ground.”
+
+And yet fauna are everywhere, abundant enough that the emptiness of the built space feels occupied anyway.
+
+The channels are full of small bodies: darting fish no longer than a finger, their backs dark as wet slate; pale larvae that undulate in the shallows; snails with shells like worn porcelain buttons. On the tile flats, beetles and water-striders stitch the reflected light into quick moving lines. Frogs sit in the mouths of drains, their skin matching the moss, throats pulsing like bellows. There are birds too, but not the kind that perch in trees—there are no trees. They cling to the roof ribs and the wall’s protruding stones: long-legged marsh birds that strike down into the channels; small, sharp-voiced things that nest in the gaps of the masonry and scold anything that moves.
+
+The air is full of wings at certain hours. Insects rise from the water in sudden synchronized swarms, so dense for a minute that the dim light seems to grain and shimmer. The birds respond immediately, and the basin erupts into motion: splashes, snaps, the soft thud of bodies landing on wet wood, the percussive croak-croak-croak of frogs joining in as if noise itself were a kind of weather.
+
+Despite all this life, the place feels empty because there is so much space between solid presences. The basin is mostly open floor, open water, open air under a high, skeletal roof. There are few objects: a handful of posts, a ring of wall, the channels, the grates. Anything not necessary has been carried off long ago. The emptiness makes every movement legible. A single frog crossing a tile reads like a traveler in a desert.
+
+The materials tell you the builders were clever, not industrial. Everything is hand-fit. Pegged joints. Wattle panels. Clay pipe segments pressed by thumb and fired in a low kiln. Stone blocks not cut to perfect squares but chosen, turned, and seated with patient attention. Repairs are visible as generations of different hands: a section of wall where river-stone has been substituted for block; a new grate braided from fresh willow over the bones of an older one; patches of pitch sealing cracks, glossy as tar in the dim.
+
+Erosion here is not ruin but equilibrium. Water has softened corners without collapsing them. Lime has leached, leaving tiny stalactites of mineral under overhangs, like the place is growing teeth. The tilework is cupped in the paths of constant flow. Wooden beams have been planed by mist and drip until their grain stands proud, ribs under a skin.
+
+There is something strange in the way the wetness behaves. Mist does not simply happen; it is produced. In the center of the basin stands a low mound—also built, a cairn of porous stone stacked over a hollow. From its seams issues a constant cool exhalation, fog spilling as if from lungs. When the air outside the basin dries, the mound breathes harder. When the air becomes saturated, it quiets. It is as though the place maintains its own humidity, holding the wetness within its boundary.
+
+You begin to notice rules like that:
+
+- Water does not pool randomly; it seeks the cut paths, even when the basin is nearly level. If you pour a cup onto the tile, it will creep—slowly, improbably—toward the nearest groove, as if the surface remembers where water ought to go.
+- The animals follow lines you can’t see at first. Frogs choose certain tiles and avoid others, even though they look identical. Birds land only on particular ribs. Insects rise most thickly above the same three drains, day after day, like a calendar.
+- Sound seems to gather and circulate. A call made at the western wall returns faintly from the east a moment later, not as an echo but as if carried along the hidden pipework and released elsewhere.
+
+The loudness has a peak when the basin is “active,” which is often. A fine rain begins, and the reed mats above darken in spreading patches. Drips start in discrete points, then become a scatter, then a steady percussion. Water slides into the rings, the rings fill, the spokes begin to run. The resonance boxes wake one by one with their moans and chuckles. Frogs answer the new water with manic insistence. Birds arrive from beyond the wall in a sudden purposeful flock, as if they had been waiting for the signal of the first drops.
+
+If you stand at the center mound then, you can feel the basin working. Not like a machine of gears—there are no visible gears—but like a crafted watershed, an intentionally engineered microclimate. The builders, with their primitive tools, made a place that behaves like weather and instrument and habitat at once.
+
+And if you stay long enough to watch it change, you see that it is not abandoned. Not truly. The “maintenance” is done by everything living here: snails cleaning algae from tile, fish stirring sediments in channels, frogs hauling insects from the air, birds dropping seeds that almost never take, and the water itself sanding and sealing and resetting the surfaces. The basin persists because it is busy.
+
+At night—if night is the right word in a place where the light is always dim—the mist thickens until the far wall becomes a suggestion. Sounds don’t quiet; they rearrange. The dripping becomes heavier, more deliberate. The moaning boxes deepen. In the fog, eyeshine appears at ground level: frogs, fish near the surface, perhaps something else in the channels that you can’t quite name. The place feels even more constructed then, less like a ruin and more like a purpose.
+
+A purpose you can sense without understanding: to keep water moving in circles, to keep air cool and wet, to keep life loud in an otherwise empty space, and to make weather—small, contained, persistent weather—inside walls that have been standing long enough for the stones to learn the taste of mist.

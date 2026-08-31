@@ -1,0 +1,11 @@
+In a high, cold valley nestled among ancient, weathered peaks, a primordial marsh stretches as far as the eye can see. The landscape is a churning, chaotic tangle of plant life that seems to be in a constant state of flux, growing and dying and regrowing in hyperspeed. Vines and moss and lichen cover every surface, rippling and shuddering as if the very ground were alive and breathing.
+
+Scattered throughout this turbulent sea of vegetation are rusting remnants of industrial machinery - towering smokestacks, corroded tanks, crumbling factories overcome by coiling roots and creepers. The decaying metal seems to be merging with the plants, pipework morphing into gnarled branches, shattered windows sprouting leaves. Nature is reclaiming the once-pristine technology, the two becoming an inseparable hybrid.
+
+Though no animals are visible, the marsh teems with life. Chirps, bellows, clicks and calls echo from the foliage, some recognizable, others wholly alien. Eyes glint from shadowy recesses. Swarms of tiny flying things, metallic and iridescent, hover and buzz incessantly. Life is abundant here, but strange, altered. 
+
+A heavy mist hangs omnipresent in the cold air, obscuring details and muffling sound. Shafts of wan light filter down, but fail to really illuminate, casting everything in a dim, eerie half-light that seems to come from everywhere and nowhere. Steam hisses from cracks in the earth. Bubbling, gurgling noises suggest pockets of geothermal activity heating ponds to a near boil.
+
+The whole place feels profoundly unstable, a reality stretched to its limit. Gravity seems to warp and flex - floating islands of earth drift untethered overhead, waterfalls flow in every direction, defying physics. Flocks of skeletal "birds" phase in and out of existence. Plant stalks unwind into fractals, trunks twist into Möbius strips. Perception can't be trusted here at the ragged edge of the possible.
+
+And yet, there is a strange, decrepit beauty to it all - a sense of witnessing the raw churn of creation, an ecosystem at the extremes of what can be. In this liminal space between machinery and wilderness, at the border of reality itself, life finds a way to thrive, even if in warped and dreamlike forms. It is a landscape of astonishing dynamism, where the line between possible and impossible has long ago dissolved.

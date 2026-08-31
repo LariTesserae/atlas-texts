@@ -1,0 +1,13 @@
+A sealed terrarium-world rises through stacked crystal chambers, each the size of a medieval chapel. The chambers form a natural ziggurat, hewn by ancient forces from a single massive geode. In place of water, threads of liquid metal - perhaps mercury or some alien amalgam - trace slow paths through the crystalline matrices, catching and splitting the abundant light into fragments of rainbow.
+
+The vegetation here is unlike any earthly forest. Dense thickets of mineral "plants" grow in crystalline formations - dendritic structures of copper and silver that branch and spiral upward, their "leaves" thin sheets of mica that flutter without wind. These metallic growths cluster so thickly they nearly touch, creating shadowed arcades beneath their canopies. Their surfaces are warm to the touch, conducting heat from some deep geological source.
+
+The air is still and heavy with the scent of warm stone and metal. What little sound exists comes from the occasional soft chiming of crystal against crystal as the mineral formations slowly grow and shift, or the whisper-quiet trickle of liquid metal through its ancient channels. These sounds are so faint they seem more felt than heard.
+
+Throughout the chambers, complex networks of naturally-occurring tubes and pipelines wind through the crystal walls - they appear almost industrial, yet are entirely formed by geological processes over millions of years. These carry various mineral solutions and gases that feed the metallic vegetation through some incomprehensible chemistry. The systems maintain perfect equilibrium, neither building up nor depleting over time.
+
+The light is bright but diffuse, filtering through the translucent crystal walls and ceilings to create an even, shadowless illumination. This light seems to pulse very slowly - not enough to notice in any given moment, but over hours one might sense the subtle rhythm, like the breathing of the earth itself.
+
+Life here is rare and strange - occasional glimpses of crystalline creatures that might be animal or mineral or both, geometric forms that shift and refract light as they move deliberately through the forest of metal trees. They leave no tracks, make no sound, and might be hallucinations born from too long staring at the endless fractal patterns of this enclosed world.
+
+The entire environment feels like a natural machine, a perfect closed system that has achieved absolute balance over eons. Every process, every growth, every subtle movement is part of an endless cycle, as precise as clockwork but created entirely by the patient work of geological time.

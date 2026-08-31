@@ -1,0 +1,21 @@
+The air shimmers. Heat devils dance at every horizon, twisting the already-unlikely forms of the mesa tops into surreal mockeries of ships and spires. It's a deep, abiding heat, the kind that bakes into the rock and radiates back up, thickening the silence.
+
+Silence, but not emptiness. A low, persistent hum vibrates through the bones, a thrumming that’s both the earth and *something else.* The 'something else' is the reason for the density, the strange, packed feeling. It explains the oily sheen on the rocks, the metallic tang to the thin air even out here, far from the works.
+
+The mesas themselves are monstrous things, raw umber and iron-red, striated with bands of quartz and something like slag. This isn't natural erosion. It’s *weathered,* yes, settled into a state, but the state is one of half-finished upheaval. Imagine mountains ripped apart, interiors exposed, then left to stew under a relentless sun for centuries. The valleys between are choked with rubble – boulders worn smooth by sand and wind, shards of something like ceramic, rusted machinery half-buried.
+
+Vegetation clings to life. Stunted, thorny bushes erupt from cracks in the stone, their leaves a dusty grey-green. Twisted, metallic-looking cacti dot the landscape, their needles thick and wickedly sharp. Near dry washes, fed by brief, fierce thunderstorms, tough grasses sprout in clumps, offering meager sustenance. The water that creates these temporary oases is not clean. It has a mineral taste, an edge of something bitter and faintly corrosive. Animals come to it anyway.
+
+Because, despite the hostile environment, life thrives here. Giant, iridescent beetles click and whir through the air, their carapaces shimmering with unnatural colors. Lizards, their scales like polished obsidian, dart among the rocks, their eyes gleaming. Vultures circle lazily overhead, waiting for the inevitable. And then there are the *others.*
+
+They’re what gives the place its packed feeling. Not animals, not quite. More like…constructs. Automatons cobbled together from scavenged metal, bone, and something like clay. Some are small, no bigger than dogs, scurrying about on intricate clockwork legs, their purpose obscure. Others are immense, towering walkers that lumber across the valleys, their movements jerky and unsettling. They seem to be tending, always tending – to the scorched earth, to the sputtering machines half-sunk in the dust, to each other.
+
+These great machines are part of what makes this place active. Their steam-driven pistons hiss and whine constantly. The wind itself seems to carry the echo of their movements, amplified by the acoustics of the canyons. The ecosystem here is more of a mechanism than a web. Oil slicks pool, evaporating into the noxious air forming strange puddles of almost rainbow colors shimmering on the ground, before being soaked up again by the stone.
+
+The settlements, what little there is, are almost invisible. Sun-baked mud-brick structures burrowed into the cliff faces, fortified with scrap metal and scavenged machinery. A scattering of solar panels, cracked and faded, catch what they can of the brutal sunlight. Thin lines of smoke rise from hidden chimneys, carrying the scent of burning oil and something acrid, like melting plastic.
+
+There’s industry here, of a sort. A relentless, grinding, desperate kind. They are rebuilding… something. Maybe they are refining the earth, maybe they are building weapons. One can't tell. But it takes a toll.
+
+The scattering of artifacts also speaks to technology - a rusted gear here, a length of high-tension cable there. A half-buried truck with massive tires, a shattered pane of some kind of reinforced glass. There are no roads, though - only trails etched into the rock, worn by countless journeys.
+
+Sometimes, in the distance, the wind will carry the clang of metal, the whine of a straining engine, a sound swallowed almost instantly by the vastness. These are the whispers of a dying god, a machine-spirit that has somehow taken root in this desolate place. And the hum continues, a constant, unnerving presence, connecting everything, binding the dust and the metal and the bone into a single, terrifying entity.

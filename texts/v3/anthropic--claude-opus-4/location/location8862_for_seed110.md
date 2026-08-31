@@ -1,0 +1,19 @@
+The Steam Terraces of Nascence
+
+High above the cloud line, where the mountain's newest flesh pushes skyward, a labyrinth of mineral pools crowds together like the cells of a vast honeycomb. Each basin brims with scalding water that weeps continuously from the porous stone walls between them—walls so thin they seem more membrane than rock, translucent in places where the relentless brightness penetrates.
+
+The water moves everywhere here, though slowly. It seeps through microscopic channels in the still-forming stone, bleeding from one pool to the next in a thousand tiny waterfalls. The rock itself appears to be growing, accreting in paper-thin layers as minerals precipitate from the supersaturated flow. New ridges form hourly, building upward and outward, subdividing pools into ever-smaller chambers while the water seeks new paths through the evolving maze.
+
+Steam rises in lazy columns from every surface, yet the brightness above—whether from an impossibly close sun or some other source—burns through the vapor as if it were nothing. The light comes from all angles, reflected and refracted by the wet surfaces until the entire terrace system glows from within. In the thinnest sections of stone, shadows of flowing water create constantly shifting patterns, like watching weather systems from space.
+
+The density is overwhelming. There is no flat ground, no space between the pools—only narrow ridges where multiple basins meet, barely wide enough for passage. The formations press against each other, competing for space as they grow, creating overhangs and natural bridges that span the deeper pools. Some sections have already begun to fold under their own weight, creating spiral formations and nested chambers where water pools in impossible geometries.
+
+Scattered throughout this primordial landscape, peculiar structures emerge from the stone itself—not built, but grown. Hollow columns of mineral rise from certain pools, their walls perforated with precise holes that channel the rising steam into soft, musical tones. These formations appear deliberate yet have no maker; they simply emerge where the conditions are right, like crystals following their nature. Some have partially collapsed, their fragments already being absorbed back into the growing stone matrix.
+
+The heat is inescapable, radiating from the water, the stone, the very air. It has a weight to it, a presence that presses against everything. The warmth drives the constant cycle of evaporation and condensation that feeds the pools. Water drawn up from deep thermal sources arrives already laden with minerals, deposits its cargo as it cools fractionally at the surface, then sinks to be replaced by the next surge.
+
+In the deepest pools, strange formations pulse with their own light—not life exactly, but something preparing to be. Filaments of mineral organize themselves into complex patterns, dissolved and reformed a thousand times until they find configurations that persist. The water here has an oily sheen, thick with proto-organic compounds that might, given geological time, become something more.
+
+The silence is profound, broken only by the subtle sounds of water finding its way—drips, seeps, the occasional splash as a mineral shelf gives way. The acoustic properties of the packed pools swallow most sounds, creating pockets of perfect quiet even as water moves everywhere. In these hushed spaces, you can hear the stone itself growing, a sound like ice forming but warm, a crystalline whisper that never quite stops.
+
+Above it all, the sky seems too close, as if the elevation has brought this place nearer to some cosmic boundary. The blue is too deep, too bright, and sometimes seems to pulse with its own rhythm, synchronized with the thermal cycles below. This is a place between states—not quite solid, not quite liquid, not quite alive, but trembling on the edge of becoming all of these things at once.

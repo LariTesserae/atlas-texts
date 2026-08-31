@@ -1,0 +1,9 @@
+You find yourself in a small, densely packed glacial cirque high up in the mountains. The air is thin and bitterly cold, biting at any exposed skin. A deafening roar fills the enclosed space, echoing off the steep rock walls that rise up all around you.
+
+At the center of the cirque, a massive waterfall thunders down from a cleft in the high peaks above. The falling torrent churns up a constant mist that saturates the air, condensing and clinging to every surface as a pervading dampness. Despite the sparse vegetation, every rock face and cranny is coated in a thin sheen of moisture, water continually seeping and weeping from the very stone.
+
+The ground underfoot is a chaotic tumble of fresh boulders and rubble, evidence of the incredible erosive power continually reshaping this place. Newly fallen debris clogs the bottom of the cirque in layers upon layers of rocky detritus. Here and there, small streams and rivulets thread their way through the rubble piles, draining the excess water away.
+
+Amid the din of the falls and the damp chill, life persists in pockets. Hardy mosses and lichens cling tenaciously to the rocks, adding splashes of green to the predominantly grey landscape. Tiny alpine flowers bloom in sheltered crevices. Pikas and marmots make their homes among the boulder mazes, their high-pitched calls just audible over the roar of the water when close. Ravens and ptarmigans ride the swirling updrafts, endless sentinels circling this raw, primordial world.
+
+There are no signs of human influence here - no paths, no structures, no artifacts. This is a place of pure, unbridled nature, where the immense power of water and stone continually reshape and redefine the land in an endless cycle of destruction and renewal. A glimpse into the forever-changing, yet endlessly constant, processes that have sculpted the bones of the mountains over eons.

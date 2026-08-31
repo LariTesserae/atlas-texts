@@ -1,0 +1,15 @@
+**The Root-City of Mycelis**  
+
+Beneath the surface of a world whose skin has long since hardened into an unbroken crust, the Root-City of Mycelis sprawls in caverns of living wood. The air is cool, carrying the faint, damp scent of slow respiration—not of water, but of something else, a mineral-rich fluid that seeps through the veins of the city’s architecture. The walls are not stone, but the interwoven tendrils of a single vast organism, a mycorrhizal superstructure that has grown into the shape of streets, arches, and vaulted chambers. It is a place where the boundary between city and forest has dissolved entirely—where the buildings *are* the forest, and the forest is the city.  
+
+The light here is diffuse, not from any sun, but from bioluminescent nodules studding the ceiling, pulsing softly in rhythms too slow for human perception. They cast a dim, blue-green glow over everything, just enough to navigate by, though the inhabitants—pale, long-limbed creatures with eyes adapted to the gloom—move through the half-light as if it were midday. Their forms are strange, neither fully plant nor animal, but something woven between: limbs that split and fuse like root bundles, skin that photosynthesizes in patches, mouths that siphon nutrients from the air.  
+
+The city is sparse, not in the sense of emptiness, but in the way a lattice is sparse—full of gaps, but those gaps are part of the design. Towers of living fiber rise in clusters, their surfaces etched with the slow growth-rings of decades or centuries. Bridges of sinewy vine stretch between them, swaying slightly underfoot, though whether from wind or some deeper rhythm is unclear. There is no soil here, only the dense, fibrous matter of the city itself, a substrate that is neither alive nor dead, but always *becoming*.  
+
+Machinery hums in the deeper chambers, though it is hard to say where industry ends and biology begins. Great pistons of hardened cellulose pump fluids through the city’s veins; gears of resin and chitin grind in slow, deliberate motion. The sound is muted, absorbed by the soft, porous walls. Occasionally, a distant vibration thrums through the roots—something vast shifting in the dark.  
+
+The fauna are abundant but quiet, moving in the margins. Things with too many legs scuttle along the ceilings; winged shapes flit between the towers, their wings more like leaves than flesh. Predators here do not chase—they unfold, they seep, they wait. The ecosystem is active, but its movements are slow, measured in the growth of tendrils and the gradual reconfiguration of chambers.  
+
+This is a place still forming, still emerging. New passages split open overnight; old ones seal themselves shut. The city is not built—it *grows*, and its growth is its history. There are no rivers, no lakes, only the slow circulation of fluids through the living walls. The inhabitants do not drink; they absorb. They do not build; they coax.  
+
+And somewhere, in the deepest roots, the city dreams.

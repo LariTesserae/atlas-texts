@@ -1,0 +1,23 @@
+You do not find a cave.  
+You find a hollow.
+
+It is a place the world folded into itself—a below-surface basin, bowl-shaped, the size of a large cathedral nave or a dense hamlet. The ceiling is low and ribbed with fresh, sharp erosion, as if the stone above was split open only a generation ago and the edges have not yet softened. The stone is a bruised, damp purple-gray, still warm to the touch from the deep heat. It weeps constant, slow condensation.
+
+The air is thick with heat (2.7/3) and the packed density (2.7/3) is not just of structures, but of *presence*. There is no room between things. Everything has been built, grown, or settled into the exact space it occupies with no margin. The basin is a vertical warren. Walkways cling to the walls like mineral lichen. Dwelling cubes are stacked three, four deep against the rock, their windows dark or glowing with a sulfurous, dim (1.1/3) amber light from electrified bulbs behind thick glass. Fire escapes are not metal but carved stone, worn smooth by use. Rooftops are gardens of heat-tolerant,* lush* (1.8/3) vegetation: broad, rubbery leaves the color of rust, clusters of dark fruit that smell of fermentation, vines that drip a sticky, sweet sap. Between the buildings, in any crevice, the same plants erupt—no soil, just stone and root.
+
+The only natural water is a central pool, steaming and heated from below (water: 1.4/3). It is the color of old tarnished copper, and its surface is packed with floating mats of a gray-green algae that smells of iron and yeast. From it, a network of open, stone-lined canals carries the water out to the agricultural terraces and then back, a slow (0.7/3), weak gradient cycle. The air hums with a low, sub-audible vibration from the geothermal pumps and the distant, steady thrum of industrial (1.8/3) machinery buried deeper in the rock—presses, grinders, ventilation fans. It is a mostly quiet (0.6/3) sound, felt in the teeth more than heard.
+
+The built environment is relentlessly urban (2.3/3) and industrial. Brick chimneys, their tops eroded away, vent slow plumes of steam that smell of coal dust and wet limestone. Catwalks of riveted iron connect buildings at precarious levels. Everything is layered—walls are a sedimentary record of construction: a base of rough-cut stone from the initial hollowing, then brick from a later expansion, then concrete block from the last century’s standardization, all stained and sweating. Pipes run everywhere, some hot and hissing, others dripping cold condensation. There is no aesthetic, only function worn smooth by time and necessity.
+
+Fauna is rare (0.9/3). You see, sometimes, a skittering thing like a large, hairless rat with six legs, vanishing into a drain. Or a silent, bat-like creature with leathern wings, hanging in the updrafts from the steam vents. The only birds are the iridescent, metallic-feathered *forge-doves*, who nest in the warm exhausts of the foundries and eat the flies that orbit the pools. Their calls are like tiny, perfect bell-notes.
+
+The strangeness (1.9/3) is in the details that don’t fit the logic.
+
+*   The stone sometimes *shivers*. Not an earthquake, but a subtle, deep trembling, as if the mountain is dreaming. It lasts a few minutes, then stops. No one remarks on it.
+*   The light from the bulbs casts no shadow. Objects appear to press against their backgrounds, flat and relief-less, unless you look at them from the corner of your eye.
+*   The humidity varies horizontally by a foot. You can walk through a patch of air that is dry as parchment, then into a wall of mist. The plants in the dry patches are different—spiky, dormant things.
+*   The canals sometimes run *up* a slight incline for a short stretch, defying the pump-driven cycle, before resuming their descent.
+
+The heat (2.7/3) is the dominant tyranny. It is a moist, pressurized heat that soaks into the skin and stays. People move with a languid economy, skin glistening, clothes minimal and stained with mineral sweat. Their faces are calm, patient, their rhythms synced to the slow (0.7/3) cycles: the weekly deep-clean of the main canal, the monthly shutdown for maintenance on the core generator, the season when the central pool’s temperature drops a single degree and the algae dies back, turning the water a bloody red for a month.
+
+This is **The Remainder**. A century-old industrial hollow carved from a young (1.3/3) fault line, now saturated with life and machinery in a density that leaves no space for emptiness. It is a single, packed (2.7/3) feature, its boundaries the sheer, raw walls of the rift. The world above—whatever it is—is a rumor. Here, there is only the stone, the heat, the slow hum, and the relentless, verdant *growth* into every possible crack.

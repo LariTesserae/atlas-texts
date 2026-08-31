@@ -1,0 +1,21 @@
+You are suspended in the deep, cool dark. 
+
+The medium around you is entirely liquid, but it does not behave like water. It is heavy, viscous, and tastes faintly of ozone and cold iron. It is a breathable, hyper-dense fluorocarbon suspension, engineered to act as both a thermal sink and a physical data-storage matrix. There are no currents here. No thermal gradients. The temperature is a uniform, brisk chill that seeps into the bones but never quite crosses the threshold into freezing. 
+
+This is the Apex Cenotaph, a flooded, cathedral-scale urban module suspended in the high stratosphere. You are miles above the planetary crust, housed within the needle-point of a colossal orbital tether, yet the space itself feels intimate, bounded, and claustrophobically close. 
+
+Because the light is so scarce, the architecture reveals itself only in fragments. Faint, cold-blue luminescence bleeds from the microscopic seams of the structures, outlining a dense, layered micro-city. It is a hamlet-sized cross-section of urban infrastructure: cantilevered walkways, stacked residential pods, transit arteries, and spiraling ventilation shafts, all compressed into a single, vaulted volume. 
+
+Everything is razor-sharp. The erosion parameter of this place is effectively zero; the environment is young, freshly extruded from molecular assemblers, or perhaps kept in such a perfect state of preservation that time simply refuses to touch it. The corners of the buildings meet at impossible, fractal angles. There is no weathering, no softening of edges, no accumulation of silt or decay. The metamaterials—obsidian-black carbon lattices and programmable smart-glass—gleam with a sterile, menacing sharpness. It looks as though the city was printed only seconds ago.
+
+Yet, it is utterly devoid of life’s usual clutter. There is no vegetation. No algae clings to the sharp corners; no kelp or biofilm softens the brutalist geometry. It is a purely mineral and constructed world, a sterile monument to post-modern engineering. The space between the structures is vast and sparse, leaving wide, empty avenues of dark fluid where the buildings do not reach. 
+
+Sound is almost entirely absent. The heavy liquid swallows acoustics, reducing the environment to a profound, muffled quiet. Occasionally, there is a subsonic thrum—a vibration felt in the chest rather than heard in the ears—emanating from the deep, hidden quantum cores of the city’s infrastructure. It is a steady, unvarying heartbeat that never accelerates, never fades.
+
+The most striking feature of this place, however, is its absolute stasis. The fluid does not ripple. When you move, the liquid parts and reforms without a single wake or bubble. It is locked in a localized equilibrium, a frozen moment in time maintained by physics-defying stasis fields. Dust does not settle. Light does not flicker. The environment is fundamentally, unnervingly unchanging.
+
+And then, a shadow detaches itself from the gloom. 
+
+Fauna here is an anomaly, a ghost in the machine. Drifting through the sparse, dark avenues between the sharp-edged transit tubes is a single, solitary creature. It is a pale, translucent leviathan, no larger than a hound, resembling a deep-sea siphonophore or a blind, aquatic salamander. It has no eyes, only a crown of delicate, trembling sensory cilia that sweep through the heavy fluid. It moves with agonizing slowness, its undulating body pushing through the stasis-locked water as if moving through clear gel. It is a biological archivist, or perhaps a forgotten pet left behind by the post-human architects, perfectly adapted to the cool, dark, and eternal quiet. It does not hunt; it merely drifts, a fragile pulse of organic weirdness in a world of sharp, unyielding geometry.
+
+You float in the cool dark, surrounded by the sharp, silent spires of a drowned, sky-high city. There is no wind, no tide, no passage of time. There is only the heavy water, the faint blue glow of the fractal edges, and the slow, silent drift of the pale creature, all held perfectly, forever, in the dark.

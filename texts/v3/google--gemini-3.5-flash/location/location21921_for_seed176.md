@@ -1,0 +1,27 @@
+This is a shelf of black, newly broken stone, hanging four thousand meters above an unseen valley floor. 
+
+The air up here should be thin and freezing, but instead, it is warm and wet, smelling of sulfur, wet iron, and sweet, rotting mulch. The cleft is a young geological tear—a vertical slash in a basalt ridge that has not yet had its edges rounded by wind or time. The rock is sharp enough to cut leather: blocky, dark, and glistening with a continuous, heavy sweat of condensation.
+
+It is a small space, no larger than a parish church, but it is packed tight with a dense, vertical crowd of living and mechanical things. 
+
+A single, monumental industrial apparatus is wedged into this crack in the world. It is a hydraulic lifting engine, built of massive, low-carbon iron plates and copper boilers that have turned a brilliant, chalky verdigris. It does not seem to have been built *for* this ledge; rather, it feels as though it was dropped from above and became wedged here, its thick steel struts driven like pitons into the raw, unweathered basalt. Thick copper pipes, three feet in diameter, snake up the vertical walls, held by heavy iron collars that have bitten deep into the stone. 
+
+The machine is alive, but it is ridiculously slow. Every forty-five seconds, a main piston—thick as an oak trunk and blackened with cold tallow—draws back with a wet, sucking shriek. It pauses. The mountain seems to hold its breath. Then, with a deep, resonant *THUMP* that vibrates through the soles of your feet and shakes the water drops from the leaves, the piston drives forward, forcing a column of warm, mineral-rich water up through the vertical conduits toward some destination high above the cloud-line.
+
+Because of this constant, warm pumping, the cleft has become a vertical greenhouse. 
+
+Vegetation has swallowed the machinery. Giant, fleshy ferns with fronds the length of a man’s arm grow directly out of the rivet holes and the gaps between the iron plates. Their roots are not in soil, but in a thick, self-sustaining mattress of peat-like moss that has carpeted every flat surface of metal and stone. This moss is three inches deep, saturated like a sponge; when stepped on, it releases a small pool of warm, yellowish water that smells faintly of copper. 
+
+Dripping water is the defining characteristic of the place. It does not rain here in the traditional sense; instead, the mist rising from the gorge below collides with the warm updraft from the engine’s boilers, creating a constant, heavy drizzle that falls in fat, tepid drops. Every vertical surface has its own miniature waterfall. Water runs down the black basalt in sheets; it drips from the teeth of iron gears; it beads on the hairy undersides of the great ferns and falls in rhythmic platters onto the rusted iron grates below.
+
+Underfoot, the floor of the cleft is a metal grid, suspended over a dark, roaring lung of wet air. Through the gaps in the rusty iron mesh, you can look down into the throat of the mountain, where the run-off from the pumps forms a white-water stream that plunges into the vertical void. 
+
+The light here is clear and normal—the bright, diffused glare of high-altitude noon filtered through a ceiling of wet mountain fog. It catches the edges of the wet rocks, turning the basalt sides of the chasm into mirrors that reflect the yellow-green of the ferns and the dark red of the rusting structural beams.
+
+There are almost no animals here. The air is too loud, the environment too wet and violent for birds or mammals. But if you watch the moss-slick copper pipes closely, you will see the occasional inhabitant of this machine-garden. There are small, translucent land-snails with shells the color of tarnished brass, which crawl slowly across the warm boiler casings, scraping off the thin layer of grease and blue-green algae. Sometimes, a heavy, black-shelled beetle, blind and silent, will climb out of a valve joint, its legs specially adapted to grip the iron rivets against the vibration of the great piston.
+
+The noises are deafening but rhythmic, producing a strange, hypnotic stillness over time. There is the wet, hissing sigh of steam escaping from a relief valve; the high, musical whistle of water under immense pressure inside the copper tubes; the splash of the overflow hitting the rocks; and, dominating everything, that periodic, earth-shaking *thump* of the main piston. 
+
+The rate of change here is incredibly slow. The machines are ancient, yet they do not seem to be failing; they have reached an equilibrium with the wetness and the weeds. The lime in the mountain water has deposited a white, stone-like crust over the lower gears, cementing them to the basalt shelf until the machine and the mountain are virtually indistinguishable. The iron is rusting, but it is iron of such thickness that it will take centuries for the wet air to eat through to the core. The plants die, turn to peat, and provide the soil for the next generation of ferns, layer upon layer, in a slow, vertical accumulation of green matter that has no end.
+
+It is a place where human design has been forgotten, yet continues to labor with a stupid, magnificent patience, cradled in the wet, green arms of a mountain that has only recently opened its eyes.

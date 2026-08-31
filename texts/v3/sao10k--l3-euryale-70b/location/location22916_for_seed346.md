@@ -1,0 +1,11 @@
+The place fills itself in from a frigid, near-silent darkness. A slow, creeping light spreads, revealing a small, enclosed area bounded on all sides by not-quite-vertical earthen walls. The broken crags that hem it in are damp and bare of even the toughest vegetation. Moisture threads from the cold, slick stones in beads and rivulets.
+
+The floor of the small, confined space is made of a seamless, greyish material that seems to be neither soil nor metal. Flecks of shale glimpse from its surface. Over that material, a tangle of organic and synthetic filaments is slowly crawling. Yards-long matted strands cross dendritic networks that grub into the grey floor to the dozen shacks, towers, and bulb structures dotting the space within the crag-bound circle. 
+
+The structures grow right out of the filaments, emerging and receding as layers of assembly elements shuttle up and down the fibers. Flashing myriads of tiny insects scale the rising shafts depositing half-synthetic materials, seeding alloys and resins and metals into polymerizing matrices. A nacre-like sheen builds on the rising constructions' surface.
+
+Water is funneled through the fibers, the affordable conglomerative water. Delivered from underlying aquifers or the ambient humidity, or generated de-novo, or extracted from waste, it arcs through the structures on glassy networks, forming integrated systems for plumbing, heat transfer, nutrient and goods haulage. 
+
+The space is cramped but nowhere empty. Warmth creeps in, dispelled on frazzing convection currents. Red clouds of winking glitches dance in the air, swirling across the susurrus of communication updates. Flasks of electric insect-song cross the susurrus and cycles of machine-relaxation.
+
+An entire city is building itself here, crafting its own habitation over, into, and out of the mutable ground. Its attention is inward, first, a coordination of systems and of needs, the exchange of goods, of velleities, yes, a billion-petal blossoming of senience. And it knows the stone-bounded volume it lives in, thinks of it as a totality of space that is its inessentials. Necessity gives it direction. It crouches in the cold rocks, spins itself out through the air-breas stitches, and pulses and colludes.

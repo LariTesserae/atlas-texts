@@ -1,0 +1,25 @@
+The place is called the High Fen of Calder’s Teeth, though no one has ever named it aloud.
+
+It sits at the raw edge of the world where the crust has not yet decided what it wants to be. The elevation is brutal: a fractured plateau thrust upward in great broken slabs, some still tilted at angles that look temporary, as if the land woke up yesterday and is still stretching. Between the slabs lie wide, shallow basins that never quite drain. Water is everywhere and nowhere. It condenses out of the thin, icy air as perpetual mist; it sweats from the rock itself in cold, clear beads that run down black basalt faces like tears. Every hollow holds a skin of water no deeper than a man’s boot, trembling with the wind. The ground is so new that in places you can watch it being born—fine mineral dust and shattered stone slowly knitting together under films of algae and bacterial slime. Erosion has barely begun its work; the landscape still wears the sharp geometry of its violent birth.
+
+Vegetation is almost an afterthought. Here and there a low mat of cushion moss or a clutch of tough, iron-colored sedge has taken root in a crack, but the plants are dwarfed and lonely. They huddle against the wind like supplicants. Most of the visible life is not green at all, but the dull reds and gunmetal blues of extremophile lichen that paint the rock in vast, slow-motion murals.
+
+The temperature rarely climbs above freezing. A thin skin of ice forms on every pool by night and melts again each pale afternoon, so the entire plateau rings with a constant, delicate chiming as thousands of tiny ice sheets crack and slide. The air itself feels wetter than it should at this altitude, as though the sky has not yet learned how high it is supposed to be.
+
+Yet the emptiness is not lifeless.
+
+Fauna is shockingly, almost impossibly abundant. The cold marshes teem with tiny crustaceans no larger than rice grains that swarm in such numbers they turn the shallow water the color of rust. Countless species of flightless midges rise in glittering pillars at dawn and dusk. Vast colonies of lemming-like rodents tunnel through the moss mats, their high-pitched ultrasonic chatter blending into a constant background hiss that the human ear barely registers. Above them wheel flocks of white-winged raptors with wingspans wider than a man is tall; they ride the savage updrafts between the jagged teeth of the plateau, scanning the glittering pools for movement. The food web is short, fierce, and deafeningly busy once you learn to hear it.
+
+The only sounds that carry far are geological and biological. The soft groan of rock still settling. The wind moving over millions of wet stone edges, producing a low, constant throat-clearing that never quite becomes a howl. The wet clicking of millions of insect legs. Occasionally, far off, the sharp crack of a slab shifting another inch toward its eventual collapse. But between these events the plateau falls into a wide, listening quiet that feels prehistoric.
+
+No roads. No ruins. No fences. Not so much as a rusted nail. The world here has not yet been touched by hands.
+
+And yet the industrial signature is unmistakable.
+
+Deep beneath the embryonic crust, something is happening. The ground is warm in places—too warm. In certain basins the water steams gently where it touches the rock. Vast, invisible engines thrum at frequencies that make your teeth ache. Every few hours the entire plateau exhales: geysers of superheated mineral water roar up through fresh fissures, spraying iron-rich mist that drifts for kilometers before settling as a fine red snow. Pipes—immense, black, and ancient—emerge from the living rock in places, as if the mountain itself grew around them. They carry no markings. Some vent continuous plumes of steam that freeze instantly into towering, fragile sculptures of hoarfrost before collapsing under their own weight. Others lie dormant, waiting.
+
+The tech does not belong to any visible civilization. It feels older than the plateau, or perhaps younger—something embryonic in its own right, a machine species still evolving alongside the geology. The few human explorers who have reached this place speak (in hushed voices, later) of the sense that the land and the machines are engaged in a long, slow conversation, and that both are still learning the grammar.
+
+At this altitude the light is thin and bluish even at noon. Clouds scrape across the jagged skyline so low you can watch individual droplets condense on your eyelashes. Everything feels close to breaking, or close to being born. The plateau is not finished. It is still choosing what kind of world it will become, and the machines beneath it are helping—or perhaps directing—the decision.
+
+Stand still long enough in the wet, biting wind and you begin to feel the next tremor coming up through your boots: a deep, patient heartbeat measured in centuries. Somewhere far below, something industrial and immense is breathing. The land listens. The midges swarm. The ice chimes. And the High Fen of Calder’s Teeth keeps deciding, one cold, mineral-soaked moment at a time, what it wants to be when it grows up.

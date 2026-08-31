@@ -1,0 +1,25 @@
+There is a plateau where the cold lives at altitude, and on this plateau the plants have become everything. Not a forest growing on land — the land *is* the growing. There is no soil you could lift a handful of. Below the green skin there is more green, packed and fibrous and old, a substrate of compressed living matter going down further than anyone could dig, if anyone were here to dig. Walk and you walk on plants. Lean against a wall and the wall breathes.
+
+The temperature sits just above freezing. This matters more than it sounds. The cold slows everything that should be fast and the plants have answered the slowness with mass — they don't race upward in a season, they accumulate over centuries, layer on layer, until the structures they make are weathered and settled and ancient-looking, like rock that happens to be soft and damp and alive. Long-established. The whole place has the look of something that has found its shape and held it through ten thousand winters.
+
+And yet — the strange part — it *moves*.
+
+Here is what the silence does first: it tricks you. You expect a place this vast and green to be loud with wind and animals and the creak of stems. Instead there is almost nothing. A held breath of a landscape. Fauna is scarce — a few slow pale things in the canopy gaps, beetles the color of frost, the occasional bird that does not sing. The quiet is so complete that you begin to hear the smaller register: the faint tick and settle of moisture, the almost-inaudible flex of fibers far below, the long sigh of something contracting in the cold.
+
+But the place is turbulent. This is the contradiction at its heart, and it took the writing to find it. The turbulence is not in the sound. It is in the *form*. The plant-architecture is in a state of ceaseless slow upheaval — towers of layered green that lean and buckle and reweave themselves, ridges that heave up over hours, hollows that close like slow mouths. There are columns the height of cathedrals here, fluted and dripping, and if you marked one and came back at dusk it would have migrated, or split, or sunk back into the substrate to be replaced by three more. The whole regional sweep of it — valleys of it, terraces, a town's worth of green architecture spread under a normal grey daylight — is in storm. A storm with no wind. A storm of growth and collapse playing out in total silence.
+
+That is the unusual thing, the weirdness that won't quite resolve: a turbulent landscape that makes no noise. Chaos you can only watch, never hear.
+
+The water comes intermittently — not rain so much as the plateau breathing fog, the cold air dropping its moisture onto every surface so that everything wears a film of cold sweat. Rivulets form in the new hollows and are swallowed when the hollows close. Condensation beads on the great fluted columns and runs down their grooves in threads. You are never wet through and never dry. Damp is the resting state.
+
+And then the engines.
+
+This is where the place insists on being itself and not some pastoral idyll. There is industry here, but it is not built — no factory stands, no metal was forged, no hand assembled anything. The plants themselves have become industrial. Deep in the substrate, the compressed living mass has organized into something that pumps and turns and processes. There are organs the size of districts that draw the fog-water down and drive it through the green towers under pressure; there are slow pistoning structures, fibrous and glistening, that clearly *do work* — that move material, that build and unbuild the architecture above, that power the silent turbulence. You can put a hand on the warm flank of one of these and feel a mechanical rhythm in it, geared and deliberate, an engine made entirely of vegetation, electrified faintly along its surfaces with a charge the plants generate themselves.
+
+This is what runs the storm. The plateau is a factory that grew instead of being made, mechanized down in its roots, turning the cold and the fog into the endless production and demolition of its own body. Scaled, repeating, productive — and utterly quiet, because the green machinery is soft, and soft machines do not clang.
+
+So: stand somewhere high on this open green plateau in the cold normal daylight. Above you, towers of layered living matter rise and lean and dissolve, rebuild and dissolve, in a slow churning that fills the whole valley to the horizon. Fog beads on everything and runs in threads. Below your feet, you feel the buried engines turn. Nothing speaks. A frost-colored beetle crosses a leaf and is the only event your ear can confirm. Everything else is a vast machine making and unmaking itself in perfect silence, established here so long that the silence and the turbulence have learned to live in the same body —
+
+— and you understand, standing there, that you are the loudest thing for miles, and that the place has not yet decided whether to fold you into its substrate or simply keep ignoring you.
+
+It keeps ignoring you. That, in the end, is the rule of this world: the turbulence is total and it has nothing to do with you, and the quiet is how it tells you so.

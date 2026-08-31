@@ -1,0 +1,37 @@
+It is not an ocean on top of a world. It is a world inside an ocean.
+
+There is no surface. Or rather, the surface is a rumor so far above you that it has no meaning. Light never arrives here except as a memory of itself, a faint, cold diffusion that makes the water a fraction less black if you look straight up for a long time. Down here, dark is the medium. The water is not water as you knew it — it is a weight, a cold, dense, absolute atmosphere. It presses on everything. It has been here long enough to become the sky.
+
+The cold is steady and complete. Not the sharp bite of winter air, but the deep, preservative cold of the bottom, two or three degrees above freezing, the kind of cold that makes time slow down. It holds things. Wood does not rot here so much as it hardens into stone. Stone does not crack so much as it settles.
+
+And everything is stone. That is the first thing you understand when your eyes adjust to the dark.
+
+This is not a seafloor. There is no seafloor. There is only floor.
+
+For as far as you can go, and then further, in every direction, the bottom is made. It is not natural rock. It is laid, fitted, stacked, paved. Low, wide terraces of basalt block stretch beyond sight, each block the size of a dwelling, dressed by hand and set without mortar. Causeways as wide as rivers run in perfectly straight lines until they are lost in gloom and silt. Courtyards sunken and vast enough to have held weather. Staircases that descend only to another level of pavement. Walls that once stood high and have now been ground down to long, smooth spines, only knee-high, running for kilometers, their top edges rounded to softness. Basins, channels, cisterns, foundations without end. 
+
+It was made with primitive means — you can see it in the work. No poured concrete, no steel, no glass. The marks of stone hammers and wedges still show on the sides of the blocks where silt has not filled them. Holes drilled for wooden pegs and fiber lashings, now empty or holding the blackened stumps of something that was once timber and is now harder than the stone around it. Joints are not perfect; they are patient. You get the feeling that this entire continent of construction was not built, but accumulated, one stone at a time, by countless hands over a time so long that the act of building became geology.
+
+That time has ended. Erosion here is not violent. It is final. Everything has been smoothed. The wind never reached here, the rivers never ran here, but the water itself, moving so slowly for so long, has done its work. Edges are gone. Corners are gone. What was once a city, or a farm, or a temple, or a road, is now a low relief map of itself. Blocks have sagged into the silt beneath them and leaned against each other. Pavements have buckled by inches over centuries and been polished by currents finer than breath. There are places where the stone has been worn so thin you can see the layering beneath — another pavement under that one, and another under that. The world settled into its final form a very long time ago and has simply stayed there, cold and level and enduring.
+
+Elevation means nothing here; everywhere is low. There are no hills, no mountains. Only the faintest undulation — a terrace rising half a meter over a kilometer, a vast, shallow bowl that takes an hour to swim across and is still only the floor of what was once a reservoir the size of a sea.
+
+And over all of it, growing from every joint, every plaza, every wall-spine and channel, is the forest.
+
+It is not green. In this darkness, green is a luxury. This is a cold-water forest, lush beyond any land forest, but black and rust-brown and deep olive, the colors of kelp that has never seen the sun. Broad, leathery fronds as wide as doors rise from holdfasts wedged into the cracks between blocks. Fields of bladderless kelp that do not need to float, because they are content to lie and billow and stand. Matted carpets of moss-like algae that cover the pavements like felt, inches thick, softening every stone. Whip-like stalks twenty meters tall, as thick as your wrist, growing so densely that you must turn sideways to pass between them, swaying not in any current you can feel, but in a drift so slow you only notice they have moved if you stare for a long time.
+
+It is dense. Not jungle-dense with noise and struggle, but saturation-dense. There is no empty water. Between the stalks there are curtains of finer filaments, and between those, suspended clouds of spores and shed fronds, slowly falling, never quite landing. The vegetation has had no enemy. 
+
+There are no animals here.
+
+That is the most unnatural and most normal thing about this place. No fish flick between the stalks. No crabs pick at the holdfasts. No worms turn the silt. In a forest this thick on any other world, the water would be white with life. Here it is empty and therefore quiet in a way that feels intentional. The plants grow unchecked, and die unchecked, and fall and mat and become the silt that feeds the next growth. They do not need light as you understand it — or they need so little that the faint chemical glow of decay, the faint heat from the stones themselves, is enough. They are patient beyond biology, growing a few millimeters a year. A single frond may be centuries old.
+
+Because of that, the water is astonishingly clear when you are inside it, and then suddenly not, when a cloud of fine, dark detritus puffs up from your passage and hangs for hours before resettling, particle by particle.
+
+Sound is almost absent. The water carries sound too well to have so little in it. You hear your own breath if you have breath, the faint creak of a stalk as its holdfast shifts by a hair against stone, the soft, papery rustle when two fronds brush each other — a sound like pages turning, but slowed down a hundred times. Sometimes, from very far away, a deep, low groan as a block settles a fraction deeper into the silt, a sound you feel more in your chest than your ears. Otherwise, there is only the profound, even hush of a vast, cold room that has been left empty.
+
+The physics here is not strange. Nothing floats that should not float. Nothing glows without reason. The water is heavy, the stone is heavy, the plants are rooted. It is simply that the scale makes physics feel different. Currents here are weather. A slow drift from the north that takes a month to cross a single plaza will bend the entire forest in one direction, then, months later, release it. A difference in temperature of half a degree between one endless basin and the next will drive a circulation that lasts for years. You could live your whole life in the lee of one of those low, endless walls and never know the forest on the other side was leaning the other way.
+
+This is a made world that has outlived its makers by so long that making no longer matters. What remains is maintenance by other means: stone holding its shape, cold preserving it, water polishing it, and the endless, quiet forest clothing it, layer upon layer, dense and slow and utterly indifferent to the dark. You can swim for days over the same pattern of pavement and wall and kelp and never see repetition, and never see anything new. It is all the same place, and it is bigger than any place should be.
+
+If you stay still long enough, the cold stops feeling cold and the dark stops feeling dark. The forest around you sways a centimeter. A mote of plant-debris lands on your shoulder and stays. And far above, where light might be, nothing changes.

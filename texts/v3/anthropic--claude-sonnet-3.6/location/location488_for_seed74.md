@@ -1,0 +1,17 @@
+In the hollows between ancient root systems, a town has grown. The roots belong to what was once a small copse of enormous trees - perhaps six or seven of them, now long dead but perfectly preserved. Their surface-roots, each as thick as a house, weave together to form natural walls and terraces, creating a settlement that resembles a giant's woven basket.
+
+The wood has transmuted over centuries into something between stone and amber, shot through with veins of metallic ore that gleam dully in the diffuse light. The town's inhabitants have carved additions into these structures: windows, doorways, channels for pipes and cables. Steam rises from vents at regular intervals, dissipating into the cool air.
+
+Moss carpets everything. Not the delicate forest moss of wilderness, but an engineered variety that grows in precise geometric patterns, maintaining its boundaries with unnatural precision. It serves as both decoration and infrastructure - processing waste, filtering water, and providing subtle illumination at night through a mild bioluminescence. The moss changes color with the hour, shifting from deep green to blue-grey to purple, marking time like a living clock.
+
+Between the root-walls, narrow streets wind downward toward the center where the ancient trees' trunks once stood. Now these spaces are filled with pools of collected rainwater, carefully managed through a network of organic pumps - hybrid machines of brass and engineered fungus that maintain the town's water supply with quiet, rhythmic breathing motions.
+
+The air is cool and damp, heavy with the scent of wet stone and the sharp, clean smell of the moss. Sound behaves strangely here - voices and machinery echoes are absorbed by the vegetation, while the subtle sounds of the pumps and steam vents seem to carry unnaturally far, creating a gentle percussion that changes with the town's activities.
+
+Above the root-walls, geometric frameworks of copper and brass support canopies of engineered vines. These plants grow in perfect lattices, their leaves adjusting throughout the day to regulate temperature and humidity. Occasionally, a maintenance drone - something like a mechanical hummingbird - flits between the vines, pruning and adjusting.
+
+The few non-plant animals here are purpose-bred: small, translucent amphibians that tend the moss; long, silvery insects that repair the metal infrastructures; blind fish in the pools that process organic waste. All are nearly silent in their work.
+
+People move through this landscape with practiced ease, their clothing echoing the geometric patterns of the moss and vines. They've adapted to the peculiar acoustics, communicating in low tones that somehow carry exactly as far as intended, no further. Their movements seem choreographed to match the breathing rhythm of the pumps and the color-shifts of the moss - not through any conscious effort, but through generations of adaptation to this hybrid space where architecture, nature, and machinery have become indistinguishable from each other.
+
+The overall impression is of a place that has found perfect equilibrium between growth and control, between organic and mechanical, between preservation and progress. It feels both ancient and eternally present, as if it has always been exactly this way and always will be, even as it shifts and adjusts with each passing hour.

@@ -1,0 +1,69 @@
+# The Canopy Plateau
+
+---
+
+Begin with the sound, because the sound arrives before anything else does.
+
+It arrives as pressure — a wall of biological noise that has no single source and no gaps. Frogs in the ten-thousand-voice range produce a texture rather than individual calls, each species occupying its own frequency band the way instruments occupy an orchestra, except that this orchestra has never had a conductor and has been playing without interruption for longer than anything nearby has been alive. Beneath the frogs: insects. Not the discrete chirping of a summer field but something more fundamental, a vibration that seems to emanate from the rock itself, from the wood, from the humid air. It is the sound of a world that is mostly animals, mostly small, mostly calling. Somewhere in the canopy — and the canopy is the ground here, or close enough — something large moves, and the sound shifts around it the way a river shifts around a stone, reforming immediately downstream. You notice this shift before you see anything, and then you see nothing, and then the sound resumes its former shape.
+
+This is the plateau.
+
+---
+
+The elevation alone is extraordinary: somewhere above five thousand meters, perhaps closer to six, though the figure feels wrong when you're standing on it because what you see is not a mountain. Mountains go up. This does not go up. This is the remnant of something that once went up — an enormously ancient massif that has been weathered past all its drama, past all its ambition, worn down through unimaginable spans of time until what remains is a surface. A plain at height. The erosion here is so complete that even the idea of erosion has been eroded: there are no fresh faces, no scars, no loose material. Every edge has been rounded into non-existence. The underlying rock, where it shows at all — which is rarely, because the vegetation has taken it — has the quality of something that has long since made its peace. It does not catch the light. It receives it. The exposed stone, iron-dark and fine-grained, has the texture of old skin, smooth not from polish but from the simple passage of everything that could possibly abrade it. This is not a landscape in process. This is a landscape that has arrived somewhere and stopped.
+
+The plateau extends — this is important — it extends without clearly ending. On one horizon, perhaps twelve or fifteen kilometers away, there is a rim where the plateau eventually falls away toward lower country, and you can see it as a gentle darkening, a sense that the far trees are slightly lower than they should be. On other horizons: more plateau. More of the same. The scale is regional, continental almost in its indifference to your presence. And yet because the relief is so minimal — because the ancient erosion has abolished gradient — it does not feel vertiginous. It feels, for something at six thousand meters, oddly intimate. Oddly horizontal. The vast height is carried entirely by the fact of where you are, not by how it looks around you.
+
+---
+
+The vegetation has done something here that vegetation rarely gets to do, which is: win completely.
+
+This is not a forest in the usual sense. A forest has a floor. This does not have a floor, or rather the floor is so far below the surface you inhabit that it is functionally another world. What you stand on — what everything here stands on, rests against, clings to, falls through if it loses its grip — is the accumulated upper surface of canopy, of tightly interwoven growth so dense and so long-established that it has become a substrate in its own right. The trees that built it are ancient, their trunks somewhere forty or fifty meters below, hidden in their own permanent shade, surrounded by the dead matter of their own lower branches, slowly returning to soil. What lives up here, in the light, is everything. Bromeliads packed so closely they have pushed into a continuous mat, their water-catching rosettes acting as tiny reservoirs, each one a biome. Mosses on every horizontal surface, mosses colonizing the mosses, lichens on the mosses, tiny ferns growing from cracks in the lichens. The platform of interwoven branch and root and epiphyte that forms the walkable surface is springy underfoot, slightly resilient, slightly alarming — it compresses two or three centimeters with each step, like walking on a very large, very firm mattress that occasionally lets a foot sink unexpectedly through a gap into darkness. Roots from above, hanging. Stems from below, reaching. Things in flower you have no name for. Things in seed. The air has a sweetness that is also a thickness, humid and alive, the combined exhalation of uncountable leaves.
+
+This is a place where plants are the architecture and the infrastructure and the only city.
+
+The vegetation is continuous for as far as you can see, and you can see far, because the canopy surface here at the plateau rim has the open quality of a meadow. It rolls very gently over ancient topographic suggestions — a slight swelling where a buried granite body resists even geological time, a slight depression where water collects slightly more readily. But meadow is not right. A meadow implies cleared. This is more like a prairie made entirely of the tops of trees, which have agreed, over their long cohabitation, to reach approximately the same height, to form an approximately common surface, the way water forms a surface. The individuals are invisible. The collective is everything.
+
+---
+
+Moisture here is a puzzle, a small one. At this altitude, in a warm latitude, you might expect drought, and in a sense there is drought: there is no river. There is no lake. There is no wet season with real rain, not reliably, not enough for a normal cloud forest. What there is instead is the daily mechanics of condensation. The plateau, elevated into the lower atmosphere, catches clouds the way a table catches anything you set down on it. Most mornings, by the time the temperature differential between the cooling air above and the warm rock below (somewhere, under forty meters of growth) has reached its equilibrium, a soft fog moves across the canopy surface. Not rain. Not mist exactly. Something in between: a heavy invisibility that deposits water on every leaf surface, that runs down into the bromeliads, that soaks the mosses and is released slowly through the day. By midday the fog has usually lifted, burned back by the sun at altitude, and the plateau glitters briefly — ten square kilometers of wet leaves catching direct light simultaneously — before the moisture begins to evaporate and the cycle prepares to begin again.
+
+The bromeliads hoard. This is their great function here. Each rosette holds, at its center, a tablespoon to a half-liter of trapped condensation and rain, and these pools are an entire world within the world. Mosquito larvae. Crab spiders. Tiny frogs, translucent, spending their entire lives in single bromeliads, laying eggs in the water, watching the sky, never touching what they would call ground. There are perhaps three thousand species of invertebrate distributed across these pools across the plateau, and each pool is a separate experiment, a separate island, and they have been running these experiments for a very long time. The pools do not communicate. The plateau is dry between them, relatively speaking. The water is here, and here, and here, in small sufficient pockets, enough to sustain the whole enormous enterprise.
+
+---
+
+The fauna is — and this is the word the place insists on — overwhelming.
+
+Not in the sense of danger, or not primarily. In the sense of presence. The sheer quantity of animal life layered into this living surface has reached a pitch that makes the concept of individual animals almost beside the point. Birds move through in flocks that briefly change the light — small tanagers, iridescent, forty at a time, grazing across the bromeliad fields for insects and tiny frogs, moving with the coordinated purposefulness of a single large entity before dispersing into color and reforming elsewhere. Beneath you, in the bromeliads, things are always moving. You can feel it through your feet if you hold still: tiny twitches, the adjustment of weight, the six-legged business of an uncountable population. Spiders on every stem. Something moth-like the size of your hand, resting with wings flat, showing a pattern that looks startlingly like a dead leaf, which is a strange mimicry this high above the dead leaves it presumably evolved to resemble.
+
+And the frogs. This plateau is why there are frogs. Or it feels that way. They occur in every size from your thumbnail to your closed fist, in every available color, some warning and some camouflage and some apparently neither, some matter still being worked out between the frog and its environment. They call at all hours, but the chorus peaks at dawn and dusk, and at its peak the sound is not metaphorically deafening but genuinely, physically oppressive — you have to raise your voice to be heard above it, and even then your voice seems thin, seems like an imposition on something vast and settled and indifferent to you. The frogs do not notice you. This is perhaps the most unusual thing: the fauna here is overwhelming not in its aggression but in its completeness, its fullness. There is simply no room for you in the ecology in a deep sense. You are a visiting shape. The world closes around your passage and resumes.
+
+Once: something very large, lower in the canopy, moving. A branch depressed five meters away and the bromeliads shifted and there was, briefly, a smell — musky, sweet-rotten, distinctive — and then nothing. A gap in the sound that lasted two seconds and then filled. Evidence of something enormous without the thing.
+
+---
+
+Humans have been here.
+
+They have not been here recently — or have not been here often — but they have been here. Signs appear infrequently, spaced in ways that suggest intention rather than accident. A stone, too regularly shaped to be natural, half-consumed by moss, its original purpose unclear but its worked surface still faintly legible under your fingers as you crouch and press your thumb against the edge. A depression in the canopy surface where something was built, collapsed, absorbed — you can feel the shape under the growth, a rectangle that makes no sense except as former walls. There are no metal artifacts. What remains is stone and the ghosts of wood. Someone made fire here: there is charcoal somewhere in the lower layers of the mat, preserved against decay by the slight acidity of the accumulated organic material, detectable only when a root pulls up a dark smear. The tools they used were simple. The structures they built were small. They came, or lived, in small numbers. They left marks that are now deep below the surface of a growing world.
+
+What they thought of this place — whether they feared it, loved it, considered it sacred, considered it useful, considered it unremarkable — is not available.
+
+What they left is the feeling that this was, at some point, somewhere people could be. Which is a different thing from somewhere people belong.
+
+---
+
+The light at midday is direct and clean, the sky above vivid blue with the slight darkness that comes at altitude, a blue that seems to mean something, to have been saturated past what you're used to. The sun works here without the interference of lower atmosphere; it lands on the canopy with an authority that seems to accelerate everything, to push the biological pace faster. Leaves visibly track it. Things that were still are suddenly moving. The fog of morning becomes the clear burning noon becomes the cloud-building of afternoon — because warmth, even warmth at altitude, even the mild warmth of this latitude raised to this height, calls moisture from the leaves and builds it into weather. Most afternoons there is a brief and energetic storm on the plateau's far edge, fifteen kilometers away, visible as a gray column of active weather. Most afternoons it arrives as distant thunder, distant rain, a freshening of the air that makes the fauna audibly excited — the frog calls rising, the insects shifting register — before the storm misses or passes or sheds what little remains of itself by the time it arrives at the bromeliad fields.
+
+Once in a while, the storm does arrive. When it does, it is brief and complete: fat warm rain, strong enough to fill the bromeliads in minutes, to run across the canopy surface in sheets that drain into the interstices and fall the forty meters to the buried floor below. The frogs go silent. The birds vanish. The insects cease. For the ten or twenty minutes of the storm, the plateau is only water and wind and the sound of rain on leaves, which is the oldest sound.
+
+Then it passes. Then it starts again.
+
+---
+
+This is not a wilderness in the sense of something hostile or extreme, though it is both wild and extreme. It is instead a wilderness in the sense of something complete: a system that has been running long enough and at large enough scale and with enough participants that it has become, in some sense, finished. Not dead. Not static — there is constant motion, constant cycles, constant eating and calling and growing. But finished in the way a very long argument is finished when it has been made so complex that every new point is already contained in what came before.
+
+You can stand on the springy mat of a hundred years of accumulated growth, on the summit of something that has spent millions of years becoming a plain, in the middle of a sound that started before you arrived and will continue after you leave, and feel clearly that this place does not know about you and would be exactly itself without you.
+
+That is not frightening. That is, in fact, the specific thing the plateau offers.
+
+Everything here is deeply, serenely, loudly itself.

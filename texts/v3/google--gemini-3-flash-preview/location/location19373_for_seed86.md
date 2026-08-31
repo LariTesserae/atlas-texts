@@ -1,0 +1,23 @@
+This is the **First Descent of the Basin of Thrum**, a massive, shallow subsidence located kilometers beneath the upper crust, yet stretching so wide that the far walls are lost in a grey, atmospheric haze. 
+
+### The Terrain and Scale
+The landscape is a vast, subterranean plain of raw, tectonic trauma. Because the erosion is young, the ground is not composed of soft sand or soil, but of jagged, obsidian-like plates and razor-edged limestone shelves that have only recently—in geologic terms—shattered and settled. There are no rolling hills, only sudden, vertical drops of three or four meters and sharp, upward-thrusting ridges that look like the teeth of a saw. The scale is immense; it is an inland sea of stone, a valley large enough to house a city, though it houses only shadows.
+
+### Light and Atmosphere
+The air is cool, holding at a constant, brisk chill that never wavers. It smells of wet flint and musk. Light does not come from a sun, but from a faint, pervasive bioluminescence emitted by a thin layer of mineral-consuming bacteria on the ceiling far above. It is a dim, bruised purple light, just enough to see the silhouette of a ridge a hundred meters away, but not enough to discern the true color of the ground. The moisture is not a rain, but a heavy, perpetual condensation. Small, silver droplets cling to the undersides of every stone ledge, eventually gathering weight and falling with a rhythmic *tink* into shallow, crystalline pools that nestle in the hollows of the jagged floor.
+
+### Vegetation and Ecology
+Flora is a desperate afterthought here. There are no trees or grasses. Instead, a sparse scattering of "whip-reeds"—stiff, translucent stalks the color of bone—grow in the cracks where the condensation collects. They do not sway, for there is no wind; they simply exist, rigid and brittle. 
+
+However, what the land lacks in green, it compensates for in teeming, frantic life. The fauna is overwhelming. The Basin is a hive of chitin and soft-tissue motion. Because the environment is so stable and never changes, the evolutionary pressure has resulted in a saturation of species that have filled every conceivable niche. Pale, sightless lizards with six spindly legs skitter across the jagged rocks in thousands. Above them, clouds of moth-like insects with translucent wings the size of dinner plates dive and weave in silent, predatory patterns. In the pools, blind white eels churn the water into a froth. There is a sense of "too-muchness" to the life here—every crack in the rock is a den, every shadow hides a heartbeat.
+
+### Sound and Motion
+The Basin is loud. It is not the loudness of a storm, but the cumulative roar of a million small lives. The clicking of mandibles, the frantic scuttle of claws on hard stone, the wet slither of bellies, and the constant, high-pitched stridulation of the insects create a thick, harmonic drone that vibrates in the chest. It is a cacophony of survival that never ebbs. Because the world is "never changing," there is no night-silence or day-wakening. The noise is a flat line of intensity, a permanent mechanical hum produced by biology.
+
+### The Human Presence and Tech
+There is no "built" world here—no walls, no roads, no foundations. The few inhabitants are nomadic, living in the interstitial spaces of the jagged terrain. Their presence is felt only by the occasional "marker": a simple tool left behind, perhaps a hand-axe knapped from the local volcanic glass, or a bowl hollowed out from a large, discarded insect carapace. 
+
+Their technology is primitive, dictated by the materials of the basin. They do not smelt; they scavenge. They use the silk of the moths to weave rudimentary, waterproof wraps to shield themselves from the constant condensation. They use the sharpened ribs of the Great Crawlers as spears. They have no fire, for there is nothing dry enough to burn and no wood to fuel it; their lives are lived in the dim, cool purple, moving through the thrumming, crowded dark.
+
+### The Rule of the World
+The fundamental law of the Basin is **Stasis**. In this place, time feels like an illusion. Because the temperature never fluctuates, the moisture never dries, and the fauna never sleeps, there is no way to measure the passing of hours. A traveler could stand on a jagged ridge for a century, and the lizard scuttling past their boot would be the same, the sound would be the same, and the dim light would not have flickered once. It is a landscape of frantic, overwhelming activity frozen in a state of eternal, unmoving equilibrium.

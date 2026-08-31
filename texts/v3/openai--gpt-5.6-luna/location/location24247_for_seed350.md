@@ -1,0 +1,41 @@
+The plain is not flooded so much as **being made of water**.
+
+It extends low and broad beneath a dim greenish sky, a regional basin with no visible shore. Water moves through it in several contradictory ways: as a shallow, fast-running sheet over black mineral ground; as deep vertical wells that descend into blue darkness; as suspended walls, hanging in the air like torn curtains; and as immense, slow waves that pass across the horizon without breaking. There is no single water level. The landscape seems to have forgotten which direction gravity prefers.
+
+What rises above the flood are fresh things: sharp islands of basalt, pale concrete platforms, raw ridges of salt, and dense growths of vegetation that look as though they have been assembled at high speed. The rocks are young and violent in their contours, still glossy in places, their edges unsoftened by weather. Steam escapes from cracks. New ground thrusts upward, splits, and sinks again. Channels open beneath the water and close behind it. A whole shelf of black stone may be present for an hour, then become a submerged scar beneath a churning skin of foam.
+
+The vegetation is lush to the point of pressure. It occupies every available surface and several unavailable ones.
+
+Low forests of broad, waxy leaves rise from the shallows, their trunks submerged and their crowns floating upside down just beneath the surface. Vines loop between islands and hang in the air, dripping upward into the clouds. Reeds grow in thick, metallic-colored stands, their hollow stems vibrating in the current. Mats of emerald moss spread across machinery, concrete, and rock alike, while translucent fronds bloom from vents in old engines. Some plants are rooted in the ground; others root in reflections, drawing nourishment from the image of a tree rather than from the tree itself. Their leaves open and close in response to pressure changes, not sunlight.
+
+There are no insects in the flowers, no fish under the water, no birds crossing the sky. Nothing breathes, crawls, hunts, or migrates. The vegetation grows without pollinators, fruit without seeds, and unfolds new forms in response to noise. A particularly loud impact may cause a grove to produce hundreds of pale blossoms at once. A sustained engine tone makes nearby vines braid themselves into cables. The green world is alive, but not inhabited.
+
+Across the basin stand the remnants of an industrial installation, scattered rather than organized. Towers emerge from the water at irregular intervals, connected by half-submerged catwalks and pipes. Some are intact enough to suggest refineries, pumping stations, desalination works, or factories designed for a process no surviving language can name. Their walls are stained with blue oxidation and orange mineral bloom. Great cylindrical tanks lean at impossible angles, their foundations visible several feet above the water while their shadows disappear into depths below.
+
+The machines still operate.
+
+Pumps beat beneath the flood with the force of buried hearts. Turbines turn in open air, their blades cutting nothing but mist. Conveyor belts carry wet stone uphill and deliver it into the sky, where it hangs in a suspended pile before falling as a vertical avalanche. Banks of electrical equipment spark in the rain, feeding current into water that flashes white without boiling. Here and there, a factory chimney emits not smoke but weather: a column of darkness, a snowfall of warm seawater, a spiraling cloud that condenses into a second, smaller horizon.
+
+The sound is overwhelming. The basin roars continuously, but not with one sound. There is the deep concussion of waves striking submerged architecture, the metallic shriek of stressed girders, the hammering of pumps, the crackle of high voltage, the tearing rush of water through newly opened channels. Rain strikes every surface at once. Steam vents bellow. Distant structures collapse with the sound of mountains breaking, and the sound arrives before the collapse occurs.
+
+Voices may be hidden in it, though there is no one to speak them. The machinery produces syllables accidentally. Pipes moan in long vowel tones. A rotating tower emits a pulse that resembles a crowd shouting from underwater. If one stands beneath a bridge, the noise becomes briefly articulate: not language, but the sensation of instructions being issued and ignored. The body feels the sound in the ribs. Silence, when it occurs, is not quiet; it is a sudden absence where the pressure of noise remains, a hollow interval during which the landscape seems to lean closer.
+
+The light never becomes full daylight. A thick atmospheric ceiling hangs low over the plain, luminous from within but too clouded to reveal a sun. The water reflects a dim, bruised radiance: green near the industrial zones, violet over the deep channels, milk-white where submerged vents are active. Shadows are unreliable. Some structures cast them toward the light source. Others cast several shadows at once, each belonging to a different possible position. A person—or any object—may be brightly outlined in one direction and absent in another.
+
+The water is warm. It carries the mineral taste of melted stone, iron, salt, and something electrical. In the shallows, the current moves with startling speed, sliding around ankles and concrete pylons in braided streams. Farther out, the basin deepens abruptly. The surface remains calm in certain patches, but beneath those calm patches immense volumes of water rotate in silence, dragging whole groves downward and returning them minutes later in another location. Trees reappear with altered geometry: branches inside out, roots exposed in the crown, leaves showing their undersides as if the forest has been turned over and replaced.
+
+Distances also fail. An island visible beyond the next stand of reeds may take a day to reach, though it appears to draw nearer with every step. A factory across the water can be crossed by walking through its reflection. A catwalk may lead from one tower to another, then continue into a version of the basin where the water is overhead and the sky lies below. The horizon repeatedly folds into itself. At times, several horizons can be seen layered one above another, each containing a different arrangement of towers, forests, and weather.
+
+The place is in constant formation. Fresh ridges rise from the floor with a grinding noise. Vegetation colonizes them before the stone cools. Industrial mechanisms tear channels into the new ground, and the water immediately changes course to follow. Nothing has settled long enough to become ruin in the ordinary sense. Every structure is both an artifact and an active event. Every collapsed wall becomes a reef; every reef becomes a machine support; every machine support sprouts leaves.
+
+Rules exist, but they are local and temporary.
+
+Water flows toward the loudest sound. Plants grow toward whatever is most unstable. Heat causes matter to become porous. Repetition makes objects lose their certainty: a pipe used long enough becomes a river, a door becomes an opening in the weather, a ladder becomes a vertical series of identical places. Reflections are not passive. They lag behind reality, then overtake it. If a light flickers three times, the third flicker may illuminate something that has not yet arrived.
+
+There are occasional human marks—painted numbers on a tower, warning stripes beneath algae, a small control booth standing above the flood on four narrow legs. No bodies, tools, or settlements accompany them. The marks suggest planning, ownership, evacuation, and failure, but the landscape has outlived the people who might have made those distinctions. The control booth’s windows glow faintly. Inside, rows of switches click by themselves in response to changes occurring somewhere beyond the visible basin.
+
+At the center of the region is a wide expanse of open water crowded with vegetation, machinery, mist, and broken perspectives. From a distance it resembles a flooded industrial valley. From within it, the valley becomes an ocean, the ocean becomes a plant, and the plant becomes a factory producing weather.
+
+The world is not dying here.
+
+It is too active for that.

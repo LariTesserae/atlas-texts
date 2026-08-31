@@ -1,0 +1,19 @@
+**The Hanging Garden of Keth-Mora**
+
+In a cleft between two towering peaks, barely wider than a cathedral nave, lies the vertical city of Keth-Mora—a settlement carved not into rock, but grown from it. The space is so narrow you could throw a stone across its width, yet it rises nearly three hundred feet from the perpetually misty canyon floor to where the walls nearly kiss overhead, leaving only a ribbon of sky.
+
+The canyon walls weep constantly. Not ordinary seepage, but thick, mineral-rich tears that have built up fantastic flowstone formations over mere decades—young geology accelerated by the strange chemistry of this place. These calcified cascades serve as the city's skeleton: terraces, bridges, balconies, and stairways all formed from the canyon's own weeping. The stone is still soft in places, warm to the touch, actively growing.
+
+Every surface burgeons with life. Thick cushions of brilliant green moss carpet the flowstone terraces. Ferns unfurl from crevices in walls barely an arm's length apart. Vines heavy with fruit drape between the canyon walls like living curtains, their roots drinking from the constant mineral flow. The vegetation is so dense that buildings disappear beneath it—homes and workshops become green mounds, their doorways dark mouths in walls of leaves.
+
+The sound is overwhelming. Water everywhere: trickling, splashing, dripping, echoing off the narrow walls until it becomes a liquid thunder that makes conversation impossible except in the few moss-deadened alcoves. The confined space amplifies every drop into a percussion that seems to emanate from the stone itself. Inhabitants communicate in signs, their hands flashing in the perpetual green twilight filtered through layers of hanging gardens.
+
+Birds nest in impossible numbers along the vertical walls—swifts, finches, and strange canyon-adapted species that seem more like flying flowers than fauna. They wheel and dive in the narrow air column, their calls adding to the acoustic chaos. Butterflies drift between the levels like animated petals, and everywhere small creatures rustle through the dense growth: tree frogs in the perpetual damp, jewel-bright beetles, snakes that have never known horizontal ground.
+
+The people move through their vertical realm on paths that are half-stairway, half-garden. Rope and vine bridges span the gap at multiple levels, swaying under the weight of residents who navigate them with casual expertise. Market stalls perch on tiny terraces, their goods—tropical fruits, woven mats, carved stone vessels—displayed in baskets that hang from the living walls.
+
+At the canyon floor, pools of mineral-rich water reflect the impossible density above. The water is warm, almost body temperature, and tastes of stone and growth. Steam rises from its surface, adding to the humid atmosphere that keeps everything perpetually damp and growing.
+
+This is a place where the distinction between natural and built has dissolved entirely. The city grows as much as it is constructed, shaped by the same forces that sculpt the weeping walls. It is both impossibly crowded and utterly wild—a jewel box ecosystem where human settlement has become part of the canyon's own exuberant process of creation.
+
+The light that filters down through the canopy and bounces off wet stone creates a underwater quality to the air—everything soft-edged and green-tinted, alive with the constant motion of dripping water and swaying vegetation. In this narrow world, abundance has been compressed until it becomes almost dizzying, a symphony of growth and sound contained within walls you could touch from either side.

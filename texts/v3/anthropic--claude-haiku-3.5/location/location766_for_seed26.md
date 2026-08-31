@@ -1,0 +1,13 @@
+In the depths below the surface, a manufactured realm pulses with mechanical breath and condensing moisture. This is not a natural cavern, but an immense industrial subterranean complex—a constructed wetland of engineered purpose, where massive mechanical systems interact with carefully cultivated micro-environments.
+
+Dim electric lights pulse in irregular rhythms, casting bluish-gray shadows across surfaces that are neither fully stone nor completely synthetic. Water seeps constantly: not flowing rivers, but a ubiquitous dampness that condenses on metal surfaces, drips from engineered rock-like structures, and creates a persistent humid atmosphere. The water isn't clean—it's mechanically filtered, recycled, loaded with suspended particulates that give it a slightly oily sheen.
+
+Scattered vegetation exists in precise, controlled zones—engineered hybrid plants with metallic-looking leaves, adapted to grow in this low-light, high-moisture environment. They're sparsely distributed, each seeming more like a scientific experiment than a natural growth. Some appear to be extracting minerals from the dampened surfaces, others seem to be generating small electrical charges.
+
+The temperature hovers just above freezing, creating a constant background of micro-condensations and quiet mechanical adjustments. Massive industrial structures loom in the dimness—not traditional factories, but complex bio-mechanical systems that blur the line between living process and manufactured infrastructure. Pipes that might be blood vessels or coolant systems wind through the space. Periodic loud mechanical sounds—not quite rhythmic, more like complex industrial breathing—echo through the cavern.
+
+Rare mechanical fauna move through this space—not quite robots, not quite animals. They seem to be maintenance units, cleaning, adjusting, monitoring the complex ecosystem. Their movements are purposeful but not predictable, creating a sense of constant, low-level activity.
+
+The entire environment feels like a massive, living machine—a constructed ecosystem that is simultaneously industrial and organic, mechanical and biological. Water is everywhere but controlled, life is present but engineered, movement is constant but not chaotic. It's a strange, liminal space that feels both deeply purposeful and fundamentally alien.
+
+The scale suggests this isn't just a room or a facility, but an entire sub-surface region—perhaps kilometers across—all carefully designed, all in constant, subtle motion.

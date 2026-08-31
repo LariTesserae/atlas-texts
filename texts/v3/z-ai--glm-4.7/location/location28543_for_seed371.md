@@ -1,0 +1,21 @@
+The world here is a box carved out of darkness, a vertical cathedral of cold stone and frantic, wet life.
+
+The first thing that strikes you is the noise. It is not a roar, exactly, but a relentless, high-decibel thrumming that vibrates in the teeth and the hollows of the bones. It sounds like the inside of a great lung, or the boiler room of a factory the size of a city. The air is never still; it rushes through the space with gale force, sucked up and spat out by invisible thermal currents.
+
+This is a place of extreme elevation, though the cloud cover is so heavy and low that you cannot see the horizon or the ground below. You are suspended in a pocket of the upper atmosphere, a "room" formed by sheer, jagged cliffs that rise and fall like broken teeth. The rock is young—terribly young. There is no smooth weathering here, no rounded river stones. The granite and basalt are raw and freshly fractured, sporting edges sharp enough to shave with. It looks as if the mountain range was torn open yesterday, exposing the wet, grey meat of the earth.
+
+It is cool, a biting 50 degrees Fahrenheit, but the humidity is absolute. The "damp" rating of the environment manifests as a perpetual heavy mist mixed with condensation. Water doesn't just fall here; it squeezes out of the rock itself. Every surface is slick. The air feels thick enough to chew.
+
+And then there is the green.
+
+The vegetation is lush to the point of aggression. It is a hyper-dense explosion of mosses, ferns, and lichens that cling to the sheer vertical faces of the cliffs. There are no trees here—the wind is too turbulent for trunks—but the rock walls are carpeted in a thick, spongy mat of flora that hangs in draperies. Vines trail down into the darkness below, whipping violently in the updrafts. The green is dark, bruised, and glossy, optimized to suck up every scrap of available light. Because light is the rarest commodity here. It is nearly pitch black, a twilight gloom broken only by the occasional, blinding fissure of lightning from the storms swirling above, or the faint, bioluminescent shimmer of certain fungi deep in the moss crevices.
+
+The "industrial" nature of the place is unsettling because there is no technology present. No gears, no concrete, no smokestacks. And yet, the landscape operates with the precision of a machine. The water flows in distinct, pressurized channels carved into the stone, hissing through narrow fissures with the sound of escaping steam. Geothermal vents punctuate the floor of the canyon—pits of boiling water that erupt not in lazy geysers, but in rhythmic, piston-like bursts. *Hiss-clack. Hiss-clack.* The release of pressure is constant. The hot water hits the cool air and instantly flash-freezes into glittering crystals before melting back into the deluge, a cycle of destruction and creation that happens in seconds.
+
+The scale of the place is deceptive. It feels infinite, but it is actually bounded—a single, massive amphitheater of geological violence. The boundaries are the sharp, crumbling cliffs that enclose you.
+
+It is a lonely, loud engine room. There is no animal life to witness it. No birds sing over the sound of the steam; no insects buzz. The ecology is entirely botanical and geological. The plants here don't rely on pollinators; they rely on the turbulence. Spores are fired into the chaotic air currents, flung like cannonballs against the wet rock to take root wherever they land.
+
+You are standing on a ledge of slippery, sharp shale. To your left, a vertical waterfall is being blown back upward by the wind, defying gravity, turning into a roaring mist before it can hit the ground. To your right, a fissure in the rock vomits a stream of scalding mineral water that smells of sulfur and iron. The sound is deafening—a chaotic symphony of dripping, rushing, cracking stone, and the pressurized hissing of the earth’s interior.
+
+It is a dark, cold, wet factory, manufacturing itself from the mud up, entirely without a mind to guide it, churning endlessly in the dark.

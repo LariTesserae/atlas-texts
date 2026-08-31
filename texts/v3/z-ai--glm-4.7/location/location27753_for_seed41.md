@@ -1,0 +1,25 @@
+The air here is heavy, a humid, tangible blanket that sits on the skin like a warm, wet wool. The heat is not the dry scorch of a desert sun, but a suffocating, tropical intensity trapped beneath the weight of the earth. You are below the surface, though not deep in the crushing dark, but rather nestled within a vast, hollowed-out pocket—a subterranean cathedral where the ceiling is lost in a haze of vapor.
+
+This is the Damp Hollow.
+
+The walls of the chamber are smoothed by millennia of seepage, curved into organic, fluid shapes that suggest the space was once the stomach of some great, stone beast. The erosion here is established, settled; the rock is no longer jagged or raw. It has been polished to a slippery, dark sheen by the constant, gentle caress of water.
+
+Water is everywhere, yet there is no pool, no running river. It is an environment of intermittent moisture. Condensation slicks every surface. The rock weeps constant, silent tears that trace meandering paths down the curves of the walls. The air is thick with mist—a fine, aerosolized suspension that makes breathing a deliberate act. Droplets coalesce on the ceiling, growing heavy until they detach with a faint, rhythmic *plink* that is the only punctuation in the otherwise profound silence.
+
+The silence (0.2) is striking given the abundance of life. It is a library silence, a hunting silence. The space is dense (2.1), packed tight with vegetation that has adapted to the dim light (0.8). There is no sun here, only a diffuse, bruised-purple gloom that filters through cracks in the high vaulted ceiling, perhaps reflecting from some luminescent strata above. In this gloom, the vegetation has erupted in a lush, vertical riot.
+
+Because light is scarce, the plants do not stretch upward in vain; they crowd and climb over one another in a desperate, layered struggle for every photon. Massive, paddle-shaped leaves, dark as old blood, press against the damp stone. Vines hang like thick curtains, creating veiled alcoves and hidden corners. The flora is dense, a tangle of ferns and mosses that have grown monstrous in the perpetual twilight. There is no bare earth; the stone itself is cloaked in a thick, wet pelt of bio-luminescent fungi and algae that pulse with a faint, chartreuse heartbeat, casting eerie, shifting reflections on the wet walls.
+
+Despite the lushness, the scale of the place feels contained—cathedral-like, but bound. You sense the perimeter, the curve of the walls enclosing this world. It feels like a single, self-contained breathing room.
+
+And it is moving. The dynamic pulse (1.9) of the ecosystem is frantic and silent. This is a biological engine running hot. Everywhere you look, there is motion, but it is the motion of things trying not to be seen.
+
+The fauna is abundant (2.5), a teeming metropolis of small, dry-skinned creatures and many-legged things. Insects with translucent, glass-like wings flit silently through the mist, never colliding. Small, amphibious things cling to the slick leaves, their eyes wide and unblinking, watching. There are predators here, sleek and low-slung, moving through the undergrowth with a fluid grace that disturbs no leaf. The ecology is a high-speed cycle of consumption and decay, played out in near-total quiet. A beetle consumes a mushroom on one side of a grotto while a lizard consumes the beetle on the other; the turnover is rapid, efficient, and relentless.
+
+There is a touch of the unusual (1.0) in the architecture of the life. Some of the vines do not look merely plant-like; they resemble bundles of fibrous muscle, contracting slowly. The moss seems to ripple in patterns that don't match the air currents. The boundary between animal and vegetable feels porous here.
+
+Scattered (1.0) amongst this dense growth are the "Built" elements—or what remains of them. They are not structures of tool and hand, but rather calcified curiosities. A perfect ring of stones, smoothed and arranged, sits half-buried in the moss. It is clearly not natural, yet it is devoid of any craft marks. It looks as if the earth simply grew in a circle. Farther back, in a recess of the grotto, a slab of rock leans against the wall at an impossible angle, defying gravity, worn smooth by the friction of passing bodies. These are artifacts of a forgotten logic, faint marks left by a world that preceded this current, humid rush.
+
+The "Tech" is none (0.3). There is no hum of machinery, no artificiality. This is a purely biological domain. The only technology here is the evolved mechanics of the chameleon-skin of the frogs, the hydraulic pressure of the pitcher plants, and the silent sonar of the bats hanging high in the shadows.
+
+To stand here is to feel a prickle on your neck—the heat, the damp, the knowledge that you are surrounded by thousands of eyes, all watching without a sound. The air smells of wet loam, oxygen-rich decay, and a sharp, spicy tang released when a stem is crushed. It is a place of fever-dream intensity, a hot, dark pocket of life operating at a desperate, quiet hum.

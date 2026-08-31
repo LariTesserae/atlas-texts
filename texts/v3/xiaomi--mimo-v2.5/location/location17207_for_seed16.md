@@ -1,0 +1,49 @@
+# The Hollow of Sereth
+
+It exists within something larger — though what that something is, no one remembers. The ceiling is high enough that its far reaches are lost in dimness, a vault of pale mineral that gives off no light of its own but seems to gather and hold whatever faint illumination reaches it, throwing it back in diffuse, copper-toned sheets. You could stand in the center of any of the open plazas and look up and see nothing but a warm, hazy dark that suggests more space than you could walk across in a day. The floor, too, is not always visible — it disappears into shadow between features the way a landscape disappears into distance outdoors, except there is no distance here. Only the contained breadth of a hollow whose walls you could reach if you walked far enough and straight enough.
+
+But you wouldn't walk straight. The ground won't let you.
+
+---
+
+**The ground is not flat.** It is low, broadly speaking — this is not a mountain environment, not a canyon, not a place of dramatic verticals — but it is endlessly textured. The erosion here is ancient, settled into itself the way a riverbed is settled, except the forces that carved this place are slower and stranger than water. Mineral acids rising from below, heat working upward through fractures, the slow exhalation of gases that eat stone at the rate a breath eats silence. Over millennia, the floor has been sculpted into broad basins and low ridges, shallow bowls hundreds of meters across, their rims worn smooth as bone. The stone itself — if it is stone — is a pale ochre, almost the color of dried clay, shot through with veins of darker material that may be metal or may be something harder to name. In places the surface has a faintly greasy sheen, as though the rock sweated something that wasn't water.
+
+Between the ridges and basins, the ground is flat enough to walk, but it is not *empty*. It is mostly empty. This is the paradox of the place: vast stretches of bare, warm mineral, and then, suddenly, a presence — a single enormous growth of vegetation, or a cluster of structures, or both, occupying a basin like a village in a depression. And then emptiness again. And then another presence, far enough away that it sits on the edge of the dim light like a suggestion.
+
+The density is what strikes you first if you've been elsewhere. There is so much *space* between things. You could fire an arrow in almost any direction and not hit anything taller than your knee. The emptiness isn't threatening — it's structural. It's the way this place breathes. Things are where they need to be, and nowhere else, and the spaces between are not neglect but patience.
+
+---
+
+**The vegetation is the strange part.** Not strange in form — not alien, not grotesque — but strange in its relationship to everything you think you know about how living things work.
+
+It is lush. Genuinely, unreasonably lush, in a place with no water.
+
+The plants — and they are plants, or close enough that the distinction is academic — grow from the mineral floor without soil, without standing moisture, without any visible root system that accounts for their size. They anchor in fractures in the stone, and where they anchor, the rock is stained dark, almost black, as though something has been drawn out of it or deposited into it. They are broad-leafed, mostly, with thick, waxy surfaces that catch the dim copper light and hold it. Their color is a deep, red-tinged green — not quite the green of things that photosynthesize the way you'd expect. More the green of something that eats light rather than simply using it.
+
+In the largest basins, the growth is dense enough to call a canopy. You step from open, bare rock into a sudden twilight of broad fronds overhead, their undersides pale and veined, and the air changes — it's hotter in here, somehow, and the sound is different. The leaves don't rustle. They *creak*. A slow, tectonic creaking, like a house settling, but continuous, as though the plants are in constant slow motion, adjusting, reaching, pulling against themselves. Underneath that creaking, there is a sound like distant static — a hiss or crackle that comes from the ground itself, from the mineral surface, from whatever chemical conversation is happening between root and rock in the dark spaces you can't see.
+
+This is the loudness of the place. It is always loud. Not a roar, not a clamor, but a persistent, layered *noise* — the creaking of the vegetation, the mineral hiss from the ground, the groan of heated air moving through cracks in the walls far above, and something else, something lower, a hum that you feel in your sternum more than hear with your ears. Standing in the open between basins, the sound recedes to a murmur. Stepping into the vegetation, it closes around you like a room.
+
+---
+
+**The city — if it is a city — is built into the basins.** Or rather, it is built *from* them. The people who made this place (and someone made it; the structures are undeniable) did not bring material in. They carved from what was there, shaped the pale ochre stone with simple tools — copper or something like copper, dark with age, and bone-hard implements that leave clean, deliberate marks on the rock faces. The buildings are low and broad, with thick walls and narrow entrances, set into the basin walls where the stone is thickest and the heat is slightly less immediate. They are not uniform. Some are single rooms barely large enough to lie down in. Others are complex, interconnected spaces that wind into the rock like the chambers of a heart.
+
+The construction is old. Not ancient-in-ruins old — people still maintain these spaces, still shape them, still add to them — but old in the way that the erosion is old. The city has been here long enough to have a settled shape, long enough that its newer constructions look like the older ones, the way a language keeps its grammar even as it invents new words. The walls are smooth where hands have touched them for generations. The doorways are worn at the threshold. Nothing is sharp-edged. Everything has been breathed on, leaned against, worn to the shape of use.
+
+There is infrastructure. Not pipes — there is nothing to pipe — but channels carved into the floor, shallow grooves that run between basins and through the vegetation, guiding air. They serve the same purpose water channels serve in a wetter world, but what they carry is atmosphere: hot, mineral-laden, moving in slow currents through the hollow. The channels are sometimes wide enough to walk in, and they make a particular sound when you do — a hollow, resonant thrum under your feet, as though the ground is a drum and you are the stick. People follow these channels the way you might follow a road. They are the circulatory system of the settlement, and they are always in motion, the air within them restless, shifting, carrying heat and chemical trace from one basin to another.
+
+---
+
+**There are no animals.** Not a single one. Not insects, not mites, not anything that crawls or flies or moves with intent. The vegetation is alive, fiercely and abundantly alive, but it has the world to itself. The reason is not obvious — the environment, while hostile in many ways, is not so alien that nothing could adapt to it. It seems, instead, that nothing was ever *given the chance*. The hollow, whatever it is, whatever it exists within, may have been sealed before animal life could reach it, or the chemistry of the air — that hot, mineral-laden breath that moves through the channels — may simply be a language that only certain kinds of life can speak, and only one of them ever arrived.
+
+The result is an ecosystem that runs on geology and chemistry and the peculiar metabolism of its plants, without any of the feedback loops that animal life provides. The vegetation grows, and grows, and does not get eaten. It dies slowly, over years, and its remains decompose into the mineral floor, feeding whatever strange process feeds the next growth. The dynamic of the place is not predator-prey or seasonal migration. It is crystallization and dissolution. Growth and subsidence. The slow pulse of chemistry in a sealed room.
+
+---
+
+**The weirdness is quiet.** It doesn't announce itself. It is the sort of thing you notice after you've been here long enough to stop being overwhelmed by the heat and the dim light and the sound.
+
+It is the way the copper light seems to pool in certain places — denser in one basin, thinner in another, with no visible source accounting for the difference. It is the way the channels in the floor sometimes hum at a frequency that seems, for a moment, to be organized — not random vibration but pattern, repetition, something almost like language — before it dissolves back into noise. It is the way the oldest structures in the deepest basins have markings on their walls that might be writing or might be the natural patterns of the stone, and the distinction might not matter because no one alive can read them and the stone doesn't care.
+
+It is the way the place feels *intentional*. Not designed — not in the way a machine is designed — but *chosen*, as though someone or something selected this hollow, this particular volume of space within whatever larger body contains it, and said: *here. This one. Let this be the one where things grow.*
+
+And so things grow. In the dim heat, in the mineral dark, with no water and no animals and no sun, things grow loudly and abundantly and without hurry, in a city of worn stone and copper tools, in the spaces between enormous emptiness, in a pocket of the world that the world has forgotten it holds.

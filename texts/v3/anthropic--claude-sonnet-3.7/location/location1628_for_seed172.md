@@ -1,0 +1,21 @@
+# The Thermal Assembly
+
+You enter a strange realm by passing through a wavering threshold where matter feels thin. One moment you're somewhere else; the next, you're here—submerged in what first seems like liquid but isn't quite water. It's a dense, viscous medium with the consistency of warm honey yet somehow you breathe it without difficulty. It fills your lungs with a sensation of fullness rather than drowning.
+
+The medium stretches in all directions—a vast, thermally charged suspension that extends beyond perception. This isn't an ocean but something engineered: a computational medium composed of countless microscopic machines suspended in a superconductive fluid. The fluid itself is heated to near-critical temperatures, creating thermal gradients that pulse and flow in vast, languorous currents.
+
+Far below, rising from abyssal depths, enormous spires of black material reach upward. These aren't natural formations but manufactured structures—great columns of exotic matter that serve as anchors and processing nodes for whatever vast project is underway here. Each spire is kilometers high, their surfaces inscribed with geometric patterns that occasionally pulse with subtle illumination, their light barely penetrating the murky medium.
+
+Between these monolithic structures, sparse vegetation of a kind exists—not organic plants but crystalline formations that grow in fractal patterns, harvesting thermal energy rather than light. They branch in mathematical precision, their translucent structures glowing faintly from internal processes. These crystal "plants" cluster around thermal vents that punctuate the landscape, where the already hot medium becomes nearly scalding.
+
+The dim environment is occasionally broken by distant flashes—brief illuminations that might be some form of communication between the massive structures, or perhaps system errors in whatever vast computation is occurring. These flashes reveal momentary glimpses of the true scale: an engineered environment extending for hundreds of kilometers in all directions.
+
+The silence is profound but not complete. There's a constant, barely perceptible hum that vibrates through the medium—the operational sound of trillions of nanomachines performing their functions. Occasionally, this baseline hum is joined by deep, subsonic pulses that you feel rather than hear, emanating from the great spires when they exchange particularly complex information.
+
+The landscape is in a state of constant, subtle change. The crystalline growths extend new branches in slow motion. The thermal currents shift direction and intensity. Most significantly, new structures are continuously being assembled by the medium itself. The nanomachines aggregate into temporary work-forms that construct additional components of whatever vast project this place represents. You can observe them creating new anchor points for future spires, weaving intricate lattices of exotic materials between existing structures.
+
+Reality itself seems unstable here. Occasionally, portions of the environment seem to glitch—patches of the medium momentarily becoming transparent or hyperdense, revealing glimpses of mathematical space underneath physical reality. These reality breakdowns aren't errors but deliberate: the system is computing at scales where quantum effects blur the line between information and matter.
+
+This is no natural formation—it's a vast computational engine being constructed at the boundary of physics, using thermal energy as its primary power source. The entire environment is simultaneously the computer, its cooling system, its power plant, and the project it's designed to calculate. And it's still being built, even as it already runs initial calculations.
+
+Whatever intelligence designed this place operates on principles and timescales you can barely comprehend. You're witnessing the early stages of something that will eventually grow to planetary scale—a thermal computer assembling itself within an engineered medium that is neither fully liquid nor fully solid, neither fully real nor fully virtual.

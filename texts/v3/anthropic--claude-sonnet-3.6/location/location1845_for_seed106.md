@@ -1,0 +1,15 @@
+A city of salt rises from the plateau, its crystalline towers and terraces catching the intense light of twin suns. The structures seem to have grown rather than been built - no tool marks or joints betray human craft. Instead, the architectural forms emerge from the underlying rock in geometric progressions, like mathematics made manifest.
+
+The air is warm and heavy with moisture, yet nothing green grows here. Instead, the omnipresent water flows in careful channels and cascades, maintained by the salt city's own crystalline logic. The water moves silently through transparent tubes that might be crystal, might be glass, might be something else entirely - they have the organic quality of veins in living tissue, but the precision of circuit boards.
+
+At regular intervals, these waterways open into shallow pools that steam gently in the heat. The evaporating water feeds an endless cycle - rising as vapor, condensing on the higher crystalline surfaces, and flowing back down in perfect patterns. The city drinks itself, processes itself, grows itself in microscopic increments.
+
+The plateau stretches far in every direction, its surface a mirror-plain of salt that reflects the harsh sunlight. The air is so clear at this elevation that distant formations appear close enough to touch, though they must be dozens of kilometers away. Only occasional ripples in the salt plain break the perfect horizon - places where the underlying mineral structures have pushed up new crystalline growths.
+
+Few living things make their home here. Sometimes, translucent creatures that might be birds glide between the towers, leaving no shadow. In certain pools, collections of iridescent spheres cluster and separate in slow patterns that suggest either primitive life or complex chemistry - it's impossible to tell which.
+
+The silence is profound, broken only by the faint singing of wind through the crystalline formations and the soft whisper of moving water. Even these sounds seem to follow patterns - complex harmonies that repeat over hours or days.
+
+Time feels different here. The city's growth is imperceptible but constant, measured in layers of mineral accretion rather than years. There are places where the crystal has formed perfect chambers, their geometry so precise it seems impossible they weren't carved by hand. But no hand has ever shaped this place - it simply is, and has been, and will be, following its own ancient mathematical rules.
+
+The warm air carries a faint taste of salt and something else - perhaps ozone, perhaps some mineral trace unique to this place. Despite the heat and constant moisture, nothing corrodes or changes. The city maintains its equilibrium, its endless cycles of water and mineral, as it has for however long it has existed in this high, bright solitude.

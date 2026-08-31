@@ -1,0 +1,15 @@
+Welcome to the Cave-City of Glistengut, a vast subterranean metropolis carved into the dripping limestone caverns far beneath the surface. Here, the chill air is thick with the echoes of industry and the roar of underground rivers that wind their way through the colossal chambers.
+
+The caverns stretch out in a seemingly endless maze of passages and vaulted halls, their walls dripping with condensation that glistens in the dim glow of phosphorescent fungi. These bioluminescent growths cling to every surface, their pale blue-green light casting an eerie underwater hue throughout the city.
+
+Despite the sparse vegetation above ground, life thrives in the lightless depths. Clusters of pale mushrooms and lichen carpets cling to the cavern floors, fed by the rich minerals leached from the rock. Rare subterranean creatures skitter through the shadows, their alien forms evolved for a world without sun.
+
+Yet it is the handiwork of the Cave-Dwellers themselves that dominates this realm. Entire city districts have been painstakingly carved from the living rock over generations. Massive pillars and archways soar overhead, their surfaces smoothed by primitive stone tools into curving organic shapes that seem to grow from the cavern walls.
+
+The densely packed structures rise in layered tiers, houses and workshops built atop one another in an urban sprawl that extends for miles. Bridges of woven rope crisscross the chasms, connecting the various quarter-caverns. The sounds of industry are a constant thunder - the ringing of pickaxes, the splash of underground rivers turning massive waterwheels, the bellowing of strange cave-beasts powering primitive machinery.
+
+For this is a living, breathing realm unto itself. Water is ever-present, seeping from the porous rock, cascading from terraced aqueducts, pooling into underground lakes. The pervading dampness and constant trickle have shaped every surface into softly eroded forms. The city almost seems to have grown organically from the caverns, yet it rustles with frantic activity and the cycles of an industrious people making their way in the primordial depths.
+
+Weaving through this alien ecology are the Cave-Dwellers themselves - a folk as peculiar as their surroundings. Their sallow skin betrays millennia of life without sunlight. Their bulbous yellow eyes are exquisitely adapted to the ubiquitous glows of bioluminescence and their voices carry an otherworldly reverberating quality through the vaporous air.
+
+This is the hub of a civilization distinctly out of phase with the natural world above, yet seamlessly interwoven with the mysteries of the sunless Deep. To encounter the roaring, splashing, echoing chaos of Glistengut is to bear witness to the triumphs of a people who have not just survived, but forged an entire culture from the most unlikely of realms imaginable.

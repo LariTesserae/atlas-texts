@@ -1,0 +1,49 @@
+# The Manufactory Plateau
+
+It begins as a hum you feel in your molars before you hear it — a low, tectonic idling, like a diesel engine the size of a mountain range waiting at a red light that will never change.
+
+---
+
+The plateau rises nearly four kilometers above the surrounding lowlands, but it does so without the dignity of old geology. The edges are torn. Not eroded — *torn*, as though something gripped the crust and pulled upward last week, and the rock hasn't yet decided whether to comply. Basalt faces sheer off into fog. Columns of raw feldspar stand at angles that shouldn't hold, still sweating heat from whatever process pushed them here. The stone is warm to the touch. Not sun-warm. *Working*-warm. The kind of warmth you feel standing too close to a kiln.
+
+There is no sun, exactly. The sky is a low, permanent dusk — a stratum of cloud so thick and so high that it constitutes its own ceiling, its own weather system, its own jurisdiction. Light comes from below and from within. The plateau's fractures glow dull amber, like cracks in a cooling ingot. Vegetation has learned to photosynthesize heat and the faint orange leakage from the ground. Everything here is lit from underneath, which gives the landscape the look of a stage set moments before the actors enter — populated but expectant, waiting for a cue.
+
+Rain comes and goes without commitment. Not storms. Not drizzle. Rather, the air itself seems to sweat. Moisture condenses on the underside of the cloud ceiling and falls in heavy, irregular drops — warm drops, almost body-temperature — that patter across leaves and stone and the backs of animals and your own upturned face. You wipe it away and it returns. Pockets of water collect in the basalt's fresh grooves, warm and faintly mineral, tasting of iron and ozone. These pools last only hours before the stone drinks them or the heat evaporates them back into the sweating air. Nothing here flows downhill for long. The water exists in a vertical loop, ground to sky to ground, never quite committed to either.
+
+---
+
+And the vegetation. God, the vegetation.
+
+It is lush in the way a wound is lush — excessive, overproductive, almost frantic. The plateau is clothed in things that are not quite trees and not quite ferns and not quite coral. They have trunks, but the trunks are segmented like bamboo and hollow, and they ring faintly when the wind moves through them. Their leaves are broad and dark, almost black, with undersides that flash a surprising silver-green when the wind turns them — catching the amber ground-light and multiplying it, so the whole understory shimmers like light on shallow water. These plants grow fast. You can almost watch them. A trunk that was knee-high in the morning is waist-high by evening, its segments inflating like bellows, stretching toward the cloud ceiling with a vegetable desperation. And then, within days, it browns, softens, and collapses into a wet heap that is immediately colonized by the next generation. The forest is a compost engine running at triple speed. The ground is layered — living trunks on top of rotting trunks on top of rotting trunks, several deep, so that you walk on a springy, spongy mat of decomposition that breathes when you step.
+
+Some of the plants have incorporated the plateau's warmth more directly. Their roots don't stop at the soil — they thread down into the rock itself, into the glowing cracks, and the heat rises through their vascular systems and bleeds out through their leaves as a faint shimmer, a heat-mirage surrounding each tree in a trembling halo. Stand among them and the air is dense with layers of warm exhalation. The forest is breathing. It is hard not to feel that it knows you are there.
+
+Vines connect everything. Not spiraling, not climbing — *stitching*. They grow in straight lines from trunk to trunk, lashing the forest together into a single tensile structure, and when the plateau trembles — which it does, often, a low shudder that comes from somewhere far below and passes through the rock like a thought through a body — the whole forest sways in unison, creaking softly, the vines singing a low, atonal chord as they stretch and relax.
+
+---
+
+The animals are everywhere, and they are wrong.
+
+Not monstrous. Not frightening, exactly. But wrong in the way a sentence is wrong when all its words are real but the grammar is from a different language. There are grazing things that move on six legs but only use four at a time, the rear two held up like coiled springs, ready. Their bodies are low and broad, their hides the same dark silver-green as the undersides of leaves, and they crop the fast-growing plants with mouths that open sideways, like books. They are silent. They do not call to one another. They communicate, if they do, through subtle shifts in the color of their hides — a slow ripple from silver to umber to silver again, passing through the herd like a rumor.
+
+Above them, in the canopy, something glides. Not birds. Membrane-winged, thermal-riding, their wings translucent enough that the amber ground-light shines through them, casting veined shadows on the forest floor. They are studying the shapes of those shadows, or so it seems — circling, adjusting, watching their own silhouettes move across the ground like people adjusting a projector. They make a sound, occasionally, a single low note, almost below hearing, more felt than heard, and when one of them calls, the nearest thermal vent answers with a pulse of warmth, as though called to.
+
+There are insects, or things doing the work of insects. They are the size of a thumb, dark, and they move with mechanical precision — in straight lines, in grid patterns, harvesting the rotting plant matter and carrying it to specific locations, building low, flat mounds that look like nothing so much as cooling racks in a bakery. These mounds are warm. They hum faintly. Something is happening inside them — some digestion, some process — but if you break one open you find only compressed vegetable matter and heat and a faint smell of electricity. The insects rebuild it before you've finished standing up.
+
+And there are larger things. Deeper in. You catch glimpses — a shape moving between the trunks that is too tall and too slow to be a grazer, something that seems to change its outline as it moves, as though it is deciding what shape to be while in the act of walking. It does not threaten. It does not flee. It simply moves through its own territory with the patience of a machine cycling through its program. You see it and it sees you and neither of you reacts and it is gone.
+
+---
+
+The strangeness of this place is not in any single thing. It is in the *system*.
+
+The plateau is a factory. It has no builders. It was not constructed; it *emerged* — a geological event that is also an industrial event, a place where the boundary between "natural process" and "mechanical process" has worn thin enough to see through. The thermal vents are furnaces. The fast-growing plants are a conveyor system, pulling carbon from the air and delivering it to the soil as rot, where the insects process it into mounds that function as batteries or kilns or something for which no human word exists. The membrane-winged things ride the thermals and their calls tune the vents. The six-legged grazers prune the plant growth and their droppings feed the insects. Every organism is a component. Every component is alive. The factory runs on biology and geology and the deep, patient heat of something beneath the crust that has been working for longer than anything here can remember.
+
+The plateau produces — *something*. It is not clear what. The mounds generate heat and a low electrical field. The air around them tastes of ozone and iron. Sometimes, in the deepest, dimmest parts of the forest, where the trunks are closest together and the vines form an almost solid ceiling, you find clearings where the ground has been swept clean and polished smooth and the amber light from below is brightest, and in those clearings the air itself seems to thicken, to *prepare*, as though the factory is about to output a product into the space above the polished stone and then thinks better of it, and the moment passes, and the clearing is just a clearing again, and you are just a visitor, and the forest resumes its breathing.
+
+---
+
+The soundscape is almost nothing. That is the strangest part.
+
+For a place this alive — this densely packed, this metabolically frantic — it should be deafening. It is not. The plants grow without rustling. The animals graze without tearing. The insects move without clicking. Even the rain falls quietly, absorbed by the spongy ground before it can strike a surface loud enough to echo. The only sounds are the low hum of the mounds, the occasional subsonic call of the membrane-winged things, the creak of vines when the plateau trembles, and beneath all of it, continuous, patient, felt more than heard: the idling of the great engine in the deep rock, the one that has no name and no maker and no off switch, the one that is simply *running*, and has been running, and will continue to run, and does not need you to understand it, and does not need you at all.
+
+You stand on the plateau and the warm rain dots your face and the forest breathes around you and an insect walks in a perfect straight line across the back of your hand without pausing and the ground hums and somewhere far below something turns over, slow and vast and patient, and the light from the cracks flickers — just once — and a membrane-winged thing circles overhead, studying its own shadow on your upturned face, and the shadow is the wrong shape, and then it is the right shape, and then it is gone.

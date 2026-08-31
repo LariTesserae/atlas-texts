@@ -1,0 +1,15 @@
+The thermal springs emerge from the mountainside like newborn stars, each pool a perfect circle of mineral-bright water suspended in terraced basins of pure white travertine. Steam rises in countless vertical threads, so dense they form a living architecture of vapor that shifts and breathes with each thermal pulse from below.
+
+You stand on a narrow ledge carved from limestone, part of an ascending maze of natural causeways that spiral around this pocket cathedral of springs. The space feels intimate yet infinite—perhaps fifty meters across, but the steam creates false horizons, making distances uncertain. Above, the rock ceiling disappears into brightness where countless mineral deposits catch and scatter the intense light filtering down through some unseen opening.
+
+The silence is profound, broken only by the gentlest sounds: the whisper of steam condensing against cool stone, the barely audible *plink* of mineral-rich droplets adding their calcium to the growing formations, and a deep, almost inaudible humming that might be the mountain's own circulation system at work. No birds call here, no insects buzz—this is a place still too young for such complexities.
+
+Every surface drips. Water beads on the translucent curtains of deposited minerals, runs down the fluted columns that grow like frozen waterfalls, pools in the countless smaller basins that seem to multiply even as you watch. The travertine formations are still soft, still building—you can see the daily rings of growth, the experimental architectural gestures where mineral-laden water tries new pathways down the stone.
+
+The water itself glows with an inner light, saturated with dissolved minerals that catch and hold the brightness from above. Each pool reflects not just light but seems to generate it, creating a feedback loop of illumination that makes the entire space pulse gently, like breathing made visible.
+
+Scattered throughout this mineral garden are remnants of some earlier human presence—not ruins exactly, but traces: a single carved step leading to nowhere, a length of fitted stones that might once have been a channel, now incorporated into the spring's own architecture. These fragments suggest not abandonment but absorption, as if the thermal activity welcomed these modest interventions and made them part of its own geometric dreaming.
+
+The air itself feels thick with possibility, supersaturated like the water, ready to crystallize new formations with each slight change in temperature or humidity. This is creation happening in real time, but at the patient pace of geology—fast enough to sense, too slow to see.
+
+Everything here is in motion: steam rising, minerals precipitating, water finding new channels, the mountain itself exhaling its deep heat into form. Yet it moves with such deliberate grace that the overwhelming sense is of profound stillness, as if you've discovered the mountain's meditation chamber, where earth and water and light collaborate in slow, bright ceremony.

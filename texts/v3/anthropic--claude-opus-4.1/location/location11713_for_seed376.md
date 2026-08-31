@@ -1,0 +1,21 @@
+The valley breathes through ten thousand wooden lungs.
+
+From this ridge, you can see how the forest has consumed the old industrial works—not destroyed them, but incorporated them wholesale into something neither natural nor artificial. The cold air carries no bird song, no insect hum, only the vast respiratory whisper of the canopy drawing breath through iron pipes and exhaust stacks that pierce the green ceiling at regular intervals.
+
+The trees grow wrong here. They've learned the architecture of factories, sprouting in perfect grids where assembly lines once stood, their trunks fusing into cathedral pillars of living wood. Bark flows like cooled metal over rusted girders. Root systems follow the logic of buried electrical grids, pulsing with a faint bioluminescence during the dawn hours when condensation pools in the crooks of mechanical-botanical joints.
+
+Everything moves, always. The canopy churns in slow hurricane patterns even in still air. Branches rotate on organic ball bearings, leaves adjusting their angles in coordinated waves that ripple across kilometers of forest-machine. The old turbines, overwhelmed by vascular tissue, still turn—not from wind but from the measured circulation of sap through their veins. Steam rises where morning dew meets the residual heat of decomposing engines deep in the root layer.
+
+Walk the forest floor and you navigate a dense maze of hybrid infrastructure. Conveyor belts of moss. Pneumatic tubes sheathed in cambium, still shuttling seedpods in pressurized bursts. The ground springs beneath your feet—not soil but a mat of interwoven roots and cables three meters thick, honeycombed with service tunnels where pale shoots quest through darkness, following copper pathways toward electromagnetic fields they taste like sunlight.
+
+The moisture comes in patterns. Not rain exactly, but a scheduled release from the canopy's industrial-botanical processing. Every seventeen hours, the trees open ten thousand valves in sequence, releasing a fine mist that rolls down through the layered ecosystem. The water tastes metallic, filtered through rust and chlorophyll in equal measure.
+
+In the depths, where the factory foundations merge with bedrock, enormous taproots have breached the old cooling reservoirs. They drink constantly, feeding the endless growth above. Sometimes a root will find a cache of industrial lubricant or chemical feedstock and the trees above will fruit strange: bearing glass bulbs full of amber fluid, or clusters of berries that ring like bells when the wind touches them.
+
+There are clearings where the cycle breaks—perfect circles where seedlings writhe and die, where the ground reveals glimpses of ceramic and steel unable to accept the fusion. These dead zones shift location over years, the forest-machine regurgitating what it cannot digest, then consuming it again from a different angle, with different chemistry, until absorption succeeds.
+
+The animals that remain have adapted to the mechanical ecosystem. Mice nest in valve housings. The rare deer that wander through have learned to drink from the condensation collectors, their antlers stained green from the copper-rich moisture. But mostly it's just the plant-machine, processing sunlight and groundwater through a thousand rebuilt factories, manufacturing something unnamed—perhaps just manufacturing itself, an industrial ecology producing nothing but its own endless, churning existence.
+
+At night, when the cold deepens and the mist freezes in the air, you can hear the whole valley groaning. Metal contracting. Wood expanding. Pressures equalizing through biological and mechanical systems that have forgotten the boundary between them. The forest-factory dreams in logarithmic spirals, in production quotas of pollen and spore, in the endless fever of growth without purpose, automation without product, life without pause.
+
+The place has no name anymore. The maps call it dead space—an industrial accident zone, forbidden for a century. They're wrong about the dead part. It's more alive than anywhere else on earth. It just lives by different rules now, in the convergence of rust and chloroplast, where the assembly line learned photosynthesis and the forest learned to manufacture itself.

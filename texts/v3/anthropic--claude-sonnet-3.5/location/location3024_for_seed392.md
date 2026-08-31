@@ -1,0 +1,17 @@
+In the high reaches of an alien world, a living metropolis pulses and grows. This is no city of stone and steel, but a vast, interconnected network of plant life that has evolved to fill every niche of the elevated plateau. The air is warm and heavy with moisture, though not oppressively so. Occasional mists roll through, leaving behind glistening droplets on every surface.
+
+The "buildings" here are colossal trees, their trunks wider than Earth's sequoias and stretching hundreds of meters into the sky. But these are not trees as we know them. Their bark is a constantly shifting mosaic of smaller plants - vines, fungi, and epiphytes that grow and die in a matter of hours, creating ever-changing patterns and textures. The branches intertwine and fuse with neighboring trees, forming a canopy so dense that the dim light filtering through takes on a greenish hue.
+
+At ground level - if one can call it that - there is no soil or rock visible. Instead, a thick mat of vegetation covers everything. It's a spongy, living carpet composed of countless species of moss, lichen, and miniature flowering plants. Each step causes ripples of movement to spread outward as the plants react to the disturbance.
+
+The "streets" of this bizarre city are not paved, but are actually rivers of sap flowing through natural channels in the vegetative mass. These viscous streams move with surprising speed, carrying nutrients and information throughout the living metropolis. Occasionally, a section of the channel will rapidly overgrow, forcing the sap-river to carve a new path.
+
+Despite the overwhelming presence of plant life, animal species are few and far between. Those that do exist have evolved to be nearly indistinguishable from the plants around them. Keen eyes might spot what looks like a leaf suddenly detach and flutter away, or notice a "branch" slowly reaching out to grasp at passing nutrients.
+
+The entire ecosystem seems to be in a constant state of flux. New growths sprout and mature in minutes, while other sections wither and are quickly consumed by their neighbors. The sound of this growth is barely audible - a soft, continuous rustle and creak that forms a quiet backdrop to the otherwise silent landscape.
+
+What's most unsettling about this place is the sense of intelligence that pervades it. The plants don't just grow randomly, but seem to respond to some unseen plan. Structures form and reform with purpose, creating what appear to be dwelling spaces, storage areas, and even rudimentary factories where complex chemical processes occur within specially adapted plant structures.
+
+As night falls, bioluminescent flowers bloom, casting an eerie, pulsating glow over the landscape. The light seems to follow patterns, almost like signals being passed through the living city. In the distance, massive flower-like structures unfurl, their petals acting as collectors for the evening mist, channeling the precious water down to the thirsty roots below.
+
+This is a place of perpetual change, where the line between organism and environment, between individual and collective, has blurred beyond recognition. It's a city grown rather than built, a testament to the endless adaptability of life, and a glimpse into an alien evolution that chose plants, not animals, as its dominant form.

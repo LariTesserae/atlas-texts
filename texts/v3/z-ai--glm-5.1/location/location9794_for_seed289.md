@@ -1,0 +1,37 @@
+# The Chorus Chamber
+
+It begins with sound.
+
+Before your eyes adjust, before you understand the dimensions of where you stand, there is sound — a wall of it, a cathedral of it, a sound so total and dense it has texture. It presses against your skin like cloth. It fills the space behind your eyes. Not a single note but a thousand, layered and interlocking, each one distinct yet inseparable from the whole — chirrups and clicks and sustained hums that vibrate in your molars, in your sternum, in the marrow of your long bones. The noise does not swell or fade. It simply *is*, as constant and unyielding as gravity.
+
+You are underground. Not deeply — you can feel the vague memory of open sky somewhere above, a pressure that suggests the surface is only a few meters over your head — but underground nonetheless. The space you've entered is small. A pocket. A grotto the size of a modest room, perhaps four meters across at its widest, and every surface glows.
+
+This is the first disorientation: the light. You expected darkness below the earth, the clutching black of caves, but the walls themselves radiate a cold, even brilliance. The stone here is not finished stone. It is stone in the process of becoming — soft-edged, mineral-wet, still deciding what it will harden into. Veins of something crystalline thread through the raw matrix, and these veins emit light. Not the warm phosphorescence of deep-sea creatures or the gentle green of foxfire, but a stark, almost surgical white, as if the earth had grown its own fluorescent tubes. The light reveals everything and leaves no shadows. There is nowhere for darkness to pool because the walls themselves are the source.
+
+And on every surface — the walls, the ceiling, the floor, the tiny ledges and protrusions that jut from the unfinished rock — there are creatures.
+
+This is the second disorientation: the density. You cannot find an empty centimeter. The place is saturated with life, packed so tightly that the individual becomes meaningless, that you stop seeing separate bodies and start seeing a single living pelt that covers the stone. They are small — most of them — the size of your thumbnail or smaller, and they cling in layers, older ones beneath younger ones, all of them locked in place, all of them producing the sound.
+
+What are they? You move closer — there is nowhere to move that is not close; the chamber allows no distance — and you see: chitinous shells, not insects exactly, not crustaceans, something for which you have no name. They are segmented and pale, the color of the wet stone, and each one has a slit along its dorsal ridge that opens and closes rhythmically, producing tone. They breathe sound. Or perhaps sound is their exhalation, their constant state of expression, as natural and involuntary as your own heartbeat. They do not move from their positions. They do not eat or mate or die, not here, not in this place. They simply *are*, anchored in place, voicing.
+
+The sound they make is not random. You begin to perceive structure in it — harmonics that lock together, frequencies that reinforce each other, a single immense chord composed of ten thousand tiny voices. It is the loudest thing you have ever heard, and yet it does not hurt. It occupies you. It moves through you. If you hold your breath, you can feel the vibration in your fillings, in the arches of your feet.
+
+The air is cool — not cold, but the cool of places that have never known sunlight, that derive their temperature from the slow breath of deep stone. And it is damp. Not wet, not dripping, but clammy with condensation, with the collective exhalation of ten thousand creatures whose bodies are mostly water. You feel it on your face, on your forearms. A fine mist that never quite precipitates, that hangs in the bright air and makes the light seem to have depth, as if you could swim through it.
+
+There is no vegetation here. Nothing green, nothing that photosynthesizes. The ecosystem — if it can be called an ecosystem, if anything here actually *eats* — is built on something else. Perhaps the stone itself provides. Perhaps the light feeds them in ways chlorophyll never invented. The pale creatures need nothing from the sun. They need nothing from anywhere. They are self-contained, sealed systems, and they have been sealed for a very long time.
+
+You notice the marks on the far wall.
+
+They are slight — you almost missed them in the glare — but they are there: scratches in the soft stone, deliberate and angular, the kind of marks a tool makes when held with intention. Not writing, exactly. Not pictures. Something between the two. A record, perhaps, or a warning, or a name. Someone was here before you, someone who came with tools and made marks and then left, or stayed, or became part of the chamber in some way you cannot determine. There are other traces too: a shallow groove in the floor where something was dragged, a cluster of small stones arranged in a pattern too regular to be natural, a single stalactite that has been broken off at its base and not replaced. Human traces. Scattered, partial,Incomplete. The artifacts of a presence that did not last, or did not choose to stay, or could not.
+
+But the creatures stayed. The creatures stay. That is the deepest strangeness of this place, the one that settles into you last: nothing changes here. The sound has been exactly this sound since before you arrived and will be exactly this sound after you leave. The creatures do not shift or adjust. The light does not flicker. The condensation forms and re-forms in the same quantities, the same distribution. The stone is still becoming, has always been becoming, will never finish becoming. This is a chamber locked in equilibrium, a moment that extends in all directions without variation, a pocket of time that has been stitched shut.
+
+You could stay here. The thought arrives unbidden and does not leave. You could stay here and the sound would fill you until you were not separate from it, until the vibration replaced your pulse, until you became another surface for the creatures to cling to, another substrate in this packed and saturated room. The chamber does not want you — it does not want anything; wanting requires change, and change is the one thing this place has foresworn — but it has room. It always has room. There is always room in a place that never empties.
+
+The sound continues.
+
+The light continues.
+
+The cool damp air continues to touch your skin like the breath of something immense and patient and entirely indifferent to your presence.
+
+And somewhere beneath the chord, beneath the thousand interlocked voices, there is a frequency you almost recognize — a note that sounds like the beginning of something, like the first movement of the first creature that ever anchored itself to this raw, bright stone and began to sing. But you cannot isolate it. It is buried too deep in the chorus, too woven into the fabric of the sound, and besides — it has always been there. It will always be there. The chamber holds all of its moments at once, and in its endless present, the first note and the current note and the last note are all the same note, rising, rising, rising into the white and endless light.

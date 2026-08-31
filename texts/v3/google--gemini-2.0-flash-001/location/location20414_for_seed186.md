@@ -1,0 +1,17 @@
+The air bites with a cold that finds any gap in your clothing and settles bone-deep. It’s a damp cold, too, a clinging moisture that never seems to freeze solid, but instead insinuates itself into everything, amplifying the chill. Above, the perpetual gloom hangs heavy, a suffocating lid keeping the sky – if there *is* a sky – hidden.
+
+You are high up, that much is certain. The ground falls away in dizzying drops. But it's not a sharp, jagged peak, nor a smooth, windswept plateau. This is a landscape etched by unimaginable time, sculpted by a grinding, patient erosion. The mountains here are old. Their forms are rounded, softened, like the weary faces of ancient giants. Great shoulders of rock, once sharp and proud, are now draped in a patient, yielding green.
+
+Despite the cold and the altitude, vegetation thrives, surprisingly lush. Twisted, stunted trees, their branches gnarled and draped with phosphorescent moss, cling stubbornly to the steep slopes. Beneath them, a carpet of fungi, lichen, and strange, alien plants flourishes in the perpetual twilight. Their luminescence casts a soft, spectral glow, making the darkness seem almost alive. You pick out small blue and purple flowers, so many of them, which seem to grow right out of the rocks themselves. They smell like ozone and metal.
+
+The "open" scale of this is disorienting. The emptiness is vast, and yet, the density is… well, *off*. There *should* be nothing, the empty space of high-altitude rock and cold. Instead, you sense a *presence,* a deep, almost palpable feeling of something watching you.
+
+The industrial tech is the biggest anomaly of all. Strewn amidst the primordial landscape are the rusted carcasses of machines. Gigantic, skeletal remains of some long-lost enterprise jut out from the clifftops. Gears the size of houses lie half-buried in the fungal mats. Twisted metal pipes snake across the valleys, disappearing into the gloom. Everything groans under the weight of rust and disuse, the skeletons of industry in a setting of strange natural perfection.
+
+No noise, or barely any. The wind whispers, a low, mournful sigh through the skeletal machinery. The dripping of condensation from the moss-draped branches. The barely audible clicking sounds coming from the plants, like the gears and pistons of a tiny machine. The loudest thing is the pounding of your own heart.
+
+The fauna is diverse and unsettling. You see movement out of the corner of your eye: sleek, shadow-like creatures that scurry amongst the rocks, too quick to be properly identified. Further away, you hear what sounds like the croaking of frogs, but the sound is too deep, too resonant. A hulking silhouette, like a huge black bear, is moving through the darkness, and it seems to shift and ripple. In the air, glowing insects hover and weave between the trees, like living sparks.
+
+This world is dynamic, alive in a way that defies logic. You feel the moisture accumulating, as if it is being *made* by the plants and fungi. You see the shifting, flowing mist in the distance, and the shadows that move underneath it, as if something vast is going on.
+
+Whatever happened here, whatever brought this improbable combination of nature and industry together, is long gone. Abandoned. Yet the machinery, the ecosystem, the strange creatures – they all continue, locked in a bizarre and unsettling symbiosis. This is a world of echoes, a place where the past refuses to stay silent, a place where nature has swallowed technology, and something new, something altogether stranger, has begun to emerge.

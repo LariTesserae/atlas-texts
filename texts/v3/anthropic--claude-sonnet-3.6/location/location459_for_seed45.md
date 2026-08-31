@@ -1,0 +1,15 @@
+A world being born in darkness. Vast geological forms thrust upward through a thin atmosphere - not mountains yet, but the raw scaffolding of mountains, obsidian and basalt columns growing like crystal formations in fast-forward. The process that elsewhere takes millions of years is happening in days, hours, minutes.
+
+The peaks rise so high they scrape the edge of space, their uppermost reaches wreathed in aurorae where they pierce the magnetosphere. Below, the valleys are deep enough that the air becomes thick and hot, though no water flows there - the temperatures are wrong for liquid water, wrong in a way that feels deliberate, engineered.
+
+The rock itself is alive with movement. New formations spiral up from the depths with a sound like distant thunder, while established spires shatter and reform in new configurations. The entire landscape writhes in slow motion, black glass and raw stone flowing like tar, then crystallizing in impossible geometries. Occasionally a formation will collapse, sending avalanches of glassy shards cascading down slopes that extend for kilometers.
+
+Here and there among the chaos stand artifacts of unknown origin - perfect spheres of an iridescent material, each the size of a small house, seemingly untouched by the geological turbulence around them. They hover slightly above the ground, rotating slowly. Their surfaces reflect distorted images of the surrounding landscape, but somehow show it as it will be, not as it is - revealing glimpses of the finished world hidden within this embryonic one.
+
+The darkness is not complete. Besides the high auroral lights, the rock itself produces faint bioluminescence in shifting patterns of deep purple and green - not from any living organism, but from mineral processes that blur the line between living and non-living. These lights pulse in waves across the landscape, almost like heartbeats.
+
+The air carries the scent of ozone and hot stone. Despite the constant movement of rock, the soundscape is surprisingly sparse - the geology operates at such a scale that much of its motion is below or above the threshold of hearing. What does carry is a deep subsonic vibration felt more than heard, punctuated by occasional crystal-clear tones when certain formations align and resonate with each other.
+
+This is a place between states - no longer the raw matter of a young planet, not yet the finished form of an old one. It feels like watching a time-lapse of planetary evolution, or like standing in the workshop of some cosmic sculptor who works in continents and eons. The laws of physics here seem provisional, still being negotiated, as if reality itself hasn't quite decided what's possible and what isn't.
+
+The only constant is change. No formation lasts long enough to map, no pattern remains stable enough to predict. And yet there's a sense of purpose to the chaos - this is not random destruction but iterative creation, each configuration building on the last, moving toward some final form that remains just out of sight.

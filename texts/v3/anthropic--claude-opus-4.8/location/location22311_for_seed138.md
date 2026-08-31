@@ -1,0 +1,21 @@
+There is a place where the river never finished arriving.
+
+It sits low, in a basin that the land only recently agreed to make — the rocks here are young, their edges not yet rounded, their faces still sharp enough to cut a careless hand. The stone is dark and wet, always wet, weeping at the seams. Water doesn't fall here so much as it never leaves: it stands in the streets, it beads on the iron, it hangs in the air thick enough to drink. The heat keeps it half-risen, a permanent warm breath that never condenses into proper rain and never burns away. You walk through it as through a held exhalation.
+
+The town was built into this. Call it a town — it has the bones of one. Brick and riveted iron, stacked close along channels that were once meant to be canals and are now simply the places where the standing water is deepest. Three, four stories in places, with iron stairs bolted to the outsides and walkways thrown across the wet gaps. It is not large. You could cross it in an hour if the heat let you walk that long. But within that small compass it is dense with construction, layered, patched, the older brick disappearing under newer plate, pipes threaded through windows, chimneys leaning on each other.
+
+And it works. That is the strange and steady thing. The machines run. Somewhere below the waterline, engines turn — you feel them more than hear them at first, a deep regular shudder in the soles of your feet, in the railings, in your teeth. Then the sound resolves: the great rhythmic chug of pumps and pistons, the hiss of escaping steam venting into air already saturated, the clang of metal expanding in heat. It is loud, this place, loud the way a working engine room is loud, loud enough that people who live here have learned to read lips and gesture. The noise never lets up. It is part of the air now, like the water.
+
+But here is the thing that takes a while to understand: nothing changes. The pumps run and the water stays exactly where it is. They are not draining the basin. They have not been draining it for a very long time. The water is at the same level on the same brick it has always been at, marked by the same green-black line of slime. The machines run to hold the equilibrium, not to break it. The town is a fist closed around a single unchanging moment, and the engines are what keep the moment from moving.
+
+Vegetation is sparse — it can't get much purchase on iron and wet stone — but where it appears it is lush and small: a fern in a gutter, dark moss velveting a north-facing wall, a single fig-thing rooted in a cracked cistern, glossy-leaved and dripping. Scattered, deliberate-seeming, much green space between the green.
+
+The fauna, though — the fauna is abundant. The warm wet town teems with it. Frogs, mostly, of every size, clustered on the walkways and clinging to the pipes, their throats working though you can't hear them over the engines. Pale fish in the channels, slow and many. Insects in clouds at the dim lamps. Long-legged birds picking through the shallows on the streets, unbothered by people, because people here move slowly too. There is a sense that the animals have arrived to fill a space the people left, and that this arrangement, too, is stable, settled, ancient.
+
+The light is dim. Whatever sun there is comes filtered through the standing haze, a flat pewter glow that never strengthens to noon or weakens to dusk. The lamps are lit constantly — gas, mostly, hissing — and their halos hang in the wet air. You cannot tell the hour. There may not be one.
+
+Walk far enough — not far, this is a small place — and you reach the edge, where the sharp young rocks rise out of the water and the last bolted walkway ends at a railing. Beyond it: more basin, more haze, the suggestion of low hills that the erosion hasn't touched. And behind you, always, the sound of the engines holding everything precisely as it is.
+
+This is the rule of the place, the one rule: it does not move. The heat does not break. The water does not rise or fall. The machines do not finish their work because their work is to ensure nothing finishes. It is a town that decided, at some point, to stop — and built, around that decision, an entire industry of stillness.
+
+You could stay here a long time. Long enough to stop noticing the noise. Long enough to mistake the equilibrium for peace.

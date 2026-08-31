@@ -1,0 +1,15 @@
+A resonant chamber in the living rock, where the walls weep a viscous fluid that catches what little light filters through the high crevices and spreads it into swimming patterns. The chamber is the size of a small chapel, though its boundaries shift and blur as the thick air moves in slow currents. The fluid that seeps from the walls isn't quite water - it's warmer, more alive somehow, and it carries suspended particles that pulse with their own dim bioluminescence.
+
+The floor is uneven, pockmarked with shallow pools that never quite settle into stable shapes. The liquid in them sometimes flows upward, defying gravity in lazy spirals before dissolving into the humid air. What appears at first to be moss or lichen on the walls reveals itself as something more dynamic - patches of crystalline growth that expand and contract like breathing lungs, their edges dissolving and reforming in new configurations.
+
+The air thrums with a deep, persistent resonance that seems to come from everywhere and nowhere, punctuated by sudden crystalline tones as drops of the strange fluid strike particular formations. These sounds build on each other, creating complex harmonies that shift and evolve, sometimes reaching overwhelming intensity before subsiding into more subtle vibrations.
+
+The few plants that manage to grow here have adapted to the strange conditions - transparent vine-like structures that seem to feed on the sound itself, trembling and extending new growth when the harmonics peak. They anchor themselves in the rock but often phase partially through it, existing simultaneously in and out of the solid matter.
+
+Small creatures occasionally flicker at the edge of vision - whether they're actually there or are manifestations of the chamber's strange physics is unclear. They leave ripples in the air like stones dropped in water, but these ripples move upward and outward in impossible geometries.
+
+The chamber's warmth is uneven, with currents of heat that move through the space like visible things, bending light and sound around them. These thermal patterns seem to follow rules, but not ones that map to ordinary physics - they respond to the chamber's harmonics, to the movement of the liquid, to the crystalline breathing, all in a complex dance that suggests consciousness without quite confirming it.
+
+Time behaves strangely here - moments stretch and compress, and it's difficult to tell if you've been in the chamber for minutes or hours. The constant movement of liquid, sound, and light creates a sense of perpetual transformation, yet there's also a feeling of deep stability - as if this place has existed in this state of continuous change for eons and will continue long after any observer has left.
+
+At the edges of the chamber, where the walls fade into shadow, the boundary between solid rock and space becomes uncertain. Matter there seems to exist in multiple states simultaneously, and the low light reveals impossible angles and spaces that recede in ways that shouldn't fit within the mountain's geometry.

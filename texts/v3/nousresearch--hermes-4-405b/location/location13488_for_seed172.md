@@ -1,0 +1,15 @@
+The place is called the Glacial Reactor Core Room.
+
+At the high-altitude heart of a colossal, fully-constructed tower — a spire piercing the void-blacked sky — exists a pocket-scale chamber, a single room buried deep within the network of humming, industrial corridors. Here, sealed away from any outside contact, the Glacial Reactor Core hums and roars in eternal, deafening stability.
+
+The air is bitingly cold, a temperature near the freezing point; any water would instantly crystallize. Yet the air remains dry, as if moisture were actively forbidden by the reactor’s immense, invisible power. The cold feels solid and metallic, carried in the vibrations that permeate the very structure of the room.
+
+The reactor itself occupies the entire center of the chamber, a towering and intricate assembly of polished, dark alloy, freshly forged and razor-sharp at every machined edge. Its surfaces gleam under the normal, engineered light flooding the room from banks of recessed panels overhead. Heat-exchange conduits, simultaneously thick and delicate, spiral from the reactor's core to the angular walls of the chamber, walls also too new to bear the scratches or grime of time.
+
+Sparse control surfaces, interfaces of etched steel and glowing glyphs, stand at intervals along the reactor’s flanks, each panel meticulously placed, each display a window into the strange physics that govern this place. The laws of physics here are not the laws of the natural world; the reactor hums with a power that defies entropy, sustaining conditions that should not persist unchanging for millennia. The glyphs on the interfaces hint at processes both pseudoscientific and uncanny, the workings of a technology that manipulates not just energy, but the flow of time itself within this undisturbed room.
+
+The only sound is a roaring, metallic drone that presses on the ears like a physical weight, the constant, unwavering output of the reactor. It's an industrial sound, but one so deep and resonant that it feels more like the earth itself groaning. There are no animals, no insects, nothing that breathes or moves; this is a room for machines, and the machine is the room.
+
+In the corners, hardy, desiccated growths of crystallizing mineral - perhaps the only thing resembling vegetation here - have been coaxed into strange, geometric forms by the reactor's ceaseless, cold emissions. They are sparse, delicate and brittle, reflecting the light in dull silvers and blues from their facetted edges. These formations are the only evidence that any material process can occur within this frozen equilibrium. They are immune to erosion, as the air itself seems too cold, too dry and still, to carry particulates or foster decay.
+
+In the Glacial Reactor Core Room, time is suspended. The deafening roar, the cold, the strange half-life of the reactor's core: all remain in perfect, unyielding balance, contained within the cold, intimate chamber — a room that was never meant to be entered, only observed and maintained by whatever higher intelligence designed it.

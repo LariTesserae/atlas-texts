@@ -1,0 +1,51 @@
+---
+
+## The Sessile City
+
+You arrive in the basin and the first thing you understand is that the place is alive.
+
+Not in the way a forest is alive — not metaphorically, not as a collection of living things — but the way a single body is alive. The city breathes. You realize this within the first few minutes, though you could not say exactly when you noticed: there is a rhythm to the air, a slow indrawing that pulls at your clothes and your hair and the loose skin at the inside of your wrist, followed by an exhalation that is warmer and carries a faint mineral sweetness, likeite feldspar licked clean. The cycle takes perhaps four minutes. During the inbreath, the walls tighten — you can hear, or almost hear, a faint creaking of grown material flexing, the sound a tendon makes when you press a thumb into it. During the outbreath, everything loosens. Dust sifts down from the undersides of arches. The light shifts.
+
+It is always dim here. Not dark — never dark — but a persistent twilight quality that has no obvious source. The luminescence comes from below. The streets, where they exist, are made of a translucent material that glows faintly from within, the color of marrow, of yolk, of candlelight seen through closed fingers. It is not light that illuminates so much as it defines: the edges of things become visible for a radius of perhaps ten meters around each step you take, and beyond that the world dissolves into shapes and suggestions. You never see the whole city. You see the part of it that is close enough to touch, and the rest is implied.
+
+The architecture is not built. It is *grown*.
+
+Spires rise from the basin floor — some no thicker than a wrist, others as wide as a ship's mast — and curve outward at their tips into shapes that resemble clasped hands, cupped leaves, or the bell of a horn. They are pale: bone-white, faintly grey, occasionally streaked with veins of something darker, a blue-black or a rust-red, like mineral deposits caught mid-migration through living tissue. The walls that connect them are not walls exactly but membranes, thin enough in places to see through, though what you see through them is never the thing on the other side. There is a persistent refraction, as though the material bends light around a corner. You look through a wall and see a street that is ninety degrees away from the one you're standing in.
+
+The buildings are young. You can tell because nothing has softened yet. Every edge is crisp. Every surface still carries the texture of its emergence — ridged, whorled, patterned in geometries that are almost but not quite hexagonal, as though the material wanted to be crystalline but couldn't commit. In places, the growth is still visibly in progress: a wall that thickens by a hair's breadth while you watch, a new aperture opening in a dome that yesterday was seamless, a spire that leans a fraction more toward the light (though there is no obvious light source above, only the dim veil that sits over everything like gauze over a wound). The ground underfoot is the same material — dense, faintly warm, and faintly yielding, like the sole of a shoe. It hums when you step on it. Not an audible hum. A hum you feel in the molars.
+
+There is no water here.
+
+Nothing flows. Nothing pools. The basin floor is dry and pale, and the dust that rises when you walk is fine and mineral-smelling, almost sweet, likeite chalk rubbed between wet palms. But the air carries moisture — not the moisture of rain or rivers but an exhalation, a metabolic dew that condenses on every cool surface. It gathers in thin films on the undersides of arches and along the inner walls of the larger chambers, where it hangs in droplets that are not quite water: heavier, more viscous, faintly iridescent, tasting faintly of copper and of something organic that has no name. This is the only liquid in the place. It appears and disappears with the breathing cycle, condensing during the slow inbreath, evaporating — or being absorbed — during the out. You can collect it in your hands. It does not behave like water. It holds its shape for a moment, then thins and vanishes upward, as though the air above is hungry.
+
+The vegetation is sparse and does not behave like vegetation.
+
+Along the bases of the spires, in the crevices where one grown structure meets another, there are thin filaments — pale, almost white, faintly luminous — that spread in reticulated patterns across the surfaces like frost on glass, like mycelial networks made visible. They do not photosynthesize, or if they do, they do it in a spectrum you cannot see. They grow slowly. Watching them, you might perceive a lengthening of a single filament over the course of an hour — or you might not. They are patient in ways that make patience feel like violence. In some of the deeper chambers, where the membrane-walls are thicker and the glow from below is muted to near-darkness, there are mats of something softer: a moss-analogue, perhaps, or a fungal substrate, that yields underfoot and releases a smell like wet stone and distant smoke. It is the closest thing to green in the place — not green, exactly, but a color that green might become if it were left alone in the dark for a very long time and started to think.
+
+The fauna is vanishingly rare and almost impossible to see.
+
+You find evidence of it: tracks in the mineral dust that are too fine to parse, scratches on the walls at a height that suggests something small and light and climbing. There is a chewing pattern on the base of one spire — neat, methodical, a millimeter at a time. Once, you see a movement at the edge of your perception: a flicker, a shadow that moves the wrong way — not across your field of vision but *behind* it, as though something passed between you and the dim glow of the walls and was gone before your eyes could confirm it. Another time, you find a shed casing pressed into the dust — translucent, hollow, shaped like a flattened teardrop, no larger than your thumb. It is warm to the touch. It hums faintly, though less than the ground. You set it down and when you look back it has gone — not moved, not blown away, simply absent, as though the dust closed over it.
+
+The city has no technology.
+
+No tools, no devices, no mechanisms. Nothing made from something else. Everything here is continuous with the organism — grown, not constructed; cultivated, not assembled. But it is a city for all that: it has districts, thoroughfares, chambers large enough to hold a hundred people standing shoulder to shoulder, and smaller rooms that feel private, enclosed, intentional. There are gathering spaces where the spires lean toward each other and the membrane-walls thin to translucency, forming courtyards lit from all sides by the bone-glow. There are corridors that dead-end and corridors that loop back on themselves, not through trickery but through topology — the place is not flat, not entirely, and the geometry folds in ways that a flat map could not capture. You go left and arrive behind yourself. You go down a staircase made of the same warm, yielding material and find yourself in a space that feels higher than where you started.
+
+There is no one here.
+
+Or: there is no one here *now*. But the city was made for someone. The scale is wrong for solitude — too deliberate, too shaped. The gathering spaces are too large for one. The private chambers are too small for a crowd. Something lived here, or lives here, in numbers you can feel but not see. Their absence is not abandonment. It is a held breath.
+
+The silence is total, or nearly so. Not the silence of a vacuum — there is texture to it, a grain, like the silence inside a seashell or inside your own skull. The breathing of the city provides almost-sound: the flexion of the walls, the faint percussion of dust settling, the imperceptible clicking of filaments growing. If you stand still long enough, you begin to hear below that a rhythm that is not the breath but older, deeper — a pulse from the substrate, from whatever lives beneath the basin floor, vast and slow, patient in a way that makes the filaments look frantic. One beat per minute, perhaps. One beat per five. You can't be sure. The time-scales here are not yours.
+
+The erosion is young. Everything is freshly formed. The edges of the basin itself — the rim you climbed to enter — are still sharp, still crumbling in small avalanches ofite dust that slide down the interior slope and settle on the floor in thin, even sheets. The architecture has no patina, no wear. No foot-traffic has polished the stairs. No wind has rounded the spires. If you press your palm against a wall, you leave a print — not in dust but in the material itself, which yields slightly and holds, like pressing into firm clay that is still deciding whether to be stone. The print fades in perhaps ten minutes, slowly, as the wall grows back into its original shape. The city is healing itself. The city is still being born.
+
+And through all of this, through the breathing and the growing and the slow luminous pulse from below, there is a sense of purpose you cannot name. Not intention — not a plan, not a designer — but something like habit, like the deep grammar of a process that has been running for longer than the place has had walls. The city is not being built. The city is the visible surface of something much larger that is doing something much slower, and you are walking on its skin.
+
+The dim light shifts. A corridor you passed through twenty minutes ago now has an opening where there was a wall. You are not surprised. You walk through it, into the next chamber, where the filaments are thicker and the bone-glow is faintest and something — a warmth, a pressure behind the eyes, a sense of being *noticed* — reminds you that this place knows you are here even if nothing is here to see you.
+
+The dust under your feet is warm. It has always been warm. You realize you stopped being cold some time ago and cannot remember when.
+
+The breathing continues.
+
+The city grows.
+
+---

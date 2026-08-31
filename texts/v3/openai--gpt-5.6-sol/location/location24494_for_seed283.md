@@ -1,0 +1,41 @@
+The land lies low enough that water never entirely leaves it, though from a distance it does not resemble a swamp. It is a broad, dark plain of roots, sedges, cane, and low forest, extending farther than the night allows the eye to measure. Rain is intermittent here. It comes in sudden warm sheets, fills every hollow, beads along bark and shell, and then vanishes upward again into the heat. Days later, the ground remains damp beneath its crust. Water persists in oxbow pools, animal tracks, split trunks, and narrow black channels hidden under vegetation.
+
+The heat does not break after sunset. It settles closer.
+
+Almost every part of the plain is occupied. Plants overlap in tiers: tough grasses above creeping stems, ferns inside the grasses, seedlings under the ferns, moss and fungal skin beneath them all. Trees stand close where the ground is firm enough, their lower trunks polished by generations of rubbing bodies and seasonal water. Vines bind one crown to another. Broad leaves lean over the channels and collect condensation until their tips bow and release a single heavy drop.
+
+There is no clear ground. What appears to be bare mud is patterned with worm casts, hoofprints, claw marks, pellet heaps, fallen seeds, and the fine vents of buried insects. A rotten log is not an object but a crowded district: beetle larvae inside its wet wood, ants in the dry seams, frogs beneath the loosened bark, mites and springtails in the fungal paste, a snake resting in the hollow where the heartwood has dissolved. Even standing water is densely allotted. Mosquito larvae hang beneath its surface. Diving beetles patrol below them. Snails graze the edges. Small fish wait in the deeper prints left by heavy animals.
+
+The fauna is overwhelming not because it displays itself, but because nothing is empty.
+
+At first the plain seems nearly silent. There is no surf, no strong wind, no river loud enough to command the night. Sound remains local and small: a drop striking a leaf; the papery drag of a lizard through dead grass; jaws clipping green tissue; soft mud closing behind a foot. Insects produce a thin electrical murmur, but not a continuous roar. Their calls start and stop in districts, each patch answering another across the dark. Occasionally a frog gives one blunt note from a hidden pool. Farther off, something large exhales through its nostrils and the surrounding insects fall quiet for several seconds.
+
+Then the smaller sounds return.
+
+In the hottest hours, animal movement acquires the organization of industry. Columns of ants run along roots in opposing lanes, bringing leaf fragments inward and carrying waste away. Termites process fallen timber from within, leaving the outer shape standing until a shoulder, rainstorm, or slow loss of balance collapses it. Dung beetles dismantle what the herds leave. Flies arrive within minutes. Fungi open pale fans overnight and soften the remainder. Pollinators work brief flowering cycles in shifts—moths in darkness, bees after dawn, beetles whenever the heat permits. Nothing here has been built, yet everywhere there is extraction, transport, processing, storage, ventilation, and repair.
+
+The machinery is alive and distributed. It has no center.
+
+Under the soil, roots and fungal threads exchange minerals across distances that no single plant could reach. In termite mounds, warm air rises through porous chambers and draws cooler, wetter air from below. These mounds are not conspicuous towers but old, rounded swells, weathered down until they resemble natural knuckles in the plain. Many have been occupied, abandoned, eroded, and occupied again. Burrowing mammals enlarge some passages. Snakes take others. Rain seals one vent while termites open another. The workings continue without changing the essential shape of the land.
+
+Larger animals move through this packed world by inherited routes. Narrow tunnels pass beneath reeds where generations of bodies have pressed the stems apart. Herd paths cross the plain on slightly raised ground, branching around pools that appear in wet months and rejoining where the soil hardens. The paths are old enough to have their own ecology. Short grazing plants grow in their margins. Ticks wait at knee height. Ground birds forage in disturbed mud. Predators use the same corridors more quietly.
+
+Most animals are sensed only in fragments: reflected eyes beneath a leaf; the wet flank of a grazer moving behind cane; bats flickering across a patch of dim sky; a tail withdrawing into water. Small nocturnal mammals climb through the interlocked vegetation without descending. Frogs cling to stems over temporary pools. Crocodilians, where the channels deepen, become lengths of bank with nostrils. Dense clouds of insects occupy the warm air, yet in the dark they are visible only when they pass close enough to touch the skin.
+
+Light is scarce even when the moon is up. The layered canopy catches it, and mist absorbs what remains. The landscape is rendered in degrees of blackness: glossy leaves, dull mud, silver water, the soft charcoal of distant tree crowns. Bioluminescent fungi occasionally mark a fallen branch with a weak green seam. Fireflies appear in low patches, not enough to illuminate anything, only enough to reveal the depth of the darkness between them.
+
+Where open water survives, it lies flat and warm, rimmed so tightly with growth that the shore cannot be identified. Mats of floating plants creep across the surface. Their roots trail into tannin-dark water, tangling silt and shed skins and eggs. During dry intervals the pools shrink from the edges inward. Fish crowd the remaining depths. Wading birds arrive. Predators concentrate around the margins. When rain returns, the pools join through grassy spillways, and the survivors disperse into channels that had seemed to be only damp ground.
+
+These changes are gradual and repetitive. The plain does not often transform dramatically. It swells, softens, contracts, and firms. Channels migrate by the width of a root. Trees lean over decades. Dense thickets advance into old pools, while elsewhere hoof traffic and shade reopen water. Erosion has long since found its balance here. Nothing holds a sharp edge. Banks are rounded and root-laced; dead trunks sag into the soil rather than remaining exposed; every depression gathers organic matter until it becomes habitat for something.
+
+Even decay is crowded.
+
+There are no ruins, roads, fences, cut stumps, or discarded tools. No straight line survives except the brief shaft of a reed or the flight of an insect. Yet the place carries the pressure and throughput of an industrial region. Biomass is manufactured in sunlight, consumed in darkness, disassembled underground, and returned through roots. Vast quantities move by mouth, gut, mandible, hypha, and floodwater. The production never stops, though from a distance the plain seems motionless.
+
+Its governing rule is occupation: every shelter has a tenant, every tenant has parasites, every carcass has claimants before it cools. Space is made only by consumption, collapse, or death, and it is filled again almost immediately. The second rule is concealment. Abundance does not mean spectacle. Most life remains behind bark, under water, within soil, inside leaves, or motionless among patterns that resemble it.
+
+The third rule is patience. Nothing needs to hurry for long. The heat discourages waste. Predators wait. Seeds wait. Eggs wait in drying mud. Trees spend years closing a gap. Water moves through the region without urgency, seeping, condensing, collecting, evaporating, returning.
+
+Standing there, one would not hear the full multitude. One would feel it instead: the faint impacts against clothing, the mud flexing under hidden tunnels, breath in the reeds, condensation loosening overhead. The darkness would seem solid with bodies.
+
+And beyond the nearest thicket, the same dense plain would continue—pool after pool, root after root, quiet production spreading across the hot lowland with no wall, chimney, or engine to announce it.

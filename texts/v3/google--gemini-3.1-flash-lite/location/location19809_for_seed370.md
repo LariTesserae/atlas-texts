@@ -1,0 +1,13 @@
+You are standing in the throat of an assembly, a chamber no larger than a cathedral nave, carved entirely from a dense, calcified resin that hums with a warm, pervasive friction. There is no horizon; there is only the internal architecture of a machine that has forgotten its purpose but persists in its motion.
+
+The walls are not stone, but a layering of millions of interlocking, hand-hewn clockwork teeth—brass, bone, and oxidized copper, fitted with such primordial precision that there is no space between them to insert a needle. The floor is a mosaic of gear-surfaces, polished smooth by an eternity of grinding. Everything here is built; there is no geological substrate, no raw earth, only the infinite, repetitive output of a manual craft that predates fluid or memory.
+
+The temperature is constant, a dry 1.7-scale warmth, sustained by the relentless interaction of the surfaces. The air is stagnant, recycled through microscopic pores in the metal wall, tasting of ionized dust and long-settled silt. Because the erosion is so ancient—the final, settled state of a world that has been rubbing against itself since the dawn of the construct—the edges of every gear, every piston, every latch are rounded to a soft, blunted perfection. There are no sharp corners left in this reality.
+
+The sound is the true occupant of this space: a deafening, unified roar of grinding metal. It is not discordant; it is the absolute, singular scream of a machine locked in total friction. It is a constant, heavy vibration that rattles the marrow of your teeth, a sound that does not fluctuate, fade, or falter. It is the signature of an equilibrium that cannot be broken.
+
+There is no light here other than the dull, ochre glow cast by the friction-heat of the gears themselves—a faint, amber luminescence that clings to the crevices of the machinery. 
+
+You perceive a profound loneliness, for there is no life; no moss grows between the interlocking teeth, no moisture condenses on the cold-seams, and no creature wanders these tight, claustrophobic corridors. The landscape is a closed loop of labor. It is a hamlet of gears, a room-sized engine that is its own prisoner. 
+
+To exist here is to understand that the world is finished. Every movement is a repetition of a gesture performed a trillion times before. The atmosphere is thick with the weight of "completedness." You are inside the logic of a primitive mind that decided, eons ago, that if a thing could be built, it should be built over every inch of available space, until the universe was nothing but a crowded, grinding, sun-warmed intimacy of metal, perfectly still in its perpetual motion.

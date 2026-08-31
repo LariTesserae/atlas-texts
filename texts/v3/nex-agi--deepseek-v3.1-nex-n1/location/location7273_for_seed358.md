@@ -1,0 +1,29 @@
+**The Cavern of Endless Rain**
+
+You stand on the metal walkway suspended above what should be floor, but isn't. The cavern stretches beyond sight in every direction—a vast underground space carved not by time but by necessity. The ceiling hangs low enough to feel oppressive, yet disappears into the dimness above like an inverted landscape of its own, dripping endlessly.
+
+The water falls in sheets and streams and individual droplets, creating a perpetual storm that never reaches the ground. Instead, it crashes into a maze of rusted iron gutters, copper collection channels, and porcelain overflow catchers suspended at varying levels throughout the cave. The din is overwhelming—not thunderous exactly, but a relentless hammering of thousands of gallons meeting metal every second, echoing through rock chambers that amplify the chaos into something unbearable.
+
+**The water is everywhere**. It beads on the walkway railings, runs down support cables in thick rivulets, collected from some surface reservoir above that never seems to dry. The air tastes of wet stone and rust, thick with moisture that makes your lungs feel heavy. The temperature is warm enough to be uncomfortable, not quite hot enough to steam, but everything sweats nevertheless—the pipes weep condensation, the rock walls weep groundwater seepage, even the metal supports seem to weep rust tears.
+
+**Vegetation exists only where it shouldn't**. Stubborn patches of dark moss cling to the few dry surfaces between water collection channels, fed by whatever dim light filters through maintenance shafts from above. Some kind of ghost-white fungus grows in rings around the base of the support columns, delicate translucent structures that disappear when you focus on them too directly. 
+
+The **creatures** have learned to thrive in this manufactured chaos. Bats by the thousands darken the ceiling above the collection systems, their leather wings flashing through the perpetual downpour as they hunt for the blind white fish that somehow survive in the overflow basins. Pale insects with translucent wings and too many legs crawl across the wet metal surfaces in relentless waves, avoiding the water streams by means you can't comprehend.
+
+**Everything is built on, around, and through everything else**. The support beams for the water-collection apparatus double as anchor for the maintenance walkways that double as housing for the insects that double as food for the bats. The gutters catch the water that feeds the algae that feeds the fish that feed the workers who maintain the gutters. There's no space between functions—every element exists in maximum density with all others.
+
+**The industry here** feels both forgotten and eternal. The pumps beat somewhere deep in the cave system with a bass heartbeat that occasionally rises through the floor grates. The electricity that powers the filtration system hums through cables thick as your arm, hung carelessly across decades of previous repairs and additions. The mechanisms don't seem to be producing anything—just moving water from falling to rising through a system so elaborate it might as well be purposeless.
+
+**Light comes** from nowhere and everywhere. The maintenance shafts from above let in faint gray daylight, but most of the illumination comes from strings of work lights that sway in the water droplets' impact wind, casting yellow reflections that waver and fragment through the perpetual rain. The walkway you're on is one of dozens, maybe hundreds, that crisscross the space like lattice veins in a stone heart.
+
+Time **moves slow** here. The water system was built generations ago by someone who needed to collect water from below ground level for reasons forgotten now. The additions and repairs and expansions and workarounds have happened gradually over decades—a length of pipe replaced here, a support beam added there, a new collection channel improvised when the old overflow system failed. The changes are glacial in their pace, but the result is a system so impossibly dense with complexity that it seems to have evolved rather than been engineered.
+
+**The sound** never stops. It might be quieter in the rare corners where the downpour is partially blocked by hanging equipment or structural supports, but everywhere else the water's impact on metal surfaces creates a cacophony that makes normal thought impossible. The pumps maintain their low bass rhythm somewhere beneath it all, providing the only steady reference point in the aural chaos.
+
+Nothing is **particularly strange** about this place, except for its absolute existence. The physics of water collection under these conditions shouldn't work but somehow does. The ecological support system of bats and fish and insects and moss and fungi shouldn't be sustainable, but persists. The maintenance crews shouldn't be able to navigate this complexity, but their occasional discarded tools and footprints suggest they do.
+
+The **buildings** are scattered in the sense of being isolated paradoxes within the system—a single generator shed on stilts above the water streams, a maintenance station clinging to the rock wall like a barnacle made of corrugated tin and hope, an occasional abandoned platform whose purpose has been lost to time and the system's evolution.
+
+You watch a **white fish** breach the surface of one of the overflow basins, catching a translucent insect in its sightless mouth. The **bats** wheel overhead through sheets of falling water that should but don't dampen their wings. The **pumps** beat their eternal rhythm below. **Lights** sway. **Water** falls. **Everything else** stays in its place, even though none of the places make sense.
+
+This is where the rain comes to be reborn before it rises again to fall once more.

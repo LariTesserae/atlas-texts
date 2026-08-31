@@ -1,0 +1,37 @@
+The country lies low beneath a broad, ordinary sky, though nothing in it is quite ordinary once one has crossed the first few miles.
+
+It is a basin of exposed mineral ground: long flats of iron-gray clay, pale shelves of saltstone, ridges of dark porous rock worn into shallow terraces. There are no trees to give distance scale, no grass moving in wind, no brush collecting at the feet of slopes. The land seems initially empty. Then the eye begins to separate its parts: a far line of ocher bluffs; black channels winding between them; scattered pale domes where mineral crust has swollen upward; narrow basins shining with a skin of water.
+
+The water is never abundant, but it is everywhere in implication. It beads beneath overhangs. It gathers in the seams of stone at dawn and runs away by noon. Warm rain comes in narrow, localized curtains, falling from low clouds onto one portion of the basin while the ground a mile away stays dry and powdery. The rain does not nourish anything. It darkens the rock, fills shallow hollows, and feeds the unseen processes under the crust.
+
+Most pools are too cloudy to reflect the sky. Their surfaces tremble with slow bubbles, not boiling exactly, but breathing. They carry mineral colors: greenish copper, milk-white gypsum, a yellow film like diluted oil. Around them, salt has crystallized in low rims and broken plates. Walking near the pools leaves no clean footprints. The ground takes an impression, softens it at the edges, and eventually fills it with an opaque seep.
+
+There is no vegetation. Not even the hardy, accidental kinds that usually occupy cracks or ditches. The rocks have no moss. The damp ground raises no reeds. Nothing roots here because there is nowhere for a root to belong: the soil is too saline, too metallic, too continually remade from below.
+
+Yet the basin is not lifeless in the simple sense.
+
+At intervals across the flats stand formations that resemble industrial equipment from a distance: squat cylinders of layered stone, tall vents with blackened mouths, shelves that look like conveyors frozen mid-operation. They are not constructed. No seams have been welded, no bolts fasten their parts. They are deposits built by pressure, heat, and patient precipitation: natural chimneys, mineral towers, exhaust stacks raised grain by grain from the earth’s chemistry. Some are twenty feet high, some much taller, their flanks stained by successive eras of runoff. From their mouths comes a continuous sound.
+
+The sound defines the landscape. It is loud enough that silence becomes a theoretical thing. A low hydraulic roar travels underfoot. Air escapes in steady jets, making flute-notes through cracked stone. Farther out, broad vents issue a deep, unhurried pounding, as if enormous presses were operating somewhere beneath the plain. The rhythm never quickens, never falters. It has no beginning in any audible moment. One can stand beside a fissure for hours and hear exactly the same surge of vapor, the same rattle of loosened crystals, the same immense subterranean turning.
+
+The basin possesses the atmosphere of an industrial district without having ever been built.
+
+Warm vapor hangs in the low places. It smells of wet iron, sulfur, hot dust, and an occasional clean mineral sharpness like rain on old stone. Heat rises from fractures in the ground, so that the warmest air is near the surface while the sky above remains merely bright and mild. In the afternoons, the horizon blurs through steam. At night, condensation forms on every exposed face, silvering the black rocks and making the salt terraces glow faintly under moonlight.
+
+The terrain has been weathered into a durable arrangement. Its channels are old, its slopes softened but not gentle, its runoff routes fixed. Water has cut the same courses for so long that they no longer look cut at all; they look inevitable. Even the broken places seem settled into their brokenness. A cliff has shed all the stone it was meant to shed. A basin has gathered exactly the depth of sediment it can retain. The land erodes, but not toward a different shape. Material dissolves in one place, recrystallizes in another, and the visible world remains, in its larger form, the same.
+
+This is its peculiar rule: nothing changes overall.
+
+Rain falls and vanishes. Vapor rises and becomes rain. Crusts flake from the vents and re-form in the same white collars. A channel may carry a brief rush of ocher water, but when it is empty again its bed has the same bends, the same polished stones, the same shallow forks. There are no seasons, or if there are, they have been reduced to a variation too slight to matter. The warmth stays warm. The light stays plain. Clouds cross the sky without altering the character of the day.
+
+In the distance, movement sometimes appears: a solitary animal crossing the open ground with unusual caution. They are rare enough to be startling. Low-bodied, pale, almost hairless creatures emerge from the shadow of a ridge to drink at the less acidic pools. They leave quickly. Their feet are broad and mineral-stained; their eyes are dark and reflective. Some live in cavities warmed by the earth, feeding on whatever thin chemical films gather there. They do not call often. When they do, their voices are nearly lost among the vents.
+
+Birds are rarer still. A few dark-winged scavengers circle where warm air rises, not hunting so much as using the lift. They can remain aloft for a long time without flapping, moving across the bright sky like scraps of burnt paper. They nest in holes high in the salt bluffs, where the rock remains dry even during rain.
+
+At the center of the basin is a wide level expanse called, by no one in particular, the Floor. It is not smooth. Its surface is a mosaic of cracked mudstone, crusted mineral plates, shallow depressions, and black seams that breathe hot air. But it is level enough to make the surrounding ridges seem distant and theatrical. Across it, sound travels with unnatural clarity. A stone dropped half a mile away can be heard ticking against the crust. The thunder of a rainshaft can arrive as a single sheet of noise, then stop at an invisible boundary.
+
+In normal daylight, the Floor is silver-gray. After rain, it becomes dark, reflective, and almost metallic. The clouds overhead appear in its wet patches, broken into a thousand small, trembling pieces. There are moments then when the sky seems to have fallen into the earth and been caught in shallow trays.
+
+Nothing has been placed here by hands. No road crosses it. No wire follows the ridge. No ruin interrupts the empty distances. And still, the place feels occupied by systems: pressure chambers, exhaust routes, settling beds, cooling pans, mineral waste heaps. The planet has made an industry of itself. Its production is heat, vapor, salt, and noise. Its machinery is geology. Its working day has lasted longer than memory, and because nothing is allowed to accumulate or diminish beyond its proper measure, it may continue in this same state indefinitely.
+
+To stand in the basin is to feel that one has entered not a wilderness, exactly, but a factory with no builders and no workers—a warm, damp engine of stone, operating perfectly and forever beneath the open sky.

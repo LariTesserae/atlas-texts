@@ -1,0 +1,39 @@
+### The Crown Thicket
+
+High on a mountain shoulder, where two young ridges lean together, there is a city with no builders.
+
+From a distance it resembles a dark green knot caught among pale cliffs. It occupies no more than a steep-sided basin, perhaps the breadth of a small town, yet every part of the basin is filled. There are towers, galleries, covered lanes, cisterns, walls, bridges, and crowded upper stories—but all are grown. No stone has been cut. No timber has been severed and raised again. Nothing here has known a tool.
+
+The mountain beneath is newly exposed: slate-black ribs, raw fractures, and narrow blades of frost-split rock. The peaks have not yet softened into rounded forms. Their faces retain the angles of breaking. Yet inside the basin, very little mineral ground remains visible. Plants have taken the rock not as soil but as scaffolding. Roots occupy cracks before grit can gather in them. Moss lays dark, wet skin over sharp ledges. Pale lichens seal fresh surfaces. Shrubs knit separate slabs together until the distinction between cliff and garden becomes difficult to maintain.
+
+The largest plants grow like architecture. Their trunks are short, massively bundled, and divided into many load-bearing columns. They rise only a few dozen paces before spreading into vaults. Branches meet neighboring branches and fuse, making high enclosed chambers in which several generations of growth stand one upon another. Old boughs become floors. New roots descend through those floors as pillars, seeking lower layers of dampness. What appears to be a street is often the narrow space left between two root walls; what appears to be a stair is a succession of swollen knots climbing toward light.
+
+The city is packed almost past passage. Its lanes pinch shut over the course of a season. Door-shaped openings are only temporary failures in the foliage. Balconies of shelf fungus protrude beneath woven canopies, and loops of vine hang between towers like covered bridges. Even the smallest hollows are inhabited by soft vegetation: liverworts, translucent mosses, black-green cushions, thread ferns, beadlike succulents full of cold water. There is no bare surface on which something else is not beginning.
+
+The air is dim at midday. The basin’s high walls keep the sun low and brief, while the layered canopy breaks what remains into diluted green shafts. Light moves through the settlement slowly, passing from leaf to waxy leaf until it seems less like illumination than a substance being consumed. In the lower corridors, plants shine only when wet: silver edges, blue-black needles, red membranes stretched over buds. Some flowers are nearly colorless, opening as small cups that collect the weak light rather than display themselves in it.
+
+Cold governs the place. Frost forms even in the growing season, especially along the upper bridges where vapor condenses on exposed leaves. The plants do not resist it so much as incorporate it. Hairy stems hold rime in precise white outlines. Broad leaves fold before freezing, becoming steep roofs from which ice can slide. Hollow trunks retain warmer air, and entire communities of moss and fungus live within these sheltered interiors.
+
+Water is frequent but seldom abundant in one place. Clouds drag across the ridge and enter the canopy as mist. Every twig combs moisture from them. Droplets travel down branching channels, collect in leaf-basins, and spill from one level to the next. After rain, the whole city weeps. Water ticks from vault to vault, threads through root gutters, and vanishes into black cavities beneath the living floors.
+
+There are ponds, though few resemble open water. Most are hidden cisterns formed by interlocked roots. Their surfaces are roofed with floating plants, so that only a tremor betrays the water beneath. Along the basin’s lower edge, seepage gathers into a narrow marsh suspended above the cliff. It has no mud in the ordinary sense—only centuries of saturated plant fiber, compressed into a trembling mat. From underneath comes the faint, continuous sound of drainage into the mountain.
+
+The settlement has districts, not by design but by competition.
+
+On the windward side stand dense towers of needle-leaved growth, their crowns clipped flat by ice and weather. They catch cloud and distribute moisture inward. The central quarter is warmer and darker, built from broad-leaved vault trees whose fused limbs create several habitable levels. Near the marsh edge, root houses rise on arches above cold seepage. At the highest point is a thicket of red-barked spires crowded so tightly that none can thicken without absorbing a neighbor. Their trunks merge, separate, and merge again. The oldest structures are not individual organisms anymore but agreements among many organisms, maintained through pressure, grafting, and shared decay.
+
+No paths remain permanent. Growth closes some corridors and opens others. When a branch falls, it does not create ruin for long. Vines stretch across it, moss quiets the broken fibers, and roots descend from above to make a new arcade. Collapse is one of the city’s methods of construction. Rot is excavation. Frost is a mason that splits overloaded limbs and clears shafts through the canopy.
+
+The rules here are simple and absolute. Nothing dead stays unoccupied. Nothing exposed stays dry. Nothing remains alone if another living surface can reach it.
+
+Fauna are rare. The cold, the altitude, and the near-total possession of space by plants leave little room for large animals. Now and then a white-winged mountain bird drops through an opening in the canopy, beats about in confusion, and escapes with berries in its throat. Tiny dark beetles move beneath bark. A few pale, long-legged creatures skate across the concealed cisterns, sensed more often by rings in the duckweed than seen directly. In the deepest chambers live slow-bodied grazers the color of wet roots. They feed on fungal skins and may spend their entire lives within a single hollow trunk.
+
+Because animals are scarce, the plants perform many of the movements an observer might expect from them. Seed pods snap sharply in frost and cast their contents across lanes. Vines recoil when ice weights them. Flowering mats creep several finger-widths toward temporary light. Whole walls swell after rain. In cold dry spells, the city contracts: leaves furl, bridges tighten, and hollow chambers exhale faint streams of vapor.
+
+Most of the time it is quiet. Wind passes overhead with a distant, oceanic murmur but rarely reaches the lower levels. Within, there are droplets, the minute crack of freezing sap, the brush of leaves adjusting beneath accumulated water. Occasionally a loaded bough gives way. The sound travels through the fused wood as a deep knock, answered elsewhere by a rain of loosened frost.
+
+At night the temperature drops quickly. Pools skin over. Mist settles into the lowest lanes, and the upper crowns vanish into cloud. The city then seems deeper than the basin that contains it, descending through chamber after chamber into a dark vegetable interior. The mountain is present only as pressure beneath the roots.
+
+By morning, the frost has drawn pale maps over every surface. Meltwater begins at the canopy and travels downward. The maps blur. Gutters fill. Mosses brighten. Buds reopen in the dimness.
+
+Nothing in the Crown Thicket is finished, though everything is occupied. It is a young city on a young mountain, already dense with inheritance. Its streets are being born and erased at the same pace. Its buildings feed, divide, heal, and sometimes flower. Beneath them, sharp rock waits in darkness, scarcely weathered, while above, the living mass continues to make room by becoming more of itself.

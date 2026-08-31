@@ -1,0 +1,55 @@
+# The Galdress Thermals
+
+The plateau stands above the cloud line, but the clouds are always climbing.
+
+---
+
+You notice the silence first. Or rather, you notice what the silence is made of — a thousand small wet sounds so evenly distributed they cancel into nothing. Dripping. Tricking. The soft pop of a bubble breaking at a hot pool's edge. Condensation rolling off a roof-edge in a continuous sheet, meeting stone with a sound like a finger drawn slowly across silk. All these tiny noises layer into a texture so fine it reads as quiet. As absence. Only when you stop moving do you realize the air is never still with sound — it is *full* of it, saturated, every surface speaking at once in whispers.
+
+---
+
+The Galdress sits high — not a peak, not a ridge, but a broad shoulders of ancient volcanic rock that pushes upward into thinner air. The elevation is enough to make the sky feel close, to let you see the curvature of distant weather systems pinwheeling slowly out past the edges of the world. The light here is bright and hard. Sunlight arrives with so little atmosphere to filter it that shadows behave like cuts — things are lit or they are dark, and the gradient between is narrow, abrupt. Mineral deposits on every surface compound this: crystalline skins reflect and scatter light until the whole plateau seems to glow from within, illuminated by its own crust. At midday the brightness is nearly unbearable. You learn to navigate by the shadows, which pool beneath structures and rock overhangs like spilled ink.
+
+The heat rises from below. Not the dry bake of desert stone but a wet heat, a heat that carries water with it, that breathes vapor into the air faster than the altitude can strip it away. Geothermal veins thread through the rock — you feel them underfoot as warm spots, as places where the stone is not stone-temperature but body-temperature or higher. Cracks in the plateau's surface vent steam in slow, steady columns, and between these the groundwater sits just beneath a porous crust, rising and falling with pressure cycles that take minutes or hours. You learn to test the ground with a heel before committing your weight. The crust holds. Mostly.
+
+---
+
+Water is everywhere but nothing you would call a river. No channels, no directed flow — instead the water *emerges*. It wells up from cracks. It condenses out of the air onto any surface cool enough to catch it, which at night means every surface. It weeps from rock faces in slow mineral tears that leave colorful trails — the red of iron, the yellow of sulfur, the pale blue-green of copper compounds crystallizing as the water evaporates. Shallow pools form in every depression, some warm enough to bathe in, some at the temperature of blood, some so hot they shimmer with heat distortion and carry mineral loads that sting the eyes and dye the pool's edge in crystalline rings of orange, white, chemical black. The water does not taste like water. It tastes like the stone it came through. It tastes metallic, mineral, ancient. Some pools carry a faint sweetness that is not sugar but something dissolved and strange.
+
+After a rain — and it rains frequently, short intense downpours that steam back into the air within the hour — the whole plateau runs wet, every surface a slow slide of water finding its level, pooling, sinking, condensing again. The air never fully dries. It hangs at the edge of saturation, and when the temperature drops at dusk, fog forms in layers — knee-high, waist-high, chest-high — stratified by temperature differentials, drifting slowly across the open ground like the breathing of something enormous and patient.
+
+---
+
+No plants grow here. Not a single stem, not a thread of grass, not a lichen patch. The mineral water would kill anything that tried — too hot, too saturated, too chemically hostile. The soil, where it exists, is sterile grit and volcanic dust. The rock is clean in the way a sterilized surface is clean: empty, waiting, hostile to the kind of life that photosynthesizes.
+
+But life is here.
+
+It is animal life, or something adjacent to animal life. The pools host dense blooms of thermophilic microorganisms — bacterial mats in vivid rusts and whites and greens, layered like skin across the warm water's surface, feeding on chemistry, on sulfur and iron and the slow mineral generosity of the heat below. These mats support everything else.
+
+The grazers come first. Low, broad, many-legged things that move across the mats in slow rows, feeding with mouths on their undersides, their flat bodies like pale warm stones dragging themselves across the colored scum. They are the color of the water they live in — translucent, opalescent, showing their simple organs as shadows within. When disturbed they contract into dense discs, harder to grab, and wait motionless until the threat passes. They do not make sound.
+
+Then come the hunters. You see them at dusk, emerging from the cooler cracks between rocks where they spend the day — articulated, quick, their bodies like dark ceramic, their legs fine and jointed and silent on the wet stone. They hunt by vibration, by the faint displacement of air and water, and they are patience made physical: they will stand at a pool's edge for hours, still as the rock, then move with a speed that makes you flinch. They do not fight or struggle. They take what they take and carry it into shadow.
+
+Above all this, the flyers turn in the bright air — not birds, not insects, but something between: wings of translucent membrane stretched across delicate mineral struts, bodies like heated glass, feeding on the microbial fog that rises from the thermal columns. They navigate by the warmth of the updrafts, and when they bank in the light their wings catch and refract it, throwing brief prisms across the ground. They are silent. They are always silent.
+
+The ecosystem is small, contained, chemotrophic rather than photosynthetic — an ecosystem built on heat and minerals rather than sunlight, though the sun illuminates it, makes it visible, makes it glow. The cycles are slow. The grazers take days to cross a single pool. The hunters live for seasons. The flyers last a year, perhaps, if they avoid the columns of superheated steam that occasionally erupt from the deeper vents. There are no bones. Nothing here fossilizes. When something dies it dissolves back into the water and is consumed and reconstituted by the mats, and the slow cycle continues.
+
+---
+
+The settlement sits in the plateau's center, where the rock is flattest and the hottest vents are concentrated.
+
+It is not a large town — perhaps a hundred structures, spread across distances that would feel spacious in any context but feel especially spacious here, where the open mineral plain stretches in every direction and the eye can travel so far without obstruction. The buildings are made of the plateau itself: quarried volcanic stone, mineral concrete, cast basalt. Their walls are thick to hold off the heat, their roofs angled to catch condensation, their foundations sunk deep into rock that is warm to the touch. Every building wears a mineral skin — the same colorful weeping that marks the cliff faces happens here too, calcium and iron and copper crystallizing slowly along rooflines and window ledges until each structure is haloed by its own geological record, a slow diary of what the water carried this season.
+
+The town was built for extraction. The mineral pools hold industrial concentrations of boron, lithium, rare earth elements — the chemistry that the plateau's depth and heat have spent millennia concentrating. The infrastructure is all here: condensers and evaporators and settling ponds arranged in precise sequences, gravity-fed from the higher pools down to the lower processing tanks. Pipelines of cast ceramic carry hot water between buildings. Steam lines run insulated through covered trenches, powering generators that turn the plateau's heat into the electricity that runs the pumps that move the water through the system. The logic of the place is chemical, thermal, gravitational. It is a machine for pulling value from hot water, and the town is the machine's housing, the structures arranged around the process the way a shell forms around a mollusk's body — not designed but *grown*, each addition responding to what came before.
+
+The industrial rhythm is subtle. The settling ponds fill and drain on cycles measured in days. The evaporators breathe steam in long slow exhales. The generators hum — no, not quite a hum, more a vibration you feel in the soles of your feet, a low-frequency throb that is more felt than heard. The overall sound of the settlement, if you stood at its edge and listened, would be: nearly nothing. A settling. A dripping. The creak of thermal expansion as the sun moves across metal and stone. The quiet machinery of chemistry in progress.
+
+People move through this landscape the way the fauna do — slowly, deliberately, attentive to the ground. You learn the safe paths. You learn which cracks vent steady steam and which ones might surge. You learn to read the mineral deposits for what they tell you about water temperature and chemistry beneath. You learn that the air will tell you what's coming — a shift in humidity, a change in the fog's layering, a mineral smell on the wind that means a deeper vent has opened and the water chemistry is about to shift.
+
+The town has no industry sound. No roar. No clatter. The processes here are slow and wet and quiet by design — or perhaps by default, the same way the plateau's own processes are quiet: not because silence is valued but because the materials and forces at work simply do not produce much noise. Water moves through stone. Steam rises. Crystals form. The town extends this logic rather than replacing it.
+
+---
+
+Standing at the edge of the settlement, looking out across the plateau, you see: bright mineral plain, shallow pools reflecting the sky, slow-moving grazers leaving trails through the bacterial mats, steam columns marking the deep vents, the distant dark shapes of hunters moving between rocks, the prismatic flicker of flyers turning in the updrafts. You hear: your own breathing. The soft hiss of a vent twenty meters away. The tick of condensation falling from a pipe. The settlement behind you: low, wide, mineral-stained, quiet, doing its slow work of turning hot water into chemistry and chemistry into value and value into the reason anyone lives on this bright wet silent plateau at all.
+
+The clouds are climbing again. The rain will come in an hour, perhaps two. It will fall hot and mineral and be gone by dusk, steamed back into the air to condense again on every surface overnight. The plateau does not change. It erodes at its own pace, the rock settling, the vents migrating over centuries, the mineral deposits building slowly in rings and layers. The town sits in this process like an interruption that has learned to be polite — present, functional, quiet, making its small mark on the chemistry of a place that was cycling long before it arrived and will cycle long after it's gone.

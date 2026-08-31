@@ -1,0 +1,33 @@
+# The Understory at Vell's Crossing
+
+You enter at root-height, which is to say you enter low, beneath something, always beneath something, because here the canopy is the architecture and the architecture is the canopy and there was never a moment when anyone decided which would come first.
+
+The town — if it is a town, if "town" survives translation into whatever this is — occupies a low fold of land barely above the damp. It is small. You could walk its circumference in an hour, if walking retained its usual meaning here, if distance behaved. The buildings are not separate from the vegetation; they grew, or were grown, or grow still, in some tense that hasn't settled. Walls of fused root-wood, vascular and faintly warm to the touch. Pipes of hollowed vine, dripping not water but something that might once have been water, condensing along their lengths in slow bead-trails that taste, when you are foolish enough to taste them, of rust and chlorophyll and ozone.
+
+It is dark here. Not absence-of-light dark but active dark, a darkness with texture, pressed close by the total ceiling of leaf and frond and something between leaf and scale that has no name in any botany. What light exists comes wrong: bioluminescent veins running through bark like wiring through a wall, pale green-white, pulsing on a rhythm that is almost a heartbeat and almost a machine cycle and you cannot tell which it is imitating, or whether imitation is even the right word, or whether one came first.
+
+## The Machinery of Growth
+
+Somewhere — everywhere — engines turn. You hear them before you understand them: a low industrial breath beneath the quiet, pistons or something piston-shaped, moving sap instead of oil, moving it through trunks grown deliberately hollow, trunks that are pipe and pipe that is trunk. The factories, such as they are, do not stand apart from the forest. They are grown into it, grown as it, the distinction between manufactured and germinated having collapsed at some point nobody marked.
+
+A kiln breathes through a knot in a hundred-year root. A loom clatters somewhere behind a wall of fused bark, weaving fiber pulled live from a vine still rooted in the floor, the cloth coming away soft and faintly twitching for the first hour after it's cut. Smoke, where there is smoke, rises and is absorbed immediately into a waiting canopy of moss that exhales something else entirely, something cooler, something that smells like rain that never quite arrives.
+
+Because that's the thing about the water here: it is not absent, only withheld, rationed, present as suggestion. Damp claims everything in a thin film — condensation on every cool surface, drip-fall from leaf to leaf to leaf in a percussion so constant it becomes silence, a fog that gathers in the empty lower spaces and never resolves into rain, never resolves into anything. The riverbed, if there is one, is dry and grown-over and you suspect it remembers being wet the way a scar remembers being a wound.
+
+## What Moves
+
+For all the emptiness of the place — and it is empty, profoundly empty, a hollowness of population so total that ten people could live here and you would not see two of them in the same hour — it teems. The fauna outnumbers the built world by some order of magnitude that refuses to resolve into a number. You hear them before you see them, and mostly you only hear them: chittering in registers too high or too slow, the heavy wingbeat of something passing low overhead in total dark, the percussive thock of claw on bark, climbing, always climbing, because the only direction that matters here is up, toward whatever passes for a sky.
+
+They are not always animals in any settled sense. Something with too many joints, moving like a sentence that revises itself mid-step. A creature that is mostly the sound it makes, a wet clicking that arrives in your ear from three directions before you locate — or fail to locate — its source. Something large grazes on the bioluminescent veins themselves, leaving trails of total dark behind it, eating the light, and where it has passed, you walk by feel alone, by the dampness on your palm, by the engine-pulse you can no longer see but can still hear, steady, somewhere ahead.
+
+## The Wrongness
+
+This is where it stops being describable in the usual register, because the place does not hold still for description. A doorway you passed twice is, on the third pass, a window, and you cannot recall the wall rearranging itself, only that it has. The engines run on a fuel that you eventually realize is *memory* — not metaphorically, the workers (you've started calling them workers, though you've not confirmed they are people, or singular, or persistent across your visits) feed the furnaces with small dense objects that, when one cracks open near you, releases a smell and a sound that is unmistakably someone's first house burning down, decades gone, not yours.
+
+Time moves at the pace of biology in one corridor and the pace of a flywheel in the next, and the seam between them is a doorway no thicker than a leaf, and you've stood in it and felt both speeds simultaneously and it did not resolve into nausea so much as into a strange flat calm, as though your body simply declined to choose.
+
+The vines that carry sap-fluid through the factory walls sometimes carry, instead, for one stretch of perhaps four meters, something with eyes. They look out at you, blink once, are gone by the time the fluid reaches the next valve.
+
+There is a square — you'd call it a town square, though it's roughly the shape of a held breath — where the fog gathers thickest, and standing there long enough you will hear, very quietly, underneath the engine-breath and the drip-fall and the chittering of the abundant invisible animals, something that might be singing in a language built entirely from the names of trees that no longer exist anywhere else.
+
+Nobody you ask about this looks alarmed. This, more than anything, is what tells you the wrongness is not an intrusion here. It is the ground state. It is just how Vell's Crossing is built — built urban, built industrial, built green, built low and small and damp and dark and crowded with unseen life and run through, root and pipe and vein alike, with a logic that was never meant to make sense to anything walking upright in the dark, listening to engines breathe through trees, waiting for rain that is, technically, always already falling, just slowly enough that you'll mistake it, for as long as you stay, for stillness.

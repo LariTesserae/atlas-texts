@@ -1,0 +1,19 @@
+The air is thick, saturated enough to taste. Each breath is heavy, a slow, deliberate soak. The world is a closed fist, a pocket-sized marvel carved into the sky. It's a hollowed-out thing, no more than an arm's reach across, and yet the scale is deceptive. Everything feels both impossibly close and infinitely deep.
+
+The ground is a network of interlocking crystal, a strange, matte material that drinks in the dim light. It’s warm to the touch, almost pulsing with a low, internal thrum. Water clings to every surface, not as puddles or streams, but as a fine, constant sheen. It condenses everywhere, even from the crystal itself, weeping in slow, viscous tears that gather and vanish before they can fall.
+
+Vegetation, in the strictest sense, is absent. But the crystal is not devoid of life. Embedded within its facets are countless, impossibly tiny forms. They're not plants, not as we know them. They’re more like motes of pure energy, shimmering in a spectrum beyond human sight, each one a miniature sun. They seem to absorb the moisture, and in turn, the crystal breathes them out in a low, constant hum, a vibration that permeates everything.
+
+The temperature is warm, but not oppressive. It's a sustained warmth, the kind you might find deep underground. The air itself feels subtly pressurized, a fact you apprehend more than experience.
+
+The architecture is… total. There is no raw material, no unworked substrate. Everything is built. Every curve, every facet, every pulse of light is the product of deliberate design. The crystalline structure, with its interwoven bioluminescent motes, isn't inert; it's the foundation of a complex and bewildering technology. It’s hard to say what “tech” even *means* here, at the highest levels, but it seems to involve a manipulation of energy and matter that has rewritten the fundamental laws of reality within this tiny space. It's built on principles that feel less like "science" and more like "applied dreaming."
+
+The light is dim, sourced from where or how you can't be sure, but it's *everywhere.* It doesn't cast shadows, so much as shift the textures and colors of everything. Colors shift constantly, a slow, restless ballet of impossible hues.
+
+Fauna is abundant. Not in the typical sense. There are no creatures as you would know them. Instead, the air is thick with ephemeral beings. They move as eddies of light and sound, shapes that resolve and dissolve constantly, made of the same energy as the shimmering motes embedded in the crystalline structure. They are voracious, too, constantly consuming and being consumed. This is an ecosystem of pure energy, a complex web of predation and symbiosis conducted at a scale that defies comprehension.
+
+The weirdness is profound, woven into the very fabric of existence. The rules of physics seem to bend and break, the laws of conservation are gently ignored. Time itself feels… elastic. Moments stretch and compress, and they occasionally fold over on themselves.
+
+And then there is the sound. It is deafening. A wall of noise, a constant symphony of overlapping frequencies. It's not a cacophony, though. It's a cohesive whole, a symphony of vibrations that shapes the very landscape. It resonates within your bones. It’s a language, too, though one you can’t quite grasp. The sound is the work of whatever *built* this place, and it’s always telling you something.
+
+The environment is incredibly dynamic. It’s not simply “weather,” though the patterns of condensation and light can fluctuate. It’s a slow, constant transformation, a dance of creation and destruction, a perpetual metamorphosis. The crystal breathes and exhales, the motes pulse, the ephemeral beings move, and the constant sound sings. This entire space is alive, and everything within it is its song.

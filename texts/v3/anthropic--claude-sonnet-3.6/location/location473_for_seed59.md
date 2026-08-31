@@ -1,0 +1,15 @@
+In the high valley, the city grows itself. Every surface writhes with life - not just covered in growth, but composed of it. The buildings are literally alive: dense-packed tree trunks fused and woven together, their upper branches forming vaulted ceilings dripping with moss and condensation. The streets are springy paths of living root-matter, pulsing subtly with sap flow beneath the surface.
+
+The air is thick with motion and sound. Birds dart everywhere, their wings brushing leaves, their calls echoing off the organic architecture. Insects flow in rivers through the air - not chaotic swarms, but organized streams moving with purpose between the giant flowers that crown the living towers. The flowers themselves hum with the vibration of countless wings.
+
+Water is everywhere but rarely still. It beads and runs down every surface, collects in living cisterns formed from huge cupped leaves, flows through channels of folded bark. The constant moisture feeds the endless growth and keeps the cool air heavy with vapor. Small creatures lap at the streams - rodents with iridescent fur, amphibians that seem half-plant themselves, tiny primates that move through the canopy in coordinated waves.
+
+The human inhabitants have adapted completely to this environment. Their homes are chambers hollowed from the living wood, their walkways are branches trained into bridges and stairs. They wear clothes woven from living moss and lichen that continues to grow and must be periodically trimmed. Their tools are mostly grown rather than made - gourds shaped into vessels, thorns cultivated for needles, vines trained into ropes.
+
+The entire valley feels like a single organism in constant motion. New growth pushes up as old growth decays, but nothing truly dies - it just feeds the next cycle. The humans are clearly not in control here; they've simply found a way to exist within the greater system, like the birds and insects. Their technology focuses on guiding and shaping what wants to grow anyway.
+
+At this scale - perhaps a quarter mile across - you can see the patterns in the chaos. The living buildings pulse with slow rhythms of growth and movement. The streams of insects and birds follow regular paths. Even the constant background rustle of growth and movement has a kind of music to it, like a symphony played by millions of tiny instruments.
+
+The air smells of green things and decay and the sharp sweet scent of the giant flowers. In the cool dampness, fungal blooms add their own strange geometries to the organic architecture. Everything is connected by webs of mycelium, root networks, and the invisible trails of pheromones that guide the insect streams.
+
+This is not wilderness - it's far too organized for that - but neither is it exactly civilization as we usually understand it. It's something in between: a city that grew rather than was built, shaped by generations of human cultivation but ultimately following its own living logic.

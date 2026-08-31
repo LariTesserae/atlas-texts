@@ -1,0 +1,24 @@
+**Landscape Description: The Echoing Hollows**  
+
+**Terrain & Materials**  
+Beneath the surface, in a vast network of ancient caverns, lies the Echoing Hollows—a realm where stone and root intertwine. The terrain is a mosaic of smoothed, water-worn rock formations carved over eons. Gigantic stalactites and stalagmites rise like cathedral pillars, their surfaces etched by millennia of mineral-laden drips. The ground is carpeted with a thick moss of *lumenferns*—bioluminescent plants that emit a faint, silvery glow, their fronds storing dew in crystalline bladders. The air is dry but carries a metallic tang, tasting of oxidized iron and deep earth.  
+
+**Atmosphere & Light**  
+The cavern’s ceiling is open in patches, revealing a starless, ashen sky that filters dim, gray light through fissures miles above. This light mixes with the lumenferns’ glow, creating an eerie, diffused illumination. The atmosphere is crisp and still, yet alive with a perpetual, low-frequency hum—a sound not of wind, but of the rock itself, resonating with the weight of ages. The "dim" light rating suggests twilight perpetual, with shadows thick even in open spaces.  
+
+**Vegetation & Ecology**  
+Despite the scarcity of liquid water, the Hollows are lush with *xerophytic forests*. Towering *stonebark trees* dominate, their bark resembling cracked granite, their leaves thick and waxy, channeling moisture from underground aquifers to their roots. Vines of *glasscreeper* cling to cavern walls, their translucent stems filled with a clear fluid that refracts light into prismatic flashes. The flora is ancient—many trees are hollow, their interiors home to symbiotic fungi and colonies of blind, cave-dwelling insects. The ecosystem thrives on a delicate cycle: dew forms nightly on rock surfaces, absorbed by the plants, while their roots tap into deep, mineral-rich aquifers that flow like slow rivers through cracks in the stone.  
+
+**Urban Infrastructure**  
+The settlement, *Threshhold*, is built into the cavern’s natural alcoves and tunnels. Homes are carved directly into the rock, their facades embedded with lumenfern gardens that spill light onto cobblestone streets. Bridges of woven stonebark root connect different sections of the town, swaying gently in the faint underground breezes. There are no machines or tools—construction is organic, with the inhabitants (a sparse, reclusive population) shaping the environment using biological processes, guiding roots and fungi to form structures over decades. Infrastructure is layered: upper levels house communal spaces lit by concentrated lumenfern clusters, while lower levels delve into the earth, accessing thermal vents for warmth.  
+
+**Fauna & Sounds**  
+The fauna is abundant but eerily silent—sound here is a force of nature. The *deafening* rating stems from the cavern’s acoustics. Distant waterfalls (fed by pressurized aquifers) crash into unseen pools, their echoes magnified into a constant, thunderous roar. The rock itself amplifies every sound: footsteps rumble like earthquakes, voices distort into ghostly reverberations. Creatures include the *shriekmoths*, whose ultrasonic clicks bounce off walls, and the *stonebacks*, massive, slow-moving herbivores with shells like weathered boulders. Predators include the *shadowstalkers*, blind predators that navigate via echolocation, their calls adding to the cacophony.  
+
+**Erosion & Aging**  
+The landscape is a testament to extreme antiquity. Rock formations are fluted and polished, as if worn by a sea that vanished eons ago. The cavern’s central lake—a still, mirror-like expanse—has no visible inlet or outlet, its waters believed to be remnants of an ancient ocean. The stone here is near-flattened in places, smoothed to a glassy sheen, yet in others, jagged cliffs hint at abrupt collapses long past. Time feels viscous; processes here unfold over centuries. Lumenferns grow no faster than a handspan per decade, and the stonebacks migrate in cycles that span human lifetimes.  
+
+**Weirdness & Dynamics**  
+While the setting avoids overt surrealism, it thrums with subtle oddities: the way lumenferns dim when approached, as if shy; the phenomenon of "stone songs," where certain caverns resonate with harmonic tones when wind passes through them; and the occasional, inexplicable appearance of perfectly spherical pools of water that vanish within days. Change is slow but relentless—drip by drip, the caverns grow deeper, and the settlement’s inhabitants must periodically relocate as their homes are reclaimed by root and time.  
+
+In the Echoing Hollows, life clings to the edge of an ancient world, where silence and sound, lushness and desolation, coexist in a fragile, resonant balance.

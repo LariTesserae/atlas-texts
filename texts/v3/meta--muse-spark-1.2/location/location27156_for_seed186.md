@@ -1,0 +1,37 @@
+High enough that the air forgets to be air.
+
+You are on the back of something that used to be a mountain range and is now something more like a table the sky left behind. Elevation has thinned everything out — the atmosphere is a cold, clear pane, the stars are not twinkling but fixed and too close, and the sun, when it comes, doesn't rise so much as it stains the horizon a deep, bruised blue for an hour before giving up. This is not night, exactly. It's the long darkness of altitude, a darkness that lives even at noon. Light is a rumor here.
+
+The cold is not the sharp, biting cold of winter. It's an old, settled cold that has been here so long it has become a material. It lives in the stone. The basalt of the plateau is weathered soft at the edges, not jagged young peaks but the broad, stepped shoulders of a place that has stopped trying to be taller. Erosion has done its work and then retired. Valleys are wide and U-shaped, scoured by glaciers that are gone now, leaving terraces and long, even slopes that fall away into dark distance. You can see for miles — not because the light is good, but because nothing blocks the view. The scale is regional, valley after valley, bench after bench, all open to the thin sky. There is nothing built here to interrupt it. No path, no cairn, no wire. Not even a straight line.
+
+And yet it is lush.
+
+That is the first strange thing that keeps becoming stranger the longer you look.
+
+From a distance the slopes look black and barren, like wet slate. Up close the black resolves. It is forest, but not forest as you know it. It's a low, dense, resilient ocean of vegetation built for darkness and cold and thin water. No trees. Instead, great fronds and cushions and tower-lichen that grow shoulder-high and higher — fleshy, black-green, almost black-purple leaves the size of doors, cupped to catch whatever moisture there is. Their surfaces are waxy and furred with fine white hairs to trap heat. Some unfurl like ferns the size of houses, their fiddleheads coiled tight as fists. Others are pillars of moss that have grown into columns, trunks without wood, soft but solid enough to lean against. They exhale. In the cold stillness you can see it: a slow, constant breathing of faint steam and spores, a mist that never quite lifts, hanging knee-high between the stalks.
+
+Water is scarce and everywhere, but never as a river or a lake. This plateau is damp in the way a breath is damp. Frost forms every evening on every leaf in lacework crystals, thick as wool, then sublimates before dawn without ever truly melting. Condensation beads on the undersides of leaves and falls in heavy, irregular drops that vanish into peat. In sheltered hollows you find pockets — not ponds, but eyes of water: black glass pools no wider than a kitchen table, perfectly still, fed by seep and by the slow weeping of the rock itself. They are rimmed with orange bacterial velvet and do not freeze. If you kneel, the water is warm.
+
+The warmth is the secret. The cold is on top; the heat is underneath. The plateau is alive tectonically in a quiet, settled way. Geothermal veins run just below the basalt, not erupting, just respiring. And that is where the industry is.
+
+There are no factories here. Nothing has been built. But the place *functions* like a factory district.
+
+Listen, if you hold your breath long enough to hear anything in this profound quiet.
+
+First there is nothing. The sound level is so low your ears invent a tone. Then you begin to pick out the working sounds, all small and precise and spaced far apart in the vast emptiness.
+
+A low, deep *chuff* from a mile off, repeating every forty seconds — a fumarole exhaling through a natural chimney of ice, a piston of steam and sulfur that puffs, pauses, puffs.
+
+A rhythmic clicking from the dark forest, like a loom the size of a field: it is insects. Not swarms, not clouds — this place is too empty for that. Instead, singular, huge presences spaced hundreds of yards apart, so you feel the scale of the void between them. Beetle-things, solitary, each the size of a seal, matte black and armored, moving slowly between the pillar-mosses. Their abdomens glow and pulse amber, furnace-hot, and as they feed they smelt. They chew the iron-rich basalt and the mineral-rich leaves and their guts refine it. You can see the faint cherry-red of their thoraxes in the dark. Behind one, you find a cooling slag trail, a perfectly formed braid of black glass laid on the peat like a cable. They are not building anything. They are simply processing, endlessly, like living blast furnaces wandering a field that is also their mine and their forest. Steam sighs from their spiracles and instantly freezes into brief halos.
+
+Elsewhere, a slope of what looked like lichen inhales. The whole hillside — acres of interlocked fungal mats — tightens at once, then relaxes, and a warm, metallic wind rolls down over you. The mats are electroactive. They crackle faintly in the dark, blue sparks running along their edges like St. Elmo's fire, harvesting the static of the thin, dry air and the geothermal differential. The plants are electrified.
+
+And the fauna is abundant, but not dense, which takes a moment to understand. There is life everywhere, but nothing is crowded. A flock of moth-like birds with wingspans longer than you are tall glides overhead on silent wings, translucent, lit from within by the same amber furnace-light. They never call. A herd of something low and woolly — not sheep, not musk ox, but something that borrows from both — picks its way along a distant terrace, single file, miles away. Slime molds the size of blankets creep between the pools overnight, leaving faint phosphorescent trails that map the day's warmth. Predators are here too. You see the prints, huge and three-toed, pressed into the soft moss and already filling with new frost. You do not see the predator. Nothing is wasted. Everything moves. The ecology is not frozen despite the cold; it is actively, busily in motion, a slow-motion assembly line where the plants that catch condensation feed the furnace-beetles that make iron that stains the pools that feed the bacteria that feed the moths that die and feed the moss-pillars.
+
+The weirdness is not a flourish on top of this. It is the rule.
+
+Gravity feels slightly miscalibrated here, a little too forgiving, as if the plateau were higher than physics should allow. Stones sometimes fall slowly. Your breath fog hangs in the air too long, forming lingering letters that hold their shape for a minute before dissolving. Dark-adapted, you realize the lush leaves are not actually catching the faint starlight — they are making a little of their own, a very dim, very deep green bioluminescence that only turns on when you aren't looking directly at it. In your peripheral vision, the forest is faintly glowing. When you turn to look, it is black again.
+
+Time also pools like the warm water. The intermittent rain — when it does come, not a storm but a sudden, silent fall of fine cold mist that condenses straight out of the empty air — seems to fall upward for a heartbeat before correcting itself.
+
+You stand in a wide, empty, working darkness, three kilometers above a sea you will never see, in a cold that somehow nourishes a black garden, listening to the quiet, patient chuffing of a planet that has become its own machinery without ever needing a maker.

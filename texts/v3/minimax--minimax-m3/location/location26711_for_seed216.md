@@ -1,0 +1,57 @@
+# The Hollow Forest
+
+You don't enter this place. You thicken into it.
+
+The high ground rises into cloud, and the cloud comes down to meet it, and where they meet there is no line but only a gradient — a slow darkening of air, a slow thickening of green. The forest has no edge. It has a region where it is dense enough to count, and before that a region where it isn't, and the two blend so gradually that crossing from one to the other is more like walking into fog than walking into woods. You realize you are inside only when the moisture on your face stops being weather and starts being the place.
+
+The elevation is considerable — the air is thin enough that your first breaths feel expensive, warm enough that the thinness doesn't bite. It is the climate of a high cloud forest, a place where the trade winds pile warm wet air against the slopes and never quite decide to leave. There is no dry season. There is no season of any recognizable kind. The moisture is constant, ambient, breathed. It condenses on every surface that isn't already wet. It beads on leaves the size of tables and runs down bark in threads so fine you mistake them for spider silk. It weeps from moss. It gathers in the cupped rosettes of bromeliads and sits there, perfectly still, until a lizard bends to drink. You are wet within an hour. You stop noticing within two.
+
+The trees are wrong. Not wrong the way a tree can be stunted or split or toppled — wrong the way a column in a cathedral is wrong, in that it should not be the size it is. The trunks are wider than houses at the base. They taper and rise and go on rising into a canopy so far overhead that it has its own climate, its own dim weather, its own slow rain of dead leaves and moss crumbs that takes the better part of a minute to fall from where you cannot see to where you are. Some of the trunks are hollow. Some are so wide that the hollow inside them is a room — a real room, with a curved wall, a floor of compacted root, a ceiling lost in shadow. You can live inside a tree here. People do. You see a hammock slung across a curve of wood, a small fire pit of clay and bone, a child's footprint in the dust of decades.
+
+Between the trunks are the hollows.
+
+This is the architecture of the place, the part that has to be understood before anything else makes sense. The hollows are vast. Cathedral-scale. Some are wide enough that you cannot hear a person shouting from one side to the other; the sound goes up and gets lost in the canopy before it crosses. Some are so deep that you walk for an afternoon and never reach the far wall — or you think you have reached it, and the wall turns out to be a column, and behind the column is more hollow. They are quiet. The moss is so thick on every surface that it eats echoes. You speak and your voice comes back to you muffled, as if the forest has taken most of it for itself.
+
+And — this is the part that has to be said carefully, because it is the part the place does not want you to notice —
+
+The hollows have been built.
+
+Not recently. Not by anyone you will meet. But built, with intent, over a span of time so long that the original builders could not have imagined their work surviving this long. The forest floor where it exists is a weave. Roots of a dozen species have been encouraged to interlace, lashed together with vine-cord, pegged with wooden stakes carved by hand, weighted with stones set in living moss. The weave has grown. It is now a structure. You can walk on it the way you walk on a floor. It does not give. It does not shift. It has been here longer than language.
+
+The platforms halfway up the trunks — those are built. The bridges of lashed vine that span the smaller hollows, sagging under their own weight and the weight of every fern that has rooted in them since they were hung — built. The ladder-roots that climb the trunks in long slow spirals, peg after peg after peg, each one driven by a hand that held a stone hammer — built. The wooden rails along the trunk-rims, where the bark has been worn smooth by generations of hands gripping them on the way up or down — built, and built again, and built again.
+
+But it has grown. The lashings have been absorbed; the cord is now part of the wood, indistinguishable from it, the way a scar becomes part of a body. The platforms have thickened into ledges. The stakes have sprouted and become small trees themselves, still pinned in place by the original pegging but now themselves part of the architecture. What was made and what was grown are no longer separable here. The forest has eaten its own construction. It continues to build, the way a coral reef continues to build — slowly, with whatever hands are willing, into whatever shape is needed.
+
+The tools you see in use, when you see them, are wood and bone and fiber. A wedge of antler. A length of vine, green, still flexible. A stone hammer worn smooth on one face. A child weaving bark cord in a corner while her mother sharpens a stake. Nothing here smelts. Nothing here forges. The work is patient, fibrous, lashed.
+
+And yet the place is total. There is no natural ground. There is no stone outcrop, no cliff face, no riverbed. Every surface you can put a hand to is alive — moss, lichen, fungus, root, bark, leaf. The architecture is the forest. The forest is the architecture. To walk here is to walk through a building so large that it has weather.
+
+The light is dim. Not dark — never truly dark, even at the deepest hollows, because the air itself is faintly luminous with the moisture catching whatever little light filters through. The canopy above is so layered, so dense, so old, that the sun is a rumor. What reaches you is green, softened, diffused. There is no shadow sharp enough to cut. There is no highlight bright enough to blind. Everything is held in the same gentle gloaming, the green dusk, the color of the inside of a leaf. Your eyes never adjust to it because it never changes.
+
+The fauna is present but scattered, the way stars are present — abundant in aggregate, sparse in any one place. The birds you hear are always distant, always warped, their calls arriving at your ear as if they had traveled a long way through moss to reach you. There are gliders high in the canopy, membrane-winged things the size of small children, who drop from trunk to trunk and drift across the hollows in absolute silence. There are climbers — small, quick, furred, going head-first down the trunks in spirals. There are things in the moss you only see when they move: a sudden ripple, a parting, a small wet eye regarding you from a crevice and then gone. The forest holds animals the way a sponge holds water, in countless small pockets, each one inhabited by some small life you will never catalog.
+
+The people are part of the architecture. You do not see them so much as notice them, the way you notice a new rung in a ladder you have been climbing. A figure lashing a fresh cord around a branch halfway up a trunk, working slowly, methodically, with the unhurried patience of someone who knows they will not finish this cord today. A hammock woven between two saplings far overhead, a sleeping body curled in it. A child at the lip of a hollow, watching nothing, watching everything. They use the forest as the forest uses them. They are the latest layer of the building. They do not stand out.
+
+And the place is wrong.
+
+You can't say how, at first. The wrongness is patient. You walk a hollow for what feels like an hour and you find you have covered a hundred paces. Or you step through a gap between two roots and emerge somewhere entirely different, somewhere you cannot have reached by any geometry you trust. A trunk you passed on your left is on your right. A bridge you walked across yesterday doesn't exist today, or exists in a different place, or leads to a hollow you have never seen. The forest rearranges itself on a scale too slow to see. The geography you map is never the geography you find next time.
+
+The plants move. Too slowly to watch, but you can tell. A branch that was overhead is now at your side. A root you stepped over has grown into a low arch you have to duck. The vines have crept an inch since yesterday; the platforms have sagged a finger's width. The architecture is ongoing. The forest is still being built. It will not finish.
+
+Light doesn't behave. It gathers in pools that have no source — soft bright places on the moss that you walk into and out of without understanding. It dims in places where there should be more of it, near the lips of hollows, where the canopy should let through a little more. Sometimes the green dusk deepens for a moment into something almost night, a slow inhale of the whole vast forest, and then it brightens again, a slow exhale. The forest breathes its own weather. Above the canopy there are storms, perhaps, or perhaps not — you will never see them, you will only see their consequences: a sudden fall of warm rain through the hollows, a brief lifting of the dimness, a wet bright hour, and then the closing again.
+
+You begin, after a while, to suspect that the place is one thing. One slow thought held in wood and leaf, one patient mind made of a billion small minds lashed together over millennia. The patterns of growth suggest intention. The way the vines have been trained suggests memory. The way the hollows open and the way they close suggests something like attention. You are inside a dream that has been dreaming itself for longer than you have a unit of time to measure.
+
+You cannot say whose.
+
+The sound is mostly absence. A drip, somewhere, always somewhere. The slow creak of a trunk expanding in the warmth. The faint rustle of something moving through moss, never seen. Once in a long while, a bird — distant, muffled, as if heard through water, as if the forest had let the sound through only because it had to. The quiet is not the quiet of an empty place. It is the quiet of a place that is full and chooses not to speak.
+
+The smell is heavy. Green. Wet. Fungal. Slightly sweet from somewhere — a flower you cannot find, a fruit somewhere overhead rotting into the moss. Slightly rotten from somewhere else. The sharp mineral tang of wet bark. The cooler mineral smell of stone, deep under the roots, where the original mountain is still holding on, beneath all this living architecture, patient as the moss that covers it.
+
+If you stay long enough, you forget which direction is down. Not because you are lost — you are not lost, you are never lost, the forest does not let you be lost — but because the place has so many verticalities, so many ladders and platforms and hollows opening above and below each other, that the geometry stops mattering. Up becomes a suggestion. Down becomes a habit. You climb because there is a ladder. You descend because there is a path.
+
+You begin to grow still. Not slower — still. Your breathing slows. Your thoughts slow. The forest's pace begins to feel like the only pace. You stop wanting to leave, and then you stop thinking about leaving, and then the question of leaving joins the other questions that the forest answers by not answering.
+
+You are woven in.
+
+You are a cord. You are a rung. You are one more slow layer of the building.

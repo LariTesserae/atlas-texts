@@ -1,0 +1,33 @@
+# The Cistern Works at Lowmere
+
+The basin sits below the surrounding country, a shallow bowl of land where every spring for two centuries has drained inward instead of away. You come upon it through a fringe of swamp-oak, the ground going soft underfoot, and then the trees open and the works are simply there, sunk into their own wet hollow, steaming faintly in the warm air like something just exhaled.
+
+It is small as such places go — a hamlet's worth of ground, walled by green on every side, no more than you could walk across in twenty unhurried minutes. But within that boundary, density is total. Nothing in the basin is not touching something else.
+
+## Ground and Growth
+
+The substrate here is not soil so much as accumulated plant-matter doing the work soil usually does — centuries of reed-fall, moss-rot, root-mat, composted leaf, all of it saturated and dark and faintly warm to the touch, like bread dough left to rise. Walking on it is like walking on a held breath; it gives a little, releases a little water, gives again. In low places it is open marsh, black and mirror-still between the tussocks. In most places it has been built upon, and the building has not displaced the green — it has been laced through it, grown around it, the way coral grows around what's already there.
+
+The vegetation is the dominant fact of the place. Not ornamental, not incidental — *structural*. Buildings have walls of woven willow gone permanent with decades of new growth knitting through the old withies. Roofs are sedum and reed-thatch grown so thick and continuous between structures that from any rise you cannot tell where one building's roof ends and its neighbor's begins; the whole settlement reads from above as one undulating canopy with smoke-stacks poking through like reeds through a pond. Vines — thick-stemmed, dark-leaved, flowering small and white in long racemes — have colonized every facade, every flue, every rail and gantry, until the iron and the green are a single material. In places the plant growth has become load-bearing: ancient pollarded trees, trained over generations, form the actual corner-posts of the largest structures, their living wood doing the work timber would do elsewhere, replaced as it rots from within rather than ever felled.
+
+## The Works Themselves
+
+This is an industrial place — that is its second fact, inseparable from the first. Somewhere in the basin's history someone decided the wet ground and the abundant peat-fuel and the captured water-head were worth building a settlement of engines on, and they did, and it has been running since, slow and patient, never expanding much, never failing either.
+
+There are perhaps a dozen structures of real size: a peat-fired works-house with three brick stacks (themselves wrapped to head-height in ivy, the brick above scorch-blackened and bare), a row of low cistern-houses where water is filtered and stored in tanks of riveted iron gone orange-green with rust and algae, a long shed of belt-driven looms that process the reed and willow fiber into rope and matting, and a scatter of smaller sheds — coopers, smiths, dryers — connected by raised plank walkways that keep feet (mostly) out of the standing water beneath. Steam moves through above-ground pipes lagged in straw and canvas, venting at unpredictable intervals in soft percussive sighs. Belts slap. Somewhere a great wheel, water-driven, turns at a stately, continuous pace, and its sound — a low wooden groan with a metal clack at each full revolution — is the basin's heartbeat, audible from every point within the boundary.
+
+## Atmosphere and Water
+
+The water is everywhere without being deep. It rises through the ground in capillary sweat; it beads on every cold iron surface in the warm air; it drips from eaves and gutters that were never quite engineered to keep pace with what the basin produces. Mist sits in the lowest channels through the morning and gathers again toward evening, threading between the buildings at about knee height, lit gold or grey depending on the hour. The brick of the works-house weeps continuously along its north face, a dark damp stain that never dries and that moss has claimed entirely, turning brick to soft green velvet from footing to lintel. Rain, when it comes, is almost redundant — the place is already so saturated that rain just adds a layer of sound to a place already full of water-sound: dripping, sluicing, the chuckle of overflow channels, the periodic thunk of a sluice-gate lifted and dropped.
+
+## Sound
+
+It is a loud place, but not a sharp one — a thick, layered loudness, more like being inside a single large slow instrument than being amid separate noises. The waterwheel's groan-and-clack underlies everything. Over it: the rhythmic clatter of the looms, belts whining over their pulleys, the wet chuff of the peat-engine's pistons, men's and women's voices calling work-calls across short distances, the constant percussive drip and trickle of water finding its way down through thatch and leaf and pipe, and under all of it, when the machines pause, a vast frog-and-insect hum from the marsh beyond the walls — though the basin itself, busy and warm and chemical-scented with engine-smoke and peat-smoke, holds almost no animal life of its own. Birds avoid the stacks. A few cats keep the granary clear of what little else lives here. The fauna that exists, exists at the margins, in the swamp-oak fringe, looking in.
+
+## Light
+
+The light is ordinary daylight, neither bright nor dim, but it arrives filtered — green-tinted by the canopy of vine and reed-roof overhead, broken into shifting coins on the walkways, smoke-hazed near the stacks, mist-softened in the low channels. By the works-house the light goes amber and thick with peat-smoke. By the cisterns it's cooler, water-reflected, trembling on the underside of every eave.
+
+## Rules of the Place
+
+The basin runs on patience. Nothing here was built quickly and nothing is rebuilt quickly; erosion and renewal are matched almost exactly, so the place looks permanent without being static — thatch is replaced reed by reed, brick re-pointed course by course, the pollard-trees re-cut on a rotation measured in decades, not days. The works has clearly stood in roughly this form for generations and will likely stand in roughly this form for generations more. People who live here speak of the wheel's turn and the wet season and the smoke-color of the stacks the way other places speak of clocks. Visitors are advised, gently and often, not to hurry — the walkways are slick, the mist hides the channel-edges, and the basin, despite its engines, moves at its own slow green rate, and will not be rushed to meet anyone else's pace.

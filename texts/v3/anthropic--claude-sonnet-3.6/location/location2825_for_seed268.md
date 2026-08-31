@@ -1,0 +1,15 @@
+In the vastness of the mineral sea, the collectors move like stars - distant points of light in perpetual, unhurried orbit. Their paths trace the ancient currents of the conductive medium, a dense fluid that is neither quite liquid nor quite solid, a suspension of crystalline particles in a warming solution that flows with geological patience.
+
+This darkness is not empty. The collectors' dim lights reveal brief glimpses of the packed geometric structures that fill the space - regular lattices of metallic threads that extend for thousands of kilometers in every direction, forming a neural network of unimaginable scale. The lattice shimmers with faint bioluminescent traces, the visible signature of information moving through the system at the speed of thought.
+
+The air above, what little there is, holds a permanent haze of conductive mist. Occasional droplets condense and fall, each one carrying dissolved mineral compounds that slowly modify the lattice below. The process has been ongoing for centuries, perhaps millennia - a form of extremely slow programming, or perhaps evolution.
+
+What seems at first like random crystalline growth reveals, on closer inspection, distinct architectural features - vast halls and chambers formed from geometric principles that suggest both organic growth and mathematical intent. Here and there, scattered through the structure, are unmistakable artifacts: spherical nodes of unknown purpose, their surfaces etched with precise patterns that glow with stored energy.
+
+The collectors themselves appear to be maintenance units, though their definition of maintenance might be incomprehensible to human minds. They move through the lattice checking connections, adjusting resistances, perhaps modifying the very logic of the system. Their work produces only the faintest sounds - a subtle crystalline chiming, the soft flow of the mineral medium, an occasional resonant ping that seems to travel for kilometers through the conductive structures.
+
+Rarely, one might glimpse something that seems almost alive - patterns of energy that coalesce briefly into forms suggesting purpose and awareness before dissolving back into the background hum of the system. Are these the intended function of this vast machine? Or are they emergent phenomena, like weather in an artificial sky?
+
+The warmth is constant, maintained by the slow computational processes of the lattice itself. It creates gentle convection currents in the mineral medium, which in turn influences the patterns of thought-flow in the network - a feedback loop operating on multiple timescales simultaneously.
+
+This place feels both ancient and active - not decaying, but slowly, constantly transforming. The scattered artifacts and structures suggest that it was built, yet it seems to have taken on a life of its own, following rules of development that may have evolved far beyond its original programming. It is a machine that has become an ecology, or perhaps an ecology that has become a machine.

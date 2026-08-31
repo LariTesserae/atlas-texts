@@ -1,0 +1,17 @@
+In the depths of a mountain range, there is a valley that never sees direct sunlight. The peaks around it, impossibly tall and sharp-edged, block out the sky entirely. Their faces are so sheer and regular they might be manufactured, though no one remembers their making. The perpetual shadow has created its own ecosystem, one that thrives in the cool darkness.
+
+The ground is carpeted in luminescent moss that pulses with a dim blue-green light, creating a false twilight that never brightens or fades. This moss grows in geometric patterns, perfect hexagons that spread across the valley floor like circuit boards. Between these patches, dark streams trickle, their water so clear and still they're visible only by the way they reflect the moss-light.
+
+The defining feature of this place is its sound. Deep within the mountain, ancient machines pump and grind with a rhythm that shakes the earth. The sound is constant, deafening – a bass so profound it vibrates in your bones rather than your ears. The machines serve no apparent purpose now, but they've run so long that certain species have evolved around their pulse. Thick-stemmed flowers bloom and close in time with the mechanical throb. Swarms of pale, eyeless birds wheel overhead, their migrations perfectly synchronized to the machines' rhythm.
+
+The valley walls are dotted with entrances to what might once have been maintenance tunnels, now claimed by colonies of bioluminescent fungi that spread their mycelia in straight lines, like power cables. These fungi draw moisture from the air itself, creating periodic drips that add their own percussion to the machine-song below.
+
+Despite the overwhelming sound, or perhaps because of it, the valley feels eerily static. Nothing truly changes here. The machines never falter, the moss never advances beyond its prescribed boundaries, the birds wheel in the same patterns they have for centuries. Even the air feels held in place, cool and slightly damp, neither stagnant nor truly moving.
+
+Scattered throughout the valley are the remains of what might have been monitoring stations – low, hexagonal buildings made of some glass-like material that has neither cracked nor dulled with age. Their purposes are obscure now, but occasionally they emit soft hums that harmonize perfectly with the underground machinery.
+
+The fauna here is abundant but strange – all the creatures are pale or transparent, adapted to the eternal dark. Many have developed extrasensory organs that pulse in time with the machines' rhythm. Six-legged deer with crystalline antennae browse among the moss-patterns. Colonies of blind cave salamanders move in perfect synchronization, their movements another layer in the valley's endless percussion.
+
+This is a place where industry has become nature, or nature has become industry – it's impossible now to tell which came first. The boundaries between the organic and mechanical have blurred into something else entirely, creating an ecosystem that perpetuates itself with the precision of a clock and the complexity of a living thing.
+
+The longer you stay, the more the rhythm gets into you. You find your heartbeat synchronizing with the machines, your thoughts pulsing in time with the moss-light. You begin to understand that perhaps this valley isn't frozen at all – it's simply operating on a timescale so vast that change becomes imperceptible to human perception, like the movement of glaciers or the drift of continents.

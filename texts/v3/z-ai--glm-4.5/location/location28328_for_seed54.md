@@ -1,0 +1,23 @@
+The air up here is not so much breathed as worn. It is a thick, aerosolized suspension of near-freezing brine, a perpetual vertical fog that clings to the skin like a wet second layer. You stand on a high, jagged plateau—pockmarked, raw, and fractured—where the earth looks less like soil and more like a scab over a wound.
+
+This is the City of Rust and Chitin.
+
+It is dark, lit only by the faint, bioluminescent shimmer of the fauna and the rare, failing strobe of deep-atmospheric lightning. The darkness is heavy, a physical pressure that seems to dampen the sharp edges of the geology. But the silence of the void is entirely absent; here, the noise is a relentless, roaring texture.
+
+The landscape is dominated by the architecture, a sprawling, mid-sized urban complex jammed into the mountain basin. It looks unfinished, embryonic. The towers are monolithic extrusions of dark, glass-smooth obsidian and composite alloys, rising hundreds of stories without ornamentation or windows. They are packed tightly together, a dense forest of verticality, separated only by narrow, dripping canyons where the wind howls. The "erosion" here is a lie; the buildings are not decaying, they are emerging. Freshly extruded struts glisten with wet condensation, and raw geological spines pierce through the city floor like broken bones, half-incorporated into the infrastructure. The world feels as if it is still calcifying, still hardening from a molten dream.
+
+Water is the blood of this place. It weeps from the sheer faces of the towers, creating permanent, translucent curtains that freeze midway down, suspending stalactites of black ice in the air. The ground is a marsh of slick, oily puddles and sucking mud, though the mud is composed of pulverized nano-carbons and industrial dust rather than organic decay. It is a wet, miserable, freezing swamp set at the roof of the world.
+
+There is no green. The parameter for vegetation is zero; no moss, no lichen, no hardy mountain grasses. The color palette is strictly monochromatic—black, grey, and the bruised purple of the shadows.
+
+Into this cold, wet, industrial vacuum comes the Fauna.
+
+It is overwhelming, a terrifying abundance of life that has evolved to eat the city. The primary residents are the "Striders"—creatures that resemble a horrific fusion of a crab and a cathedral. They are the size of trucks, encased in jagged, calcified armor that clicks and grinds with every movement. They swarm over the urban landscape, a dense tide of chitinous legs and mandibles. They cling to the wet glass of the towers, clustering in the thousands, their shells scraping against the architecture with the sound of a million violin bows dragged across broken glass.
+
+The noise is deafening. It is a cacophony of chittering, hissing, and the high-pitched scream of metal being sheared. The Striders are loud, but the environment amplifies them. The density of the construction traps the sound, bouncing it around the narrow alleyways until the air itself vibrates.
+
+But the strangest element is the light. In this profound darkness, the Striders are the torches. Patterns of phosphorescent blue and sickly green pulse across their shells, a bioluminescent language that flashes in waves across the swarm. As they move through the dripping canyons, the city flashes with stroboscopic rhythm. The light reveals the "tech" of the world—cables thick as pythons that hang loose from the buildings, pulsing with a weird, cold energy that the creatures seem to feed upon directly. They are grazing on the infrastructure, clamping their mouths onto exposed power conduits, drinking the raw electricity to keep their internal furnaces burning against the sub-zero cold.
+
+The motion of the place is paradoxical. The noise is frantic, the scuttling of the swarm is frantic, but the city itself is glacial. The huge gear-like mechanisms that turn the bases of the towers move so slowly they appear static, shifting only degrees per century. The water dripping from a ledge might take a year to hit the ground. It is a world of frantic violence frozen in immense, patient amber.
+
+You stand on a viewing platform that feels slick and dangerous, covered in a layer of wet, grey slime that the Striders leave behind. To look out is to see a black ocean of stone, illuminated by the frantic lightning-bug pulses of a billion scavengers, all screaming in the freezing dark, feeding on the bones of a world that hasn’t quite finished being born. The condensation on your face freezes instantly, crystallizing the salt of the spray, while beneath your boots, the deep, slow grinding of the planetary engine reminds you that you are standing on the surface of a machine that is trying to wake up.

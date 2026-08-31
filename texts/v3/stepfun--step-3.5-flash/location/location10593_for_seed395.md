@@ -1,0 +1,34 @@
+You step out—not onto sand, not onto soil—but onto a **crust**.
+
+It is a single, continent-wide skin of sintered mineral, the color of bone and baked clay, fractured into polygonal plates that shift with a sigh you feel more than hear. There is no water. The air is dry as a fossil, yet it carries a scent—not damp earth, but **photosynthesis without rain**: a sharp, green, metallic tang, like crushed ferns mixed with ozone and hot stone.
+
+**Terrain & Scale:**
+You stand on the **Low Basin**, a depression so vast the curvature of the world is visible as a distant, hazy uplift of shimmering structures on every horizon. The scale is not just large; it is *self-contained*. This is a world-within-a-world, a planetary basin ringed by the **Silicate Spurs**, mountain ranges not of rock but of consolidated, glassy biological waste-product, glowing faintly with internal bioluminescence at dusk. The basin floor is perfectly, unnervingly flat for hundreds of miles in some directions, then suddenly ruptures into **Grove-Canals**—trenches a mile wide, not carved by water, but by the relentless, communal growth of the dominant flora.
+
+**The Vegetation (Lush, in a Waterless World):**
+Lush does not mean green here. It means **thick**, **omnipresent**, **chemically voracious**. The primary lifeform is the **Silica-spike Phalanx**: towering, columnar structures resembling petrified forests of she-oak or giant bamboo, but their “wood” is a lightweight, porous silicate composite, internally laced with networks of capillaries carrying concentrated sulfuric acid and dissolved metal ions. Their “leaves” are not for transpiration, but for **chemosynthesis**—vast, leathery fronds that soak up atmospheric ammonia, trace phosphates, and ambient thermal radiation. They do not rustle; they *creak* as they expand and contract minutely in the day-night thermal cycle, a sound like a forest of enormous, dry bones.
+
+Between them, the ground is not bare. It is a **carpet of piezophilic lichen**, a symbiotic crust of fungi and bacteria that thrives on mechanical stress. As the crust plates shift (the “emerging erosion”), this lichen is constantly ground, pulverized, and reborn, releasing puffs of fine, iridescent dust that hangs in the still air like powdered gemstone.
+
+**The Built Environment (Urban, without Tech):**
+The “urban” score is misleading. There are no cities, no tools, no devices. But density is 2.7/3—**fully-occupied**. The landscape is *architecturally* saturated. The silica-spike phalanxes grow in dense, ordered groves that form **neighborhoods**, separated by wider avenues that follow subsurface chemical gradients. Many of the older, dead phalanxes have been完全 colonized by a parasitic **Mineral-weaver fungus**. This fungus does not decompose; it *re-weaves*. It secretes enzymes that dissolve the silicate skeleton and redeposit it as stronger, more ornate lattices—intricate, cathedral-like spires, graceful arches, vaulted galleries that stand empty, perfectly preserved, but built solely by biological secretion over millennia. You can walk through a **ruined district** of breathtaking, organic Gothic architecture, where the “stone” is still alive, still faintly warm, and still very slowly, very quietly reshaping itself.
+
+**Fauna (Abundant, Silent):**
+Abundance is everywhere, but sound is near-silence. The dominant animals are **slow**, **chemosensory**, and **morphologically fused** with the environment.
+*   **Crust-gliders**: Six-limbed, flattened creatures with bellies of adhesive cilia that skate silently over the sinter plates, feeding on the piezophilic lichen. Their movement is a whisper of grit.
+*   **Spike-tappers**: Wingless, bird-sized beings with beak-like drills that tap methodically on the silica-spikes, accessing the nutrient-rich sap within. Their tap is rhythmic, a metronome for the basin’s pulse.
+*   **The great silent movers**: In the Grove-Canals, you might see the back of a **Channel-Grazer**, a slug-like behemoth the length of a city block, its skin a moving garden of symbiotic algae, slowly munching the canyon walls, leaving behind a trail of freshly precipitated, fertile mineral paste that new phalanx shoots will grow from in a generation.
+
+**Atmosphere & Sound:**
+The light is normal—a yellow-white sun in a pale blue sky. But the air is thick with chemical haze and dust, muting colors to earth tones and pastels. The **soundscape is one of profound quiet punctuated by infinitesimal events**: the sigh of a crust plate settling (a subsonic thrum in your chest), the slow drip of mineral-rich fluid inside a phalanx, the distant, tectonic groan as a Grove-Canal deepens by a millimeter over a century. The most common “sound” is the vibration of your own footfall transmitted through the crust, felt as much as heard.
+
+**Rules of This World:**
+1.  **No Water Cycle:** All chemistry is silicate- or sulfur-based. Fluids are acidic, viscous, or gaseous. “Rivers” are migrating herds or flows of semi-liquid microbial mats.
+2.  **Growth is Geology:** Biology and geology are the same process. Mountains are waste dumps. Canyons are feeding trails. “Buildings” are fossilized metabolic byproducts.
+3.  **Time is Stitched:** Processes operate on spans that make human seasons irrelevant. A “storm” might be a seasonal wind that lasts five years, depositing a new layer of dust. A “forest fire” is a slow, creeping acid-sweat that leaches nutrients from a phalanx grove over a century.
+4.  **The Urban is a State of Matter:** “Urban” here means *dense, layered, and functionally structured*, not *designed*. The density of life has forced a functional, multi-level ecology: lichen-crust (ground level), spike-phalanx (canopy level), mineral-weaver ruins (subterranean/air-level), channel-grazer trails (hydrological equivalent).
+
+**The Feeling:**
+You are in a place that is **prehistoric and post-human**. It feels less like a landscape and more like **the digestive system of a planetary organism**, or the **archaeological record of a billion-year-old civilization that was, in fact, just biology**. It is lush in the sense of overwhelming, inescapable biological saturation, and desert-like in its utter lack of the one thing every other lush place on Earth takes for granted: water. The silence is not empty; it is dense with slow, patient processes. The vastness is not empty; it is packed so tightly with layered, overlapping life-forms that there is literally no room for anything else—not a pebble, not a breath of wind, not a thought that doesn’t belong to the basin itself.
+
+This is the **Sintered Labyrinth**. A desert that grows. A city that breathes. A world where the only rain is dust, the only rivers are time, and the only architecture is the memory of metabolism, written in stone that is still, technically, alive.

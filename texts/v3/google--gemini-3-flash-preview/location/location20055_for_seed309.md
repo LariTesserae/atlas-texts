@@ -1,0 +1,19 @@
+The air is a heavy, rhythmic pulse. You are deep beneath the shelf of the world, in a hollowed-out chamber the size of a cathedral, where the concept of "earth" has been entirely superseded by the concept of "tissue."
+
+Here, the vegetation is not merely present; it is the geography. It is the floor, the walls, and the sky. Massive, lignin-rich vines—thick as ocean liners and textured like weathered mahogany—weave together to form a vaulted ceiling. They do not grow toward a sun they cannot see; instead, they grow toward the heat of the machinery. This is a cavern of chlorophyllic urbanism, where a town of brass and grease has been swallowed by a forest and turned into a symbiotic engine.
+
+The dampness is localized and intentional. It lives in the "weeping joints" of the great vines, where condensation beads into heavy, glycerin-thick droplets that fall with a metallic *tink* into copper catch-basins. There are no rivers, only the intermittent irrigation of the machine-pulse, a rhythmic sweating that keeps the moss-shingled rooftops of the settlement slick and dark.
+
+The temperature is that of a fever—the constant, radiating warmth of billion-year-old compost mixed with the friction of spinning turbines.
+
+Within this green hollow, a town exists in pieces, scattered among the roots. The density is deceptively sparse; there is a great deal of "air" in the cathedral, but every cubic inch of that air is busy. Skeletal iron catwalks leap between the giant stalks, held in place by the tension of the plants themselves. You see the industry of the deep: massive, soot-stained pistons driven by the expansion and contraction of giant, heat-sensitive seed pods. These biological engines chug with a wet, thrumming sound, powering rows of vibrating looms that weave fiber directly from the hanging aerial roots.
+
+The lighting is a dim, spectral indigo. It comes from the "fauna," which is the true master of this space. The ecology is not merely alive; it is frantic. 
+
+It is a city of insects the size of cats, their exoskeletons polished like chrome, scuttling along the copper wires with industrial purpose. Great, bioluminescent moths with wings like stained glass drift through the gloom, their beating wings creating a low-frequency hum that vibrates in your marrow. There are sleek, eyeless mammalian things that slide through the hollows of the vines, their fur bioluminescent, acting as living couriers between the mechanical hubs. The sound is a cacophony: the hiss of steam, the grinding of wooden gears, the screech of thousands of territorial beetles, and the constant, wet *thrum-thrum* of the plant-heart beating against the iron foundations.
+
+The "rules" here are governed by the Balance of the Grind. The erosion is complete; the machines and the plants have long since stopped fighting. The metal is pitted and greened by centuries of acidic sap, and the plants have grown specialized "sleeves" to protect themselves from the heat of the boilers. It is an industrial ecosystem where the smoke of the factories provides the carbon for the leaves, and the leaves provide the fuel for the furnaces.
+
+You stand on a platform of woven wicker and bolted steel, looking out into the vast, dim void of the chamber. Below you, a "street" of glowing mushrooms marks a path between two massive steam-hammers. Above you, a swarm of metallic dragonflies settles on a cooling pipe, their wings shimmering with the iridescent oil of the machinery. 
+
+It is a place of frantic, loud, and beautiful productivity. There is no stillness. The very floor beneath your feet—a matted carpet of root and rubber—swells and recedes with the respiration of the cavern. It is an urban hive, buried in the warm dark, where the distinction between "built" and "grown" has been eroded by a thousand years of shared sweat and sap.

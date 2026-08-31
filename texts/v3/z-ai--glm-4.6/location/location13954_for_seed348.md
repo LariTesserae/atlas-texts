@@ -1,0 +1,21 @@
+The air here is heavy with a cool, metallic dampness that settles on the skin like a wet wollen shroud. It is not a raining place, nor a flooding one, but a sweating one. Every surface—brick, iron, stone—glistens with a perpetual, slick condensation that drips in a chaotic, yet rhythmic percussion. *Plink. Hisss. Plink.*
+
+You stand in a low-lying basin, a crater of urban industry that feels less like a city and more like a single, sprawling engine room. The light is flat and grey, normal butfiltered through a perpetual haze of moisture and suspended particulate, casting long, soft shadows that refuse to sharpen.
+
+Around you rise the structures: great, weathered monoliths of brick and rusted iron. They are urban in their organization—streets, avenues, plazas—but sparse in their distribution. Wide, empty expanses of oil-slicked cobblestone separate the buildings, creating a sense of isolation despite the architecture. It is a ghost town in terms of human occupancy, yet it screams with life.
+
+There is no green. The parameter for vegetation is absolute zero. No moss cracks the pavement; no ivy scales the soot-stained walls. The color palette is strictly industrial: oxide red, slate grey, oily black, and the dull, bruised purple of damp iron. The world here is mineral and synthetic, a fossilized skeleton of industry that has found a new, bizarre equilibrium.
+
+This is where the erosion becomes evident. The buildings are not pristine; they are settled, worn smooth by centuries of this incessant dampness. The brick faces have rounded, the ironwork is pitted into complex, lace-like geometries. It is a place that has existed in this state for millennia, a slow-motion petrification of the industrial age.
+
+And the noise. It is deafening. A constant, low-frequency thrum vibrates through the soles of your boots, rising to a piercing, mechanical shriek that echoes off the high, vaulted ceilings of the factories. But listen closer: the sound is not purely mechanical. It is chittering. It is the clicking of a million legs and the rustling of a thousand dry wings.
+
+The fauna here is overwhelming. Because there is no plant life, the ecology has turned elsewhere. Every horizontal surface is a seething carpet of **Rust-Mites**—palm-sized, hexapodal scavengers with chitinous shells that mimic the color of oxidized iron. They swarm over the machinery, glowing with a faint, sickly bioluminescence derived from the trace chemicals they consume. They are the vegetation, the ground cover, and the grazers all at once. They cling to the walls in thick, writhing mats, stripping the mineral deposits and feeding on the slow corrosion of the city itself.
+
+The weirdness lies in the synchronization. Despite the chaotic noise and the teeming mass of life, nothing changes. The dynamic is frozen. The Rust-Mites move in flows that are as predictable as the gears they crawl upon. They do not fight, nor do they panic. They surge from pipe to pipe in a perfect, hydro-static loop. The massive steam vents that puncture the skyline belch white vapor in precise, timed intervals—every forty seconds, exactly, a pillar of steam hisses forth, triggering a ripple of movement through the mites below.
+
+It is a clockwork ecosystem made of flesh and rust. The industrial technology (massive pistons, electrified tram lines that spark impotently) isn't producing anything anymore; it simply exists to maintain the environment for the mites. The electricity hums, the gears grind, and the dampness keeps the rust coming, and the rust feeds the swarm.
+
+You walk down a central avenue, the sound pressing against your ears like physical weight. The cool dampness seeps into your jacket. To your left, a vast, cathedral-like factory hall stands open, its interior dark. Inside, you can see the true scale of the infestation: great, drifting clouds of the creatures hanging from the rafters like living stalactites, vibrating with the collective resonance of their bodies.
+
+It is loud, it is crowded with life, and it is utterly, terrifyingly still. A frozen snapshot of consumption, where the machines are the soil and the insects are the harvest, locked in a cycle that will never progress, never end, and never change.

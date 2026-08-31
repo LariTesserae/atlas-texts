@@ -1,0 +1,17 @@
+In the hollows between towering mountains, a city grows like a fungal bloom. Its structures spiral upward in helical patterns, buildings sprouting from buildings in fractal progressions that defy conventional engineering. The architecture seems to emerge from the raw geology itself - half-formed spires of basalt flow seamlessly into steel and glass, as if the mountain is learning to become urban.
+
+The air is cool and heavy with moisture that never quite becomes rain. Instead, it condenses in shifting patterns across surfaces, creating temporary rivers that flow upward as often as down, leaving behind mineral deposits that gradually become new structures. The water plays strange tricks with sound - distant industrial clamor echoes with crystalline clarity while nearby conversations become muffled and indistinct.
+
+Vegetation claims every available surface, but it grows with an unsettling intentionality. Vines trace perfect geometric patterns, moss forms precise color gradients, and trees branch in logarithmic sequences. The plants seem to be studying mathematics, working out complex equations in chlorophyll and cellulose.
+
+The city's population is predominantly non-human. Corvids with too many wings negotiate complex social hierarchies from the higher reaches. Translucent arthropods the size of dogs maintain vast underground archives of accumulated sensory data. Colonies of luminescent fungi serve as a distributed nervous system, passing signals through the urban mycelium at the speed of thought.
+
+Human construction efforts move with geological slowness, but the city grows rapidly nonetheless. Buildings assemble themselves according to blueprints that exist in some higher dimensional space, their forms suggesting functions that human minds slide away from comprehending. Streets rearrange themselves during the dim hours, though nobody ever seems to get lost.
+
+The industrial infrastructure appears to serve purposes beyond mere production. Factory smokestacks release precisely-timed puffs that form messages in a mathematical language. Assembly lines build and disassemble the same inscrutable objects in endless loops, perhaps modeling some fundamental process of reality itself.
+
+In the highest reaches, where the thin air shimmers with quantum uncertainty, the boundary between city and cosmos becomes permeable. Astronomical phenomena occur at architectural scales. A spiral staircase might lead to the core of a distant galaxy, or a properly-opened window might look out onto the birth of time.
+
+Yet for all its strangeness, the place operates with a profound orderliness. Every apparent chaos reveals deeper patterns, every confusion points to higher organizing principles. It's a city writing itself into existence, bootstrapping upward from simple rules into impossible complexity, each iteration both more rational and more miraculous than the last.
+
+The overall impression is of being inside some vast computation - not a simulation, but rather mathematics made manifest, topology given flesh, logic dreaming itself awake. And always, there is the sense that this is just the beginning, that the city is still in its larval stage, slowly metamorphosing into something that even it doesn't yet understand.

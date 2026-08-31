@@ -1,0 +1,15 @@
+The architecture of the Over-Reach is not built upon stone, but woven from the calcified, fossilized stalks of a primordial flora that died millions of years ago. It is a high-altitude metropolis of petrified vine-towers and spongy, moss-slicked plazas that span the gaps between mountain peaks. 
+
+Because the erosion here is so profound, the very bones of the world have been smoothed into gentle, rolling, impossible curves. The city sits upon these ancient, rounded ridges like a layer of lace draped over a sleeping giant. The vegetation is total—there is no earth, only levels of root-mesh, lichen-plaster, and bioluminescent leaf-matter that acts as both flooring and foundation.
+
+The atmosphere is perpetually cool, thin, and damp. A fine, rhythmic mist rolls in from the lower valleys, condensing on the metallic ribs of the industrial apparatuses that sprout from the plant-mass like silver spikes. Here, reality is thin; occasionally, a massive strut of oxidized copper will ripple like water, shifting its position in the Euclidean plane, causing the street layout to rearrange itself with a groan of grinding plant-fiber.
+
+The technology is heavy, clanking, and industrial. Great iron pistons, fueled by the slow, hydraulic pressure of the living moss-tapestries beneath, pump rhythmically at the center of the town. These engines create a constant, cacophonous thrum—a vibration that permeates the soles of your boots and makes the hanging, leaf-bulb streetlamps shudder. It is loud; the sound of steam-vents releasing trapped moisture from the plant-flesh mixes with the mechanical chugging of the city’s heart, creating a symphony of industrial decay.
+
+The density is sparse. You can walk for miles across the suspension-bridges made of braided, iron-infused vines before encountering another soul. The inhabitants—rare, silent, and wrapped in thick, fungal-spun cloaks—are mostly maintenance workers. They move through the city with purpose, lubricating the joints of the iron structures or trimming back the invasive, neon-blue ferns that attempt to reclaim the walkways.
+
+Water is a precious, fleeting commodity. It does not flow in rivers, but collects in the deep, bowl-shaped depressions of the massive, petrified leaves that form the city’s roofs. When the mist hits the industrial pipes, it turns to a gray, tepid rain that clings to the air, making every surface slick and dark. 
+
+Fauna is almost non-existent, though the air is filled with the low-frequency hum of something much larger circling far above the cloud layer. Every so often, the sky—which looks like a painted ceiling of pale, hazy blue—will flick, revealing for a fraction of a second a grid of geometric light before snapping back into an organic, overcast gray.
+
+It is a landscape of ancient, stable exhaustion. Everything here—the plants, the rust-red machines, the shifting light—feels as though it has been here since the dawn of time, settling slowly into a final, quiet collapse that never quite arrives. The city breathes with the slow, rhythmic gasp of its own cooling engines, held aloft by the vast, unmoving history of the forest that became stone beneath it.

@@ -1,0 +1,13 @@
+Within the hollow chamber of a massive crystal formation, reality buckles and folds like heated glass. The cavity spans no more than thirty meters at its widest point, carved from the heart of what might once have been a mountain—though here, even the concept of "once" becomes negotiable.
+
+The walls pulse with veins of raw silicon and strange metals that shouldn't exist in nature, glowing with their own internal heat. These formations are still growing, still deciding what they want to become. Crystalline spires thrust upward in stuttering jolts, pausing mid-formation as if the very laws of geology are still being written. The air shimmers at precisely 47 degrees Celsius, maintained by some deep geothermal process that hums through the crystal matrix with the patience of millennia.
+
+From impossible cracks in the mineral walls, vegetation erupts in defiant abundance. Scarlet moss carpets surfaces that curve in directions that hurt to follow too closely. Fern-like plants with metallic fronds spiral through the heated air, their roots somehow finding sustenance in pure crystal. Flowering vines cascade in impossible waterfalls of green, their blossoms opening and closing in rhythm with the mountain's deep pulse. The plants seem too lush, too vivid—as if someone turned up the saturation on reality itself.
+
+But scattered through this verdant chaos are empty spaces that feel deliberately hollow, places where even the ambitious moss fears to grow. The silence pools in these gaps, broken only by the occasional crystalline chime as new formations test their structural integrity, or the soft whisper of expanding plant matter finding new purchase on the walls.
+
+No animals disturb this sanctuary. No human hands shaped these growing mineral gardens. Yet embedded in the crystal walls, half-glimpsed through the refracting surfaces, mechanical shapes suggest themselves—gear teeth that might be natural crystal formations, pipe-like structures that could be mineral veins, the suggestion of industrial purpose in the mountain's own patient construction of itself.
+
+The light comes from everywhere and nowhere, filtered through layers of crystal that bend it into spectrums that don't quite behave as they should. Shadows fall upward sometimes. Colors bleed into other colors at their edges. Time itself seems negotiable here—the slow, inexorable growth of crystal and plant occurring in moments that stretch like taffy, while elsewhere sudden bursts of formation happen too quickly to track.
+
+This is a place where the world is still making up its mind about what it wants to be.

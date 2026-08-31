@@ -1,0 +1,23 @@
+The first thing you notice is the sound.
+
+It is not a noise. It is a pressure, a physical weight in the air, a high, thin, harmonic shriek that vibrates in your teeth and your sternum. It comes from everywhere—from the sky, from the ground, from the very architecture itself. The light is blinding, a flat, white glare that bleaches all color to shades of cream, ochre, and a faint, bruised lavender. There is no sun, only the diffuse, searing brightness, as if the entire sky were a single, vast lamp filament.
+
+You stand on a plain of cracked, polygonal salt. The crust is inches thick, buckled into low, jagged ridges, and beneath your feet it gives a gritty, compacted crunch that is utterly swallowed by the air’s scream. The plain stretches to a shimmering horizon, featureless and vast. This is the emptiness, the hollow volume of the world: a great, baked basin under a dome of sound and light.
+
+But it is not barren.
+
+Rising from the salt, spaced with a deliberate yet enigmatic irregularity, are the towers. They are the city. They are the vegetation. They are not built, but grown—or perhaps *precipitated* is the better word. They are structures of crystalline, mineral lattice, ranging from the size of a clenched fist to monoliths that dwarf the imagined skylines of human cities. Their forms are fractal, branching and re-branching like corals or bare trees frozen in sugar-glass. The material is opalescent, a milky quartz shot through with veins of a darker, resonant stone. It is into this dark stone that the eternal, deafening tone is woven; the entire forest of spires is a musical instrument of impossible scale, played by the wind, the heat, the slow shifting of the planet's crust.
+
+This is the lushness. A forest of stone.
+
+The "water" is not H₂O. It is a slow, viscous seep of mineral-rich, silicate gel that oozes from deep aquifers under the immense, dry pressure. It does not pool; it wicks up through the crystalline roots of the spires, feeding their growth, hardening into new facets, new branches. The process is warm, exothermic; the air around the base of the larger spires shimmers with gentle heat. The gel, when it occasionally drips from a high branch, solidifies in mid-air into tiny, perfect beads that scatter across the salt like glass seeds.
+
+Life here is not biological in the way you know. It is architectural, mineral, acoustic. The "fauna" are the silicate echoes—movements of resonance within the larger spires. A deep thrumming from one tower will cause a sympathetic vibration in its neighbor, sending a cascade of glittering dust from its peaks. Sometimes, patterns of light will race along the lattice, a form of slow, collective thought. These are the active processes, the dynamic pulse of the place: the growth of crystal, the song of stone, the exchange of light and vibration.
+
+The primitive technology is the civilization itself. There are no tools left lying about, for the city *is* the tool. Its inhabitants, long gone or perhaps never present in a corporeal sense, built by cultivating. They seeded the gel, tuned the resonant stones, and shaped the lattice-spores that blew across the salt to root. Their hand-tools are the gentle curves of a spire’s base, perfectly shaped to channel a wind current and amplify a specific note. Their simple fabrication is the ongoing, weathered, settled-in balance of the ecosystem: mineral in, sound out, light refracted, heat bled.
+
+You stand in a pocket of this. The scale feels intimate, because the network of spires around you forms a chamber, a room with walls of singing crystal. Yet beyond this chamber, through gaps in the lattice, you see others, stretching in every direction, an endless series of interconnected, hollow resonating halls. The emptiness between the spires is profound; the air is only sound and light, with vast, silent gaps where a human city would have crowds and clutter.
+
+The weirdness is in the paradox: a deafening silence of movement, a lush desert, a bright shadow, an urban void. It is established. It has been here, singing its unchanging, complex song, for eons. The erosion is not of decay, but of perfection—the rounding of a once-sharp edge by a millennium of resonant vibration, the slow, even growth of a new crystal sheath over an old one.
+
+This is a landscape that breathes in heat and breathes out sound. It is a city that farms light and minerals. It is a garden of glass, weeping tears of stone, in a desert of salt, under a sky of solid glare. To stay long is to feel your own bones yearning to vibrate in sympathy, to join the choir, to become another instrument in the deafening, brilliant, empty, living orchestra.

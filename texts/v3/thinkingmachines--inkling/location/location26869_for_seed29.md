@@ -1,0 +1,17 @@
+You are inside a cavity that has not yet decided to be old.
+
+It is hidden—pocket-scale, a single enclosed breath within a much larger body of stone—buried high in a dry range where the air outside is thin and cold but never reaches here. The elevation is severe; this chamber clings near the spine of a peak that has not finished growing. Because the erosion is only just emerging—pre-formation, raw-geology—the walls are not weathered. They are newborn rock: sharp mineral faces, crystalline edges that have not been smoothed by water or wind, surfaces that still carry the heat of their own crystallization. There is no water, none, not even as vapor; the air is desiccated, heavy with heat and mineral dust. The temperature is intense—nearly three-quarters of the way toward unbearable—radiating upward from the floor and downward from the ceiling in a sealed convection that has nowhere to escape.
+
+The scale is intimate. You could touch both walls without stretching. It is embedded, contained, a hidden room of geology rather than architecture.
+
+And it is full.
+
+Density here is absolute, saturated—there is no negative space. Every surface, every cubic inch, is occupied. The fauna is abundant, not exotic in form but overwhelming in number: small, slow-moving, heat-adapted organisms—chitinous, segmented, with shells darkened by iron and sulfur—layered upon one another like living plate armor. They cover the fresh rock in a continuous living floor, wall, and ceiling. They move slowly, in patient cycles that match the dynamic of the place: gradual, weak-gradient, change across long durations. Their motion is rhythmic, mechanized—not because they are machines, but because their collective behavior produces an industrial regularity. They scrape. They grind. They process mineral with mouthparts like small files, and in doing so they function as scaled production without ever having been built. There are no factories, no artifacts, no constructed structures—built presence is essentially zero—but the sound and the motion are those of engines: constant, loud, a low grinding thunder that fills the darkness.
+
+Light is nearly absent—just the faint thermal glow, a dim rust-orange radiance that comes from the hot walls and the bodies of the creatures themselves. You see by heat rather than illumination. The darkness is not empty; it is packed with presence.
+
+The sound is relentless—2.4 loud—clicking shells, scraping limbs against raw crystal, the collective exhale of thousands of organisms moving in slow synchronization, and beneath it all the deep, patient groan of the rock itself as it continues to form, expanding microscopically, under construction.
+
+There is no vegetation. No green, no fungal bloom—only mineral world and the life that feeds on heat and stone. The weirdness is low, the place is entirely normal for what it is: a hot, high, dry pocket of emerging geology, sealed and intimate, functioning like an industrial chamber made of biology and newborn rock. The change is glacial—slow cycles, weak gradients—nothing here rushes. The creatures move as if time is thick. The geology forms as if it has centuries to decide what shape it wants.
+
+You stand, if you can stand, in a hidden factory without builders, loud and dark and fully occupied, inside a mountain that is still being born.

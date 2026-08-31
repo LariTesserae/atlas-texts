@@ -1,0 +1,11 @@
+**The Weeping Hollow**  
+
+A lowland marsh stretches before you, a vast and sodden expanse where the earth barely rises above the water’s grasp. The air is thick with condensation, a perpetual mist clinging to the land like a second skin. It is cold here—not the sharp bite of winter, but the slow, damp chill that seeps into bones and lingers. The water is everywhere, pooling in hollows, trickling in unseen rivulets beneath the matted reeds, weeping from the porous black rocks that jut like broken teeth from the mire.  
+
+The land is young, freshly shaped, its contours still sharp where erosion has not yet softened them. There are no human structures here, no marks of civilization—only the relentless press of nature, dense and untamed. Yet the distant hum of machinery thrums through the air, an industrial growl carried on the wind from some unseen factory or refinery beyond the marsh’s edge. It does not belong here, but it is here all the same, a dissonant vibration beneath the croak of frogs and the rustle of reeds.  
+
+The vegetation is lush but claustrophobic, a tangle of sedge and cattails, their roots submerged in black water. Lichen clings to the rocks in slow-spreading patches, and thin, skeletal trees rise from the shallows, their branches draped with moss like tattered shrouds. The fauna is abundant but hidden—snakes slipping between roots, insects skimming the water’s surface, the occasional shadow of a wading bird stalking through the mist.  
+
+The light is dim, filtered through the haze, casting everything in a muted gray-green hue. Sounds are loud but diffuse—the constant drip of water, the distant machinery, the sudden splash of something moving just out of sight. The marsh feels alive, shifting, breathing, its waters stirred by unseen currents, its plants trembling in the faintest breeze.  
+
+This is a place of contradictions—wet yet cold, lush yet empty, untouched yet haunted by the distant pulse of industry. It is a hollow in the world, a pocket of damp stillness where time moves strangely, where the land itself seems to exhale moisture with every slow, shuddering breath.

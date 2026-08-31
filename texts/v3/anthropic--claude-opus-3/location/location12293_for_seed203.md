@@ -1,0 +1,13 @@
+A vast underground realm stretches out in all directions, its sheer scale defying comprehension. The roof of this colossal cavern arches high overhead, so distant that it fades into a hazy green glow. That eerie light filters down through a lattice of roots, vines and tendrils that hang from the unseen ceiling like a titanic web or a living cathedral's vaulted ribs. 
+
+The cavern floor is a primordial garden run amok. Lush, riotous vegetation carpets every surface in explosions of leaves, fronds and twisting stalks. Mushrooms sprout in phantasmagoric shapes and colors, some towering on thick trunks like trees, others clinging to damp rockfaces in phosphorescent constellations. Mosses and lichens paint the tumbled stones in vivid, creeping hues. The rampant growth fills the air with a dizzying melange of earthy, floral and fungal scents.
+
+Scattered through this untamed wilderness lie crumbling ruins of primitive structures. Cyclopean blocks of basalt, carved with spiraling, organic patterns, rise from the mulch in broken rings and cairns. Lichen-crusted mud bricks form low, rounded hummocks that might once have been domelike huts. Shards of crude, blue-glazed pottery and corroded copper ornaments glint amid the detritus of the forest floor, hinting at long-forgotten artisans.
+
+The primal hush of the cavern is broken only by the intermittent patter of condensation dripping from dangling roots and the muffled stirrings of unseen creatures in the underbrush. Pools of water gleam here and there, mirror-calm and inky black in the dim light, or rippled by the hesitant emergence of rarely-glimpsed amphibious things. 
+
+Strange phenomena manifest in the depths of the jungle. Globes of shimmering, soap-bubble iridescence drift between the trees, winking out and reappearing. Spiral patterns of light, vaguely reminiscent of bioluminescent sigils, flare to life on fungal caps, as if the very growth is dreaming. 
+
+In scattered clearings, circles of stone monoliths sprout with clusters of faceted, pastel-hued crystals that sing in perfect harmonies when stirred by errant breezes. Pyramidal flowers unfold, emitting puffs of kaleidoscopic pollen that swirl into fractal forms before settling.
+
+Through it all, a palpable sense of ancient, alien power pervades, as if the fecund earth and burgeoning life are but a thin skin over roiling chthonic forces. The cavern feels like a place outside time, where primal nature rules unchecked, heedless of aeons. To enter this domain is to step into the dreaming mind of a slumbering elder god.

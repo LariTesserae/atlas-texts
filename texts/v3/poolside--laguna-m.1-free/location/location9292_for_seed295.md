@@ -1,0 +1,23 @@
+**The Threnodic Basin**  
+
+High above the world, where the air hums with warmth and the sky is a smothering shroud of charcoal cloud, lies the Threnodic Basin—a vast, bowl-shaped depression carved into ancient stone. The elevation here is punishing, yet the atmosphere remains oddly temperate, as if geothermal breath circulates through unseen fissures, stoking the damp, heavy air. Light is a memory: the canopy above is woven from colossal, bioluminescent funghi and creeper-vines that dangle like curtains of drowned starlight, filtering the dim radiance of a sun that never pierces the gloom. This is a place where color has been bled from the world, leaving only gradients of slate, moss, and the sickly amber glow of fungal blooms.  
+
+### Terrain & Materials  
+The ground is a mosaic of organic-synthetic hybrids—structures grown, not built. Towering spires resemble petrified coral, their surfaces etched by eons of wind and root, while others mimic termite mounds but writhe with slow, muscular contractions, as if alive. These formations are neither stone nor flesh but something between: calcified symbioses of mineral and mycelium, shaped over millennia by the ceaseless activity of the basin’s denizens. Rivers of black water carve through the landscape, their banks lined with iridescent moss that pulses faintly, and their depths home to blind, eel-like creatures that disturb the sediment into ghostly spirals. Condensation drips perpetually from the canopy, pooling in hollows to form mirror-still pools where the water seems to breathe.  
+
+### Atmosphere & Light  
+The air is thick with the scent of decay and something sweetly floral, a dissonance that clings to the back of the throat. Light comes in slivers, filtered through the canopy’s translucent leaves, which shimmer with a faint phosphorescence. In the absence of true daylight, the basin glows with an eerie bioluminescence: patches of earth flicker like dying embers, and the fungi adorning every surface cast shifting shadows that move with the rhythm of an unseen heart. The darkness is not empty; it is *occupied*, pressing close like a living thing.  
+
+### Ecology & Fauna  
+The fauna here is a cacophony of life, overwhelming in its density and variety. In the canopy, arboreal creatures—part mammal, part vine—swing through the branches, their calls a rhythmic percussion that merges with the buzz of insect swarms. Beneath, the ground teems with burrowers and striders: beetle-like beings the size of wolves, their shells etched with runic patterns that glow faintly; serpentine herbivores that glide soundlessly through the undergrowth, leaving trails of phosphorescent spores. The rivers are home to massive, jellyfish-like organisms that drift just below the surface, their tentacles trailing like gossamer threads to snag prey. Every surface pulses with movement: lizards that skitter up walls in tidal waves, birds (or something birdlike) with membranous wings that thrum the air into a constant susurrus.  
+
+### Sounds & Dynamics  
+The soundscape is a wall of noise: a deafening, layered symphony of clicks, croaks, rustles, and hums. The air itself vibrates with it, a low-frequency thrum that rattles teeth and sets the spine tingling. The sounds never cease, only shift in intensity. They rise and fall like breath, driven by the slow, cyclical rhythms of the basin. Over decades, the fauna migrate in vast, unseen waves, their collective activity reshaping the landscape. The spires grow thicker or thinner; rivers redirect themselves; entire groves of fungi bloom or wither in response to these migrations. Change here is glacial, imperceptible to any but the most patient observer.  
+
+### Rules of the World  
+- **No Technology**: All structures are biological or geological, shaped by organic processes. Tools, if they exist, are extensions of teeth, claws, or plant matter.  
+- **Total Built Environment**: There is no “natural” substrate left. Every rock, pool, and patch of earth has been colonized, modified, or grown into something else.  
+- **Darkness as Substrate**: Light is scarce, and life has adapted to thrive without it. Vision is secondary; creatures rely on echolocation, chemical sensing, or bioelectric fields.  
+- **Erosion as Creation**: The landscape’s “established” erosion is not decay but transformation. The fauna and flora sculpt the terrain over centuries, turning destruction into renewal.  
+
+The Threnodic Basin exists in a state of slow, symbiotic chaos—a place where life has learned to build as much as it grows, and every corner thrums with the weight of endless, overlapping lives. To walk here is to be swallowed by sound, shadow, and the relentless, patient pulse of a world that has forgotten the sun.

@@ -1,0 +1,21 @@
+The air here is heavy, not with the weight of gravity, but with thickness. It hangs like a wet gray wool blanket, suffocating and dim, pierced only by a wan, bruised light that seems to emanate from the heat-haze itself rather than any distinct sun. This is a low, crushed landscape, a basin of endless, flat horizon that feels unnervingly close, as if the sky has lowered itself to within arm’s reach of the earth.
+
+It is hot—a relentless, humid swelter that smells of wet clay, hot iron, and the sharp, mineral tang of oxidation. There is no breeze, only the stagnant, slow-moving currents of rising vapor.
+
+The ground is not ground, not in the way one understands sediment or soil. It is raw. It is a planetary-scale construction site caught in the agonizingly slow moment of its own birth. The erosion value here is near-zero; nothing has had time to wear away. Everything is jagged, sharp-edged, and freshly exposed. You are standing on the "just now" of geology.
+
+The entire world is built, yet the construction feels barbaric in its simplicity. There are no sleek alloys, no glowing energy conduits. Instead, the architecture is comprised of cyclopean blocks of dark, glassy basalt and rough-hewn iron, piled in staggering, ziggurat-like formations that stretch miles into the gloom. These structures are not completed buildings; they are the skeletons of mountains, raised by hands unseen.
+
+Given the vastness of the scale, the technology employed is insultingly primitive. It is a landscape of levers and pulleys the size of continents. Gargantuan wooden groans—timbers made of petrified matter, lashed with cables thick as rivers—crisscross the sky, suspending massive slabs of rock that drip water into the void below. It is as if a race of titans attempted to build a heaven using only stone tools and brute force, then abandoned the project halfway through, leaving the machinery to run on ghost momentum.
+
+Water weeps from everything. The parameter of 1.7 manifests as a constant, mourning condensation. The rock faces are slick with moisture; great stalactites of gray water hang from the underside of the floating continental slabs, dripping with a rhythmic, hollow *plink* that is the only consistent sound in this mostly quiet realm. The puddles on the "floor" are not stagnant; they are boiling slightly, fizzing with the heat of the earth below, creating low-hanging mists that obscure the base of the great towers.
+
+There are no plants. The color palette is strictly mineral: the rust-red of iron, the oily black of volcanic glass, the bruised purple of shadows. Fungal-like structures do exist, but they are not biological; they are mineral accretions, crystalline growths that spiral out of the wet rock like frozen fountains. They possess the geometry of life but the substance of stone.
+
+The weirdness lies in the instability of the physics. This is a Solaris-like chaos of creation. The landscape is turbulent in a way that induces nausea. To the west, a mountain range is not eroding, but *un-building*—huge slabs of the earth detach and float upward, counter to gravity, returning to the sky from which they were quarried. To the east, the ground ripples and folds like wet dough, heaving upward into sudden mesas that collapse moments later into gravel.
+
+It is sparse. These massive events and structures are separated by miles of damp, empty flatland, where the only feature is the geometric scars of recent movement. The emptiness feels deliberate, a pause between breaths.
+
+There is no fauna. No birds wheel in the gray sky, no insects chirp in the boiling grass (for there is no grass). The silence is profound, a heavy, ringing quiet that amplifies the distant, booming groans of the massive stone levers shifting under their own weight.
+
+It is a world that is trying to decide if it wants to be solid. It is a factory of continents operating without overseers, a wet, dark, primitive engine of pure geology, sweating under the effort of its own existence. You feel like an intruder here, a soft, biological mistake witnessing the hard, violent infancy of a planet that has not yet learned to stand still.

@@ -1,0 +1,23 @@
+The chamber breathes with mechanical lungs.
+
+Beneath the low industrial ceiling, a forest of copper pipes sweats perpetual condensation. Each pipe, thick as an ancient oak, rises from grated flooring to disappear into the darkness above, wrapped in insulating moss that has grown fat on the constant moisture. The moss glows faintly phosphorescent, having adapted over decades to the dim emergency lighting that never switches off.
+
+This is the Lower Cultivation Hall of Processing Station Seven—a single vast room the size of a cathedral nave, though you must stoop beneath the maze of overhead ductwork. The air tastes of iron and chlorophyll. Everywhere, water moves: trickling down the pipes, pooling in the carefully engineered depressions of the floor, cycling through the hydroponic gardens that burst from every available surface in organized chaos.
+
+The gardens grow in steel frames welded to the pipes themselves, their roots drinking directly from the condensation. Ferns unfurl in the artificial twilight. Vines heavy with purple fruit snake between pressure gauges. Tomatoes ripen in the heat-shadow of the boilers. Everything grows enormous in the mineral-rich water, the regulated temperature, the endless humidity. Leaves the size of dinner plates overlap in layers, creating green caves within the industrial skeleton.
+
+The sound never stops. The boilers roar their constant note—a basso profundo that vibrates through the floor grates and into your bones. Layered over this: the hiss of steam releases, the gurgle of water through pipes, the tick-tick-tick of expanding metal, the splash of automatic irrigation systems, the whir of ventilation fans fighting the moisture. And beneath it all, if you know how to listen: the ultrasonic calls of the machine mice.
+
+They are everywhere, these tiny creatures that have evolved to fill this niche. Gray-furred and oil-slick, they nest in the warm spaces behind the boilers, feed on the fruit and the moss, drink from the puddles that never dry. Their populations boom and bust with the harvest cycles. At night (though night and day mean nothing here), they swarm across the pipes in chittering rivers, their calls pitched too high for human ears but adding their frequency to the mechanical symphony.
+
+The hall stretches perhaps fifty meters in any direction before the next bulkhead door, but the space feels both intimate and infinite. The regular pattern of pipes creates repetitive geometries that confuse the eye. Stand in one spot and you can see the same view replicated dozens of times, each frame holding its own miniature ecosystem. Here, a leak has created a waterfall over acid-green moss. There, a broken light fixture has made a pocket of deeper darkness where pale fungi bloom.
+
+The original engineers never intended this. The plans called for a simple processing station—boilers to generate steam, pipes to carry it, excess water to be reclaimed. But time and nature are patient. First came the moss spores, carried in on someone's boot. Then the intentional plantings, when some long-ago maintenance worker realized the conditions were perfect for growing food. The mice followed the fruit. The ecosystem assembled itself piece by piece, until now the machinery and the garden are inseparable, each dependent on the other.
+
+The metal breathes out heat and water. The plants breathe it in and give back oxygen, food, beauty. The mice process the excess, their droppings enriching the artificial soil. The humans who maintain this place—checking gauges, harvesting fruit, clearing drains—are just another part of the cycle.
+
+In the coldest part of the hall, where the external walls meet the earth, ice sometimes forms on the pipes despite the internal heat. These corners bloom with different life—arctic mosses that thrive in the cold, special cultivars of kale that sweeten with frost. The temperature differential creates its own weather: fog banks that roll through the pipe forest, sudden downpours when warm air hits cold metal, miniature thunderstorms complete with static discharge between the pipes.
+
+This is industry become ecosystem, machinery become landscape. The boundary between built and grown dissolved long ago in the constant flow of water, the endless turning of cycles. Stand still long enough and you'll feel it: the pulse of the place, steady as a heartbeat, reliable as the seasons, strange and familiar as a recurring dream.
+
+The next shift arrives through the bulkhead door, their voices immediately swallowed by the greater voice of the hall. They scatter to their tasks—checking, measuring, harvesting, maintaining—each moving with practiced ease through their small section of this vast, breathing machine.

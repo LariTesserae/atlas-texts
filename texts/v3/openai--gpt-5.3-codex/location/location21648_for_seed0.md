@@ -1,0 +1,26 @@
+At first glance it seems like a jungle plain at night, but the longer you stand in it, the less stable that idea becomes.
+
+The land is low and broad, a basin still deciding what shape it wants. Nothing here looks worn smooth. Banks are raw, roots hang from freshly bitten edges of earth, and long shallow gullies cut straight through leaf-litter as if clawed yesterday. Dark stone ribs—young volcanic rock or recently lifted sediment—push through the soil in sharp backs. Between them, the ground dips into pockets where water appears and vanishes: rain-cups in stone, black puddles under ferns, sudden side-channels that run hard for an hour and then sink into mud. It is damp more than wet, sweating more than flowing. Moisture beads on everything: bark, skin, feather, even the undersides of leaves.
+
+Vegetation is not just abundant; it is crowded to the point of friction. Palms, broad-leafed understory, rope-thick vines, cane-bright reeds, mats of low creepers, and fungal shelves all stack themselves in layers that almost touch. You can look out across open distance—this is a regional landscape, not a tiny grove—but every line of sight is crosshatched by growth. Even the clearings are temporary: the imprint of a toppled giant, a mudfan left by a flash runoff, a trampled corridor made by migrating herds and erased by new shoots in days. Plants here don’t politely occupy space. They compete in real time.
+
+The warmth is constant and close. Not desert heat, but body heat—the kind that never quite leaves your back. Air feels thick enough to hold scent in bands: crushed herbs near the ground, fermenting fruit higher up, musk from passing animals, sulfur where the stone is newly split. With so little direct light, colors shift toward deep greens, brown-black water, pale fungus, and the occasional startling bloom that seems to float in the dark like an ember. Most brightness is indirect: dim sky filtered through storm mass, foxfire glows along rotten trunks, pulse-like flashes from beetles drifting through the understory.
+
+And the sound: the sound is a weather system by itself.
+
+It is deafening, layered, unbroken. Insects saw at the air in metallic waves. Tree frogs bark in syncopated bursts. Wingbeats of heavy birds thrum like cloth snapping in wind. Something large crashes through cane every few minutes, answered by alarm shrieks and then countercalls. There are bass notes too—distant herd rumbles, guttural roars rolling over low ridges, the sudden percussion of rain detonating on leaves. Silence doesn’t occur; it is actively prevented. The ecology runs on announcement: territory, mating, warning, orientation in near-dark. If one stratum quiets, another swells to fill it.
+
+Fauna dominates everything. Paths are made by bodies, not streams. Mud is stippled with tracks before it finishes settling. Pollinators move in clouds so dense they cast moving shadows. Small predators travel in coordinated ribbons, peeling through the brush and rejoining like spilled mercury. Grazers—if “grazer” even fits for creatures that strip bark, fruit, fungus, and carrion in a single pass—shift across the basin in rotating fronts, pruning one zone while fertilizing the next. Above them, gliders and short-wing pouncers exploit the vertical layers. Below, burrowers aerate the soft ground, collapsing yesterday’s tunnels and opening tomorrow’s sink pockets.
+
+Nothing built stands here, but tool-use flickers through the life of the place. Stone anvils appear naturally at root bases and are polished by repeated shell-cracking. Certain birds wedge thorns into bark creases and return to use them like hooks. A primate-like scavenger population carries shaped sticks for probing nest chambers and termite mounds, abandoning them when storms scatter the troop. No villages, no walls, no roads—just transient intelligence expressed in gestures, habits, and worn surfaces.
+
+The strange part is how turbulent the system is without ever becoming empty. Storms come in short violent passes, sometimes several in a day, turning dry channels into brown torrents and then back to cracked clay by morning. Mating swarms rise and collapse in hours. Predators overconcentrate, strip an area, vanish, and are replaced by opportunists before decay has finished. Whole copses of fast-growing plants flower simultaneously after electrical storms, drawing unbelievable densities of feeders, then slump into fungal collapse within a week. Creation and breakdown happen so quickly that “season” feels less useful than “pulse.”
+
+A few local rules become clear if you watch long enough:
+
+- **Water is punctual, not permanent.** Miss the rain pulse and even a green place can thirst.  
+- **Noise is survival.** The quiet are either hidden very well, or already dead.  
+- **Edges are temporary.** Channel, clearing, thicket, trail—none stay where they were.  
+- **Darkness is not rest.** Activity peaks when light is lowest; vision yields to vibration, scent, and call.  
+
+So the landscape resolves into this: a warm, low, living basin in perpetual near-night, lush to the point of congestion, young in its bones, and violently active in cycles short enough to feel like breathing. It is not untouched in the sense of being calm. It is untouched in the sense that no lasting hand has simplified it yet.

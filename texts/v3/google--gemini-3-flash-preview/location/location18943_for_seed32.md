@@ -1,0 +1,19 @@
+This is a world of the **Glass-Thicket**, a subterranean vault of infinite, unyielding geometry. There is no horizon; there is only the Interior.
+
+The terrain is an architectural solid, an endless honeycomb of translucent cellular chambers. Everything here is **built**, but not by hands or machines. It is a total construction of vitrified silica and calcified resins, a structural hive where the idea of "ground" is meaningless. You stand on the ceiling of the room below, which is the floor of your own, which is a structural brace for the room above. 
+
+The **scale** is claustrophobically intimate. You never see more than ten feet in any direction before the view is occluded by thick, ribbed pilasters or the dense knitting of the ceiling-lattices. It is a pocket-environment, a series of connected "nooks" that feel like the inside of a massive, frozen clockwork mechanism made of bone-china.
+
+The **density** is absolute. There is no negative space. Every cubic inch is occupied by either the structural glass or the stiff, brittle **vegetation** that chokes the passages. This flora is not green; it is the color of frosted quartz and pale amber. They are "Wire-Palms" and "Crystalline Mosses"—dry, silicate-based organisms that grow in rigid, unbending arcs. They do not sway. They have no sap, no moisture, no softness. Their leaves are thin sheets of mica that would shatter like a windowpane if struck.
+
+The **temperature** is a constant, biting cool—precisely the temperature of a stone cellar in autumn. This coolness is stagnant. Because the **dynamics** of this world are frozen at 0.2, there is no weather, no wind, and no thermal drift. The air is bone-dry, a **non-aqueous** atmosphere that feels like inhaling fine, cold dust. There is no water here; the very concept of "liquid" is foreign to this chemistry. The "plants" drink light and mineral vibrations.
+
+The **light** is a blinding, white-gold saturation. It does not come from a sun, but from the walls themselves, which are bioluminescent at a high, screaming frequency. The brightness is flat and shadowless, washing out all depth. It makes the Glass-Thicket look like a photograph that has been overexposed until the edges of objects begin to bleed into one another.
+
+The **sound** is the most aggressive feature of this place. Though nothing moves, the world is **loud**. It is a crystalline resonance—a high-pitched, sustained ringing produced by the immense structural pressure of the "built" environment. The weight of the infinite hive pressing down on itself creates a piezoelectric hum that vibrates in your teeth. It is the sound of a billion wine glasses being rubbed at the rim, harmonizing into a single, deafening drone. Because the environment is so **packed**, the sound has no room to dissipate; it just bounces and amplifies within the small, glass cells.
+
+There is no **fauna**. Nothing crawls, flies, or breathes. The only "ecology" is the slow, static expansion of the glass-ribs.
+
+**Erosion** here has reached a state of terminal balance. The edges of the glass are not sharp; they have been smoothed by eons of molecular settling. This is an "established" world—it has looked exactly like this for a million years and will look like this for a million more. There are no ruins because there is no decay. There are no tools because there is no need for change. 
+
+You are standing in a bright, cold, screaming jewelry box. The air is still, the light is fierce, and the glass plants are frozen in a perpetual, crowded dance of mathematical perfection. It is a world that has finished itself. There is nothing left to happen.

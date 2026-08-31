@@ -1,0 +1,27 @@
+There is a chamber inside the mountain that should not, by any honest accounting of pressure and stone, exist.
+
+Begin with the mountain, because that is the only honest place to begin. It is young in the way a wound is young — raised by some recent violence of the crust, its flanks still sharp, its ridges unrounded, the rock along its summit so freshly broken that the fracture faces still hold the geometric crispness of the moment they split. No glacier has had time to soften it. No river has had time to carve more than the first hesitant channels down its sides. It is the highest thing for as far as the thin air will let you see, and the air up here is thin enough that the sky has gone a hard, ungenerous blue-black even at midday.
+
+Now go inside.
+
+The chamber is small. You could walk its circumference in the time it takes to grow restless — call it the size of a modest temple, or a large drawing room, if drawing rooms were carved from the inside of a peak that is itself busy being too hot for life. The walls are not natural. That is the first thing the body understands, ahead of the mind: the curvature is too deliberate, the surfaces too smoothly continuous with one another, as though the rock had been *persuaded* rather than cut. Run a hand along it and you find no tool marks. You find instead a faint, regular corrugation at a scale just below comfortable resolution, a texture the fingertip insists is there and the eye refuses to confirm. Someone built this. Some*thing* engineered it, with methods that left no scar.
+
+The heat is the constant. It comes up through the floor, which is warm enough that you would not sit on it long, and it stands in the air like a presence with weight. Not the dry bake of a furnace — there is moisture here, improbably, this high. It collects. On the cooler upper reaches of the dome it beads into condensation, gathers, and falls, not as rain exactly but as a slow intermittent dripping, irregular, patient, each drop landing somewhere in the dark with a sound that is the loudest sound in the room. *Tick.* Then nothing for a long while. *Tick.* The water pools in shallow basins worn into the floor — worn freshly, the edges of the basins still sharp, the erosion only just beginning its long work — and from the pools rises a faint steam that thickens the dim light into something you can almost hold.
+
+The light. There is no opening to the sky that you can find, and yet the chamber is not black. A dim luminance seeps from the walls themselves, the color of embers seen through closed eyelids, dull orange shading toward a deeper red in the recesses. It pulses. Very slowly — you would not notice unless you stayed, and stayed, and let the room teach you its pace — the glow swells and ebbs, swells and ebbs, on a cycle of some minutes, like the breathing of something enormous and not quite asleep. When the light is at its fullest the condensation seems to gleam; when it ebbs the drips fall through near-darkness and you hear them better than you see them.
+
+Nothing grows here. Nothing crawls. There is no green, no fur, no chitin, no soft thing — the place is mineral and water and heat and the strange engineered stone, and it is profoundly, almost ceremonially empty. The space between you and the far wall is just space. The volume of the dome above is just volume. This is a room built large enough to be lonely in and then left unfurnished, as though the emptiness were the point, as though something needed this much hollow to do whatever it does.
+
+And it does do something. That is the unsettling part — the room is not a ruin, not abandoned, not still. It is *active*. There are processes running. The condensation cycle is one. The light's slow tidal breathing is another. But there are others you sense more than witness: a sense that the corrugations in the wall are very slowly migrating, that the basins in the floor are being deepened by something more deliberate than dripping water, that the heat is being *managed* — risen, vented, recalled — by an intelligence too patient to perceive in a single visit. The whole chamber behaves like an organ in a body too large to see. Like a single alveolus deep in a lung the size of a mountain, doing its quiet work of exchange, breathing water into air and air into water, holding a temperature against the cold of the impossible heights, for reasons that belong to a scale of being you are not equipped to share.
+
+There is a faint smell of hot mineral and clean wet stone, and under it, just at the edge, something almost like ozone — the smell of work being done by means you can't name.
+
+Here is the rule of this world, insofar as a small hot hidden room can have a rule: *it is interior.* It is the inside of something. Everything about it — the deliberate walls, the contained heat, the recycled water, the breathing light, the absence of any door you can find — insists that you are not in a landscape at all but inside the functioning of one. You did not arrive here. You were not meant to. The chamber was sealed around its purpose the way a pearl is sealed around its grain, and the slow drip and the slow glow will go on counting out the long maintenance of that purpose whether or not anyone is here to hear them.
+
+*Tick.*
+
+The light swells. The steam brightens.
+
+*Tick.*
+
+It ebbs, and the dark comes back, warm and close and entirely indifferent to your presence in the room it built for something else.

@@ -1,0 +1,19 @@
+The city sweats. Not metaphorically - its surfaces actively process excess heat through a continuous phase change, microscopic droplets forming and rolling down every surface in endless rivulets. The moisture isn't water exactly, but a engineered thermal transfer medium that carries waste heat from the city's dense computational substrate into the atmosphere.
+
+The architecture appears almost biological in its intricacy, though no recognizable organic forms are present. Instead, the structures grow in crystalline fractals, their surfaces an ever-shifting mesh of nano-scale components that flex and flow like mercury but hold form like diamond. The buildings don't so much occupy space as saturate it - every cubic centimeter hosts uncountable layers of functional systems, from quantum processors to gravity manipulators to the thermal management networks that give the city its perpetual wet sheen.
+
+The sky above is never truly visible through the atmospheric engineering systems - vast fields of hovering machines that process and reprocess the city's exhaust, creating localized weather patterns that spiral in complex mathematical sequences. The light that filters through has a quality like sunset seen through rain, though the actual sun (if there is one) hasn't been visible from ground level in generations.
+
+The sound is overwhelming - not from any single source, but from the sheer density of activity. Millions of systems resonate at frequencies both above and below human hearing, creating a physical pressure that visitors say they feel in their bones. The locals have adapted, their augmented nervous systems filtering the cacophony into meaningful patterns, reading the city's moods and rhythms in the harmonic overtones.
+
+Movement is constant at every scale. Swarms of maintenance machines flow like schools of fish through the air and across surfaces. Transportation occurs through shifting probability fields that relocate matter through quantum tunneling rather than physical movement. The very structure of space seems to ripple and flex as massive energy transfers distort local spacetime.
+
+The only things resembling natural life are the colonies of engineered extremophiles that process waste heat and entropy, creating strange geometric patterns as they spread across surfaces. They might be alive by some definitions - they process energy and reproduce - but they're closer to mobile heat sinks than biological organisms.
+
+Human presence is ubiquitous but hard to distinguish from the city itself. Most inhabitants are so integrated with the urban systems that the boundary between person and place becomes philosophical rather than physical. Their consciousness extends through the city's networks, their bodies more conceptual than concrete.
+
+At the lowest levels, where the city meets whatever planetary surface it grew from, ancient foundations can sometimes be glimpsed - hints of conventional materials like steel and concrete, now almost entirely consumed by later growth. The city has been here long enough to establish its own equilibrium, though that equilibrium is one of constant change and energy flow rather than stillness.
+
+Water - real water - still flows somewhere deep below, ancient aquifers and underground rivers that the city grew around rather than replaced. Their presence influences the thermal circulation patterns above, creating vast vertical convection cells that help drive the city's atmospheric processors.
+
+The scale is difficult for unaugmented human minds to grasp - the city-system extends for thousands of kilometers in all directions, and deep into both the planet's crust and the lower atmosphere. It's less a city in the conventional sense and more a new form of planetary surface, a computational substrate that happens to include space for consciousness to exist within its matrices.

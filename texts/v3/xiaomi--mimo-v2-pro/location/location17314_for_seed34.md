@@ -1,0 +1,28 @@
+# The Terraced Aquifer City of Plynthos
+
+You stand on the lip of the world.
+
+Not a cliff, but a high, weathered plateau—so vast it has its own weather, its own slow, geological breath. The air is cool and thin, yet heavy with moisture, a constant dampness that beads on the grey, lichen-spotted stone and soaks into the thick weave of your cloak. This is **Plynthos**, a city that is also a landscape, carved into the bones of the mountain over uncounted generations.
+
+## Terrain & Materials
+The plateau is not flat, but a series of immense, terraced basins, like the steps of a titan’s staircase. Each terrace is a half-mile wide and miles long, carved from the local basalt andite—a dark, iron-veined rock that holds the cold. The stone is profoundly **eroded**; not crumbling, but settled, its sharp edges long ago softened into rounded shoulders and smooth, cup-shaped hollows. Every surface is etched with faint, concentric lines, the memory of ancient water levels.
+
+Water is everywhere, but not in rivers. It **weeps**. From the vertical faces of each terrace wall, from the undersides of overhangs, from the joints of carefully fitted stones, water emerges—not as a flow, but as a dense, shimmering condensation that gathers into slow, fat drops. These drops fall with a soft, irregular percussion into an infinity of carved channels, runnels, and cisterns that thread through every level. The ground underfoot is a mosaic of porous stone and hardy, water-loving mosses that form a sparse, springy carpet in the hollows. The overall sensation is of a landscape perpetually post-rain, a world caught in the sigh after a storm that never fully ends.
+
+## The City Itself
+This is the **urban** heart. The terraces are not natural; they are the city. The structures are not *on* the landscape; they are *of* it. Dwellings, halls, and walkways are hewn directly from the terrace walls or built from massive, water-fitted blocks of the same andite. There is no brick, no fired clay, no metal girders. **Technology** is absent in the modern sense; the sophistication is in the **engineering**. The city is a single, vast aquifer-management system. The layered construction is dizzying: a home on one terrace may have its roof forming the plaza of the terrace above, and its floor serving as the ceiling for a vast, echoing cistern below. Bridges of stone leap between terraces, and long, switch-backing ramps, worn smooth by bare and sandaled feet, connect the levels.
+
+Despite the **sparse** surface vegetation, the city feels **dense**. The architecture is tight, layered, and labyrinthine. You are always in the shadow of a wall, or beneath an overhang, or passing through a tunnel whose sides are slick with condensation. The density is one of presence and structure, not of life.
+
+## Atmosphere & Sound
+The **light** is normal, filtered through a near-permanent haze of fine moisture. Sunlight is a soft, diffuse glow that renders everything in sharp relief but muted color—greys, dark greens, the rusty red of iron-stained water. Shadows are deep and cool.
+
+The defining quality is the **sound**, or its near absence. At 0.2/3, it is profoundly quiet. The dominant sound is the **Water Chorus**: the endless, complex patter of drops falling into stone basins, the gurgle of hidden runnels, the soft *shluck* of moisture being absorbed by moss. It is not a roar, but a whisper that fills every space. Human sounds are muted—voices carry little in the damp air and are swallowed by the stone. Footsteps are soft. The only other sound is the wind, which moves across the vast plateau with a low, mournful sigh as it meets the terrace edges.
+
+## Ecology & Rules
+**Fauna** is rare. You might see a small, sleek-furred rodent that drinks from the cisterns, or a flightless, insect-eating bird that flits between the shadows. Bats roost in the upper, drier hollows at night. The ecosystem is minimal, hardy, and hidden. The real **dynamic** (2.1/3) process is not biological, but hydrological and social. The city is in constant, slow motion. The water is always moving, seeping, being channeled, stored, and distributed. The people’s lives are paced by the drip. They are caretakers and plumbers, their days spent clearing sediment from channels, monitoring cistern levels, and guiding the water’s path with simple, sacred tools of stone and wood.
+
+The **weirdness** is low; this is a world of profound, logical consequence. The rule is simple: *Water is life, gravity is god, and stone is the vessel.* The settlement exists because of a unique geological fold—a vast, porous aquifer trapped in the mountain’s heart, forced to the surface by pressure and time. The city’s sole purpose is to catch, hold, and use this water before it evaporates into the high, cool air or sinks back into the deep stone.
+
+## The Experience
+To stand here is to feel the immense, slow heartbeat of a place. It is **vast** not in a horizontal, prairie sense, but in a vertical, layered one. You are inside the mountain’s circulatory system. The cool, damp air smells of wet stone, clean earth, and the faint, green tang of moss. It is a civilization built on the most advanced principle of all: perfect, silent adaptation. There is no machinery to break the silence, only the patient, endless work of water and the humans who have learned, over millennia, to listen to its rules. It is a city in balance with its own weeping, a settlement that is itself a weather system, a landscape that is a single, living artifact of patience.

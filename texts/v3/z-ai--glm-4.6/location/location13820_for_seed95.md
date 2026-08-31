@@ -1,0 +1,25 @@
+The stone here has forgotten how to be sharp.
+
+To stand on the High Peneplain is to stand upon the back of a sleeping giant that has been worn down by eons of indecision. The elevation is immense, a vast, open tableland suspended in the warm troposphere, yet it feels less like a mountain range and more like the floor of the sky itself. This is a land that has reached its final form. The tectonic violence that birthed it spent itself millions of years ago; now, only the long, slow exhale of erosion remains.
+
+The terrain is rolling and absurdly smooth. Great gargantuan domes of bedrock, polished by silt and time, rise like the backs of whales breaching a grey ocean. There are no jagged peaks, no terrifying vertical drops, only an endless, undulating series of hillocks and shallow bowls stretching to the limit of sight. The scale is deceptive—what looks like a gentle rise might be a walk of three days. The horizons are distant, softened by the humidity, hiding the edge of the world behind a veil of haze.
+
+It is warm here, a persistent, gentle heat that radiates not just from a sun hanging white and diffuse in the sky, but from the stones themselves. They retain the day’s warmth well into the dusk.
+
+Water is the memory of rain. It does not fall often; the storms that drench the lowlands break apart against this altitude, leaving only a damping mist that clings to the skin and slicks the stone. The moisture is intermittent but constant. In the hollows between the rocky domes, pockets of stagnant water lie scattered like shattered mirrors, teeming with invisible life. The air tastes of wet iron and ancient dust.
+
+Vegetation is sparse, a mere concession to the urge to grow. You will not find forests here. Instead, the land ispatched with "pelt-moss"—tough, rubbery mats of dark purple and rust-colored symbionts that cling to the windward faces of the rocks. Occasional, solitary trees stand like sentinels. They are not leafy in the conventional sense, but rather display spiraling arrays of hard, succulent fronds that store the damp air. They are widely spaced, respecting the immense personal space of the geology.
+
+But where the green is sparse, the animal life is overwhelming.
+
+This is the core strangeness of the Peneplain: the density of it. It is a biological pressure cooker. The vast, open spaces between the sparse trees are actually shifting, motile carpets of life. The ground appears to move, a slow, brown undulation. This is the "Crawl"—millions,perhaps billions of small, hard-shelled grazers. They are roughly the size of a dinner plate, low-slung with many legs, carrier-shells of limestone that they glue to their backs with natural cements.
+
+They are the architects of the built environment. Where the parameters suggest "scattered" structures, it refers to the great calcareous mounds these creatures erect. Rising twenty or thirty feet high, these jagged, hive-like towers are the only vertical relief against the smooth hills. They look like ruins, perhaps the temples of a lost civilization, tumbled and weathered, but they are biological. They are dense cities, packed with the clicking, bustling warmth of the crawler colonies.
+
+The sheer density of life creates a paradox of sound. Despite the overwhelming number of bodies—a creeping biomass that coats the hills—it is mostly quiet. The sound of the Peneplain is a texture rather than a volume. It is a dry, continuous shushing sound, like heavy velvet being dragged over sand—millions of shells skittering against the bedrock. It is the sound of chewing, of rasping, of the slow consumption of the stone itself. They process the mineral dust, the moss, and the damp air, turning erosion into sustenance.
+
+The dynamic of the world is agonizingly slow. This is a place where you can watch the mountains not move. The crawler herds take weeks to cross a single valley. The mounds grow inches per century. The water condenses, evaporates, and condenses again in a rhythm that feels like the breathing of the planet. The only sudden movements are the occasional, silent leaps of the "sky-ray"—large, flat-bodied gliders that descend from the warm air currents to snatch a crawler from the mass, then vanish again without a cry, disturbing nothing but the dust.
+
+The weirdness lies in the permanence. The interaction between the high density of life and the ancient erosion has created a fossilized stasis. The crawlers do not just live on the rock; they are becoming it. When they die, their shells are incorporated into the mounds or fused to the bedrock by the damp, mineral-rich air. The ground beneath your feet is composed of layers upon layers of ancestors, compacted into solid stone.
+
+It is a landscape of final accumulation. High, warm, and damp, crowded yet solitary, loud with the rustle of existence yet silent in its intent. It is a world that has settled into a groove so deep it has become a canyon, content to slide, slowly, toward the end of time.

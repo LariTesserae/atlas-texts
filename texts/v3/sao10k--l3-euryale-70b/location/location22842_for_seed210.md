@@ -1,0 +1,9 @@
+The hills are alive, writhing in a seething soup of verdant plant life. Fleshy vines writhe across churning humus, erupting into riotous blooms of fungi and ferns. The air is thick with moisture, the very sky above a diffuse glowing mist that never lifts. Droplets cling to every surface, as if the land itself were sweating, or weeping beneath the blanket of vegetation.
+
+No clear paths or trails traverse this landscape - movement between the mounded hummocks must be pushing through the dense curtains of vegetation, or scaling the glistening walls and overflows where plant and stone conflate. Delicate rivulets of standing water weave through the hollows and valleys, glassy surfaces reflected the morass by day, scintillating like traps by the fungal luminescence that harvests the dim light. 
+
+Amidst the churning chaos of growth, fungal growths rise like strange towers - bulbous or conical caps atop thick stalks, extruding flanges and tendrils, some swelling like some kind of nutted emergence. Ephemeral blooms burst like clockwork from shaded crevices, pale and luminous in the dim, glimpsed by the luckless explorer scouring the mess of land and plant.
+
+There is a sense of change barely held at bay by the stifling stillness - a feeling that beneath the placid surface the landscape is poised to upend itself, that the vivid profusion of shelters a web of subtle motion and competition, that something always watches from the shadows of the ruins.
+
+This is a landscape perched on a knife edge, amdist chaos and equilibrium, where life buckles the rigging of death, and the enabling fluid of water sources life, life which clots and mats and clings, until it stifles its own diversity of form. It is a landscape of creeping/commentary competition, where victors are those which most parasitize, out-compete, and thrive to seed the next maddening round in a cycle of profusion and atrophy.

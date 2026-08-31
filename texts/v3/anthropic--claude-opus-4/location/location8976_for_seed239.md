@@ -1,0 +1,21 @@
+The Thermohaline Groves
+
+You descend through water that isn't quite water—a medium thick with dissolved minerals that catch and bend light into prismatic threads. The pressure here should crush, but it doesn't. Instead, it cradles, holds, sustains in ways that violate basic physics. This is new ocean, barely a century risen, still learning how to be.
+
+The groves grow in scattered clearings along the abyssal shelf, each one a cathedral of crimson kelp that towers forty meters high. But this isn't kelp as biology knows it—each frond is a lattice of engineered proteins that photosynthesize from thermal gradients rather than light. They glow faintly from within, bioluminescent nodes pulsing in patterns too complex to be random, too slow to be communication as we understand it.
+
+Between the groves, vast expanses of young seafloor spread naked and sharp. The rock here hasn't yet learned erosion's soft curves—volcanic glass juts in fresh ridges, obsidian formations that the water hasn't had time to gentle. Steam vents pierce the darkness at irregular intervals, their heat feeding both the kelp-things and the improbable ecosystem that clusters at their bases.
+
+The fauna move in ways that shouldn't work. Jellyfish the size of houses drift between the fronds, their bells incorporating what look like mechanical components—brass gears that turn without purpose, crystalline structures that hum at frequencies you feel rather than hear. Schools of fish-things flow past, their scales catching the dim light in patterns that suggest circuitry. They move through the water as if it were air, as if gravity were negotiable.
+
+Scattered among the groves, structures suggest intention without revealing purpose. A spiral staircase of coral-encrusted metal rises thirty meters before ending abruptly. Domes of what might be grown ceramic shelter spaces where the water behaves differently—thinner, almost breathable. Inside one, abandoned equipment hums with residual power, screens displaying data in formats that hurt to perceive directly. The technology feels biological, or perhaps the biology has become technological. The distinction blurs here.
+
+The sound is constant but not overwhelming—a deep thrumming that might be tectonic, might be mechanical, might be the groves themselves singing to each other across the vast spaces between. Occasionally, something larger passes overhead, its shadow suggesting anatomies that evolutionary biology never conceived. These leviathans trail fields of altered physics, leaving temporary zones where water becomes something else—briefly gaseous, momentarily solid, sometimes absent entirely.
+
+Time moves strangely here. The slow pulse of the kelp-groves, the patient drift of the massive jellyfish, the gradual accumulation of impossible coral on the abandoned structures—everything operates on a scale that makes human urgency seem frantically comic. Even the water itself cycles slowly, great currents of the not-quite-liquid medium moving in patterns that take days to complete their circuits.
+
+The heat is oppressive but not deadly, maintained by processes that thermodynamics can't quite account for. The water itself is blood-warm, and the vents add layers of even greater heat that create shimmering walls of convection. Sometimes these thermal boundaries hold things—memories, perhaps, or data, or dreams—that play out in slow motion before dissolving back into the ambient warmth.
+
+At the edges of vision, reality occasionally stutters. A grove might exist in two places simultaneously for long minutes before resolving. Fish swim through spaces that aren't there, disappearing into folds of water that lead elsewhere. The abandoned structures sometimes remember their builders, phantom operations playing out in stuttering loops before fading.
+
+This is a young world still deciding what it wants to be, where the boundaries between organism and mechanism, between physics and intention, remain unset. The groves grow slowly taller, their patterns becoming more complex. The fauna evolve in real-time, testing new forms. And somewhere in the dark water between the scattered cathedrals of engineered kelp, something vast and patient is teaching the ocean new ways to think.

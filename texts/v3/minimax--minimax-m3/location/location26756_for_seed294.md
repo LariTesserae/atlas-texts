@@ -1,0 +1,39 @@
+The water is everywhere and it is cold.
+
+Not freezing — not the cold of ice. The cold of deep springs, of stone cellars, of places that have forgotten what warmth is. It enters through every opening of the body and stays. After a while you stop noticing it, the way you stop noticing gravity. It is just the temperature of being here.
+
+Above you, if you look up, is a brighter ceiling — the underside of the air. The surface. It is forty meters up, perhaps less, and it is dim. The sky above it must be heavy, must be low, because what little light comes down is sourceless, the color of old pewter. It filters through rain, perhaps, through mist that never lifts, through fathoms of grey-green water, and arrives at the place where you are as a uniform faint glow, directionless. No shadows. No sunbeams. The brightest thing in this world is the surface itself, and even that is a rumor — a smear of light rather than a fact.
+
+You are on a high place. Or what was a high place. A plateau, a drowned mesa, a shelf of constructed stone that rises up toward the air from greater depths. In places — the rare places — the tallest ridges poke through and waves break over them in slow curls of foam. But mostly you are below. You move through a flooded architecture of ridges and channels and platforms, a kind of sunken city without doors, the air above like a low roof.
+
+The stone.
+
+Everywhere, the stone. There is nothing else to stand on. No soil. No sand, except in the rare basins where centuries of current have scoured something almost like silt, and even that is grey and mineral, gritty, smelling of nothing living. The ground underfoot is built. You can feel it — the too-even slope of a channel floor, the too-regular rise of a ridge. Erosion has worked on it for so long that nothing is sharp. Corners are rounded, walls have slumped toward the horizontal, platforms sag in the middle. The geometry persists anyway. Long parallel ridges running off into the murk. Channels between them at consistent intervals. Things that were vertical and are now leaned. Something made this. Made all of it. Made it completely, so that even the pockets where the current pooled, even the places where silt gathered, are inside the design. There is no natural ground here. This is a place that was finished.
+
+The work is so old it has become, in places, indistinguishable from geology. Volcanic glass worn to dove-grey. Surfaces that were once vitrified and are now matte. In other places you can still see the marks of making — faint regularities in the rock, parallel flutings, things that might be patterns or might be weathering. The makers, whatever they were, are not here. They are not anywhere that matters. Whatever appendage, patience, or process laid these stones is done, or has become the place itself.
+
+The life.
+
+You expect barrenness. A world of stone and water and dim light should be empty, and for a while you think it is — the channels still, the ridges bare, the faint glow revealing nothing that moves. Then you begin to see them.
+
+Creatures. Abundant creatures, in a place with no grass, no algae, no obvious food.
+
+They cling first to the worn stone — small knobby-shelled things the size of your thumb, hundreds of them, gripping the ridges, not moving. You watch one long enough and you see it pulse, faintly, with the rhythm of feeding. Filter-feeders. They are pulling something out of the water — not light, not plant-matter. Minerals. Bacteria. The faint chemical exudations of the stone itself. The plateau is feeding them. This ancient made thing is still doing something, still transpiring, a slow metabolism in the rock.
+
+Above and around these small ones are larger ones. Worm-soft things undulating along the channels, pale, two meters long, mouths ringed with cilia that draw the grey water in. Shelled things the size of dogs, moving in small herds across the platforms, scraping the stone with rasping mouths. Gelatinous forms drifting in the slow current, transparent, lit from within by their own faint glow. Fish-things, almost — but wrong. Too many fins. Eyes that don't seem to focus. Bodies shaped for a current that no longer moves the way it once did.
+
+The chains here are strange. With no plants, with no photosynthesis, the energy has to come from somewhere, and it comes from everywhere at once. The stone exudes. Bacteria eat the exudation. The small filter-feeders eat the bacteria. The worms eat the filter-feeders. The shelled things rasp the worms off the stone. The transparent drifters envelop whatever they can find. The wrong-fish eat everything smaller. Then they die, and the bodies settle, and the small filter-feeders eat them too, and the cycle loops back to the stone. A closed economy. A loop. The plateau feeds the life, and the life feeds the plateau, in a transaction so slow it looks like geology.
+
+It is dim, and many of them glow.
+
+Pale phosphorescence in the deeper channels, where the light from above doesn't reach. A pulse here, a flash there. A slow blink as something drifts past. The brightest things in this world are alive, and they are not very bright. You can see your hand in front of your face mostly by the surface-light. In the channels between ridges, the bioluminescence is the only light at all, and you move through pools of faint cold blue, green, occasional amber. The shelled things have rows of pale dots along their plates. The worms have a dim line down their length. The transparent ones are lanterns. The dimness is not darkness; it is a low constant glow of living things signaling in the murk.
+
+The quiet.
+
+It is mostly quiet. The water damps everything — sound moves through it slowly, mostly low frequencies, mostly attenuated. You hear soft clicks. Distant pops. The long slow moan of current through a narrow channel. A faint crunching, somewhere, of something being rasped off stone. That is most of what there is.
+
+But the turbulence — the turbulence is everywhere. It just doesn't make noise.
+
+The current shifts. You feel it in your body — a slow pressure, a leaning, the water deciding to go a different way than it was going. Channels that were flowing one hour flow the next hour in another direction. The temperature moves by a degree, then back, over hours. A ridge that seemed stable begins, over days, to slough — a slow avalanche of worn stone into the channel below, settling with a deep muffled boom you feel in your chest before you hear it. Creatures migrate. A herd of shelled things that was on one platform is on another, and the platform they left has changed too, scraped clean by their feeding. Things are dying constantly, being eaten, falling, dissolving. The plateau itself is changing — imperceptibly, over years — the channels deepening by fractions, the ridges lowering, the geometry softening toward a final flatness that will not arrive for a long time yet. The whole system is churning, alive with slow change. But the sounds of it are so muffled, so deep, so far below the threshold of what you can hear, that the place seems still. It is a storm that runs on geological time. You are inside it. You cannot hear it.
+
+You are in the middle of something vast, and old, and finished-but-not-finished. A high place that has drowned. A built thing worn to something that almost looks like nature. A closed ecosystem with no green in it, running on the chemistry of stone and on the slow eating of itself. The light comes from above but does not arrive. The cold is steady. The creatures do their slow loops in the dim. The current moves and moves. And the plateau extends past what you can see — past the dim light, past your hearing, past anything you would call an edge — for a long way, the same plateau, the same construction, the same teeming quiet, going on and on into the grey water, in every direction, as far as the dimness allows.

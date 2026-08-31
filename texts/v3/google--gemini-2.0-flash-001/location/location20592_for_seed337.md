@@ -1,0 +1,19 @@
+The air hangs heavy and cold. Not an ice-cold that bites, but a damp, subterranean chill that leaches warmth away slowly. Water is everywhere, not in torrents or lakes, but weeping from the stone, clinging to every surface like a persistent shroud. Condensation gathers in thick droplets, beading on the low, rough ceilings and trickling down carved walls. Here and there, deeper pockets of water collect in basins worn smooth by time and the ceaseless drip.
+
+We are far below the surface, in a sprawling network of tunnels and chambers, a forgotten city carved into the living rock. This isn't the sharp, clean cut of modern mining or engineering. The marks are rough, uneven, as if colossal fingernails gouged out the stone. The scale is immense, dwarfing the few figures that move within its dank embrace. Whole valleys, one imagines, could be swallowed by this place.
+
+Sparse vegetation clings to life wherever even a meager seep of water allows it. Patches of pale fungi, like clusters of ghostly ears, sprout from the dampest corners. Thin, stringy mosses coat the walls in a sickly green. There's a stubborn, almost desperate quality to the life here, a refusal to be extinguished in the face of an overwhelming cold.
+
+The silence is profound, a heavy blanket that muffles even the shuffle of feet. Occasionally, a drop of water breaks the quiet, a solitary *plink* that echoes oddly in the vast spaces. Sometimes, very rarely, a low, grinding rumble can be felt through the stone itself, a distant shifting of the earth's bones.
+
+This is a city of stone and damp, built by hands wielding primitive tools. The architecture is purely functional: tunnels carved just wide enough for passage, chambers hollowed out for unknown purposes. There's a brutal simplicity to it, a sense of immense effort invested in purely practical goals. No ornamentation, no artistry, just the relentless removal of rock.
+
+The density is striking. Every available space seems to be occupied, if not by physical structures then by implied purpose. The air itself feels saturated, heavy with the weight of history and the unseen presence of the builders. This isn't a city built for comfort or leisure. This is a place of work, of industry, of relentless, unforgiving purpose.
+
+Despite the age and the damp, there's an active feeling to the place. Water drips and carves, slowly reshaping the stone. The strange fungi grow and decay in rhythmic cycles. Air currents, however faint, circulate through the tunnels, carrying the scent of wet stone and something else – a faint, metallic tang, hinting at processes both natural and artificial.
+
+The light is dim, even in the chambers open to the surface. It filters weakly through fissures in the rock, casting long, distorted shadows that dance with the movement of the air. There's an understory of activity here, a sense of something constantly being worked on or at least prepared, where the natural and constructed meld to give a sense of a living space, however barren.
+
+Fauna is rare. Perhaps a cave cricket scuttling across the floor, or a pale, blind fish wriggling in the deeper pools. Life is hard won here, and only the most tenacious creatures can survive.
+
+The place is in a state of constant becoming. The dripping water is a sculptor, slowly eroding the rock, smoothing the harsh edges, and revealing new forms. The city is not static, but constantly being reshaped by the forces of nature, a testament to the ongoing battle between construction and erosion. It is just emerging, we are just now seeing the bones of something powerful beginning to assert itself, as if this is just the egg within which the real object lies dormant.

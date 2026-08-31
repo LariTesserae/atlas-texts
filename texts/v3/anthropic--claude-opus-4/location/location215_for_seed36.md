@@ -1,0 +1,17 @@
+The Undergrowth Chamber spreads beneath the earth like a vast, breathing lung. Here, in this nascent world still learning its own shape, raw geology yields to something stranger—a cavern system where stone itself is being colonized, transformed, and replaced by living matter.
+
+The walls pulse with bioluminescent vegetation, casting everything in brilliant jade and amber light that never dims. These are not quite plants as the surface knows them, but something more fundamental—a proto-vegetation that grows in dense, interwoven sheets across every surface. The organism (for it seems to be singular, despite its vastness) extrudes itself from the bare rock in translucent layers, each sheet barely a finger's width from the next, creating a substrate that is simultaneously plant, architecture, and atmosphere.
+
+Heat rises from deeper galleries where the plant-mass generates its own warmth through some metabolic process that turns stone to sugar. The air hangs thick and still at body temperature, laden with moisture that condenses on the cooler upper reaches of the chamber system. These droplets run down the living walls in thin streams, collecting in scattered pools that mirror the blazing ceiling-gardens above them.
+
+The scale defies easy comprehension. From any vantage point, luminous passages stretch away in multiple directions, some large enough to hold buildings, others narrowing to crawlways lined with the same persistent growth. The vegetation has excavated these spaces not through force but through patient chemistry, dissolving pathways that follow some ineffable logic—perhaps the mineral veins in the original stone, perhaps something else entirely.
+
+Sound barely travels here. The density of growth swallows echoes, leaving only the faintest whisper of dripping water and the subsonic hum of billions of cells dividing, building, becoming. Occasionally, a section of growth will detach and fall with a wet sound like dropped fabric, only to be reabsorbed by the mass below.
+
+Scattered throughout are remnants of some prior presence—not ruins exactly, but intentional modifications. A spiral of stones set into a wall here, channels carved to direct water flow there, alcoves shaped just so to concentrate the bioluminescent light. These touches feel agricultural, as if someone once tended this place like a garden, though the gardeners are long absent.
+
+The fauna that remains has adapted to near-invisibility: translucent arthropods that travel the spaces between growth layers, filtering nutrients from the plant's secretions. Occasionally, something larger disturbs the droplets on a pool's surface, but these creatures have learned to move without sound in their bright, silent world.
+
+Time moves strangely here, or perhaps not at all. The growth neither advances nor retreats but maintains perfect equilibrium, each new cell balanced by one reabsorbed. The pools neither fill nor empty. The light neither brightens nor dims. Even the air seems to circulate in closed loops, never quite still but never truly flowing.
+
+It is a place caught in the moment of its own becoming—eternally emerging but never quite born, a rough draft of an ecosystem that has achieved its own peculiar perfection in incompletion.

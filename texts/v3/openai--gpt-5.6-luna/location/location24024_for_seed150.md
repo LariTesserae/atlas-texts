@@ -1,0 +1,37 @@
+The settlement occupies a shallow basin on a high, newly lifted shelf of dark stone.
+
+It is not large—perhaps the size of a village, perhaps only a few minutes’ walk from one edge to the other—but there is no open ground in it. Every surface has been claimed. Green-black growth rises from the stone in layers: mats, cords, shelves, trunks, curtains, swollen roots, and pale stalks packed so tightly that the place seems less built than condensed. Paths are narrow channels through the vegetation, worn smooth by repeated passage and roofed over in places by living bridges.
+
+The basin is young. Its walls are sharp and unfinished, broken into fresh faces where the mountain has recently split or heaved upward. The exposed rock is charcoal, blue-gray, and faintly metallic, with thin seams of ochre mineral showing in the cracks. There are no rounded boulders and almost no soil. Water has not yet had time to soften the stone. It beads on the vertical faces, gathers in black ledges, and slips downward in hundreds of fine threads. After rain, the cliffs appear to sweat.
+
+At this elevation the cold is persistent but not violent. The air has the thin, clean bite of a place above the usual tree line. Mist collects low in the basin and clings to everything: to the broad leaves, to ropes of moss, to the roofs of the living houses. In the dim light, droplets remain suspended along leaf margins like rows of dull glass. Nothing shines brightly. The sky is usually a pale, sealed gray, and the sun, when it is present, enters only as a diluted brightness behind cloud.
+
+The vegetation is the settlement’s substance and its architecture.
+
+Tall, jointed growths have been trained into walls, their stems braided while young and then allowed to harden into ribbed columns. Their outer skins are dark and waxy, but inside they carry a slow green warmth. Buildings stand as dense clusters of these columns, roofed with overlapping leaves that fold shut against the cold. Doors are not cut openings but places where the stems loosen at a touch, making a narrow passage and closing again behind whoever enters.
+
+Some structures have been grown around the older stone. A house may be half cliff-face, half root mass, with rooms hollowed through layered wood. Others resemble bundled reeds swollen to the size of towers, though the tallest rises only as high as a modest chapel. Their roofs are low and heavy with moss. Water runs deliberately along their ridges into hanging gardens, then through the walls, where it is drawn upward again by capillary vines.
+
+This is an urban place, but its streets are more like veins than roads. The main route winds around the basin’s central depression, crossing several living causeways. Along it stand communal chambers, storage hollows, nurseries, and long sheltered galleries where the inhabitants pass without ever being fully exposed to the weather. Smaller alleys disappear into mats of fern and root. A few stairways descend into the wet center, where the ground is soft with generations of fallen leaves, though even there the vegetation has formed platforms to prevent anyone from sinking.
+
+There are no tools, machines, poles, wires, or made objects in the familiar sense. Everything useful is cultivated.
+
+A railing is a row of stiffened tendrils. A lamp is a pale bladder-flower that stores the day’s weak light and releases it as a greenish haze. Roof repair means persuading a new layer of leaves to grow across a gap. Containers are seed-pods left hollow as they mature. Clothing, if it can be called clothing, consists of shed plant membranes and warm fibrous growth worn in overlapping layers. The settlement’s boundaries are marked not by walls but by changes in plant behavior: inside, the stems grow upright and load-bearing; outside, they spread low across the rock, binding it against further collapse.
+
+The vegetation is not merely an ecosystem surrounding the town. It is a single interdependent body, or something close to one. Roots pass beneath the paths and under the buildings. When one wall dries, moisture is diverted from another. When a roof is damaged, neighboring plants alter their growth toward it over the course of days. The oldest structures are connected to the whole basin by underground cords as thick as a person’s arm. They pulse almost imperceptibly during wet weather.
+
+No one here seems to hurry. The settlement is active, but its activity is nearly silent: a leaf unfolding, a stem tightening, a carpet of moss shifting color, a wet root lifting itself a fraction higher over a path. Changes that would be construction elsewhere happen gradually and continuously. A new household is not founded so much as grown into an existing cluster. A vacant room closes over. A collapsed passage becomes a root cellar, then a nursery, then part of the wall.
+
+The few animals are small and difficult to see. Pale insects shelter in the leaf folds, appearing only during the briefest warmer intervals. Something with many fine legs moves beneath the platforms, disturbing the moss in narrow lines. Once in a while a dark, long-winged bird crosses above the basin, but it does not land. Its cry is so rare that when it comes, the entire settlement seems to notice.
+
+Sound is otherwise reduced to intimate things: water ticking from leaf to leaf, the faint creak of stems under their own growth, the soft tearing noise of new roots entering stone. Wind reaches the basin only as a pressure. It combs the upper leaves, producing a low breath rather than a rustle. Beneath the paths, the saturated ground gives occasional hollow knocks as water finds a new channel.
+
+The place has rules, though none are written.
+
+Bare stone must not be left exposed if it can be covered. Standing water must be given a route before it becomes deep enough to stagnate. No living wall may be cut without first offering it a substitute root. The central plants—the oldest, thickest growths—are never entered during flowering, because their pollen changes the direction of every younger stem nearby. Fire is unknown or forbidden; even a small flame would be an alien violence in a settlement whose surfaces are all alive.
+
+The most important rule is that nothing is truly private. Moisture, warmth, nutrients, and structural strength move through the connected growth. A room may belong to one person, but its walls belong to the basin. A damaged roof is everyone’s weakness. A dying plant is not removed; it is fed back into the architecture, its body becoming mulch, insulation, or a bridge.
+
+At the center of the settlement, beneath a low canopy of broad overlapping leaves, lies a circular pool. It is not deep, but its water is nearly black from the rock beneath. Thin white roots descend into it from every direction, and the surface trembles even when there is no visible rain. Around the pool the vegetation is densest, rising in a packed ring of trunks and folded leaves. This is the oldest part of the town, perhaps the reason it exists at all: a spring close to the surface, captured and distributed by living channels.
+
+In the dimness, the pool gives off the only clear reflection. It shows the crowded roofs, the wet cliffs, and the gray sky—but never quite in the same arrangement as the world above it. A bridge may appear where none stands. A roof may look newly grown. Sometimes, at the edge of the reflection, a shape passes between the plants: too tall for the rare animals, too slow for a person, and gone before the water can settle.

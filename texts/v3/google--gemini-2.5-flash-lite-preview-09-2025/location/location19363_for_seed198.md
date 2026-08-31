@@ -1,0 +1,27 @@
+The air tastes of ozone and mineral dust, perpetually cool and thick enough to feel like a low-grade hydrostatic pressure against the skin. This is the **Canyon of the Drowned Gears**, a place where the very idea of solid bedrock has been architecturally and industrially superseded.
+
+### Terrain and Structure
+
+The scale is vast, a region-spanning ravine system, though one carved not by fluvial action but by successive layers of monumental, semi-organic infrastructure. Elevation here is relative; one is always high *up* on something—a girder spanning a void, a platform built upon a previous civilization’s spent furnace casing, a massive, tiered factory facade. The terrain is **total built**—there is no exposed natural substrate. Everything is fused metal, patinated ceramic, and polymerized resin, stacked with an overwhelming **density**. Gaps are filled by dripping moisture condensate, complex valve systems, or tightly packed conduits glowing faintly from internal stresses.
+
+The defining motif is *overload*. Structures do not simply exist; they are accretions, layered upon each other until the original function is obscured by the sheer weight of subsequent repair, necessity, and modification. Erosion is **established** in the sense that these titanic constructions have settled into their own state of decay and equilibrium; the rust bleeds vertically in parallel streams that look like weep-marks on a geological scale, but these streaks are mineral salts leaching from corroded ferro-concrete foundations centuries old.
+
+### Water and Atmosphere
+
+The **water (1.5)** parameter manifests not as rivers, but as eternal condensation. Due to the vast thermal gradients maintained by the buried industrial heart, the atmosphere holds near-saturation. Moisture appears as slow, heavy weeping from every seam and flange. Lower levels of the canyons are choked with a lingering, cold fog, smelling sharply of iron and ammonia. Massive, silent drip-catchers—some the size of small buildings—line the underbellies of the upper platforms, their continuous gurgle swallowed by the greater atmospheric pressures. Water runs down surfaces like oil, slow and viscous, tasting faintly of the metals it has leached.
+
+The **vegetation (2.3)** is sparse in the traditional sense—no tall trees pierce the haze—but the surfaces are choked with life adapted to consuming synthesized waste products. Thick, velvet-like cyan mosses coat the lower, wetter tiers, thriving in the **cool (1.3)** air, while higher up, crystalline fungal growths bloom in shades of sickly yellow and phosphorescent green where condensation meets high-voltage residual energy. These growths are packed into every crevice, absorbing nutrients from the slow flow of polluted runoff.
+
+### Light and Sound
+
+The light quality is **dim (1.1)**. The canyon roof, miles above, is rarely glimpsed except at the highest structural peaks, usually obscured by the perpetual, high-altitude industrial plume that blankets the region. Illumination comes internally: the omnipresent, flickering orange-red glow of overloaded plasma conduits, the pale blue pulse of environmental regulators, and the milky-white spill from inspection ports in the metal decks.
+
+The soundscape is characterized by **turbulence (2.9)**, yet paradoxically **mostly quiet (0.7)**. The turbulence is mechanical and systemic, not atmospheric. The place *hums* with barely contained kinetic energy. Massive, unseen turbines deep within the lower strata oscillate at frequencies that vibrate the metal plates underfoot, causing a low, persistent sympathetic ringing. Every few minutes, a massive pressure equalization event occurs—a sound like a thousand slamming blast doors miles below—which momentarily overwhelms the quiet, followed by an intense, frantic clicking and whirring of small stabilization mechanisms that immediately dampen the area back into pressurized silence.
+
+### Ecology and Rules of the World
+
+Fauna is **rare (0.9)**. What exists is highly specialized. One might spot the skittering of segmented, metallic insect analogs—Scrapscuttlers—that feed on surface corrosion, or perhaps the slow, gliding shadow of a large, filter-feeding air-ray that drifts silently through the higher, humid strata, netting airborne particulates.
+
+The world functions under the rule of **industrial necessity**. Every visible structure is part of a single, interconnected, decaying, yet perpetually running machine. Gravity seems normal, but the local environmental rules are dictated by the flow of energy and materials. There are no open grounds, only service corridors, maintenance shafts, and the sheer, slick faces of colossal energy regulators. Travel is vertical and horizontal, requiring adherence to established, often perilous, access routes marked by faded hazard stripes painted onto the metal decades past.
+
+The overall atmosphere is one of strained, congested endurance. It is a place frozen in a state of maximum utility—everything is performing a function, supporting another function, or actively decaying into the substrate for the next layer of construction. It is an engineered environment that has achieved a state of semi-living, overworked complexity, where the breath of the machine is the cold, mineral-heavy air itself.

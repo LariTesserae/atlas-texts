@@ -1,0 +1,31 @@
+# The Hollow Gardens
+
+Below the dead crust of an old world, where the rivers stopped running so long ago that even the memory of moisture has worn out of the stone, there is a cavern system that does not behave like a cavern should.
+
+It is too large to call a cave. The scale escapes any single ceiling — passages widen into chambers and the chambers widen into something closer to valleys, vaulted overhead by stone so ancient it has stopped looking like stone and started looking like sky: a dim, mineral firmament, pocked with old fracture-lines that have healed into smooth seams over geologic time. There is no water anywhere in this place, and there never seems to have been much — the walls show no carving of flow, no smoothing by current. What shaped this place was time itself, working alone, without any liquid hand. Erosion here means something slower and stranger than rivers: the patient settling of stone into its final, most exhausted shape. Every surface has the look of something that finished happening eons ago.
+
+And yet it lives. That is the unreasonable fact of the place.
+
+## Terrain and Growth
+
+The floor of the Hollow Gardens rolls in long, shallow swells, like the cooled surface of something that was once fluid and is fluid no longer. Out of this ancient ground grows a vegetation that owes nothing to sunlight — pale fungal trees with caps the width of rooftops, fibrous groves of cave-bramble that glow faintly amber at the edges, curtains of root-moss draping down from overhangs in slow green-grey sheets. The vegetation is lush in patches and absent in others — sparse overall, islands of green-black density separated by long stretches of open, bare stone. It is a garden in the old sense: cultivated by nothing, tended by nothing, simply persistent.
+
+The plants do not need light because there is almost none to need. What illumination exists is dim and indirect — a few veins of luminous mineral threading the higher walls, faint bioluminescent undersides on the giant fungal canopies, scattered motes drifting off spore-clusters that catch and hold a ghost-light before fading. The overall effect is dusk without a sun, a permanent gloaming that never resolves into either day or night.
+
+## The Built City Beneath
+
+Threaded through this dim, fungal openness is a settlement — vast, old, and visibly built, though by whom or what is no longer obvious from looking. Towers of stacked stone rise out of the swells of ground, hollowed and windowed, connected by causeways of fitted rock that span the gaps between rises. Whole districts of dwellings, carved and stacked rather than poured or forged, climb the cavern walls in shelved tiers, their doorways dark, many collapsed inward, many still standing with a stubbornness that has outlasted whoever lived there. There is no metal anywhere, no device, no machine-trace — this was a civilization, if it was one, built entirely by hand and patience, without tool-craft beyond shaping stone with stone. Pure construction, no technology.
+
+The built density is heavy in places — a true urban sprawl of terraces and chambers — but the city does not fill the cavern. It is scattered through the open scale of the place in clusters, settlements separated by long open stretches of garden and bare ground, like a region of small ancient towns rather than one continuous metropolis. Between them: silence-filled distance, fungal growth reclaiming the spaces where stone roads used to run, root systems splitting old walls with the unhurried persistence of centuries.
+
+## What Lives Now
+
+The builders, if they remain, are not the dominant presence anymore. The dominant presence is sound — and the sound is the strangest, most disorienting feature of the Hollow Gardens. Despite the dimness, despite the stillness of the architecture, the place roars with a deafening abundance of life. Fauna fills every level of this cavern-city: things that flit between the fungal canopies in dense wheeling flocks, things that lumber along the swelled ground in herds, things that nest in the hollowed-out towers by the hundreds and shriek their territory at dusk-that-never-ends. The noise compounds in the vaulted stone overhead and rolls back down amplified — chittering, booming calls, the wet snap of fungal husks being torn open by claw or beak, the thrum of insect-analogues vibrating in the bramble-curtains, deep groaning calls from things never seen, only heard, somewhere past the edge of the dim light.
+
+It is a paradox the place seems to hold without strain: an ancient, slow, eroded silence of stone, inhabited by a living roar that never settles. The animals have inherited the city. They nest in the dead windows, graze the fungal gardens, migrate in slow unhurried cycles through the empty causeways between towns. None of it moves fast. The dynamic of the place is patient — herds shift grazing grounds over what might be years, fungal forests creep forward a few feet a generation, towers lose another stone every few centuries — but the *volume* of all this slow life, multiplied across an open, sparse, enormous space, produces a sound that never, ever stops.
+
+## Rules of the Place
+
+There is no water, and nothing here remembers needing it — the ecology runs on spore, husk, and flesh, a closed loop of fungal decay and animal grazing that has sustained itself since before the towers were carved, and will likely sustain itself long after the last stone falls. There is no light worth the name, and nothing here minds; eyes have adjusted or were never needed in the first place. There is no technology, no tool beyond hand and tooth and claw, no machine-hum to compete with the roar of the living dark.
+
+What there is, is patience: the patience of erosion finishing its work a hundred thousand years ago and simply stopping there, satisfied, settled into a final shape that nothing since has bothered to disturb. The city is a fossil of intention, beautiful and abandoned and unbothered by its abandonment. The garden is a machine of slow appetite, growing at the speed of stone. And over both, filling every silence the dead architecture tries to keep, is the deafening, endless noise of things that are still, against all the odds of this dim and ancient place, very much alive.

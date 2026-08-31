@@ -1,0 +1,13 @@
+**The Sunken Canopy**  
+
+Beneath the weight of the world, in a vast cavern where the roots of mountains drink deep, lies the Sunken Canopy—a city not of stone and mortar, but of living wood and water. The air is thick with condensation, beading on the bark of towering fungal spires and dripping from the fronds of bioluminescent ferns. The ground is a lattice of roots, woven so tightly that soil barely shows through, and water seeps up between them in slow, glistening pulses.  
+
+This is a place of perpetual dampness, where the walls weep and the ceiling glistens with stalactites that never fully form—always melting, always reforming, as if the cavern itself breathes in slow, wet sighs. The air is cold, but not biting; it carries the chill of deep earth, of places untouched by sun, yet it is alive with the warmth of decay and growth.  
+
+The city is not built—it has grown. Structures rise like swollen tree trunks, hollowed by time and inhabited by creatures that move silently through the labyrinth of fungal bridges and root-laced tunnels. There are no tools here, no fire, no metal—only the slow, deliberate work of biology. Walls are woven from mycelial threads, reinforced by the calcified secretions of burrowing insects. Pathways are etched not by hands, but by the passage of countless feet—some clawed, some padded, some bare and webbed.  
+
+Life is everywhere, pressed close, layered upon itself. Moss carpets every surface not slick with moisture. Blind fish dart through submerged channels, their silvered scales catching the faint glow of the fungi. Bats with translucent wings flit between the high roots, their calls too soft for human ears. The silence is not empty—it is full, a hum of movement just below the threshold of sound.  
+
+The Sunken Canopy is young, geologically speaking. Its formations are still sharp, its waterways still carving their paths. The roots of the world above have only recently broken through the ceiling, and the cavern trembles sometimes with the slow settling of stone. But for all its newness, it feels ancient—a place that has always been waiting beneath the surface, patient, gathering its damp breath.  
+
+And though no voice calls out, no language is spoken here, the city is far from still. It pulses. It shifts. It breathes. Water drips, roots creak, and somewhere in the dark, something unseen stirs the still pools, sending ripples through the reflection of a world that has never known the sky.

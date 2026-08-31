@@ -1,0 +1,17 @@
+The scale here is planetary, but the perspective is intimate—it is a world of endless, high-altitude plateaus that stretch into a darkness so profound the horizon is felt rather than seen. 
+
+The air is warm, holding a thick, humid weight that belies the scarcity of standing water. There are no oceans here, and no sun to draw them upward. Instead, moisture exists as a nomadic traveler. It manifests as a fine, clinging condensation that glazes the undersides of overhanging rocks and the obsidian-slick carapaces of the local fauna. Occasionally, a sudden, warm rain—more of a vertical mist—falls from the invisible ceiling of the upper atmosphere, hissing against the sun-baked stone that retains a deep, geothermal heat.
+
+The terrain is a study in "established erosion." This is an old place. The mountains have long since been ground down into flat-topped mesas and wide, sweeping valleys of pulverized basalt. The wind has carved the stone into aerodynamic fins and hollowed-out flutes that moan with a low-frequency hum when the pressure shifts. Everything is smooth. There are no jagged edges left; the world has been polished by eons of friction into a state of permanent, architectural balance.
+
+Vegetation is a rare luxury. It exists in isolated pockets—clumps of pale, bioluminescent moss that drink the condensation, or spindly, leafless "whip-trees" that root deep into the thermal vents. These plants do not seek light; they seek heat. They cluster around the rhythmic thrumming of the deep earth.
+
+In this dark, vast emptiness, the "industrial" element is not a human construction, but a biological one. The fauna here are not merely animals; they are bio-mechanical marvels of evolution. Huge, slow-moving megafauna, the size of small cities, drift across the plateaus on multiple pairs of jointed, piston-like legs. Their movements are not fluid, but mechanical—audible as a series of heavy, rhythmic thuds and the hiss of pressurized gasses venting from their sides. They resemble living refineries, processing the mineral-rich dust of the plains into energy, their internal bioluminescence glowing through translucent skin like the flickering lights of a distant factory complex at night.
+
+Smaller creatures, frantic and numerous, swarm in the wake of these giants. They are the scavengers of the "exhaust," feeding on the heat and the chemical byproducts of the great walkers. The air is filled with the sound of their clicking mandibles and the soft *whirr* of chitinous wings—a sound like a thousand cooling fans.
+
+The silence of the world is a heavy fabric, punctuated only by these industrial bio-sounds: the *clack-hiss* of a walker, the distant *thrum* of a thermal geyser, and the occasional thin whistle of wind through the eroded stone. 
+
+It is a world of immense space and low density. You could walk for days between the great mesa-complexes and see nothing but the shimmering heat-haze rising from the dark sand. The "weirdness" lies in the paradox of the life here: it is abundant and active, yet it feels lonely. Every creature is a closed system, a self-contained furnace burning in the dark. 
+
+The rules here are dictated by thermal gradients. To be cold is to die; to be in the light—were there any—would be an absurdity. The ecosystem is a slow-motion machine, an assembly line of organic heat-exchange that has functioned, unchanged, for a billion years. There is no progress here, only the steady, mechanical pulse of survival in a vast, warm, and shadowswept infinity.

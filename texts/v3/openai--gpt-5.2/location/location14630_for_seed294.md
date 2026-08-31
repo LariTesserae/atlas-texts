@@ -1,0 +1,52 @@
+The first impression is that there is no “ground,” only a pressure of water. Not the easy water of a lake, with air above it and light reaching down in generous cones, but a continuous medium that has claimed the whole region. It presses against everything, moving as a single body and yet never holding still. You are inside a cold sea that sits improbably high—perched on a plateau of the world like a crown that has filled with flood and refused to drain.
+
+If you could rise “up,” you would not break the surface. The ceiling is water too: a thicker, darker layer where the fluid turns to near-ice slush and then to a kind of suspended hail—pellets of frozen brine that drift and grind against one another. Above that is more water, heavier and colder, like the ocean stacked in strata. The world here doesn’t end in sky; it ends in denser water.
+
+Light is dim, not because it is deep—though it is deep—but because it is old. The illumination that exists comes through long, exhausted paths: pale, diffuse glows sifting down from wherever the planet’s distant day tries to touch this place, and a few local sources that are not exactly “lights” so much as persistent states—stones that remember warmth, seams that leak a faint blue, suspended veils of plankton-thin life that flash when disturbed and then go dark again. Nothing grows. Nothing puts up green. There are no fronds, no kelp, no rooted forests waving in the currents. Even the idea of a plant feels out of place, like a tool you’ve brought into the wrong century.
+
+And yet everything is made.
+
+At first that seems like a metaphor—how can a submerged wilderness be constructed? But the closer you drift to the “terrain,” the more literal it becomes. There is no bedrock. There are no natural slopes of scree or coral or clay. The bottom, when it comes into view through the dim, is an expanse of surfaces that bear intention: terraces, arches, long planes that meet at crisp angles worn down into roundness. It is a city if a city were designed by tides over an age longer than history, and then abandoned to water before any dry-footed creature ever walked it.
+
+Materials repeat in a limited palette, like a world with only a few words that it insists on using beautifully:
+
+- A dark basalt-like stone, but too regular in grain, as though cast rather than broken.
+- Pale ceramic slabs with hairline crazing, glazed by time into a muted sheen.
+- Bands of translucent mineral—saltglass—cloudy as old ice, veined with trapped bubbles.
+- Ropes and mats of something that looks like fiber until you touch it and discover it is mineral too: threads of calcite braided together by slow accretion.
+
+Everything has been eroded, but not into shapelessness. The erosion here is ancient, thorough, and patient. Edges have been softened into the kind of curves that invite the hand; corners have become shoulders. You can read the long war between construction and current in the way every surface leans slightly into the flow, as if the whole architecture has learned to bow.
+
+Scale opens out. This is not a single ruin but a region: a broad basin of built terrain extending beyond sight, broken into districts by elevation changes that would be hills if they were not made of stacked platforms and ribbed causeways. Here and there, towers rise—not needle towers, but squat spires like chimneys or the remains of enormous pylons, their tops lost in darker water. Between them are wide, sparse reaches where nothing stands at all, only smooth paving disappearing into haze, giving the mind too much room. The emptiness feels designed as much as the structures do, like pauses in a sentence.
+
+The water is never calm. Turbulence is the place’s weather, its heartbeat. Currents pour through the architecture the way wind pours through streets, accelerating in narrow passages and forming slow whirlpools in courtyards. Some flows are steady, riverlike. Others arrive as sudden shears—internal waves that tilt the whole world for a minute, lifting siltless snow of mineral dust from the floors and sending it skating in sheets. The turbulence is not only horizontal: cold downwellings plunge like invisible waterfalls, and warm upwellings—rare, precious—rise in columns that shiver with dissolved gases.
+
+Mostly quiet, though. Underwater, even violence is muffled. The dominant sound is a low, continuous hush: the friction of water against stone, the soft percussion of suspended ice grains tapping surfaces, the distant booming of something shifting far away—one of the massive overhead strata cracking, or a deep conduit venting and then sealing again. When the currents change direction abruptly, the whole built basin emits a subsonic groan, like a ship’s hull flexing, only this “hull” is the landscape itself.
+
+Fauna fill the quiet.
+
+They are everywhere, because they have had to become everything. In a world without plants, life does not climb upward into sunlight; it spreads sideways, downward, and inward, living off motion, chemistry, and one another.
+
+There are schools of pale fish that seem almost unfinished, their bodies translucent, their eyes oversized and reflective as coins. They travel along the old causeways in synchronized streams, using the built lines as navigation the way surface birds use coastlines. There are larger, solitary things that patrol the open plazas: slow, armored swimmers with plates like overlapping tiles, grazing not on algae but on the thin mineral films that precipitate on warm stone. When they scrape those surfaces, a faint blue dust lifts and spirals, and small creatures rush in behind them to pick at what’s left.
+
+In the cracks where terraces meet, in the seams between ceramic plates, there are colonies of life that barely qualifies as “animal” in the familiar sense—clusters of filter-feeding forms, translucent sacs and frilled mouths anchored to the stone. They open and close with the pulse of the current, making use of the turbulence rather than resisting it. When a strong shear comes through, these colonies flex in unison, a field of living valves, and the whole wall seems to breathe.
+
+Predators are quieter. You notice them because the smaller fauna notices them: a sudden tightening of schools, a scattering like thrown sand. Then, slipping through a colonnade, you might see one—a long, ribbon-bodied hunter that uses the architecture like cover, flattening itself to the curve of an eroded arch and letting the current hold it in place. It does not chase so much as wait for turbulence to do the chasing.
+
+Some animals build, too, but not with tools. That is one of the few strangenesses that sets this place slightly askew from a normal flooded ruin. Construction here continues, without technology, because certain creatures cannot help but make structure the way certain trees cannot help but branch. They secrete mineral, braid crystals, glue pellets of saltglass into nests that cling to the underside of bridges. Over centuries, their work becomes indistinguishable from the older work. It is possible the original “builders” were nothing more than earlier versions of these—fauna whose instinct was architecture, whose bodies were the first scaffolds.
+
+That is how the world reconciles its rules: everything is made, but nothing is engineered. There are no machines, no metal, no wires. There is no sense of recent manufacture. The making is biological and geochemical—slow, repetitive, inherited. The built environment is the natural substrate because the natural substrate never existed here in any accessible form; long ago, whatever “rock” lay beneath was sealed away under layers of accreted design and then worn smooth by an eternity of water.
+
+Cold governs everything. It sharpens the animals into thrift and patience. It keeps decay slow and turns organic death into drifting, waxy fragments that travel for miles before anything can digest them. It also shapes the water itself: layers of different salinities and temperatures stack like invisible floors, so that if you swim upward you may hit a boundary where the water suddenly grows thicker, your movement damped as if you’ve pushed into oil.
+
+The high elevation makes the cold feel cleaner, more absolute. There is less of the heavy, rotting richness of lowland seas. Even the fauna’s colors—what little color exists—are restrained: bone-white, slate, muted amber, occasional pinpricks of bioluminescent violet that appear when something is startled.
+
+In the distance, the basin is cut by trenches—broad, smooth channels that run straight for too long to be erosion alone, though erosion has claimed them now. Currents favor these trenches, and they function as submerged rivers inside the sea. If you drift near one, you feel the pull: a lateral acceleration that wants to carry you away into a dim corridor between banks of worn masonry. The water there is faster, colder, and threaded with fine, glittering mineral particles that align in the flow like iron filings around a magnet.
+
+Every so often, turbulence exposes a secret. A vortex scours a plaza and reveals a pattern beneath the smooth surface: mosaics of different stone, geometric and severe. Not decorative, exactly—more like instructions, diagrams left in a language of angles. The fauna do not care. They pass over it, feeding, hunting, mating, living in the only way available. The meaning, if there is meaning, belongs to the place itself.
+
+And the place feels as though it has a memory.
+
+Not a mind, not intention in the human sense, but a persistence: the way the currents keep choosing the same routes, the way the architecture seems to anticipate flow, the way certain chambers always, reliably, fill with warmer water at the same interval—as if some deep valve opens and closes with the planet’s slow tides. In those moments, the dim light shifts slightly, and all the animals adjust their positions, as practiced as grass bending before wind.
+
+In the quiet between shears, you can hover above an open expanse of constructed seafloor, watching a sparse scatter of pillars recede into bluish haze, and feel the scale of it: an ancient, flooded highland of made stone, endlessly worked by water, populated by creatures that have turned architecture into habitat and turbulence into nourishment. It is not a ruin so much as a stable, final form—a world that has settled into being submerged and has decided, for now, to remain that way.

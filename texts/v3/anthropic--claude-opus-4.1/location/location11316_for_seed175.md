@@ -1,0 +1,19 @@
+The plateau breathes water through its stone pores.
+
+You arrive at the edge of what seems impossible—a highland marsh suspended far above the world, where ancient limestone has weathered into a labyrinth of shallow basins and connecting channels. The rock here has the texture of coral or bone, riddled with countless tiny passages that weep continuously, creating a perpetual state of wetness without any visible source. The stone itself appears to sweat.
+
+Vegetation grows in scattered islands of shocking vitality. Each cluster springs from where the porous rock has collected enough sediment to support roots—brilliant green mosses thick as mattresses, primitive ferns unfurling in spiral fractals, and strange tubular plants that seem more architecture than organism. These plant colonies are widely spaced across the weathered stone, each one a small jungle unto itself, growing in perfect circles where ancient dissolution pockets have filled with accumulated soil. Between them stretches empty, wet rock, carved by millennia into gentle undulations.
+
+The warmth here defies the elevation. Steam rises in lazy wisps from the heated stone, and the air carries a greenhouse heaviness despite the altitude. The atmosphere seems to lens and magnify, making distances uncertain. Sometimes the far edges of this high marsh appear close enough to touch; other times they recede into hazy infinitude.
+
+What makes this place truly strange are the breathing holes—perfectly round apertures in the rock that exhale warm, humid air in slow, synchronized rhythms. Each exhalation takes perhaps twenty minutes, followed by an equally long inhalation that creates the faintest whisper of wind through the vegetation. During the exhale, more water beads on every surface, and the tubular plants open their tops like mouths. During the inhale, they close again, and the moisture begins its patient evaporation.
+
+No animals disturb this place. No insects hover over the marsh pools, no birds nest in the fern groves. The only movement comes from the plants themselves—the almost imperceptible pulse of growth, the slow opening and closing of specialized organs, the patient curl of new fronds. Even the water moves without splash or gurgle, seeping through its carved channels in perfect silence.
+
+The tools you notice are subtle, primitive—stones arranged in deliberate patterns around certain plant clusters, shallow mortars worn into the rock near the breathing holes, channels that have been widened or connected by patient chipping. Someone or something has worked this landscape, but so long ago that their modifications have become part of the natural grammar of the place. The worked stone has weathered to match its surroundings perfectly.
+
+Time moves differently here. The sun crosses overhead but seems to pause at zenith. Shadows barely shift. The plant islands grow visibly if you watch for hours—new fronds extending, moss creeping outward by millimeters. The breathing of the stone creates the only reliable rhythm, marking out these long, strange minutes.
+
+The boundaries of this suspended marsh are definite but mysterious. The porous plateau simply ends, dropping away to reveal clouds below. The edge is crisp, as if cut, and the water that seeps to the rim disappears rather than falling—absorbed back into the stone through some invisible circulation that maintains this impossible equilibrium.
+
+In the center of it all, where several breathing holes cluster together, the vegetation has arranged itself in a perfect spiral, each plant species occupying its ordained distance from the warm exhalations. The pattern is too regular for chance, too ancient for intention. It simply is, like everything here—suspended between states, breathing quietly through stone, growing without witness in its high, warm silence.

@@ -1,0 +1,31 @@
+The basin is small enough to understand from its rim, though not at once.
+
+It lies high among older heights: a shallow, oval fold in a plateau of dark, weather-softened stone. The surrounding country rises only a little above it, but that little is sufficient to hold the basin apart from the rest of the world. Beyond the rim are slopes, farther ridges, a haze of green distance. Within it, there is a single wet place, warm and patient, kept alive by water too near the surface to be seen properly.
+
+The ground is not marsh exactly. It has no broad black pools, no reeds packed shoulder to shoulder. Rather, the earth sweats. Water shines under a skin of moss, wells in thumb-sized hollows, gathers in transparent films across shelves of rock. After rain—which comes often, though not violently—the basin seems briefly made of lacquered clay and leaf-green glass. Then the water sinks again, leaving every surface darkened and the air smelling of heated mineral, root, and wet stone.
+
+At the center is a low spread of pale rock, perhaps twenty paces across, worn into folds and shallow bowls. It looks almost like a body lying under the ground, its back exposed. The rock has been softened by a very long companionship with water. Rain has found tiny flaws and made them into lines; lines have become channels; channels have joined, separated, and joined again. In the deepest bowls, water remains throughout the dry intervals. Their surfaces do not ripple, because nothing moves through them.
+
+There are no fish. No insects touch the water. No birds cross the open sky above the basin.
+
+The absence is not alarming at first. The place is too warm, too green, too apparently generous for alarm. Ferns lift delicate fronds from cracks in the stone. Broad-leaved plants stand singly in the wet ground, each separated from the next by patches of exposed clay or low moss. A few thin trees grow around the edge, their trunks smooth and pale, their crowns sparse enough to let the daylight pass through. They do not form a forest. They are simply present at distances from one another, as though each has chosen its own portion of air.
+
+Vines climb them, but slowly. Their tendrils are thick and damp, with a dull grey-green bloom. In places, the vines descend again and enter the ground, so it is difficult to tell which way they are growing. Some of the larger leaves hold rainwater for days. The water in them acquires a greenish stain from the leaf itself, yet never breeds anything visible.
+
+The silence has texture. There is no absolute stillness: water occasionally slips from one stone lip to another; a wet leaf uncurls in the heat with a faint papery easing; somewhere beneath the clay, a spring gives a sound like a breath taken very carefully. But these events are not regular enough to become a rhythm. One waits for them without knowing one is waiting.
+
+The basin has no paths, though the ground suggests routes. Narrow, firmer ribbons run between the wettest places, made from old deposits of fine gravel and hard orange clay. Their edges have been rounded by water, not feet. Here and there, stones stand upright in the soil, too regularly placed to seem entirely accidental. They are not arranged in lines or circles. Each is alone: a flat shard set on edge, a triangular stone tilted toward the central pools, a dark column no taller than a knee. No tool marks can be found on them. Yet their surfaces are smoother on one side, as if they have been rubbed for generations by a hand that is no longer there—or by a weather pattern precise enough to resemble intention.
+
+The world permits simple making, but not possession. A branch may fall and wedge itself across a narrow seep, directing water into a new channel. A sharp stone may split another stone when the earth shifts beneath them. A leaf may cup water; a root may braid itself into a cord. These are the basin’s only implements. Nothing remains that could be called an object. The place refuses durable arrangements. Wood becomes sponge, fiber becomes soil, edges become curves. Even the harder rocks seem to be slowly persuaded into softness.
+
+On warmer afternoons, vapor rises out of the central bowls and hangs close to the ground. Not enough to obscure the basin, only enough to make its distances uncertain. A fern ten paces away may appear much nearer. The pale stones on the far side may blur into the trunks behind them. Under this vapor, the water sometimes shows colors that are not reflected from the sky: dim amber, weak violet, the blue-white of a bruise. The colors remain beneath the surface. They do not illuminate the basin, but they make the pools seem deeper than they are.
+
+No wind reaches the bottom for long. It passes over the rim, travels through the high vegetation beyond, and leaves only a delayed coolness on the skin of the place. The trees barely answer. Their leaves turn their pale undersides outward for a moment, then settle.
+
+The basin changes, but it does so with great restraint. A channel closes over a season. A tree leans farther each year until its roots, still alive, begin drinking from a pool. Moss advances across a slab of stone and then stops at an invisible boundary. Rain fills every hollow; heat removes the water from all but the deepest. The same wet dark returns, again and again, in slightly altered arrangements.
+
+At dusk, ordinary light thins but does not vanish quickly. The high air keeps a mild gold above the rim while the basin floor turns green-black. The pools become sheets of dark metal. The pale trunks remain visible longest, standing apart among the wet leaves.
+
+Nothing enters. Nothing calls out.
+
+And yet the place does not feel empty. It feels occupied by processes too slow to be witnessed whole: the steady lifting of water from stone, the gradual surrender of rock into soil, the quiet decision of roots about where to continue. The basin is a small, warm chamber in the heights, a place where erosion has become almost gentle, and where life persists without spectacle, without hunger, without sound.

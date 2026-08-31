@@ -1,0 +1,11 @@
+In the low-lying wetlands of the Mist Terraces, a dense urban ecosystem emerges like a living tapestry of condensation and growth. The landscape is a compact warren of moss-covered stone dwellings, built in tight clusters that seem to breathe and pulse with a quiet vitality. Narrow channels of water weave between structures, not quite rivers but more like capillaries of moisture that glisten and shift with each subtle environmental change.
+
+The architecture is primitive but intricate - structures carved from local stone and bound together with a lichen-like mortar that grows and repairs itself. Buildings are small, interconnected, almost fungal in their organization, with no clear delineation between constructed space and natural environment. Tiny windows hint at habitation, but the settlements feel more like symbiotic growths than deliberately planned cities.
+
+Vegetation dominates every surface. Soft, thick mosses in deep greens and silvery blues carpet stone walls, drape over rooftops, cascade between buildings. The plants here seem to thrive on moisture and low temperatures, creating a lush environment that feels both delicate and resilient. Tiny flowers in muted tones peek out from moss clusters - pale lavenders, soft whites, subtle yellows.
+
+The atmosphere is bright but diffused, as if light is being constantly filtered through a thin veil of moisture. Everything appears simultaneously sharp and soft, detailed yet blurred at the edges. Strange small creatures move through this environment - not quite insects, not quite mammals, but something in-between. They dart quickly, almost invisibly, leaving only momentary ripples in the moss.
+
+Despite the apparent abundance of life, there's an underlying stillness. Sound seems to be absorbed by the dense vegetation and damp stone, creating an almost soundless environment where movement happens in near-complete silence. The entire landscape feels like a single, complex organism - breathing slowly, changing imperceptibly, existing in a state of perfect, fragile equilibrium.
+
+Time here seems suspended. Nothing appears to truly change, yet everything is constantly, subtly transforming. The Mist Terraces are a world unto themselves - compact, wet, bright, alive - existing in a delicate balance that feels both ancient and perpetually new.

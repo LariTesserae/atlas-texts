@@ -1,0 +1,39 @@
+It is not a valley. It is a bowl.
+
+High up where the air goes thin and mean, around the altitude where breathing becomes a deliberate act, the plateau is scoured flat and then — nothing — then scooped. A perfect cirque, like a thumbprint pressed into old wax. Maybe eighty meters rim to floor, maybe two hundred across. You could walk its circumference in twenty minutes if you didn't have to step around anything, but you do. You always do.
+
+The rock here is old. That is the first thing. Not jagged-high-mountain old, not young-shattered old. Established old. Long-existed, settled into its own shape. The basalt rim has been licked down by wind and water-ice for so long that all its edges are soft. Black stone rounded like river stones, like knuckles. The inside of the bowl is stepped — not cut, but worn in overlapping lips, each one a long, smooth bathtub ring. The steps weep.
+
+That is the second thing. It should be frozen solid. It is too cold and too bright to be wet. At this altitude the cold is absolute — zero, zero, the kind where spit clicks before it hits the ground and the inside of your nose welds shut — and the light is a physical weight. No sky-color, just a bleached, high, savage white-blue, sun like a magnesium flare that never moves. The snowfields on the plateau outside burn your eyes to tears that freeze on your lashes.
+
+But the bowl is wet.
+
+Water is everywhere. Not in a lake. In the air first — the atmosphere condenses itself. Breath plumes and stays. Fog beads on every surface. The rim exhales, constantly, a low cloud that spills inward and can't get out. Rock sweats. Ice sweats. The stepped walls are veined with black beards of water that run and re-freeze and run again. At the bottom, where logic says there should be blue glacier ice, there is a slick, a shallow, restless pan of melt that never quite sheets over. Black water, brown water, water thick with mineral flour, pocked by upward sighs. Some of the stones are warm. Not warm enough to be comfortable, just warm enough to be impossible. You can put your bare palm for a second on one of the deep basalt boulders and feel it giving back a little of the sun it hoarded. Around its base the water steams for half an inch and stops.
+
+Nothing much grows. Vegetation is an afterthought, a trespass. Sparse, abashed. A crust of orange and sulfur-yellow lichen on the north-facing steps, so flat it is part of the rock until it isn't. Hair-ice that grows out of the weeping walls like white fur, an inch a minute, then wilts. In the standing pools, a thin, oily sheen of algae, maroon and black-green, that pulses when you aren't looking directly at it.
+
+And yet — it is crowded.
+
+First, the built part. Someone found this impossible bath and decided to stay, and they built like people do when they are cold and there is only one expensive place to be. Dense. Absurdly dense. The whole floor and the lower three terraces of the bowl are town. Not a metaphor for a town. A town, hamlet-sized, city-logicked.
+
+Huts of unmortared basalt, low, domed, leaning on each other for warmth, sharing walls, roofs overlapping roofs. Bone beams — something big died here long ago, or many somethings — lashed with hide and sinew, patched with felt the color of dirty snow, weighted with stones against the wind. Narrow crevasses between houses that aren't alleys so much as the spaces left over when you pack circles too tight. Smoke holes everywhere, but the smoke doesn't rise, it hangs, low and flat, adding to the condensation. Terraces cut a little deeper, shored with stacked stones so worn they fit like molars. Ladder-stairs, hide ropes, sodden wooden planks thrown across pools. Everything touches everything. If you live here you hear your neighbor's cough through stone because you share the stone. It is urban the way a seabird colony is urban — an accretion, not a plan. Layered construction, old house swallowed as foundation for new house, midden and living floor indistinguishable.
+
+Primitive, utterly. No metal you can see that wasn't carried in from impossibly far down. Everything is worked by hand, by cold-swollen hands. Stone hammers. Flaked edges. A drill that is a stick and a thong. Pots are fat, badly fired, porous, weeping water just like the walls do. 
+
+It works because it is in the middle of a migration road that exists only in the sky.
+
+The fauna. That is why there is a town at all.
+
+The air above the bowl, bright, terrible, is full. You don't hear them at first. That is the strangeness. The sound is wrong.
+
+From a distance the sky flickers, as if snow was falling sideways. Up close, you see they are birds — but not quite birds you know. High-altitude auks, maybe, or something that became like auks: white-bellied, black-backed, wingspan wider than you are tall, too heavy-looking to be so high. Thousands. Tens of thousands. They wheel in a silent, crushing vortex over the bowl, layer upon layer, near-touching, a dense, living roof that blots the brutal light and makes it flicker. They are coming down. They have always been coming down.
+
+They crash into the bowl by the hundreds at a time, a chaotic, turbulent rain of bodies — wings stalling, feet out, sliding on wet stone, scrambling over houses, over each other, over the steaming pools. There is no cawing. No screaming. That is the rule here. In this thin air sound doesn't carry, and snow soaks what does. But more — everything in the bowl has learned quiet. The birds land in silence except for the soft thump of breast on stone, the susurrus of ten thousand feathers brushing, the quick patter of webbed feet. They crowd. They pack the roofs, the terraces, the water itself until the water disappears under a mat of shifting black and white. They are incubating something. Not eggs — in the shallow pools they dabble and pull up mouthfuls of that black algae, and in their guano, steaming pink-white, heat blooms.
+
+And the people are as turbulent as the birds. The whole town is in motion at all times. Because if you stop you freeze, and because the birds mean work. Figures dart — small, bundled in birdskin parkas stitched with dense, tiny feathers — slipping between huts, shouldering birds aside, gathering eggs that are not eggs but warm, translucent sacs the birds vomit up, the size of a fist, full of that algae curd. Children scramble up ladders that are just lashed bones. An old woman bangs a soft skin drum, not to make a loud noise but a felt thump, and the flock on her roof lifts for three seconds and re-settles elsewhere. Everyone is quick, frantic, efficient, a bazaar at triple speed with no voices. All barter is done by holding up fingers in steam. All argument is done by posture.
+
+The weirdness is not just the birds. It's the water. Watch it long enough and you see it doesn't always run down. On the coldest stones, the films of water run up, against gravity, in fine branching fingers, driven by capillary and cold and something else, returning to the rim to weep again. Puddles sort themselves — clear water in the center, mineral silt making a perfect, too-perfect ring. Your own footprints fill in from the bottom up. The light is so bright it seems to bleach motion after-images onto the fog; you see the ghost of a bird still sitting after it has flown.
+
+At midday — which is just when the light is at its most unstoppably bright — the whole bowl settles for one long breath. The air condenses all at once. Every surface drips. The birds, utterly packed, turn their heads one way, in unison, toward the sun. The people stop, heads bowed, steam rising from their hoods. No one speaks. The only sounds are the billion quiet sounds: drip, drip, tick of ice hair growing, soft rustle of feathers against feathers, the wet sigh of a sac popping open, the hush of water running uphill.
+
+Then a bird slips, shrieks — a tiny, strangled sound — and the whole frantic city explodes into motion again.

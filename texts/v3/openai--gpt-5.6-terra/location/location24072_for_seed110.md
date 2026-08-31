@@ -1,0 +1,31 @@
+At the top of the mountain there is a hollow no wider than a modest house, though no one finds it by looking for one. The ridge around it is naked, dark stone and wind; the hollow is concealed beneath a slab that leans over it like a lowered brow. A person must stoop, slide sideways through a seam, and follow the warmth in the air.
+
+Inside, it is night.
+
+Not the cold, open night of the upper slopes, but a permanent mineral dark: close, humid, warm enough that breath does not smoke. Water is everywhere without ever seeming to travel. It shines in black beads on the ceiling, gathers along the rough walls, stands glassy in cups worn into the floor. A shallow pool occupies the center. Its surface is so still it seems solid until a drop arrives from above and makes one perfect ring. The ring expands, touches the stone, and is gone. After a while another drop falls from exactly the same place. Nothing accumulates. Nothing drains. The basin has learned its own measure.
+
+The hollow is young in material but old in behavior. Its walls are not yet fully rock. They are a dense confusion of cooling volcanic crust, pale mineral paste, fibrous roots of crystal, and seams of damp clay that seem on the verge of choosing what they will become. Some surfaces are soft enough to take a thumbprint; others are sharp black glass. New-looking folds of stone push up from the floor in small rounded ridges, like the backs of buried animals, but they do not grow. Their incompleteness has become permanent. The place is always just after its making.
+
+There is almost no vegetation. A few black-green mats cling where warmth and moisture meet: velvet moss around a drip-hole, thin blades of reedlike grass beside the pool, a pale fungus with translucent edges growing under a fallen flake of rock. These things do not spread beyond their allotted inches. Each has a precise border, as though the dark itself refuses them further territory. Near the entrance, where a thread of daylight might reach on a clear day, there is a single dry shrub, twisted and gray, its roots entering a crack in the floor. It has no leaves. Yet its branches are wet.
+
+The density of the hollow comes not from life but from nearness. Every surface bears another surface close behind it: droplets trembling on mineral hairs; pebbles packed into clay; crystals crowded together in knotted colonies; old ash trapped beneath new deposits; tiny chambers opening off larger chambers, each full of damp air. If one reaches into a crevice, the hand finds a second room barely large enough for the wrist, and in that room another pool, another ceiling, another quiet drip.
+
+There are signs that people have come here, though rarely and not recently enough to disturb the balance. Along one wall, three stones have been stacked into a low, careful cairn. Their faces are rubbed smooth by hands. A shallow bowl has been chipped directly into the rock beside it, using something harder than the surrounding stone but not much harder: a crude hammerstone, perhaps, or a flaked dark tool. The bowl is always full of clear water. Above it, someone has pressed small white pebbles into a strip of clay, making a line that curls and doubles back, perhaps a map, perhaps a warning, perhaps merely a way of counting visits.
+
+At the far end stands a little shelter of split branches and hide, impossible in such dampness and yet intact. It is no taller than a seated person. The hide has darkened nearly to the color of the cave, and its lashings have become stiff with mineral salts. Inside are a few objects: a bone needle, a length of braided fiber, a cup made from a hollowed gourd or shell, and a flat stone stained repeatedly with red ochre. None decay. None look newly placed. They remain in the patient, unchanging middle state between use and abandonment.
+
+The air has a taste of iron, wet earth, and something faintly sweet, like warmed rain on dust. It is warmer closest to the floor. Sometimes mist gathers above the pool, no thicker than breath, and stays there in a low, level layer. It does not drift toward the entrance. It does not rise. When a hand passes through it, the mist divides and quietly closes behind the fingers.
+
+Sound is scarce. There is the measured drop of water, the occasional minute tick of mineral contracting somewhere inside the walls, the soft friction of clothing against wet stone. Outside, the high mountain wind may be roaring through the ridges, but it arrives only as a pressure against the entrance, a distant held note. In the deepest corner, one can hear a different sound: not movement exactly, but the faint granular settling of the earth before it became earth. It is possible this is only water entering pores in the stone. It is possible the hollow is still deciding its shape in a way too slow to witness.
+
+Animals do not live here in any visible abundance. A pale moth may sometimes be found resting beneath the overhang, wings closed like a scrap of ash. There are blind, thread-thin insects at the pool’s edge, almost colorless, leaving no obvious tracks. Once in a long while a small mountain bird enters by mistake, turning black against the narrow seam of outside light, then flees at once. No creature remains comfortably for long. The place has warmth, water, shelter, and yet no hospitality.
+
+Its rules are simple, though they are not announced.
+
+Water never overflows its vessels.  
+Darkness is not absence here but a material, laid in layers.  
+Anything left in the hollow takes on the hollow’s patience.  
+No flame burns brightly; it smolders blue and low, as if reluctant to make a change.  
+Nothing finishes forming. Nothing significantly wears away.
+
+A visitor may leave with wet hands, mud on the knees, mineral taste in the mouth, and the certainty that they have entered a place smaller than a room but deeper than the mountain. Above it lie cold ridges, scattered stones, sparse scrub, and weather. Below it lies the vast weight of the range. But in the dark pocket between, warm water waits in its stone bowls, falling one drop at a time into a world that never quite proceeds.

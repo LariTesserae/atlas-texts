@@ -1,0 +1,37 @@
+It is high. Not a peak — a height. A table set so far up that the air has thinned and sharpened.
+
+You come up over the last rise expecting sky and instead find more earth, level and extending. A plateau, broad as a small country, tipped just enough that you can feel you are still on a mountain, that the world falls away on all sides beyond the haze. The light at this altitude is a physical weight. It is bright in a way that lowland light never is — not warm, not golden, but white and total. There is no haze to soften it, no canopy to break it. The sun, small and hard and very near through the thin air, lays itself flat across everything and glints. The stone shines wet under it. The water shines. The air itself shines with suspended cold brightness.
+
+There are no trees here. No grass, no moss, no lichen even. Only mineral. And it is crowded.
+
+The plateau is not empty and open the way a high plain should be. It is packed. For miles in every direction, as far as the light lets you see, the ground is set with stone. Not boulders scattered at random — columns, teeth, fins, and pillars standing shoulder to shoulder with no more than a hand's breadth between them. Basalt, mostly, or something like it — dark grey and iron-red and pale ash-white, hexagonal when it breaks, weathered at the edges into smooth, old roundness. This is not new country. Nothing here is sharp or raw. Everything has been weathered into its final shape and then left to stay that way. Established. Settled into itself. The pillars lean hardly at all; they have found their balance. Some are no higher than your knee, some three times your height, but their tops are near level, as if they were all once one flat bed that cracked and parted just enough to let the world breathe between them.
+
+And between them is water.
+
+It is everywhere without ever being a lake or a river. The air is cool — not freezing, but the kind of clean, high cool that makes your lungs feel rinsed — and it can barely hold its moisture at this pressure. Water condenses directly out of it, continuously, silently, everywhere. It beads on the stone. It weeps from the rock itself, as if the pillars are sweating. It collects in a sheet no more than a film thick over every horizontal surface and trickles down every vertical one in a thousand identical threads. At your feet the gaps between the pillars are all running, all full, but never overflowing. Narrow chutes of clear, cold water slip and braid between the stone teeth, falling in steps an inch high, a foot high, whispering and joining. Nowhere is it dry. Nowhere is it deep. The whole plateau glistens like a just-washed floor, and yet there is no rain. It hasn't rained; it is just wet. The rock weeps and the air weeps and the water is always moving and never arriving anywhere.
+
+That movement is not change.
+
+This is the strange law of this place: it is in equilibrium so perfect it feels like time has gotten stuck. The water flows but the level never rises or falls. The channels never cut deeper. The weeping never stops and never increases. You can watch a particular thread of water run down the same groove on the same pillar for an hour and it will not waver, not pulse, not find a new path. The light does not move. There are no clouds that cross. The shadows, short and hard under the high bright sun, do not lengthen. Even the sound —
+
+The sound is deafening.
+
+From a distance you would think it was wind, or a great falls. Up close you understand it is both and neither. The wind here is constant, cool and thin, moving at the same speed always, from the same quarter always, forced to sift through the packed labyrinth of pillars. And the water, that infinite thin film, is always falling that inch, that foot, between stones. Each gap is a whistle, a flute, a spout. One gap alone would be a hiss. A thousand make a roar. Millions of them across the valley-wide table make a sound that has no variation because it has no variation to make. It is not loud in bursts; it is loud as a condition. A white roar, staticky and toneless, that fills your ears until your own blood sounds like an intrusion. You feel it in your molars. You have to open your mouth to equalize it. Shouting would be useless, and after a few minutes you stop wanting to.
+
+It is an unusual loudness because it does not echo. It is so packed with sources that it has no source. It comes from everywhere at once, from the stone itself, from the water on the stone, from the air between. The pillars, weathered and hollowed just enough, resonate. Some of the taller ones hum in a low, chest-deep tone as the wind passes their lips. The whole plateau is an instrument left out in the weather, playing one continuous chord that never resolves because it was never meant to.
+
+Nothing grows to soften it. The stone is bare. Where in any other wet place there would be algae, green film, mats of life, here there is only the clean dark rock and mineral bloom — faint rusts and ochres left by the water's endless passage, pale silica crusts like salt. It is a pre-life or post-life cleanliness. The world here never figured out plants, or finished with them long ago and washed them away. This does not feel dead so much as *waiting*, or *refusing*. Life allowed itself only the simplest arguments: that faint, dark sheen on the wettest stone that might be bacterial, if you looked very close, and not even that if you decided not to see it.
+
+Because animals do come. Rarely. Not living here — just passing. A pale, high flyer, a kind of white moth with glass wings too thin for this wind, is tumbled across the pillars, not flying so much as being ferried, legs tucked. You see one every half an hour, or think you do. A stone-colored insect with long legs skates on the film between two pillars and then is gone. Far above, something larger, a bird too high to have detail, circles in the bright, still air without ever seeming to change position, as if it too were caught in the equilibrium. They make no sound that can survive the roar. They do not stay.
+
+If you stay long enough — and you can, because the cold never deepens toward freezing and the light never dims toward evening — you start to understand the rules as your body does. To stand on this high, bright, wet, crowded plain is to be in a place that has solved itself. 
+
+Water will be present, always, but never more.
+Stone will be present, always, packed to crowding, but never falling.
+Light will be hard and total, without shadow moving.
+Sound will be absolute and unchanging.
+Air will be cool against your skin and thin in your chest.
+
+Everything is weathered to its final shape and then kept. Nothing erodes further. Nothing grows to cover it. Nothing is built upon it. No tool has marked it and no tool ever could get purchase in the narrow, water-slick intervals. It is not hostile. It simply does not have a space for you. You stand on the top of one pillar where it is wide enough for two feet, with water running over your boots, deafened, squinting in the glare, breathing the cool, wet stone-breath of the plateau. In every direction the packed teeth extend to a bright, hazy horizon that never gets nearer, all alike, all wet, all ringing with that one endless note.
+
+And it will be like that when you leave, unchanged.

@@ -1,0 +1,9 @@
+The place is submerged, a great cavity in the rock where the ocean floods in through a narrow fissure. The water is cool and mostly clear, the light filtering down from the surface to create a soft, blue-green gloom. The scale of the flooded cavern feels more grand and sacred than any human-built cathedral.
+
+All around, the walls are a mixture of stone and metal, a chaos of pipes and conduits that run along the rock face. These metal structures have clearly been in place for a long time, as they are now heavily weathered and corroded, blending almost seamlessly with the stone beneath. The erosion is so advanced that it's now in a stable state, the edges and surfaces worn smooth, the whole system settling into a kind of balance.
+
+There is very little life here; the plants and animals have long since vanished. The only movement comes from the currents in the water, the gentle swirling of sediment. For the most part, the flooded cavern is still and quiet, the only sound the low hum of distant machinery. The exact purpose of this technology is unclear, but its presence is undeniable.
+
+As you drift through the water, the space feels vast and empty. The presences here are few and far between, with generous amounts of room to move and explore. The scale of the cavern is not enormous, perhaps no larger than a grove of trees, but the lack of boundaries makes the space feel much larger. The water makes everything feel weightless, adding to the sense of expansiveness.
+
+There are no buildings or artifacts, nothing that suggests any kind of construction. Whatever purpose this cavern once served, it is now abandoned, the memory of its past functions long since washed away. The hum of the machinery is steady and unchanging, a constant that adds to the feeling of timelessness. The whole place feels like it exists in a state of equilibrium, a frozen moment that will never pass.

@@ -1,0 +1,37 @@
+The landscape is hidden inside the summit of a young mountain.
+
+From outside, the mountain is a single black tooth thrust impossibly high above the surrounding plain, its upper reaches lost in a permanent veil of mineral dust. The summit has not yet acquired the softened shapes of age. It is all needles, shelves, fresh fractures, and vertical planes of dark basalt, still warm in their deepest seams from the pressure that raised them. No river has cut it. No weather has rounded it. Its slopes are too steep for anything to remain on them for long.
+
+But somewhere near the summit—perhaps inside the mountain, perhaps folded into a fault that does not appear on any map—is a city.
+
+The city occupies a pocket no larger than a few city blocks, though it seems much larger because nearly all of it is vertical. Streets run along the walls of a cavern, crossing one another on iron gantries and narrow bridges. Buildings are stacked into the rock in layers: workshops below, residences above, storage vaults and lift stations higher still. There are no broad plazas. Every open space is a shaft, a loading bay, a gap between towers, or the central hollow where the mountain’s internal pressure is allowed to breathe.
+
+The rock is young and sharp. Fresh black surfaces shine beneath a skin of gray dust. Here and there, the walls are striped with red-brown mineral bloom, sulfur-yellow crust, and veins of a dull metallic blue. The city has not been built over the stone so much as hammered into it. Its foundations are wedges driven into cracks. Its streets are plates bolted across ledges. Its towers are frameworks of dark steel and ceramic, braced against walls that continue, very slightly, to move.
+
+There is no water. Not in pipes, not in gutters, not in the air. The city’s tanks hold compressed gases, powdered reagents, and dense slurries of ground mineral, but nothing that flows clear and cool. Condensation is unknown. Every surface is dry enough to draw skin from the fingertips. Machines are designed around this fact: bearings are sealed with graphite, channels are lined with glass, and the smallest hint of vapor is treated as a dangerous contamination.
+
+The air is thin and cold, though not empty. It carries the bitter smell of hot metal, stone dust, ozone, and the faint medicinal odor of industrial gases. Breathing is possible in the lower streets, difficult in the upper ones, and forbidden near the summit vents. The city compensates with a network of pressure engines. These squat, armored machines inhale the mountain’s almost-air and force it through the inhabited levels. Their housings pulse at irregular intervals, as though the whole settlement has a mechanical lung that cannot settle into a rhythm.
+
+Light is scarce. Most illumination comes from shaded electrical arcs behind blue glass, from amber indicator lamps, and from the white internal glow of cutting tools. The upper gantries disappear into darkness a few meters away. Far above, narrow cracks in the cavern roof admit a dim, colorless radiance from the outside world—not sunlight exactly, but the reflected glare of the dust sea surrounding the peak. It reveals silhouettes more than surfaces: rails, ladders, antennae, suspended cranes, and the constant slow movement of the city’s inhabitants.
+
+The inhabitants are not the only movement.
+
+The city is dense with fauna. Small, pale-bodied creatures nest in the warm cavities behind furnaces and transformers. They have many jointed legs, translucent armor, and dark sensory fans that close against the dust. They feed on mineral films, machine waste, and the colonies of simpler organisms that grow in the insulation of power lines. Larger animals cling to the cliff faces outside the settlement, entering through pressure locks in long, silent streams. They resemble a mixture of bats, beetles, and climbing machinery: folded limbs, hooked feet, flexible plates, and heat-sensitive organs that glow faintly when the creatures are excited.
+
+They are everywhere—in ventilation shafts, beneath bridge decking, inside abandoned conveyor housings. Workers step over them without surprise. Some species are domesticated, or at least tolerated. They clear dangerous deposits from the machinery and gather around electrical faults before the fault becomes visible. Others are hunted for their dense shell material. The city’s oldest factories have been designed around their habits, with narrow service corridors and warm vertical niches deliberately left between the walls.
+
+There is no vegetation. No green, no root, no soft canopy interrupting the mineral geometry. The nearest equivalent is a growth of crystalline mats that spreads across neglected metal, assembling itself from dust and electrical leakage. It is not quite alive, though it behaves with the stubbornness of life: branching toward current, sealing wounds, and retreating from heat. In the dim streets it appears as frost made of black glass.
+
+Industry is the city’s dominant form of weather.
+
+Stamping presses strike in sealed rooms. Cable spools turn. Ore is crushed, sorted, and fed into furnaces whose heat leaks through the walls in red lines. Rail carts move constantly along the central shafts, carrying quarried stone upward and manufactured components downward. Robotic cranes swing through the dark with slow, insectile precision. Sparks rise and vanish. Warning lamps flash in districts where the mountain has shifted.
+
+The settlement is turbulent, but rarely loud. The thin atmosphere and thick stone swallow ordinary noise. Most sounds arrive as pressure against the feet: a distant press, a lift descending, a fault opening somewhere beneath the floor. There are long periods in which the city seems almost silent, filled only by the dry ticking of cooling metal and the faint skitter of fauna inside the walls. Then a whole section will alter its state at once. A valve opens. A gantry retracts. A vent exhales. Hundreds of small animals flee through the foundations. The lights dim, the bridges tremble, and a fresh fracture travels across the rock with a sound too low to be called a crack.
+
+The mountain is still rising.
+
+This is the governing fact of the place. Nothing built here is permanent, and no map remains accurate for long. Stairways become walls. Shafts narrow. Floors tilt by fractions of a degree. New mineral surfaces appear overnight, sharp enough to cut through gloves. The city has learned not to resist the motion directly. Its buildings are jointed, its tracks are flexible, and its streets are hung from adjustable anchors. Entire neighborhoods can be detached and shifted when the stone beneath them begins to swell.
+
+At the highest level, beyond the last factories, there is a narrow observation platform cut into the summit. From it, the hidden city can be seen all at once: a dense knot of dim lights, vertical streets, black machinery, and moving animals embedded in the mountain’s interior. Above it is the summit’s narrow throat, a blade-shaped opening onto the enormous altitude. Below it are kilometers of dark shafts, pressure chambers, furnaces, abandoned works, and the slow incandescent stress of the world.
+
+The city is small enough to conceal itself and crowded enough to feel alive. It is not a settlement placed upon the mountain. It is a temporary organ inside it—industrial, nervous, dry, and constantly rearranging itself as the young peak continues to force its way upward.

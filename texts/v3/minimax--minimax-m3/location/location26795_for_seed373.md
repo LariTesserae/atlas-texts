@@ -1,0 +1,29 @@
+The sound arrives before anything else.
+
+A many-voiced howling that doesn't crest and break the way surf does but runs on, an unbroken cord that has been vibrating in this one place so long it has forgotten the possibility of silence. You can feel it in the soft tissue behind the eyes. You can feel it in the teeth. The cold arrives a half-second later, and after that the rest of it — the bowl, the slopes, the moving sky — but the sound is what you will remember.
+
+The cold is dry in a way that takes some learning. No mineral taste, no iron, no dust the tongue can identify. Whatever is in this air it is not water, and the lungs notice before the mind does — a friction, a thinness, a sense of breathing something less than the usual volume of something.
+
+The bowl is small enough to read as architecture. Two hundred meters across at the open lip, narrowing toward the floor. The flanks are three or four leaning peaks whose inside surfaces look wet from a distance and aren't; they carry a faint subsurface shine, the look of stone that has been persuaded to remember being stone. The light enters normally — pale, high-altitude, unobstructed — and is treated normally by what it meets, but because what it meets is never still, the light is never still either. Glints travel. Shadows cross the rock face the way clouds cross a field. The whole concavity twinkles faintly, as if breathing.
+
+And then the vegetation.
+
+*Lush* is the right word, even though the word keeps failing on the way there. Lush in the way a lung is lush, or a feather: not dense with water but dense with surface. Hair-fine threads, cobweb veils, capillary structures the thickness of spider-silk that run from rock to rock in long sagging catenaries and rise into the air and disappear into nothing. The colors are pale — bone white, lichen green, a violet that only commits under certain angles. Much of it isn't rooted. Much of it hangs, drifts, is suspended by the wind itself the way kelp is suspended by tide. It shudders, aligns, knots, breaks, re-knots. The wind treats it as a slow liquid; the growth treats the wind as soil.
+
+The wind, you understand, is doing more than moving them. The wind is the engine of the place.
+
+There are structures. You don't see them at first. A vertical pylon at the bowl's edge, ten meters, stippled with the same growth as everything else, no longer emitting anything visible. A horizontal bar strung between two rocks by no visible means, vibrating at a frequency that makes the air around it shimmer and adds a thin overtone to the roar. A dish half-buried in the slope, pointing nowhere in particular, its inner face a mosaic of something that might be corrosion and might be lichen and might be both. These are the remains — partial, settled, given over — of something that was once louder than the wind and is now part of the wind. They hum. They contribute. They have made their peace.
+
+The fauna.
+
+You see them when the wind permits. A sparrow is too large; a moth is closer. There are moths, or moth-things, translucent, with wings that are mostly air and a little membrane and a faint internal glow that pulses in time with nothing you can identify. They do not land often. They ride. They let the gusts carry them and make small corrections — a tilt, a flutter — and the bowl is full of them, hundreds, thousands, a slow snow of pale shapes turning and dimming and brightening as if breathing. They have a sound too, a thin high keening at the upper edge of hearing, and it layers into the roar without ever quite separating from it.
+
+There are other creatures. A flat disc that skims the rock face on a trailing thread. A long pale ribbon that unspools from a crevice, is taken by the wind, and returns hours later having looped the bowl. A small angular thing that walks the vibrating bar without noticing the vibration, feeding on the growth there. None of them are large. None of them cluster. The density of the bowl is almost nothing — vast air between presences — and yet the place feels inhabited, the way a planet feels inhabited, because the presences are everywhere at once and nowhere in particular.
+
+The turbulence is the central fact. The wind doesn't simply blow; it lurches. Every few minutes the direction shifts — not gradually but in a single breath, as if something vast is exhaling somewhere above or below the bowl — and with each shift the hanging growths re-orient, the moths redistribute in slow fountains, the sound changes pitch, the shadows jump. The bowl is in constant rearrangement. Nothing settles. Nothing accumulates. Whatever grows is taken before it can root. Whatever dies is lifted before it can decay. The whole concavity is a digestion. It is processing itself.
+
+And yet — this is the strangeness that lives underneath the strangeness — the bowl is in balance. Erosion is finished. The peaks have found their final lean. The growths and the wind have reached an unspoken agreement: the growths produce just enough drag to slow the wind at the edges; the wind breaks and lifts and redistributes just enough growth to keep it from accumulating. The fauna eat and are eaten at rates that don't change from year to year, or century to century, or whatever longer unit applies. Even the structures have given up on purpose and become weather.
+
+You stand, if you stand, on the slope. The wind takes your hair sideways. The cold takes the heat from your ears. The sound takes your ability to think in straight lines. Below you the bowl shudders and rearranges. Above you the sky is very blue and very indifferent. The moths brush past you and do not pause.
+
+You are, briefly, the only solid thing in a cathedral made of moving air.

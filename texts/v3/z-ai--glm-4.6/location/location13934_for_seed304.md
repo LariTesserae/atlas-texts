@@ -1,0 +1,21 @@
+The air here tastes of wet iron and old clay. It is a cold, damp taste, the kind that settles on the back of the tongue and refuses to leave.
+
+You are standing in a hollow, a geological bruise in the earth that feels less like a valley and more like a wound that hasn't yet decided how to heal. The scale is intimate, claustrophobicly so; the walls of the rift rise up around you, jagged and raw, blocking the horizon. It is a room-sized landscape, a jar of broken stone left out in the chill rain.
+
+Everything is slick. The environmental parameter for water sits at a persistent 2.0, manifesting not as a lake or river, but as a weeping. The fractured grey stone of the cliffs sweats continuously. Groundwater, trapped just beneath the surface of the scavenged soil, oozes out of every crevice, trickling down the sheer faces and dripping endlessly onto the clutter below.
+
+The ground is uneven, recently shattered. This is a young landscape, erosion marked at 1.2, meaning the world here hasn't had time to smooth its edges. The rocks are sharp, shaley, and unstable. They shift underfoot with a wet, grinding sound. It feels as if the ground dropped out of the sky only a generation ago and the vegetation hasn't had time to reclaim it. True to the 0.7 rating, plant life is sparse—scraggly, stubborn clumps of lichen and stunted, thorny bushes that claw out of the mud, too bitter even for the grazing animals that are notably absent.
+
+But where nature has failed to fill the space, humanity has挤挤了. The density parameter of 2.7 is the first thing that overwhelms the senses. This is a packed, urban environment, a hamlet crushed into a canyon. There is no empty ground here. Every flat-ish surface, every precarious ledge on the shattered scree, every stable boulder has been built upon.
+
+It is a primitive town, tech level 0.8, constructed of rough-hewn timber and drystack stone gathered from the surrounding rubble. The buildings look like they are gripping the earth, knuckles white with effort. They are piled atop one another, a chaotic verticality of shanties and hovels. Walkways are not laid out; they are carved from the gaps, narrow alleys that might be wide enough for two people, or might require a sideways shuffle, slick with moss and mildew.
+
+The light is normal, a flat, wintry grey that filters down from the rim above, but it struggles to penetrate the density of the construction. The atmosphere is heavy, condensing on the thatched roofs and dripping onto the packed mud streets.
+
+It is quiet—sound level 1.1. The dampness absorbs the noise. There are no birds singing, no chatter of market crowds. The silence is thick and wet. If you listen closely, you hear the dynamic processes of the place (1.7): the constant *drip-drip-drip* of water hitting stone, the groan of timber settling as the underlying rocks shift in the young erosion, and the rhythmic *scrape-scrape* of a resident sharpening a tool against a whetstone.
+
+There is a weirdness here, a 1.4 level of unease that permeates the claustrophobia. It is not magical or alien, but structural. The town is built on unstable ground, a dense, organized settlement perched on geological violence. The buildings show signs of constant repair—fresh patches of wattle and daub, recent mud bricks drying in the damp air. The inhabitants seem to live in a pact with the landslide, rebuilding what the wet earth tears down on a weekly basis.
+
+Water is the ruler of this place. It flows through the town in open gutters hacked into the stone floor, milky with chalk and silt. In the lower depressions, where the ground has sunk the most, the water has pooled, forming permanent, stagnant marshes that reflect the jagged grey sky. Wooden pilings, driven deep into the mud, support the homes that hover over these dark micro-lakes.
+
+It is a place that feels like it is holding its breath. The cool air seeps into your bones. The press of the buildings, the sharpness of the newly broken rock, and the incessant weeping of the stone create a landscape that is simultaneously fragile and enduring—a hard, wet, stubborn fist of humanity raised against a damp, indifferent earth.

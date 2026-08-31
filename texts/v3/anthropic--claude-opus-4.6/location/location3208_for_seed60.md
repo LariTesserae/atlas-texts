@@ -1,0 +1,53 @@
+# The Loom-Garden of Kettner's Hollow
+
+---
+
+You come upon it through a seam in the vegetation — a place where two walls of living green don't quite meet, and the warm air presses through the gap carrying a smell like crushed stems and machine oil and something sweeter underneath, something fermenting.
+
+The hollow is perhaps the size of a small warehouse floor. Sixty paces across at its widest. You could know every corner of it in an afternoon, but you wouldn't understand it in a season.
+
+---
+
+The plants have *won* here. That is the first thing. Not in the way of a garden or a jungle, where plants fill space by growing into it — but in the way of a body, where every cell has a role and the whole thing breathes as one mass. The ground is not ground. It is root-mat, six inches thick at its thinnest, a centuries-old braid of pale woody fibers that gives slightly under your weight like a sponge over a firm mattress. You can feel the moisture under your feet — water doesn't pool here so much as *reside*, soaked into every layer of the plant-substrate, wicking upward through capillary channels in the roots, exhaled through the broad leaves overhead as a permanent warm humidity that beads on any metal surface within minutes.
+
+The canopy is low. Absurdly low in places — eight feet, ten feet — and it is *complete*. Not a single unobstructed line to the sky. The light that enters is green-gold and diffused, as though passing through a stained window made of chlorophyll. It shifts slowly as the leaves above adjust — and they do adjust, you realize, though you can never quite catch them at it. The illumination is adequate, even comfortable, a perpetual overcast noon translated through living glass. But the quality of it makes distances uncertain. Depth flattens. Edges soften. You gauge where things are by sound and smell as much as sight.
+
+There are no individual trees, exactly. Or rather, it is difficult to say where one organism ends and another begins. The vertical structures — trunks, stems, the woody scaffold that holds the canopy — emerge from the root-mat like limbs from a body. Some are thick as your thigh, bark-skinned, clearly old. Others are green whips no wider than a finger, shoots from this season or the last. They are grafted to each other in places by natural inosculation, pressed together so long that their bark merged and their vascular systems wed. In other places, they are connected by something else — by the growth itself having been *trained*.
+
+---
+
+This is where the strangeness begins.
+
+Woven into the living scaffold — no, woven *from* it — are structures. Frames. Looms.
+
+The largest one stands near the center of the hollow, and it takes time to separate it from the vegetation because it is *made of* vegetation. Living horizontal beams, still leafing, held under tension by vertical stems that have been bent and coaxed over years into rigid arches. Threaded through these frames are fibers — some clearly plant-derived, long pale strips of inner bark or dried vine, and some that are synthetic: filaments of copper wire, dark rubber-coated cabling, thin steel threads that have begun to oxidize into the color of dried blood. The weave is not decorative. It is structural. Tight, dense, purposeful. Where the plant fibers pass through the frame, some of them have *continued growing*, sending out tiny roots that grip the adjacent threads, slowly incorporating the metal and rubber into living tissue.
+
+The loom is not automated in any visible way, but beside it, half-swallowed by a cascade of broad-leafed vine, sits an engine. A small diesel, heavily modified, its original housing replaced by a shell of laminated bark and resin that has hardened to the density of fiberglass. A rubber belt — cracked, greenish with algae — connects the engine's output shaft to a series of wooden pulleys that disappear into the canopy. The engine is not running. It smells like it ran recently. The block is warm to the touch, warmer than the air. Oil has dripped from its base into the root-mat below, and the roots there are darker, thicker, strangely iridescent, as though the plants have been metabolizing the petroleum and finding uses for it.
+
+There are other engines. You count three more as you move through the hollow, each one nestled into its own alcove of growth, each one slightly different — one is clearly electrical, fed by a cable that snakes upward into the canopy toward what might be a solar collector, if the leaves would ever part enough to let it work. Another is older, hand-cranked, its gears exposed and meshing with a vertical shaft of living wood that has been shaped, somehow, into a functional cam. The engineering is not elegant. It is *sufficient*. It has the quality of solutions arrived at by long iteration — try this, wait a season, try again.
+
+A sound fills the hollow: a low, rhythmic creaking. Not from the engines. From the plants themselves. The tensioned frames flex in some imperceptible breeze or thermal current, and the fibers threaded through them vibrate, and the living wood groans against its own growth. Under this, a dense layered hum — the accumulated resonance of thousands of taut threads of different lengths and materials, each one contributing a note too quiet to hear alone but adding up to a chord that lives in your sternum more than your ears. It is the sound of the place working. Growing. Weaving. The loom-garden does not stop when the engines stop. It just slows down.
+
+---
+
+Who built this? Someone did. The evidence is scattered but unmistakable.
+
+A stool, carved from a single root-bole, sits before the largest loom. It has been sat on so many times that its surface is polished to a dark shine. A pair of shears hangs from a living hook — a branch that was trained into a curve and then, apparently, *asked to stop growing*, because its tip is calloused and dormant while everything around it pushes on. There are shelves, or what function as shelves: horizontal branches trained flat, holding coils of wire, jars of dark oil, bundles of stripped fiber. A tin cup. A book with no cover, its pages swollen with moisture, its text illegible, its margins filled with drawings of knots.
+
+Against the far wall of the hollow — the wall being a solid mass of interlocked stems, a living palisade — there is a dwelling. A hammock slung between two load-bearing trunks, enclosed by a curtain of woven material that is half textile and half living leaf. Below it, a metal box that might have been an ammunition crate in another life, now serving as a cabinet, its lid propped open to reveal tools: pliers, a small wrench, wire cutters with rubber grips, a hand drill. Everything is faintly damp. Everything has a patina. Nothing is new, but nothing is abandoned. The state is *maintained*, the way a body maintains itself — continuously, without drama.
+
+One corner of the hollow holds what can only be called a nursery. Young shoots, no more than a few inches tall, emerge from the root-mat in careful rows. Each one has been tagged with a strip of copper wire twisted into a symbol you don't recognize. Some of the shoots are threaded, even at this young age, through tiny frames made of bent wire — training them from their first days of growth to become structural, to become part of the architecture. This is husbandry of an alien patience. Whoever tends this place thinks in decades.
+
+---
+
+Animals are almost absent. The density of the plant-mass leaves little room for anything that moves by muscle. You see, once, a pale spider the size of a rice grain, suspended between two fibers on the smallest loom, and you cannot tell if it is weaving or being woven. Near the electrical engine, a moth rests on a leaf, wings folded, its body so still it might be a growth. That is all. No birds — the canopy is too tight. No rodents — the root-mat offers nothing to burrow into. The ecosystem here is vegetal, fungal, microbial. You notice mushrooms in places where the moisture concentrates — small, dark-capped, growing in lines that follow the paths of buried cables. The air is thick with spores. You are breathing the place into your lungs with every breath.
+
+The water makes itself known not as streams or pools but as *presence*. The root-mat squelches if you stand in one place too long. Condensation drips from the metal parts of the engines, from the wire threads in the looms, collecting in the cupped hollows of broad leaves and then tipping, slowly, back into the mat. After rain — and it rained recently, you can tell from the way the upper canopy is still shedding rivulets through its layers — the whole hollow becomes a system of slow vertical drainage, water passing through leaf after leaf like a body passing food through its intestines, each layer extracting what it needs. The air is so humid that your skin prickles, not with heat but with the sensation of being *inside* something alive and wet and breathing.
+
+---
+
+The strangeness is not in any one element. It is in the relationship between them. The plants are not decorated with machines. The machines are not hidden in the plants. They are *becoming each other*. The copper wire in the looms is slowly being encased in bark. The rubber belts are being colonized by rootlets that will, in time, replace them — will they function as belts when they do? The cam-shaped trunk beside the hand-cranked engine: did someone carve it, or did the tree grow into that form because the engine needed it to, because the vibrations of the crank shaped the wood over years of operation the way a river shapes stone? The book with the knot-drawings — are those instructions for the weaver, or observations of what the plants do on their own?
+
+You begin to suspect that the question of who is tending whom has no clean answer here.
+
+The slow creaking continues. The hum of the threads continues. A drop of condensation falls from a copper wire onto a leaf, runs to its tip, drops to the next leaf, and from there into the dark between roots. Somewhere in the canopy, a fiber tightens by a fraction of a millimeter as the stem it's tied to grows, imperceptibly, toward the light it can't quite reach. The loom weaves. The garden grows. The distinction between these two activities erodes a little more each day, has been eroding for longer than you can estimate, will continue eroding after you leave through the seam in the green wall, back out into a world where things are only what they are.

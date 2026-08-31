@@ -1,0 +1,25 @@
+# The Singing Peaks of Veth-Korlann
+
+High above the world's skin, where the air grows thin and the sky bleeds into deeper blues, rise the crystal spires of Veth-Korlann—a mountain range born not from tectonic collision but from something far stranger. These peaks thrust skyward like frozen lightning, their surfaces composed entirely of a translucent, singing mineral that resonates with frequencies beyond normal hearing.
+
+The mountains themselves are young, impossibly young. Geological surveys would place them at perhaps a thousand years old, yet they tower fifteen thousand feet into the atmosphere. They grew not through uplift but through *crystallization*—emerging from reality's substrate like salt from supersaturated brine. Their faces are sharp as broken glass, catching and fracturing sunlight into prismatic cascades that paint the sparse air with shifting rainbows.
+
+Water clings to these peaks in ways that defy explanation. Though no rivers flow here and no lakes pool in valleys, moisture beads constantly on the crystal faces, running in rivulets that seem to flow upward as often as down. The air itself weeps—not with rain, but with a perpetual mist that condenses from nowhere, creating an atmosphere so saturated you can taste metal and ozone on your tongue. This water has properties: it hums faintly when it moves, and where it pools in the rare flat spaces between spires, it forms perfect spheres that hover inches above the crystal ground.
+
+No vegetation grows here. The peaks are sterile, yet not lifeless—they *sing*. The crystal formations act as vast instruments, each mountain a different note in an ensemble that spans octaves no human ear can fully perceive. Wind through the needle-sharp formations creates harmonics that make the bones ache with longing. During storms, the entire range becomes an organ of impossible complexity, its music audible for hundreds of miles.
+
+The scale overwhelms. Individual peaks stretch beyond sight, and the range itself continues past every horizon, a continental spine of singing stone. Weather systems spawn and die in the spaces between the tallest spires. Clouds form at different altitudes between the mountains, creating layered atmospheres—some thick with that strange, humming moisture, others dry and crackling with static electricity that leaps between crystal points in great blue arcs.
+
+In this vast emptiness, life appears rarely and strangely. Creatures exist here, but they are few and far between—things that might once have been birds, now transformed into living prisms that cast no shadows. They move through the air not by flying but by *refracting* through space, appearing to bend around the visible spectrum before materializing elsewhere entirely. Their cries add discordant notes to the mountains' song.
+
+Sometimes, wedged in crevices or balanced on impossible ledges, one finds artifacts: simple tools carved from the same singing crystal, shaped by hands unknown. A knife that cuts by vibration rather than sharpness. A bowl that fills with that floating water when the moon is dark. These implements suggest intelligence, but no makers are ever seen.
+
+The light here is fierce and strange. The sun seems closer than it should, its rays concentrated and purified by passage through the crystal atmosphere. Everything gleams with inner fire—the peaks themselves glow softly at dawn and dusk with stored solar energy, creating a landscape that seems lit from within. At night, the mountains continue to sing and shine, drawing power from stellar radiation and the planet's magnetic field.
+
+Reality grows thin in places where the largest spires pierce highest into the atmosphere. Here, the physical laws that govern the rest of the world begin to fray. Gravity occasionally reverses itself. Time moves in eddies and currents. The boundary between thought and substance blurs—visitors report seeing their own memories crystallized into temporary formations that sing their childhood lullabies before dissolving into prismatic dust.
+
+The constant music creates its own weather patterns. Sound itself becomes a force of erosion, wearing the crystal into ever-more complex forms while simultaneously growing new formations through harmonic resonance. The peaks reshape themselves according to acoustic principles, becoming living instruments that compose themselves into new configurations with each passing season.
+
+In the spaces between the singing spires, silence becomes a tangible presence—not absence of sound but its opposite, areas where the crystal's resonance has created acoustic shadows. These quiet zones feel hollow, as if reality has been scooped away, leaving only the most essential physics behind.
+
+The peaks continue beyond sight in every direction, their songs blending into a symphony vast enough to have its own gravitational pull on consciousness itself. Here, at the intersection of the possible and impossible, the mountains of Veth-Korlann sing their eternal song to skies that listen and respond with weather made of light and longing.

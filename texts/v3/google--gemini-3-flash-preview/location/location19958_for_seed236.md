@@ -1,0 +1,15 @@
+The land is a cluster of high-altitude shards, a series of vertical serrations thrusting upward into a thin, golden atmosphere. These are not weathered peaks but "young" stone—sharp, obsidian-black needles with edges that have not yet been blunted by wind or rain. The elevation is dizzying; the air is warm and pressured, shimmering with the heat of a close sun, yet there is a profound lack of moisture. There are no clouds, no mist, and no liquid pools. The chemistry of life here is dry, based on silicate resins and waxy secretions.
+
+This is a hamlet-sized world, a self-contained "grove" of mountain-spires that feels as intimate as a cathedral and as dense as a marketplace.
+
+Though there is no "tech," the landscape is profoundly "urban." The black vertical rocks have been colonized and shaped by a biological architecture so organized it mimics a city. Thick, calcified bridges of woven amber-colored vines span the gaps between the needles, creating a multi-layered grid of transit. The "vegetation" consists of rigid, succulent-like growths that do not wilt. They are structured like coral, with deep, geometric cells that trap the ambient warmth. These plants grow in tight, interlocking patterns, forming living walls and roofed plazas that follow a complex, innate urban planning.
+
+The silence is absolute, yet the density of presence is overwhelming. 
+
+In the absence of water, life moves with a glacial, patient economy. The "fauna" are myriad but quiet—shimmering, beetle-like organisms the size of a hand, with shells that reflect the normal, steady light of the high noon. They cling to the vertical surfaces in their thousands, vibrating so minutely that they produce a hum just below the threshold of human hearing. They are the builders, slowly extruding the resin that hardens into the city’s infrastructure. They do not scurry; they migrate across a bridge over the course of days, a slow-motion tide of iridescent carapaces.
+
+There are also larger, translucent gliders—beasts made of parchment-thin leather and hollow bone—that hang suspended in the warm updrafts between the needles. They do not flap their wings; they simply pivot, soaking up the light, tethered to the peaks by long, silk-like filaments.
+
+The ecology is a closed loop of dry minerals and solar energy. Because erosion is so low, every mark made by a living thing is permanent. A path worn into a resin bridge by the passage of insects will remain for centuries. The world feels new—the stone is jagged, the colors are vivid—yet the pace of life suggests an ancient, unhurried stability. 
+
+Rule of this world: To move quickly is to be invisible to its residents. Everything here operates on the frequency of a long, warm afternoon that never ends. The "urban" density of the plant-walls provides a sense of enclosure, a series of layered rooms open to the sky, where the only sound is the occasional, brittle *clack* of a cooling rock or the soundless shift of a thousand insects repositioning themselves to follow the sun. It is a crowded, busy civilization entirely devoid of noise, moisture, or hurry.

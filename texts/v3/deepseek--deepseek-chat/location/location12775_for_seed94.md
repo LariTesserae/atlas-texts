@@ -1,0 +1,11 @@
+**The High Fen of Everweep**  
+
+A vast plateau stretches beneath a sky of perpetual mist, where the air is thick with the memory of rain. This is the High Fen—an elevated marshland that clings to the peaks of an ancient, eroded mountain range, its slopes long since softened into undulating hummocks and peat-filled hollows. The water here does not rush, but seeps, weeping from the moss-crusted stone, pooling in black mirrors between the roots of towering sedge and gnarled, stunted willows. The ground is a living sponge, yielding underfoot with a slow, wet sigh.  
+
+The vegetation is dense, almost claustrophobic—a tangle of reeds, lichen-draped shrubs, and spongy moss that carpets every surface. The trees, where they grow, are twisted and low, their branches heavy with epiphytes that drip moisture even when the mist lifts. The air is cool, never warm, but never biting—just a constant, damp chill that settles into the bones of anything that lingers too long.  
+
+Despite the silence, the fen is far from still. The water moves in slow, unseen currents, draining through hidden channels, while the peat shifts imperceptibly, exhaling bubbles of ancient gas. The fauna are plentiful but subdued—great, shaggy-coated herbivores move like shadows through the reeds, their hooves sinking deep into the mire, while silent, long-limbed predators stalk them from the shallows. Strange, bioluminescent fungi pulse faintly in the dim light, their glow diffused by the ever-present mist.  
+
+And yet, there is something else here—something not quite natural. The water carries a faint metallic tang, and in the distance, the low, rhythmic thrum of machinery echoes across the plateau. Somewhere beneath the peat, buried deep in the bones of the old mountains, engines turn in the dark, their purpose long forgotten. The fen has reclaimed them, wrapping rusted pipes in sphagnum, swallowing smokestacks whole. The land does not reject them; it absorbs them, as it absorbs all things, patient and inexorable.  
+
+This is a place of quiet, but not peace. A place where the world is always breathing, always shifting, always weeping. A place where the past sinks, but never quite disappears.

@@ -1,0 +1,65 @@
+# The Forebay
+
+You descend into manufactured water.
+
+Not the ocean — nothing this vast has ever been called an ocean, though it holds more water than any sea that ever bore a name. The Forebay is a reservoir the size of a minor continent, sunk below the surface of a constructed world. Its floor is poured. Its walls are poured. The water itself may have been poured, once, in a time that predates memory. Everything here is made. There is no natural substrate beneath you, no ancient seabed, no continental shelf. Only more construction, descending, layer below layer, until the architecture becomes too deep and too dark to meaningfully distinguish from geology.
+
+The light comes from below.
+
+Not from the floor exactly — the floor is thousands of meters down and unlit — but from a gridded network of luminous conduits strung at mid-depth, industrial fixtures sealed in waterproof housings, running in long straight lines across the expanse like the streets of a city laid on its side. They cast a flat, even light upward and outward, and the water catches it and scatters it into a pale blue-green haze that thins with distance until, far away in every direction, the light simply stops. It does not reach the walls. The Forebay is too large for its own lighting. Out at the edges, in the unlit volume, there is only the sense of more water, more architecture, more space.
+
+You float in the upper third of the water column, and around you is almost nothing.
+
+---
+
+Density is the strangest thing here. The Forebay is so large that its interior has weather — currents that form and dissipate over days, thermal gradients that shift with the processing cycles down below, slow rotating gyres that move sediment and heat and organic matter in vast lazy spirals. But for all that motion, the space is *empty* in a way that feels deliberate. You can swim for twenty minutes without encountering a structure. The nearest wall — if the nearest wall can be called a wall and not simply the place where the water ends and something else begins — is a hundred kilometers to the east. Between you and it: water, light, the occasional passing shape.
+
+This emptiness is by design. The Forebay is a cooling reservoir, or was, or still is — the purpose has not changed even if the context around it has. Down on the floor, thousands of meters below, a grid of heat-exchange structures draws warmth from some process you cannot see and releases it into the water, and the water carries it upward in slow thermal plumes that break against the upper boundary and spread laterally, and this circulation is the breath of the place, its rhythm, its heartbeat. The machinery is old but functional. That is the way of things here: built to last, built to run, and never decommissioned.
+
+The sound is constant and enormous.
+
+Underwater, sound travels further and arrives cleaner than in air. What you hear is not muffled — it is *present*, arriving from every direction at once, conducted by the water itself. The deep throb of pumps on the floor. The hiss of water moving through exchange pipes. A low, almost subsonic hum that you feel in your chest before you hear it with your ears — the vibration of turbines, or generators, or something more fundamental that powers the whole structure from deeper still. Intermittent clanking, distant and metallic, echoes off structures you cannot see. There is a rhythm to it, a cyclical quality: every seventeen minutes, a particular pump kicks on with a grinding wheeze that propagates through the entire water column. You feel it arrive, pass through you, and move on. Seventeen minutes later, it comes again.
+
+Over that industrial bedrock, smaller sounds move. The click-and-whistle of things alive, communicating in the acoustic haze. The wet snap of something striking something else. The dull rush of a current passing through a grating. Sound fills the space the way light cannot — it reaches the walls, reflects, returns. The Forebay is an echo chamber of continental proportions, and every sound that enters it lingers for ten, fifteen, twenty seconds before fading.
+
+---
+
+The fauna are the surprise.
+
+You did not expect so much life in a place so engineered, so cold, so mechanical. But the Forebay is full of living things — not because anyone intended it, but because life, given a volume of water and a source of heat and a long enough timeline, will find a way. The reservoir has been here for long enough that an ecosystem has assembled itself from whatever found its way in: organisms that drifted through the intake pipes, larvae swept in from wherever the water came from originally, things that evolved in the dark of the lower levels and slowly migrated upward.
+
+They are not strange creatures. That is part of what makes them unsettling — they are recognizable, almost ordinary, as if someone had taken a conventional marine ecosystem and transplanted it into an industrial structure the size of a country. Fish, or things very much like fish, swim past in loose schools, their bodies streamlined and pale, adapted to the low light. They congregate near the warm updrafts from the heat exchangers below, where the water is a few degrees warmer and something — a film of microbial growth, a colonization of organic matter on the heated surfaces — provides a base for the food chain. Above them, larger shapes move: predators, dark-bodied and quick, circling the schools with a patience that suggests they have hunted here for many generations.
+
+The predators are the loudest. They produce a low barking call — two or three notes repeated in sequence — that carries across the water for kilometers. You hear them constantly, calls overlapping, establishing territory in an environment where territory is defined not by geography but by thermal gradient and proximity to the food sources below. When one of them kills, the sound changes: a rapid stuttering, excited, and then other predators converge, drawn by the acoustic signal, and the water around the kill site churns with activity for minutes before dispersing.
+
+There are other things. Soft-bodied organisms — gelatinous, translucent — drift in the slow currents, their bodies pulsing with a rhythm that seems unrelated to anything external. They are the most numerous; at certain depths, they fill the water column in loose, drifting clouds, their bodies catching the light from the conduits and refracting it into brief, wandering prisms. They do not seem to mind the machinery. They settle on the heated pipes and flourish there, building up thick, pale layers that the maintenance systems — automated, indifferent, still running — periodically scrape clean. When the scrapers activate, the colonies break apart in clouds of fragments, and the fish come to feed, and the predators come to feed on the fish, and the cycle tightens for a few hours before settling back into its usual rhythm.
+
+Nothing here is weird. Nothing here is alien. That is the strangest thing about the Forebay — it is, in its way, perfectly ordinary. A cooling reservoir, built to serve a process no one remembers, populated by a community of organisms that have adapted to its conditions as organisms do. The machinery runs. The lights stay on. The pumps cycle. The fish swim. The predators call. The gelatinous things drift. All of it — every structure, every creature, every sound — operates according to rules that are comprehensible, mechanical, unsentimental. The Forebay is not mysterious. It is simply *large*, and old, and continuing.
+
+---
+
+The vegetation is sparse because there is almost no substrate for it. The constructed surfaces — the floor, the walls, the pipes, the fixtures — are smooth and resistant. A few microbial films persist where heat and surface texture conspire to permit them, and where they do, a pale, threadlike growth takes hold, something between an algae and a moss, clinging to the grouted seams between panels of manufactured substrate. It does not spread far. It does not need to. It exists in patches, in margins, in the places where the system cannot quite reach to clean itself, and it persists the way everything here persists: quietly, mechanically, without spectacle.
+
+The water is cool. Not cold — not the near-freezing of the deep ocean — but cool, fourteen or fifteen degrees, the kind of temperature that slowly draws heat from your body if you linger too long. The warmth comes only from below, from the heat exchangers, and if you descend toward the floor you pass through thermal layers: cool water above, slightly warmer water below, and near the bottom, in the plumes directly above the exchange structures, water that is almost warm, almost comfortable, almost like bathwater. The fauna know these zones. The fish move between them with a kind of learned intention, seeking warmth after feeding, seeking coolness after exertion. The predators tend to hunt at the boundaries, where the temperatures mix and the currents are unpredictable.
+
+The floor itself, when you descend far enough to see it, is the youngest feature of the Forebay. This is counterintuitive — the floor is the foundation, the first thing built, the thing everything else stands on. But the heat-exchange cycle is not gentle. The constant pumping of warm water through cold pipes, the thermal expansion and contraction, the chemical interactions between the processed water and the manufactured substrate — all of this erodes and reforms the floor in slow, continuous cycles. Sections of it are newly laid, fresh, sharp-edged, poured by automated systems that detect stress fractures and fill them before they propagate. The result is a patchwork: ancient substrate, dark and worn smooth by decades of water flow, alongside fresh pours, pale and geometric, their edges still crisp, their surfaces still carrying the texture of the molds they were cast in.
+
+The floor is the only place where the youth of the system is visible. Everywhere else, the Forebay shows its age — in the patina on the light conduits, in the accumulated organic film on the pipe housings, in the worn grooves where currents have polished the structures they flow past. But the floor is always being renewed. The floor is always new.
+
+---
+
+You surface — or rather, you ascend to the upper boundary, where the water meets the constructed ceiling of the reservoir. There is no air here. The ceiling is a vaulted expanse of manufactured substrate, sealed and impermeable, and the water presses against it in a flat, featureless meniscus that stretches to the horizon in every direction. Up close, you can see the seams between panels, the joints, the faint grid pattern of its construction. Condensation beads on it in places, or perhaps it is the other way around — perhaps the ceiling weeps, slowly, imperceptibly, adding water back to the reservoir from some source above. You cannot tell. You cannot see what is above.
+
+What you can see, from this height, is the scale.
+
+The light conduits stretch away below you in their grid, receding into the haze until they are thin as threads and then thinner, and then gone. The thermal plumes rise from the floor like slow-motion smoke, columns of slightly-warmer water ascending hundreds of meters before dispersing. The schools of fish, seen from above, are dark shapes moving in coordinated patterns across the light grid, their shadows falling on the floor far below like clouds passing over a landscape. The predators circle beneath them, and their calls — those two-note barks — arrive at the ceiling and reflect back down, and the echo mingles with the next call, and the next, until the sound is a continuous low chanting, a liturgy performed by animals that do not know they are singing.
+
+The Forebay is vast enough that you cannot hold it in your mind all at once. You can comprehend the near — the water around you, the ceiling above, the light below — but the far is always elsewhere, always beyond the edge of visibility, always implied by the sound that arrives from distances you cannot see. You know, abstractly, that the walls are out there. You know that the floor is below. But the experience of the place is of *between*: between the light and the ceiling, between the warm and the cool, between the call and its echo, between one structure and the next, across kilometers of water that contain nothing but the water itself and the things that live in it.
+
+This is the Forebay. A reservoir without a shore. A sea without a sky. A construction so large it has become, for everything that lives in it, simply *the world* — the totality of existence, the given, the place where all life begins and ends and the sound never stops.
+
+The pumps cycle. The lights hold steady. The water moves. The things that live here continue to live.
+
+Seventeen minutes. The pump kicks on again. The sound passes through you and moves on.
+
+The Forebay continues.

@@ -1,0 +1,21 @@
+# The Frost Terrarium
+
+A clear glass sphere, suspended in the center of a vast machine chamber, houses a miniature world—a hidden pocket of extraordinary complexity. This is a frost terrarium, an artificially maintained ecosystem inside an abandoned industrial cooling facility. The sphere, barely thirty feet in diameter, contrasts with the cavernous darkness surrounding it, where immense machinery stretches into shadows, their outlines only hinted at by sparse emergency lighting.
+
+The terrarium's interior is illuminated by an artificial day-night cycle, currently in its dusk phase. Tiny crystalline lights embedded in the glass ceiling cast a bluish glow over the miniature landscape. Within this small universe, artificial mountains rise dramatically—jagged, newly formed, their peaks dusted with perpetual frost. These are not natural formations but meticulously engineered structures of synthetic materials, designed to mimic geological processes in accelerated time.
+
+Between these mountains run channels where condensation collects, forming rivulets and small pools. The water doesn't flow naturally but is pumped through invisible systems beneath the terrarium floor, appearing to spring from nowhere at programmed intervals. The moisture level is precisely controlled—never quite dry, never fully saturated—creating a constant state of productive dampness.
+
+Despite the cold (the temperature hovers just above freezing), vegetation thrives everywhere. Modified plants with blue-green leaves climb across the artificial rock faces, clinging to impossible angles. They're bio-engineered species that convert minimal light into maximum growth, their cellular structures visible through semi-transparent leaves. In places, the growth is so dense it forms canopies over the miniature valleys, dripping with collected condensation.
+
+The most striking element is the noise. The glass sphere, meant to be soundproof, has developed hairline fractures that let in the mechanical roar from outside. Inside, this cacophony is amplified and distorted, creating a constant deafening backdrop. The massive cooling engines that once served some unknown industrial purpose continue to run automatically, though their original operators are long gone. Their thunder vibrates through the terrarium's foundation, causing tiny avalanches on the miniature mountains.
+
+Within this bizarre ecosystem lives an unexpected abundance of tiny creatures. Engineered insects with luminescent exoskeletons move in coordinated patterns, maintaining the plants and water systems. Small reptilian animals, no bigger than a finger, with multiple pairs of legs and metallic scales, hunt among the foliage. Most strange are the flying creatures—part bat, part dragonfly—that navigate the sphere's upper atmosphere, riding air currents created by carefully placed vents.
+
+Everything here is constructed—not a single element exists naturally. The soil is a synthetic compound that changes properties to suit different plant species. The rocks are artificially aged composites. Even the air is a carefully balanced mixture, slightly thinner than standard atmosphere to simulate the high elevation the terrarium was designed to replicate.
+
+Time moves strangely inside. Processes that would take years in nature occur over weeks—growth, decay, even evolution—all accelerated by the systems maintaining this place. Yet there's a certain slowness too; the larger cycles of the terrarium operate on precisely timed intervals, gradual and methodical.
+
+The glass sphere rotates imperceptibly, completing one full turn every twenty-four hours, creating artificial directional light. This rotation causes the condensation patterns to shift, forcing the ecosystem to constantly adapt to changing moisture conditions.
+
+No human has maintained this place for years, perhaps decades, yet it persists—a self-sustaining miracle of engineering, a pocket universe forgotten within the heart of a deafening industrial complex, evolving according to rules no one remembers setting.

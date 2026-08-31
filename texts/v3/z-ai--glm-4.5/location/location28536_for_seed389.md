@@ -1,0 +1,25 @@
+The air here tastes of iron and old dust, dry enough to crack the lips, yet it carries a heavy, cloying thickness that suggests a distant ocean of humidity kept at bay by the sheer altitude. You are standing on the spine of the world, or perhaps the scaffolding used to build it.
+
+This is the High Forge, the Extruded Range.
+
+The elevation is crushing. Below, the cloud layer is a ragged, thin sheet of dirty wool, far enough away that you feel no kinship with the earth beneath it. Here, the sky is a harsh, saturated indigo, the sunlight "normal" in intensity but stripped of warmth by the thinning atmosphere, even as the ambient radiates a sweltering, suffocating heat (2.7/3). It is a dry heat that cooks the rocks, making the air shimmer above the ground like a distortion lens.
+
+The geology is raw, fetal, and unsettling. The erosion score is near non-existent (0.5/3); nothing here has had the time to wear down, to soften, or to become sand. The mountains do not look carved by wind or water. They look extruded. Great spires of basalt and obsidian thrust upward in jagged, violent columns, their edges as sharp as glass shards. The landscape is caught in the act of becoming—it is an embryonic range frozen in the moment of birth. The ground underfoot is uneven, a chaotic jumble of cooling joints and fresh fractures, dark stone still smoking slightly in the crevices.
+
+Onto this raw, chaotic skeleton, a city has been grafted—or perhaps, it is a cancerous growth of the stone itself.
+
+This is an industrial hive (2.3/3 Built, 2.5/3 Tech), dense (2.4/3) and sprawling, yet the scale of it (2.2/3) makes you feel insect-like. It is an urban sprawl of iron and brick that clings to the extruded spires like lichen. The buildings are not placed; they are jammed into every available niche, tier upon tier of corrugated metal, rusted piping, and heavy brickwork. There are no streets, only narrow catwalks and spiraling staircases that bridge the impossible gaps between the stone towers.
+
+But the strangest rule of this world is the silence (0.9/3 Sound).
+
+For a place of such evident industry—pistons the size of houses, ventilation shafts coughing steam, gear assemblies grinding in the open air—it is unnervingly quiet. The sound is not absent, but it is muffled, swallowed by the density of the structures and the rarefied air. You don't hear the clang of a hammer; you feel a dull, rhythmic thrumming in the soles of your boots. The massive machinery operates in slow motion (0.6/3 Dynamic). Gears the size of windmills turn with a glacial, majestic lethargy, completing a single rotation over the course of an hour. It is a landscape of patience. Nothing happens quickly here. The production of… whatever is made here… is a geological process rather than a manufacturing one.
+
+Water is scarce but persistent (1.2/3 Water). There are no rivers, no rain. The moisture comes from the machines and the rock itself. Condensation sweats heavily from the cold metal intake pipes, dripping constantly onto the hot stones below, where it instantly flashes into steam. This creates a perpetual, localized fog in the lower levels of the city, a damp, clinging mist that smells of wet rust and ozone. The rare puddles that don't evaporate are thick, oily slurries, the only liquid relief in a mineral world.
+
+There is no green (0.1/3 Vegetation). The palette is strictly monochromatic: the blacks and greys of fresh basalt, the oranges and reds of oxidizing iron, the dull bronze of brass fittings. Biology has not found a purchase here. The only "life" that clings to the sides of the cooling towers are mineral accretions—crystal growths that look suspiciously like coral, formed from the chemical fallout of the industry.
+
+The fauna is rare (1.4/3 Fauna) and equally strange. Occasionally, a shape detaches itself from the shadows of a gantry. They are avian, or perhaps robotic mimics of avian life, with wings of polished aluminum and bodies of articulated brass. They glide on the thermal updrafts without flapping, riding the heat rising from the spires. They make no sound. They merely watch with lenses that glint in the sun, picking at the mineral deposits with beaks of chipped steel.
+
+Everything about this place feels artificial yet ancient, as if a civilization built a factory on a volcano and then the volcano grew up around the factory. The construction is "emerging"—vast sections of the city are unfinished, scaffolding left to rust because the builders simply moved on to higher spires. The density implies overcrowding, but you see no people. The city feels like a machine designed for a population that hasn't arrived yet, or left long ago, leaving the automated systems to churn slowly in the heat, manufacturing nothing but steam and silence.
+
+It is a hot, high, heavy prison of slow industry. A world where the rock is still sharp enough to cut, and the metal moves too slowly to grind, existing in a state of permanent, sweaty suspension.

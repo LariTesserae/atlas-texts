@@ -1,0 +1,19 @@
+The space is a tectonic fluke—a single, massive fissure located deep within a lightless sub-arctic ravine. Because the elevation is low and the temperature is a constant, biting chill, the air here feels heavy, as if the cold has weight. It is a pocket-scale world, a "hidden room" no larger than a cathedral, wedged between basalt cliffs that have long since stopped shifting.
+
+The primary sensation is not sight, but a violent, physical sound. 
+
+A massive, glacial melt-stream falls from a great height far above, plunging into a narrow stone throat at the edge of the chamber. Because the space is so enclosed and mostly empty of soft surfaces, the sound of the water does not dissipate; it ricochets. It is a deafening, percussive roar that vibrates the marrow of the bones. It is a sound so loud it becomes a silence of its own, drowning out breath, heartbeat, and thought.
+
+Despite the roar, the chamber is characterized by an eerie emptiness. There is no wind here, only the vibration of the air. The floor of the fissure is composed of flat, water-worn slabs of slate and dark shale, worn smooth over millennia by the spray. These stones are arranged in vast, open expanses with nothing between them but shadows. The density of the world is near zero; you could walk for sixty paces in any direction and encounter nothing but the cold floor and the dark air.
+
+The water does not flood this place. Instead, it exists as a constant, atmospheric dampness. A fine, freezing mist hangs in the darkness, settling on every surface as a slick, glass-like film. This moisture feeds the vegetation, which is surprisingly lush for such a dark, cold place. Carpets of thick, black-green moss and pale, rubbery liverworts cling to the walls and the undersides of stone overhangs. They grow with agonizing slowness, their stalks thick and saturated with ice-cold condensation. They don't need the sun; they seem to thrive on the minerals leaching from the damp rock.
+
+Scattered through this hollow space are the marks of a primitive, patient presence. These are not ruins, but "stations." You might find a single, low wall built of unmortared river stones, designed perhaps to break the vibration of the sound for someone resting behind it. Or a simple, heavy tripod of weathered wood, lashed together with animal sinew, holding a shallow stone bowl to catch the purest drips of condensation from the ceiling. 
+
+There is an occasional artifact: a hand-scraped flint blade left on a ledge, or a pile of smoothed bones arranged in a precise circle. The technology is tactile and manual—stone against stone, hide against wood. There are no wheels here, no gears, no fire. The dampness would swallow a flame instantly.
+
+The fauna is rare and specialized. Occasionally, a pale, blind amphibian—thick-skinned and sluggish—drifts across the slick slate, its movements timed to the slow pulse of the seasons. It feels no rush. In this chamber, time is measured by the millimeter-thick growth of a lichen or the gradual deepening of a groove in the stone where the mist drains away.
+
+The light is a bruised, perpetual twilight. Whatever illumination exists filters down from the narrow "skylight" of the fissure miles above, turning the mist into a ghost-blue haze. Most of the chamber remains in true darkness, where the only way to navigate is to follow the vibration of the waterfall, using the deafening roar as a compass.
+
+It is a world of "established erosion." The water has already carved what it meant to carve. The stones have found their resting places. The moss has claimed its territory. Change here occurs over centuries, a slow-motion ripening of the damp and the dark, while the air screams with the sound of the falling water, a constant, thunderous reminder of the power that created this emptiness.

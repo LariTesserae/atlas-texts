@@ -1,0 +1,11 @@
+Beneath the perpetual shroud of blue-green twilight that hovers over the fleeting, submerged landscape, a peculiar pocket-environment exists, nestled in the hollow of a tectonic trench. Within its confines, a dense tangle of luminescent vegetation throngs the silted seafloor, its phosphorescent tendrils pulsing eerily in the silence. Delicate crystals, rich with metal-hued pigments, form an array of dazzling spires, scattered across the area like half-buried skyscrapers. 
+
+These crystalline towers appear to shift without movement, as if the sediment they pierce seems suspended in a state of temporal stasis around them, a pocket of arrested erosion. Why their surfaces confront their surroundings with such immoveable permanence, while the trench around them is worn into destroying erosion, defies understanding.
+
+Beneath the root system of the plants, bioluminescent driftworms leave shimmering silver tracks through the sediment, sometimes surfacing to ride currents. Beneath the crystal spires, clouds of darting fish in impossible colors flee unseen threats with abandon. Scoured jabs of stone gird and knit organic tissue pierce the sediment and the water, organic and unorganic interlinked in unsettling undulation.
+
+Somehow, the pinching twists of material obscure the boundary between these and the substrate they pierce. As with the crystals, a line between them and their base remains woefully obscure. Strangely, residuesd of the sediment seems to be in the process of undergoing some kind of methodical conversion, split between manipulating inner cunning and violent shuddering flux that remains somehow synchronized to the occasional distant echoes.
+
+The dim bulk of strands severed at the endep of the sea's roots bracket the area in a deluge of strings that once knit it to the surface. For some reason, some unthinkably remote motive, intentional bonds are dotted to have been joined - and now severed and twisted into stasis.
+
+The Interval occupied by the interior space is faceted back into a scale that is agonies of ibstruct space by its own action. Some kind of attempting targeting us is embedded in teh strucution between the surfaces. The density of the fungal colonies makes it impossible to distinguish depth from the surface's vertical paces, although it is impossible to deny it.

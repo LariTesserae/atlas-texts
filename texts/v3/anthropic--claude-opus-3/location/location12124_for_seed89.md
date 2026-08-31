@@ -1,0 +1,11 @@
+High in a craggy mountain range, a small, sheltered vale lies nestled between towering peaks of weathered stone. The uneven walls of the surrounding cliffs are pocked with countless caves and crevices, carved over eons by wind, water, and the slow grinding of the earth. 
+
+The vale is shrouded in near-perpetual twilight, the high walls permitting only a few fleeting hours of direct sunlight each day before the shadows creep back in. In the diffuse gloom, a carpet of hardy mosses and lichens clings to every surface, drinking in the thin light and thriving in the cool, damp air.
+
+At the center of the vale, a shallow tarn reflects the sky like a mirror of black glass, broken only by the occasional ripple as some unseen creature breaks the surface. The water seeps down through cracks in the underlying rock, sustaining a lush grotto hidden deep beneath the vale, where strange phosphorescent fungi cast an eerie glow.
+
+The sounds of life are everywhere. The vale practically thrums with the hum and buzz of untold multitudes of insects, a droning chorus punctuated by the trilling calls of cave-dwelling amphibians and the distant shrieks of hunting birds. At dusk, swarms of bats boil up out of the caves on all sides, their fluttering wings filling the air with a rustling like falling leaves.
+
+Despite the overwhelming presence of life, there are few large animals to be seen—the towering cliffs are a barrier to most earthbound creatures. The vale is the domain of those who can climb or fly, and the occasional glimpse of a simian shape vanishing into a crevice or a reptilian form slithering into a pool only heightens the sense that this is a place where nature reigns supreme, where the rare signs of primitive tools—a shaped stone, a twisted vine—feel almost out of place.
+
+It is a primal, timeless sort of place, at once teeming with life and shrouded in mystery, where the cycles of life and death and the slow dance of the seasons seem to follow a rhythm all their own, echoing back through ages untold.

@@ -1,0 +1,51 @@
+The first thing the place tells you is that it is *below* something heavy.
+
+Not just underground in the ordinary sense—more like under pressure, under a lid. The ceiling is close enough to feel like weather: a low vault of raw rock and poured concrete stitched together in a hurry, with seams still pale and new. The surfaces haven’t had time to round themselves. Corners stay sharp. Cut marks remain legible. Where the stone was bitten away, it holds the geometry of the tool: parallel grooves, scalloped gouges, sudden fractures that look like frozen lightning. Young space. Recently opened. Still deciding how to behave.
+
+Heat lives here as a constant, not a season. It comes from the ground and from what people have built into the ground, and it doesn’t rise so much as it *fills*. Breath feels thick, as if the air has a particulate body. Sweat doesn’t evaporate easily; it becomes a film that holds dust in place on skin and metal alike.
+
+And yet there is dampness—intermittent, insistent. Not enough to make this a wet world, just enough to keep it from ever truly drying. Condensation pearls on cold pipes and the undersides of catwalks. A thin line of water runs where two slabs don’t meet perfectly, finding the same route again and again until it polishes a groove. In places, the damp gathers into pockets: a shallow cistern half in shadow; a sump where oily sheen trembles; a wall that sweats steadily because something cool passes behind it. The moisture arrives like messages from above—occasional rain filtering down through fractures, or night air sinking and turning to liquid against chilled metal—but most of it is manufactured: captured, pumped, bled from steam.
+
+The light is dim, and it has been designed that way. Not darkness, not cave-black, but a constant low industrial dusk. Sodium lamps in cages stain everything amber; old LEDs blink faint green and cold white from control panels; a few work lights burn too bright and make their own harsh islands. The rock eats light greedily, and the surfaces help: dust-matte concrete, soot-dark beams, heat-browned insulation. Even reflective steel looks tired here.
+
+The district—because it feels like a district, not a single room—fits into a compact volume, cathedral-scale at most, but *dense* as a city block poured into a cavern. Walkways stack over walkways. Pipes run in bundled arteries along every wall and across the ceiling in thick, purposeful braids. Cables hang like vines, but they are organized: tied, clipped, labeled, routed through trays. Ventilation ducts shoulder past support columns. Ladders, service hatches, valve wheels, manifold trees—every surface has been made to do work.
+
+It’s urban, but subterranean urbanism is a different kind of crowding. There are no horizons. Boundaries are immediate: the far wall, the next bulkhead, the sealed door with warning paint half-scoured off by heat. The “streets” are corridors—some wide enough for carts and small engine vehicles, some narrowed to shoulder-width between a pipe run and a concrete buttress. Junctions are signed with stenciled arrows and numbers. The signs don’t point toward neighborhoods so much as functions: **INTAKE**, **BLEED**, **RECLAIM**, **POWER**, **SCRUB**.
+
+If there are dwellings, they are folded into infrastructure: boxy units bolted under a catwalk, a row of compact doors along a service corridor, curtains hung to claim a corner near a vent that blows slightly cooler air. But the whole place feels more like a working organ than a home.
+
+The quiet is the strangest part. It isn’t silent—nothing industrial ever is—but the sound is muffled, absorbed, managed. The rock and the close geometry blunt echoes. Some walls have been paneled with fibrous insulating board; some ducts are wrapped in damping fabric. What remains are intimate noises: a steady low hum from transformers; the occasional click of relays; a far-off clank that arrives late and softened, as if it has traveled through solids instead of air. Water makes small sounds—drip… drip… a faint trickle that stops and starts—like a patient trying to speak without waking anyone.
+
+And yet the place is active. Motion is everywhere; it just isn’t loud about it.
+
+Air moves constantly, guided through vents and louvers. You can feel it in the way heat shifts across your face when you pass a grille, in the slight lift of dust when a fan spools up. Water cycles: pumped from somewhere deeper, cooled somewhere unseen, condensed on coils, collected in sumps, sent back. Pressure cycles too—valves sigh open, then close; a pipe trembles minutely as a load changes; a pressure gauge needle jitters in its glass eye.
+
+Some processes are slow and visible only over time. Rust blooms along bolts in damp corners, an orange fur that thickens day by day. Salt crystallizes where a leak has been “temporary-fixed” with cloth and wire, building white rinds that creep outward like frost despite the heat. Concrete sweats and then dries in patches, leaving tide marks that map invisible currents of moisture.
+
+Vegetation is sparse, but stubborn. It isn’t the sort of green that makes you think of surface worlds. Here, life is mostly thin and opportunistic: pale films in the dampest seams, a dusting of lichenlike growth where mineral-rich water seeps, a few tough shoots in a crack where someone spilled nutrient slurry and forgot. In the dim, anything that photosynthesizes does it reluctantly, clinging close to light sources. More common are the things that don’t need light at all: soft, chalky mats in warm wet corners; threadlike fungi that stitch themselves along insulation; colonies that look like stains until you notice the edges have advanced.
+
+There are no animals. That absence is not theoretical—it’s felt as a rule. No skitter in the dark, no moth-flutter around lamps, no distant call. Even the idea of pests seems excluded by the heat, the chemistry, the engineered air. What little organic matter exists is too controlled, too contested by sterilants and temperature and dryness. Life here belongs to microbes and molds and whatever engineered cultures the city tolerates, and even those survive in pockets.
+
+Because this is also a place with rules, and the rules are written into the infrastructure.
+
+One rule is heat management: doors stay closed because a single open bulkhead can ruin a pressure balance and push hot air into a working corridor. Another is water discipline: every drip is tagged, every seep has a catchment, because moisture is both resource and threat—resource in a world that is otherwise stingy, threat because damp plus heat plus metal equals decay.
+
+A third rule is light. The dimness is partly economy, but partly control. Bright light would invite surface-thinking. Bright light would make this feel like a normal underground facility. The low illumination keeps edges uncertain, keeps attention on instrument panels and warning labels, keeps people close to the intended paths.
+
+There’s a subtle unusualness to the dim, too: in some stretches the light seems to fall *short*, as if the air itself has weight. Dust hangs in it, but not as a simple haze. It forms thin layers at certain heights—strata of particulate that catch the lamps and then disappear. When a fan shifts, the strata shear and slide like invisible curtains.
+
+The terrain underfoot alternates between poured floor and exposed stone. Where the floor is finished, it’s scored for drainage—shallow channels leading toward grates that exhale warm, damp breath. Where the stone remains, it’s abrupt and jagged, a reminder of how little time has passed since this volume was carved out. In some places, you walk past a cut face that is still bright, almost clean, and you can smell the raw mineral in it—hot, dry, faintly metallic.
+
+And then you reach a pocket of water, and the whole climate changes by degrees.
+
+A shallow basin, maybe the size of a small room, held behind a low curb. The water is not a lake; it’s a working reservoir, dark with silt, warmed from below. Steam does not rise in dramatic clouds—there isn’t enough cool air for that—but a constant wet breath clings close to the surface. Pipes descend into it like legs. A slow paddle stirs it, turning without splashing. Along the edges, mineral deposits have built a ragged shoreline of pale crust, sharp as broken porcelain. The deposits are young, too, still brittle, still forming. Touch one with a boot and it cracks cleanly, revealing fresh layers beneath.
+
+The city’s density presses in around even this open water. Above it, a lattice of catwalks and pipework forms a second ceiling. Condensation drips from that lattice in an irregular percussion—quiet, but persistent, each drop a tiny timekeeper. The damp encourages growth on the underside of the walkways: thin mats, dark smudges, the suggestion of living texture where everything else is machine.
+
+If you follow the corridors away from the reservoir, the air becomes drier again, but never entirely. The damp returns in brief encounters: a cool metal handrail that leaves your palm wet; a door gasket that sweats; a vent that blows air carrying a faint, clean smell of treated water.
+
+At the boundary of this district there’s usually a threshold that makes the smallness of the whole place apparent: a bulkhead marked with hazard striping, a drop into a deeper shaft, a turn where the ceiling lowers until it nearly touches the tops of the pipe bundles. The world beyond might be larger, older, different. But here the sense is of a newly inhabited under-layer—a fresh cut beneath a hot surface, built up quickly into an urban knot of industry and habit.
+
+No birds. No insects. No animal voices.
+
+Only the city’s own body: the hush of moving air, the disciplined drip of reclaimed water, the occasional distant thud of something heavy being shifted somewhere else in the rock. The active, almost secret labor of machines. The slow, patient work of heat on everything it touches. The young edges of stone waiting to be worn down, and not yet knowing by what.

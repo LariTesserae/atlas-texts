@@ -1,0 +1,23 @@
+Here, the horizon is a grid of rivets.
+
+There is no true earth beneath your boots, only layer upon layer of what came before—metal plate welded to iron girder, concrete poured over brick, a sedimentary geology of industry. The ground is level, but the perspective is not; you stand on a high platform, a constructed plateau stretching to the limit of the dim, gray sight. It is a regional sprawl, a packed and endless city that has calcified into a single, solid mass.
+
+The air is heavy and cool, carrying the constant, damp chill of a basement that never sees the sun. It is wet here, not with the freshness of rain, but with the seeping perspiration of a thousand condensation coils. Water weeps from the joints of great metal beams, dripping in a rhythmic, almost musical plinking that echoes through the cavernous spaces between structures. Every surface is slick: moss slick, rust slick, oil slick. The moisture coats the back of your throat, tasting of old copper and wet stone.
+
+Despite the total saturation of the construction, vegetation has staged a violent coup. It is lush, aggressive, and inescapable. Vines as thick as a man’s torso choke the smokestacks, strangling the brickwork until it crumbles. Ferns unfurl from the cracks in the pavement, their fronds uncurling in tight, geometric spirals that look almost engineered. Ivy carpets the vertical faces of the buildings, draping them in heavy green curtains that muffle the world. There is no distinction between "natural" and "artificial" anymore; the trees grow straight out of the asphalt, their roots wrapping around trolley tracks and gas mains as if they are ordinary nutrients.
+
+Light is a scarce commodity. The sky overhead is a permanent, low ceiling of smog and cloud, diffusing the daylight into a flat, charcoal gloom. It is a twilight world, punctuated only by the occasional, dim pulse of an amber warning light or the flicker of a failing neon sign half-buried in ivy. Shadows are deep and absolute, pooling in the alleyways between the great rusted hulks of machinery.
+
+And yet, it is quiet.
+
+The silence is profound, heavier than the air. For a place so fundamentally industrial, the lack of roar is disorienting. The great pistons and gears that must drive this world are buried deep within the substrate, cushioned by tons of rust and damp soil. The sound is a sub-audible thrum that you feel in your teeth rather than hear with your ears. Occasionally, a distant steam vent releases a long, weary hiss, but the thick vegetation swallows the noise instantly. It is the quiet of a machine paused between breaths, or perhaps running so slowly that its movement is imperceptible.
+
+But to watch the landscape for a time is to realize the silence lies. The world is not still; it is turbulent.
+
+The "erosion" here is not a slow wearing away, but a frantic, constant renewal. Without warning, the ground shudders—a deep, seismic vibration that sends ripples through the puddles. A section of the "horizon"—a massive wall of brick and pipe—begins to shift. It is not a collapse; it is a reconfiguration. Great gears, greased with decades of slime, grind beneath the surface. An entire city block slowly rotates, unlocking from its neighbors and swinging outward on a colossal hinge to reveal a new interior of glowing furnaces and conveyor belts.
+
+It happens everywhere. The hills themselves are facades, rising and falling on hydraulic lifts. Valleys open up like trapdoors to discharge steam, then seal tight again. Streets retract into the earth to make way for the passage of some subterranean leviathan, then re-lock, their cobblestones slightly misaligned. It is a chaotic, hyperactive dance of architecture, a perpetual state of construction and deconstruction. The "erosion" is established, balanced—this movement has been happening for centuries, wearing the edges of the metal smooth, polishing the stone until it fits perfectly, even as it moves.
+
+There are no animals, or very few. A single, dark bird might perch on a swaying cable, watching the shifting topography with weary indifference, but the ecology is dominated by the plants and the machine. There are no people, either. The dense, packed architecture—housing estates, factories, cathedrals of steel—stands empty, occupied only by the moss and the relentless, silent mechanisms that rearrange the furniture of the world.
+
+It is a place of beautiful, terrifying order. The turbulence is not random; it follows a logic too complex to follow, a schedule too vast to comprehend. The water drips, the vines creep, the moss grows, and in the dim light, the world turns on its axes, grinding forward into a future that looks exactly like the past.

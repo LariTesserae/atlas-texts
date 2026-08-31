@@ -1,0 +1,25 @@
+**The Weeping Chamber**
+
+Descend through the narrow throat of earth, where roots have long since surrendered their grip and limestone gives way to something older, something that breathes. The passage opens into a cathedral-sized hollow, perhaps forty paces across, carved not by water alone but by the patient exhalations of the earth itself. Here, three fathoms beneath the world's skin, the boundary between stone and dream grows thin.
+
+The walls curve upward in smooth, milk-pale limestone, their surfaces alive with perpetual weeping. Not mere seepage—these stones cry genuine tears that gather in channels worn smooth by centuries of sorrow. The water forms temporary rivers down the chamber walls, pooling in shallow basins before vanishing into hairline cracks that sing with the memory of ancient seas. The air itself seems to condense and release, condense and release, as if the cavern breathes through its pores.
+
+Yet against all logic, this sunless hollow burgeons with impossible growth. Vast, pale fungi spread like frozen explosions across the floor—some broad as dinner tables, others rising in delicate towers that fork and branch toward the weeping ceiling. Their caps glow with the faintest blue-green phosphorescence, not bright enough to banish shadow but sufficient to reveal the chamber's strange geometry. Between them grows something that might once have been moss but has evolved beyond recognition: thick, silver-green carpets that pulse almost imperceptibly with their own slow circulation.
+
+The cold here settles into your bones—not the sharp bite of winter air, but the deep, patient cold of caves and graves. Your breath mists continuously, and the weeping walls sweat beads of ice that never quite freeze solid. The fungi seem to thrive in this chill, their alien forms expanding in spirals that follow mathematical principles older than warmth.
+
+But it is the sound that unmakes certainty.
+
+The chamber roars. Not with any single voice, but with a layered symphony that begins in the stones themselves. The weeping walls hum—a resonant, bone-deep vibration that suggests vast machineries turning in the earth's core. Above this foundation, the falling water creates a percussion both random and rhythmically precise: drops striking pools, droplets running into streams, streams chattering into cracks. The fungi, impossibly, contribute their own notes—subtle creaking as they expand, whispered exhalations of spores, and stranger sounds that seem to emerge from the phosphorescent glow itself.
+
+But beneath it all runs something else: voices. Not words in any recognizable tongue, but the unmistakable rhythm of conversation, discussion, argument perhaps. They seem to emerge from the mathematical spirals of fungal growth, from the perfectly worn channels in the weeping stone, from the spaces between raindrops that never stop falling in this place where rain has never been.
+
+Time moves differently here. The ice-beads form and melt in cycles that might span heartbeats or hours. The pale moss-carpet breathes so slowly you could watch for days before detecting its rhythm. Sometimes a drop of stone-tears hangs from the ceiling for what seems like ages before joining its siblings in their eternal descent. The mushroom towers grow visibly, but only when you're not looking directly at them.
+
+In the far corner of the chamber, something that might have been a stone bowl sits partially embedded in the floor, carved by neither human hand nor water's patient work but by the intersection of intention and erosion. Around it, the fungi have grown in patterns that suggest—never quite achieve—recognizable symbols. A few scattered objects lie nearby: a wooden staff polished smooth by countless hands, a clay vessel cracked but somehow still holding the appearance of water, stone tools whose edges remain sharp despite their obvious age. These artifacts seem to exist more in memory than substance, as if the chamber itself recalls when hands briefly shaped its silence.
+
+The sparse life here feels both ancient and newborn. Occasionally, something pale and many-legged scuttles between the mushroom groves—not insects exactly, but cave-adapted creatures that seem to be made more of purpose than flesh. They tend to the fungi with an intelligence that borders on reverence, their movements synchronized with the chamber's slow breathing.
+
+Above, below, around—the boundaries blur. Sometimes the ceiling seems impossibly high, sometimes low enough to touch. The walls curve according to their own logic, and the phosphorescent glow creates depths that geometry cannot account for. The weeping continues, the impossible garden thrives, the voices murmur their incomprehensible conversations, and time pools and flows like the patient tears that carved this impossible hollow in the body of the rational world.
+
+This is a place where the earth dreams, and dreams bleed through into form.

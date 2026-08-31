@@ -1,0 +1,11 @@
+High on a cold, dark mountainside, a strange city clings to the rocks. The buildings are a dense jumble, stacked and interconnected in chaotic layers like the work of manic termites. Their architecture follows no recognizable style or plan, instead forming organic shapes that seem to emerge directly from the raw gray stone. It is as if some hyper-accelerated geologic process thrust up these mineral towers and spires.
+
+Despite the chill thin air, moisture permeates everything. Water seeps from the porous rocks and condenses on the city's twisting surfaces. Rivulets run down crooked canyons between buildings to gather in black pools. A damp haze hangs in the air, lit from within by the glow of bioluminescent creatures.
+
+For this place teems with life. Translucent crawling things with too many legs scuttle up walls and across lichen-encrusted aqueducts. Floating gas-sacs with dangling tendrils drift between towers, pulsing gently. Sheets of slime mold quiver and convulse across spongy terraces. The rocks themselves seem to breathe and sigh.
+
+Everywhere swarms with activity, the city itself nearly alive. Clicking and slithering and squishing sounds echo off the stone. Organic components mesh with artificial ones - are those transistors or ganglia in that opening?  Sensory apparatus or security cameras? Engineered organisms maintain inscrutable infrastructures. Nanotech and biotech become indistinguishable. 
+
+Frigid winds moan through the convoluted biomechanical maze, carrying strange spores and chilling the skin. But down in the tangled depths, geothermal heat warms pockets of soupy, bubbling life. Extremophiles thrive on mineral substrates and chemical energy, supporting complex ecologies.
+
+This is a city, but not one made for humans. Our kind could no more live here than in the crushing black of the deep sea. What intelligences dwell in this place have evolved in symbiosis with the crawling multitudes. Their thoughts are as alien as their tower-warrens. They are as much a part of this dark, damp, teeming ecosystem as the moisture in the air and the stone itself.

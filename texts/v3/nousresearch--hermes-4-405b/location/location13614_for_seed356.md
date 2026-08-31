@@ -1,0 +1,23 @@
+The air, thick and warm, hangs close like a blanket under endless darkness. No sun ever reaches here—only the dim, internal luminescence of the world itself provides any light. In this perpetual night, everything that moves or marks time seems to slow and settle, until the land beneath and the air above have achieved a perfect equilibrium.
+
+This place is near-flat—an immense, low-lying wetland that stretches beyond comprehension, the edges beyond the horizon. It must extend for millions of square kilometers: a single, unbroken plain of deep, saturated ground. The ground is slick and yielding, always soft and close to liquid underneath, the earth almost floating on the buried water.
+
+But no puddles, no lakes, no rivers mark the surface. For above the sodden earth, the space is utterly filled by one single living thing—layer upon layer of thick-growing, anarchic vegetation. A jungle in substance, a monoculture in form: one endless, interconnected plant-mass. Vines layered on vines, stems sprouting from stems, leaves growing from leaves—each supporting the other, in a colossal tangle of plant material that stretches endlessly. New growth constantly emerges wherever there is space within the web, stitching gaps instantly. A universe woven from plant.
+
+This growth possesses an alien, even industrial geometry: fronds and tendrils thick and metallic, with a strange sheen. Tube-like structures, tens of centimeters in diameter, weave through the mass—pulsing faintly with heavy, viscous green fluids. The surfaces are mechanically precise, segmented, bolted, fitted, too regular and functional to be organic. As if the entire jungle is one sprawling, living machine.
+
+No animals, no insects here—only the plant, stretching without end. Around the base of the growth, the slick surface of the ground never dries. A constant, invisible drizzle of water seeps in the air, condensing from the warm atmosphere onto every surface. Droplets form at the tips of leaves, then fall gently in a constant, silent rain of water into the saturated earth.
+
+The only sounds are the slow drip of water, and, very faintly, a subsonic hum—low, constant, curiosity-piquing, like distant heavy machinery. The plant-mass produces it without moving visible parts; the sound floats unchanging, sourceless, as if the very fabric of the world hums to itself. A sound that would drive a living mind mad, given time. But there's nothing else to hear. No wind, no current, no rustling. Just the faint hum, and the dripping water—eternal, unchanging.
+
+Nothing is built here. No clearings, no paths, no markers anywhere. Above, the black sky remains empty—no moons, no stars visible. The perfect darkness surveys the world below. The whole is without blemish or feature, except for the infinite complexity of the plant in every direction. A perfectly functional, perfectly regulated ecosystem, utterly in equilibrium, without room for anything but more itself.
+
+Here, time flows without impact on the world. Plant growth appears to have frozen, held at maximum density in perfect, unchanging form. The entire vast landscape seems to be held in a timeless state—a deep strangeness, somewhere between the organic and mechanical, a place too regular and functional to be living, too fluid and organized to be dead.
+
+The only visible technology is the continent-spanning plant-machine itself. No lights shine. No engines move. No artifacts remain. The technology here is all one: ancient, buried, forgotten, the framework for the plant's industrial growth. An artifact that is also alive, maintaining in silence this equilibrium, this strange, dark near-jungle.
+
+This place... this place must be in a vast cavern, inside some impossibly large structure. The blackness above is a ceiling far away, the "ground" a floor. The hum comes from deep within—some ancient life-support system, or some strange machine at the heart of the complex, operating continuously for centuries or millennia.
+
+A single seed, long ago, found this environmental niche and spread. Encountering no competition, no limit, and no endpoint, the plant-machine filled the space entirely. In the warmth and dark and humidity, it constructed its own perfectly martialled world.
+
+Now it simply exists—immense, unmoving, using the waters the condensation provides, perhaps consuming bedrock chemicals. Nothing changes here. Nothing ever will. A terrible, beautiful, endless stasis.

@@ -1,0 +1,21 @@
+The Vertical Nursery trembles with creation.
+
+High in the world, where mountains should be stone and silence, something else grows. The peak itself is unfinished—raw geology still deciding its final form, mineral seams shifting like slow thoughts through granite that hasn't quite hardened. The rock weeps constantly, not from erosion but from birth: water beads and streams from every surface as if the mountain is perspiring from the effort of becoming.
+
+This is no natural formation. The industrial scaffolding tells that story clearly enough—a dense lattice of steam-slick metal embracing the emerging peak like an iron womb. Pneumatic pistons the size of trees pulse and hiss, injecting something luminous into the rock's veins. The machinery doesn't build so much as midwife, coaxing the mountain through its labor.
+
+Between the scaffolding levels, impossible gardens flourish. In this thin, cold air where nothing should grow, vegetation riots in defiance of altitude. Moss carpets every platform in shocking emerald thickness. Ferns unfurl from cracks in the natal stone, their fronds heavy with condensation that freezes and thaws in minutes-long cycles. Vines snake through the industrial framework, some clearly engineered—their leaves geometric, their stems pulsing with the same rhythms as the machinery.
+
+The fauna here defies counting and classification. They emerge from the mountain itself, pulling free from the stone like dreams becoming flesh. Most are still partial—a wing materializing from granite, compound eyes blinking awake in what seemed like quartz, fur sprouting from ore deposits. The air thrums with their incomplete songs: bellows, trills, and mechanical chittering that harmonizes with the industrial percussion of the creation engines.
+
+Those creatures that have fully emerged crowd every available surface. They perch on pipes, nest in the fern groves, swim through the air in formations that follow no evolutionary logic. Some sport combinations that shouldn't exist—chitinous wings on mammalian bodies, bioluminescent scales on things with too many legs, faces that shift between expressions of different species. The newest ones still drip with amnion that might be water, might be something else.
+
+The settlement—if it can be called that—occupies the spaces between birth chambers. A vertical city compressed into the scaffold itself, where workers in thick, wet coats tend to banks of controls. Their homes are bolted directly to the framework: dense clusters of small chambers like cells in a hive, windows glowing with industrial yellow light against the mountain's grey-blue twilight. Steam vents from every dwelling, adding to the perpetual mist that makes the air itself feel gravid.
+
+The sounds never cease. Beyond the creature calls and mechanical thunder, there's the constant voice of water—dripping, flowing, gushing from the unfinished stone. The cold makes it all sharper, each noise carrying with crystalline clarity through air so humid it feels like breathing through cloth. Sometimes the mountain itself groans, a bass note felt more than heard, as another section of reality shifts and settles into place.
+
+At the edges of perception, the rules fray. Gravity pulls in directions that change by the platform. Some of the creatures phase between solid and suggestion, their forms more probability than certainty. Time moves in eddies—a dropped tool might hang in the air for minutes or hit the ground before it's released. The workers navigate these inconsistencies with practiced indifference, adjusting their movements to match whatever physics currently apply.
+
+This is industry at the edge of dream, a factory for the impossible, where mountains give birth and evolution happens in hours instead of eons. The whole construction—geological, biological, mechanical—pulses with purpose, though what that purpose might be remains as unfinished as the peak itself. Everything here is becoming something else, and the density of transformation makes the very air electric with potential.
+
+The Vertical Nursery is never quiet, never still, never complete. It exists in the perpetual moment of creation, where the cold, wet heights serve as an industrial womb for things that shouldn't be, but are.

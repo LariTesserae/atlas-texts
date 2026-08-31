@@ -1,0 +1,19 @@
+The light here is filtered, as if passing through layers of thick, grey felt. It is a permanent twilight, dim and shadowless, but the air is unmistakably warm—a heavy, dry heat that presses against the skin like a woolen blanket.
+
+You are standing in a pocket, a hidden vastness enclosed by towering walls of rock that have been worn smooth by the slow grinding of eons. This is a place of supreme age; the mountains that cradle this space are not jagged peaks but rounded, sloping shoulders of stone, eroded down to their final, stoic shape. They lean inward, creating a colossal amphitheater of geology that feels less like a valley and more like a room—the largest room in the world.
+
+Because of the enclosing walls and the thickness of the air, the scale is deceptive. The space feels intimate, a container for secrets, yet it stretches on for miles. The floor of this great room is a dense, chaotic mat of life.
+
+There is no water here. The dust on the ground is bone-dry, a fine, pale powder that puffs up with every step. Yet, the vegetation is lush, a paradox of green abundance thriving without hydration. It is not the soft green of temperate lands, but the tough, rubbery verdure of succulents. The ground is a forest of massive, columnar cacti and sprawling, vine-like agave, growing so densely that they form a single, interlocked mattress of vegetation. There are no leaves to rustle; instead, the sound of the wind is a dry, papery hiss as it rubs against the waxy skins of a million fleshy plants. The "soil" is hidden entirely, buried under meters of thorny, water-hoarding biomass.
+
+ woven into this thicket is the city.
+
+It is an urban environment, but built with primitive hands. The structures are low, sprawling, and seemingly grown from the landscape itself. They are built from the dried ribs of massive dead plants, lashed together with leather cords and mortared with a clay made from the pale dust. The architecture is defensive and clustered—narrow alleys winding between windowless walls, mud-brick domes merging with the hillocks of cactus. The city is dense, a maze of rooftops and terraces that flow seamlessly into the natural terrain. It feels as if the people carved a home right out of the thicket, sleeping in the spaces between the thorns.
+
+And it is loud. The noise is a constant, overwhelming roar. It is not the noise of machines—technology here is limited to levers, stone axes, and hand-turned pottery—but the noise of biology. The fauna is overwhelming. The air is thick with flying creatures—large, leathery-winged bats and birds with dull, plumage the color of dust. They swarm in clouds so dense they occasionally blot out the dim light entirely. Their screeches and calls create a wall of sound that never abates.
+
+On the ground, the city swarms with life. Lizards the size of dogs skitter across the rooftops, their claws clattering against the dried-wood beams. Insects buzz in furious, black clouds around the clay lamps that burn in the doorways. The people here move with a practiced, rhythmic caution, stepping carefully to avoid the nests of burrowing rodents that dot the alleys, carrying spears not to hunt, but to push back the relentless press of animal bodies.
+
+Everything is in motion. This is an active ecosystem, a frantic metabolic engine. Predators hunt in the shadows of the buildings; prey species scuttle across the packed-dust streets; the plants themselves seem to shift and grow visibly, opening their flowers at dusk and closing them at dawn with a slow, audible creak.
+
+The atmosphere smells of dry spices, dust, musk, and the sweet, cloying scent of fermenting nectar drawn from the cactus flowers. It is a place of intense, claustrophobic life, crammed into a dry, ancient bowl of stone, screaming with the sound of survival.

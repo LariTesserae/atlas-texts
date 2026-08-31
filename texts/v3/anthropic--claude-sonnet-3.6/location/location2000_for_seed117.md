@@ -1,0 +1,15 @@
+A vast plain of dark glass stretches to the curved horizon, its surface a frozen wave-field of rounded hillocks and shallow basins. The glass is not smooth but pebbled with countless tiny bubbles, giving it an almost organic texture. In the intense white sunlight, each bubble catches and scatters the light differently, creating a subtle rainbow sheen across the landscape.
+
+Water is everywhere but contained - each glass depression holds a perfect pool, ranging from puddle-size to small ponds. The water is preternaturally still, mirror-bright, reflecting the cloudless sky above. At regular intervals, these pools suddenly emit deep resonant tones, like enormous wine glasses being played. The sounds overlap and interact, creating an endless, deafening symphony that seems to follow mathematical patterns just beyond comprehension.
+
+The glass surface sweats continuously in the cool air. Moisture beads up and runs in rivulets, collecting in the pools or vanishing into hairline cracks in the glass, only to seep up again elsewhere. This constant movement of water creates a secondary layer of sound - a high, crystalline tinkling that weaves through the deeper pool-tones.
+
+Vegetation is rare but striking - pale, leafless structures that might be plants grow in scattered clusters, their forms exactly mimicking the frozen glass-waves around them. They appear to be made of the same material as their surroundings, as if the glass itself had grown upward in delicate, branching patterns. These crystal-plants ring like wind chimes when water drops fall on them.
+
+The remains of what might have been buildings dot the landscape - geometric shapes of the same dark glass, half-melted into their surroundings. They appear to have grown naturally from the glass plain rather than being constructed, their edges softened by ages of moisture and whatever process continually generates the surface condensation.
+
+The entire landscape feels like a moment frozen in time - perhaps the instant after some unimaginable event transformed everything into glass, or perhaps this is simply how this place has always been. Despite the constant motion of water and the never-ending symphony of sounds, there is a sense of absolute stasis, as if change here is impossible beyond these small, cyclic movements.
+
+In the distance, the glass plain appears to curve upward slightly, creating the illusion that this place exists in the bottom of an enormous shallow bowl. The horizon shimmers with heat or moisture or something else entirely, making it impossible to tell where the glass ends and the bright sky begins.
+
+The air smells of ozone and stone, with an underlying mineral sweetness that catches in the back of the throat. Despite the cool temperature, the intense light creates a greenhouse effect in the thin layer of air just above the glass, where the water vapor hangs in a perpetual haze, occasionally forming tiny, short-lived rainbows.

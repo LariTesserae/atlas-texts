@@ -1,0 +1,19 @@
+The Singing Cavern of Moss
+
+You descend through a cleft in the earth where cold water seeps eternal. The stone throat widens as you go deeper, opening into a cathedral-space below the world's skin. Here the temperature drops to breath-fog cold, though the air itself is thick with moisture that beads on every surface.
+
+This is a place of impossible sound and impossible silence, both at once.
+
+The cavern walls weep constantly—not with mere dampness but with true flowing tears that run in braided streams down surfaces thick with hanging moss. The moss grows in cascading curtains, some strands reaching thirty feet long, all of it phosphorescent with a greenish light that seems to come from within the plant itself rather than any external source. Where the moss is thickest, it forms living pillars that have never known sunlight, fed entirely by the mineral-rich water and something else, something that makes reality soft here.
+
+The sound hits you in waves. It's not quite water-sound, not quite wind-sound, not quite voice. The moss itself sings—a deep thrumming that rises from the root systems and builds into harmonics that shouldn't exist. Each hanging strand vibrates at its own frequency, and where they cluster together, the frequencies overlap and interfere, creating pockets of deafening resonance alternating with zones of perfect, crystalline silence. Step from one invisible boundary to another and the world transforms from crushing sound to absolute quiet, with no gradient between.
+
+The flora here defies understanding. Thick ferns grow upside-down from the ceiling, their roots reaching up into stone while their fronds brush the flooded floor. Patches of what might be flowers bloom in spiral patterns, their petals made of something between plant matter and frozen breath. They turn to follow movement, though nothing visible moves here. The vegetation grows in scattered clusters with wide spaces of bare, weeping stone between—each cluster its own small world with its own rules about which way is up, which way water flows, how time moves.
+
+At the center of the cavern, a pool of black water reflects nothing, not even the phosphorescent light. Sometimes the reflection shows stars that aren't above. Sometimes it shows the moss as it will be in a hundred years, or as it was before the first root found stone. The water is perfectly still until the sound-waves peak, and then it forms standing geometric patterns that shouldn't be possible in water.
+
+Creatures are few but significant. Pale salamanders the length of your arm move through the moss canopy with deliberate slowness, their skin translucent enough to show the strange organs within—organs that pulse with the rhythm of the sound-waves. They feed on the boundary between real and not-real, growing fat where physics grows thin. Occasionally, something larger moves in the black pool—a suggestion of scales, a ripple that travels the wrong direction.
+
+The only signs of intelligence are the worn paths through the cavern where the sound-patterns have been carefully modified. Someone or something has learned to walk the routes where the resonance builds to transcendence rather than pain. Certain moss strands have been cultivated and trained to grow in specific lengths, tuning the cavern's vast instrument. Small cairns of wet stone mark the places where reality is thinnest, where the moss-song can carry you sideways out of the world if you stand still too long.
+
+Time moves strangely here. Water drops fall upward in certain spots. Moss grows and ungrows in slow tidal cycles. The sound builds for hours or years—it's impossible to tell—before releasing in moments of perfect clarity where every rule bends and the cavern reveals itself as what it truly is: a gap between what is and what might be, held open by the patient work of moss and stone and song.

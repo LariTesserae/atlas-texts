@@ -1,0 +1,105 @@
+From orbit, the world looks strangely calm.
+
+A low, rounded planet, mostly cloud — immense, slow gyres of white and grey. Between them: a sheen, like wet metal or polished stone, scattered with faint geometries that only resolve as you descend. The atmosphere is thick, humid-warm, glowing slightly blue-white with its own haze. Nothing green. No forests, no fields. Just a continuous, continent-spanning complexity of built forms and moving life.
+
+Closer, the calm breaks.
+
+The first thing that hits is sound.
+
+It’s not one sound. It’s a solid, layered roar — a physical pressure in the air, like standing inside an engine. A full-spectrum thunder made of countless sources: grinding, rushing, clattering, vocalizing, the croak and hum of strange life, the booming of distant impacts, the shudder of moving structures, the hiss of vapor rushing through conduits, the low bass of subsurface machinery. The loudness has no gaps; silence here would feel unnatural, like air suddenly removed.
+
+Beneath that atmosphere, at low elevations that are effectively global — broad basins and very shallow seas stitched together — stretches a dense, continuous urban field. Not a city with edges, but a planetary crust of construction, all of it wet.
+
+Everything glistens.
+
+Water sweats from surfaces, beads in seams, sheets down walls. It gathers in shallow, irregular basins, in runnels, in long mirror-black canals that vanish under structures and re-emerge miles away. The planet’s water table lies almost at the surface; pierce the ground and it wells up. Post-rain wetness is the default here, but it rarely comes from the sky in the way you’d expect. The air is so humid that condensation is an architecture of its own.
+
+Condensation gutters line every overhang. Droplets rope themselves together into threads that become streams, flowing along channels specifically textured to coax water in one direction rather than another. From a distance, facades look soft, their angles blurred by a constant slickness — but up close they are finely worked mineral surfaces, ridged and pitted to guide films of water, perfectly tuned to the way moisture creeps, evaporates, and returns.
+
+There is no plant life.
+
+No moss, no algae, no film of green claiming the damp. The surfaces are bare mineral, composites, layered ceramics, slick metal-glass hybrids. Where on other worlds lichen would gather, here only crystals grow: minute, frost-like fans of translucent mineral, feeding off gradients in temperature, pressure, and chemistry, budding and dissolving in slow tides that the inhabitants barely register as change.
+
+Yet the place is not dead. It’s crowded to the limit.
+
+Packed density here means more than just buildings; it means there is no such thing as “empty space” in the human sense. Every void is occupied by something — structure, machine, habitat, fluid, flow of organisms, lattice of fields. Gaps exist only as transit corridors or engineered cavities, and even those are full of motion: of bodies, vehicles, vapor, data-carrying particles, invisible force geometries.
+
+The ground underfoot — when there *is* a ground to put a foot on — is not natural rock. It is a palimpsest of construction, stacked and restacked for ages. Original sedimentary basins lie far below, worn smooth under an accumulated geology of architecture. Whole generations of infrastructure have been eaten, reworked, and pressed into a composite substrate. The surface level has no discernible distinction between “building” and “ground”; they merge imperceptibly, with slopes that are both roof and hillside, plazas that are also lid-plates hiding great volumes beneath.
+
+The planet is low-lying, but “low” here doesn’t mean flat. Rather, the elevation differences are gentle and extended — rises that take kilometers to climb only a few dozen meters, subtle swells and sags like the long, shallow breath of the crust. These depressions collect water in broad, shallow basins: inland seas only a few meters deep, pan-flat and slightly warm, their surfaces wrinkled with constant disturbance.
+
+These aren’t natural lakes, exactly. Their shorelines are geometric, gridded and angled, scalloped into piers and platforms, undercut with inset channels that draw water into the superstructure below. Seen from above, they look like liquid tiles in a mosaic of solid: oblong insets of glossy black or metallic blue, threaded with glinting causeways. The “coasts” of these seas are not soft. They are armored with layered composite, etched with endless arrays of ports, vents, and docking forms.
+
+The water itself is not clean, but neither is it polluted in any familiar way. It is mineral-bright, dense with ions and nanoscale constructs, faintly viscous in a way you only feel when it laps against skin. It carries information and energy as much as it carries dissolved material. At the margins, where thin films spread over metal and stone, it glows just above perception: not a visible light, but a suggestion of structured shimmer, as though a thousand patterns are operating just below consciousness.
+
+The atmosphere is warm and heavy. Warmth rises from below — from deep-running machines, from slow geological activity trapped under continents of infrastructure, from constant friction of motion and water. Air currents are not governed only by weather in the classical sense, but by the heat maps of industry and life. Vents exhale jets of vapor that become localized clouds; exhaust plumes and cooling towers sculpt microclimates, and the supersaturated air condenses whenever it touches a sufficiently cool surface.
+
+Rain rarely falls as broad-fronted storm systems. Instead, rain happens locally, in sharp, sudden pulses: a condensation-burst dropping like a curtain over a district, generated when one stack of structures cools abruptly or when high-altitude aerosols shift reflectivity. Standing in the open, you might watch a deluge begin half a kilometer away — a visible column of shimmer, a roar rising from nowhere — and then sweep over in seconds, soaking everything in a warm, heavy downpour that stops just as abruptly, leaving the air no less humid than before.
+
+Erosion, in the classical sense, is long settled here. This world is old, and its dynamics are in balance — but that balance is not simple stasis. Surfaces are worn, not sharp; edges are rounded, not because of wind and waves alone, but because the entire urban crust has undergone aeons of construction and reconstruction. Corners soften where multiple generations of use have warped their original geometries. Flow paths for water have been polished by constant passage until they are as smooth as river pebbles. Yet these same pathways are reinforced, maintained, and sometimes completely replaced. The result is a landscape that looks enduring and weathered, but under that patina, everything is actively cycling.
+
+The built environment rises in layers, not as skyscrapers punching into the sky, but as stacked horizontals. Think of a city whose streets are solidified into thick plates, then built upon, then roofed again — strata of urban life: transport levels, ductwork, living areas, open decks, machine forests. Verticality exists, but rarely freestanding; instead, towers are incorporated into a thick, almost coral-like mass of interconnected structures. Many “buildings” are more like ridges: long, sinuous, vaulted spans that snake across kilometers, bridging basins, forming continuous roofs under which other worlds exist.
+
+Between and through these volumes moves life.
+
+There is abundant fauna, but almost none of it is familiar. Without plants, the food webs and metabolisms here follow different anchors. Some organisms graze on mineral gradients: they scrape at surfaces, not for organic film, but for structured deposits left by nanomachinery and slow-scale geochemical flows. Others feed directly on field differentials — electromagnetic, thermal, even the subtle potentials in the information flux of this hyper-engineered world.
+
+Small creatures swarm the dampest seams. They resemble nothing exactly: some are like pale, jointed ribbons that flow through water-channels, tasting the chemistry of each trickle. Others are multi-limbed, translucent, their bodies shot through with fine capillary nets that pulse faintly with iridescent fluid. They cling to overhangs, dangling sensory tassels into the mist, “grazing” on microscopic eddies of charge. Their motion produces a constant, skittering underlayer of sound: tapping, pattering, the faint chime of hard exoskeletal bits striking glassy stone.
+
+Larger organisms are rare at ground level; space is too contested. Instead, they inhabit the middens and cavities of the infrastructure, and the vast interior volumes hidden from casual view: warm, echoing chambers half flooded with slow water; broad, flat ducts in which aerosols swirl; vertical shafts lit by the dim glow of maintenance fields. In some, the fauna and the machinery are indistinguishable at first glance. A cluster of slowly flexing rods in the corner of a chamber might be a repair array — or a sessile, animal-like colony drawing energy from vibrations and waste heat.
+
+There are also flyers, occupying the dense air between structural layers. Some are artefactual craft, some are living, and some blur that line completely — grown machines or engineered animals that traffic in data as much as in physical cargo. Their wings (when they have wings) are not feathered or membranous, but arrays of shifting plates that drink the thick air, adjusting their shape along microactuated seams. The beating of so many wings, the turbulence of so many bodies moving in close proximity, adds its own incessant gale to the soundscape.
+
+The inhabitants who built this world — or maintain it — are not alone in their space. The environment itself is saturated with autonomous, subvisible agents: swarms of nanoscopic constructors, monitors, and carriers. They course through water channels, migrate along mineral surfaces, drift in the humid air as charged aerosol clouds. Macro-scale, you never see them; meso-scale, you see their patterns: faint, iridescent bloomings on surfaces where active repair is underway; ripples of textural change that pass along a wall like an invisible hand smoothing it; localized shimmering where air seems thicker, as if some invisible colony is drinking entropy out of the turbulence.
+
+This is where the “beyond modern” technology lives: not in gleaming singular monuments, but diffused into everything. Materials are not static; they reconfigure at need under rule-sets baked into their very structure, guided by field signals that our physics only approximates. A “bridge” might sense too much load and thicken itself microscopically, redistributing material through a network of nanoscale capillaries, changing not just stiffness but resonant properties to avoid damaging frequencies from the constant roar.
+
+Energy moves not simply along wires, but through tuned domains in the material — volumes where the vacuum behavior itself has been engineered to prefer certain states. To an outside observer, this shows as oddities: places where light refracts wrong; patches of air that seem to carry sound differently; surfaces that feel warmer or cooler than they should, given their apparent exposure. The tech is always there, yet rarely highlighted; it’s part of the way the world stays itself despite its turbulence.
+
+The rules of physics haven’t been broken so much as elaborated upon. Gravity at the surface is subtly shaped; in some corridors, you feel a slight easing of weight, in others, an almost imperceptible increase, engineered to improve fluid flow or support structural spans. Over broad regions, this tuning ensures that water does not pool disastrously or run entirely away: the whole low-lying world has been terraced gravitationally as well as architecturally, herding moisture into stable patterns even as everything else shifts.
+
+Despite this control, the landscape never feels orderly from within. It is endlessly turbulent.
+
+This turbulence is not just weather: it is social, ecological, mechanical. Thousands of intersecting cycles of maintenance, construction, decay, behavior and counter-behavior are playing out simultaneously, at every scale. New structures are constantly budding from old ones, like mineral blooms — extruded, tested, then either integrated or sloughed away to be recycled into the substrate. Transit corridors are rerouted in real time, their solid paths thickening or thinning, archways narrowing or expanding as flows of traffic change.
+
+In some districts, a whole level can be closed and reconfigured in hours, while over it and under it, life goes on, barely aware of the shift. The city-planet is not static; it behaves like a gigantic, cooled-down but still active magma chamber of architecture, always flowing, but slowly enough that you can walk through it without being crushed.
+
+The vastness of it creates its own weather in more traditional terms as well. The aggregated waste heat of industry and life rises in colossal plumes, punching through the lower atmosphere. High above, that heat encounters cooler layers and forms permanent cloud decks, which then seed endless cycles of drizzle and sudden downpours back onto the crust. Where immense vents open — vertical chasms kilometers across where infrastructure recedes to expose the planetary interior — steam and vapor roll up like geysers, feeding regional storm systems.
+
+You might stand at the lip of such an opening, looking down into tier upon tier of lit structure, receding into a haze of moisture and activity. Air roars past, driven by differential convection and controlled vents — so loud that attempting to speak is pointless, your words shredded into the general storm. Occasional bigger sounds cut through: a deep, resonant boom as a great mass shifts; the drawn-out metallic scream of a structural adjustment somewhere far below; the crack of pressure seals readjusting.
+
+Even in more “protected” spaces, quiet is a fiction. Cavities are resonance chambers for the planet’s constant, low-frequency operations. Massive pumps move subsurface water and other fluids; field engines purr and thrum as they maintain gravitational and energetic gradients; somewhere deeper still, tectonic plates grind, though heavily damped by engineered boundaries.
+
+The weirdness here is not overtly fantastical, just consistently skewed.
+
+Light, for instance, is mostly “normal” brightness, but almost never simple. There is the sky-glow filtered through cloud: a generous, diffuse white that washes everything in soft shadows. There are artificial sources in every direction: panels and strips embedded in walls and ceilings, not all of them emitting in the same spectra. Some zones are lit with a slightly warmer hue, others cooler, some with sharp-edged cones of brilliance and deep shade between. And by design, some regions dip into bands your eyes barely see, chosen for the needs of local organisms or devices.
+
+You experience strange perceptual shifts as you move: a stretch of corridor where color seems muted and sound oddly sharp; a basin-edge where the water gleams like polished chrome despite a flat grey sky; a shaft where the ascending mist holds prismatic flecks that vanish when you try to focus on them. None of this breaks the world; it just makes it feel continuously, quietly alien.
+
+The absence of vegetation becomes more striking the longer you look. No soft line of moss at the foot of walls. No wind-rippled edges of reeds along the water. Shorelines of the shallow seas are hard and angular, only softened by erosion into broad curves. Where on Earth debris of leaves and twigs would collect, here sediment is purely mineral and synthetic: microfragments of ceramic, glass dust, canonically shaped grains that started life as engineered structures and ended as sand.
+
+What “organic” presence exists beyond the fauna is non-plant and not obviously alive in familiar ways. Some surfaces host mats of filamentous material: hair-fine threads that retract when touched, then slowly extend again, orienting toward unseen gradients. They are not fungi in our sense, but fulfill a similar ecological role, distributing energy and matter in diffuse networks. Their color is not green or brown, but soft metallics: pale bronze, smoky silver, dark titanium-blue. In certain lights, they seem to vanish against their substrates, then reappear as the illumination shifts.
+
+Rules of this world make certain states impossible.
+
+Open, dry expanses? Not here. Any large surface exposed to air will become damp quickly, as if the air insists on water contact. Bare dust accumulations do not last; capillary action pulls moisture in, and with it the nanoscopic infrastructure of the planet, fusing loose particles back into more coherent layers. There are no dunes, no drifting grit; all fine material is either in suspension in fluid or locked into engineered matrices.
+
+Likewise, true darkness is exceedingly rare. The same systems that manage energy and information leak faint light, enough that even in “unlit” depths there is often a low, color-shifted glow. Creatures have evolved (or been engineered) to use this: eyes tuned to longer wavelengths, skin lattices that sense field strengths directly. Many animals here are visibly responsive to invisible events — turning in perfect unison to “look” at a patch of empty air because, at their bandwidth, it is pulsing with data.
+
+Cause and effect are strongly patterned but not always intuitive. A sudden uptick in the deep bass rumble might mean a maintenance cycle beginning a thousand kilometers away — yet here, valves prepare to open, walls thicken, certain lines of movement close. The city’s nervous system is nonlocal. It connects regions not by distance but by functional relationship, so that you can step from one climate pattern to another within meters: warm, misty corridors that open unexpectedly into cooler, dryer vaults, filled with a different tone of sound and a different expected behavior of inhabitants.
+
+At the largest scale, the planet’s crust behaves almost like a living tissue: constantly repairing, reshaping, growing, and pruning. Old infrastructure is not simply demolished; it is reabsorbed. Mineral and composite are devolved into feedstock, carried away in micro-currents of fluid and field, then redeposited where needed. This gives the world its established, in-balance erosion: nothing is allowed to decay freely into chaos. Wear is part of a cycle, always eventually curved back into service, which is why nothing looks brand-new shiny or utterly ruined. Everything seems mid-life — polished in places by long use, dulled in others, but functional.
+
+The sense of “vast” here is almost oppressive.
+
+Walk in any direction and you will not encounter wilderness or an edge; you will enter different densities, different architectures, different microclimates, but always more of the same fundamental situation: wet, dense, loud, layered. The horizon is always truncated by structure. The sky, when visible, is a strip between curving, laminar masses of construction that have grown toward each other over spans of centuries, sometimes meeting to form enclosed canyons with simulated day-cycles projected from above.
+
+In certain rare, protected regions, the inhabitants have carved out relative serenity: large, still basins of warm water under high, arching vaults; sound-dampening materials that swallow much of the ambient roar; artificially chilled surfaces to condense gentle, steady curtains of “rain” that do not pulse in violent bursts. Even there, the background thrum never ceases, but for a moment, the turbulence feels slower, more like breath than panic.
+
+Step back out, and you re-enter the anthill.
+
+Layer upon layer of motion, sound and presence: flying machines weaving around gliding animals; dense flows of mid-sized creatures or constructs in channels and corridors, their paths guided by field cues you cannot see. Overhead, conduits ripple with internal traffic, vibrating subtly. At your feet, water collects and runs, vanishes through grilles that hum as they swallow it. Above all this, clouds form and dissolve continuously, never quite emptier, never quite fuller, part of a planetary metabolism that has been running long enough to find its own long-term equilibrium — not a quiet equilibrium, but one of constant, furious adjustment.
+
+This is a warm, low, wet world with no plants and no empty spaces. Its rocks weep; its machines sweat. Its animals navigate a maze not of forests and mountains but of woven architecture and engineered gradients. Erosion has become maintenance; weather is partially manufactured; technology is not separate from the environment but indistinguishable from it.
+
+And through it all, the deafening roar: not a sign of crisis, but of a vast, mature system forever in motion, forever full, never quite still.

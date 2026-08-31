@@ -1,0 +1,8 @@
+The landscape unfolds as a cacophonous, turbulent realm, an entrance to a world both fascinating and overwhelming. Situated at a high elevation, this small, cathedral-scale domain floats in the sky, a tiny universe contained within its bounds. Despite its compact size, the space is vast and empty, with only scattered structures peppering the skyline thatto investigate.
+
+The most striking feature of this world is its lush vegetation, which is scattered throughout the environment in what can only be described as "gardens" or "collections." Trees, which appear to be drifting not quite in mid-air but rather anchored to vaguely visible filaments of some sort of sharply linear material, are covered in strange blooming plants that emit their own but soft luminescence. The structures seem to be made of this same material, with the buildings looking grown or possibly created by the plants themselves.
+
+In a world with minimal existence of water, this type of unique engineering has been accounts to construct and make the tough vegetation thrive. The structures and plants alike appear to be permeated with what can only be described as "faint trails" — ribbons, wisps, very small tubes (in some cases) — of liquid and clusters of fine powders that run throughout their bodies. This peculiar trait has been included as a distinguishing aspect of this peaceful world.
+
+Despite its age, fauna is uniformly and maximally so bio-diverse that many visitors have suggested that the plants are in reality a chaotic mashup of incongruous specimens. Despite this
+floral display, this is an empty, clean habitat that does not seem to host too many actual inair encounters with wildlife.

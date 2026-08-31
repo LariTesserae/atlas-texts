@@ -1,0 +1,15 @@
+The salt flats stretch to the horizon, an endless expanse of blinding white under a sky of pale blue. The air shimmers with heat, distorting the distant city like a mirage. Here and there, strange, succulent plants erupt from the hard-packed salt, their flesh swollen and glistening, studded with hard, chitinous thorns. They are the only sign of life in this otherwise barren landscape.
+
+The city isn't made of glass or steel, but of bone. Mammoth skeletons, bleached white by the sun, have been meticulously arranged and interwoven, forming towering structures that dominate the low-lying landscape. Ribcages form archways, femurs become load-bearing pillars, and skulls serve as ornate decorative elements. The entire city is a macabre testament to the bones of long-dead beasts, harvested and repurposed by an unknown civilization
+
+Silence hangs heavy in the air, broken only by the occasional whisper of wind across the salt flats and the soft rustling of leaves of the succulent plants. The heat radiates from the ground, baking the bones of the city and drawing forth a faint, acrid smell, like ancient dust and pulverized marrow.
+
+The plants are not rooted in soil, but in the very salt itself. They draw nutrients from the mineral-rich earth through thick, sponge-like roots, filtering out the toxins and heavy metals. In turn, they provide sustenance for a host of bizarre creatures: armored insects with shimmering exoskeletons, reptilian horrors whose scales reflect the glare of the sun, and avian figures that flit through the shadows of the bone-towers, their calls strangely musical and mournful.
+
+The scale of this place is deceiving. At first glance, it seems a desolate wasteland, devoid of life. But a closer look reveals a thriving ecosystem, perfectly adapted to this harsh environment. The city itself is not a static monument, but a living organism, constantly being reshaped and repurposed as new bones are discovered and old ones crumble away.
+
+The sun is a constant, oppressive presence, beating down on the salt flats and the bone city. The heat is stifling, and the air is thick with dust. But there is also a strange beauty to this place, a sense of timelessness and resilience. The city stands as a testament to the power of life to adapt and endure, even in the most inhospitable conditions.
+
+This is a world built on scarcity, where water is a precious commodity and every resource is meticulously managed. The bone-weavers, as they might be called, are the guardians of this fragile ecosystem, ensuring the survival of their city and their people. They are not technologists, but they are masters of their environment, skilled in the art of harvesting and repurposing the bounty of the wasteland.
+
+And deep under the salt flats, in cool caverns that have yet to be exposed to the baking sun, the next generation of bones is maturing. It is here that the bone-weavers tend their nurseries. They cultivate the very earth, accelerating geological processes that will yield new building material. This is not a city that will crumble; this is a city that is actively growing.

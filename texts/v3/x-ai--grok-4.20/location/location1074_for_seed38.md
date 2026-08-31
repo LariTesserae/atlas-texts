@@ -1,0 +1,26 @@
+The place has no name that any tongue could hold. It is called, by those who never truly leave it, simply the Canopy of the Last Age.
+
+You stand inside an endless, flattened highland that has been worn so perfectly level by time that it feels like the top of the world after every mountain has surrendered. The elevation is not dramatic in slope, yet the air is thin enough that breath comes shallow and sweet. Warmth pools here like syrup; it is never hot, only heavy, a constant  warm exhalation rising from the living mass beneath your feet.
+
+Everything is wet. Not raining, not flooding — simply saturated. The atmosphere itself sweats. Moisture condenses on every surface in slow, deliberate beads that never quite fall. Stone, where it still shows, weeps. But stone is rare now. The vegetation has won so completely that it has become the ground, the sky, the architecture, the weather.
+
+There is no soil visible. What looks like earth is a dense, fibrous mat of interwoven root, rhizome, moss, and fungal velvet, kilometres deep. Trees do not rise from the ground — they erupt laterally from the living mass like slow green arteries. Their trunks are horizontal for hundreds of metres before they remember to reach upward. Vines thick as temple columns braid themselves into vaulted ceilings that open, without warning, into clearings the size of small nations. Every surface is another plant growing on a plant growing on a plant. Leaves the colour of old bronze and wet oxblood overlap in layers so dense that light arriving at the lower strata is the colour of diluted wine.
+
+It is dim, but never dark. A perpetual maritime twilight reigns, as though the sun has sunk below the horizon of the world itself and now only its memory filters through ten thousand metres of living filter. In places the canopy thins and shafts of muted gold fall like accusations, illuminating slow spirals of mist that never quite dissipate.
+
+The scale is continental, perhaps larger. Weather systems are born and die inside the Canopy without ever reaching an edge. You can walk for weeks and never see true sky, only deeper and deeper green cathedrals whose pillars are living banyans older than animal life. Distances deceive. A hill that looks a day’s walk away is revealed, upon approach, to be a single fallen leaf the size of a mountain, its veins now canyons filled with their own dwarf forests.
+
+Everything is ancient. This is not old growth. This is post-growth. The final stable state of a biosphere that has outlived its geology. Erosion has won so thoroughly that the underlying rock has been planed to a gentle undulation no steeper than a breathed-out sigh. The land is almost perfectly flat, yet every centimetre is occupied. Nothing is wasted. The ecosystem has reached the logical end of competition: total, courteous saturation. Every niche is filled by something that grows so slowly it appears motionless.
+
+Fauna is abundant but behaves like flora. The animals have all become half-plant. Slender six-legged browsers drift through the understorey like ambulatory orchids, their hides covered in symbiotic moss that moves in photosynthetic waves. Vast herds of creatures that might once have been deer now resemble mobile topiary, antlers grown into candelabras of flowering lichen. In the upper strata, things like whales made of pale fungal felt drift on internal ballonets of gas, trailing rootlets that drink the condensing air. They sing to one another in frequencies so low the sound is felt as a gentle pressure against the sternum, a note sustained for hours.
+
+Sound itself is mostly quiet. The dominant noise is the patient dripping of water from leaf to leaf, centuries of the same droplet finding the same route down. Occasionally a distant exhalation moves through the canopy — the collective sigh of ten billion stomata opening in unison — and then silence returns, thick enough to taste.
+
+The strangeness is not in monsters. The strangeness is in the completion. This place is what happens when life refuses to die. It has become architectural, geological, meteorological. Here and there, almost lost in the green, you find the scattered remnants of something that was once not-plant: a single basalt pillar carved with symbols no longer legible, half-dissolved into living wood; the collapsed dome of what might have been a temple, now a bowl filled with carnivorous bromeliads; a rusted iron ribcage the size of a ship, every strut furred with orchids that bloom only once every forty years.
+
+Nothing decays. Nothing is young. Everything is being quietly, politely, perfectly incorporated. Even memory seems to be absorbed. If you stay long enough the edges of your thoughts begin to root. You start to feel the slow hydraulic pulse that moves water upward through kilometres of intertwined vascular systems. You understand, without language, that the Canopy is not a forest. It is a single organism that ate the planet and is now digesting the idea of time.
+
+The only law is patience.
+
+If you wait long enough, even stone will flower.  
+Even you will become architecture.

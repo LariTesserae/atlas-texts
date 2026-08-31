@@ -1,0 +1,11 @@
+A vast submerged city sprawls at the bottom of a yawning, kilometers-deep chasm, its crystalline spires angling up from gloved fingers of basalt to shatter the dimly luminescent surface of the abyssal pool. The buildings are all cyclopean masonry, seamlessly fitted with neither mortar nor visible joints, every block weighing tons but looking intricately carved with non-Euclidean patterns that hurt the optics processing center of your brain. Shafts of turquoise ice, hundreds of meters across, impale the cityscape, the ice faceted like aventurine, through which gleam luminous eels the color of churned meadow soil. Slick pods of shadow skulk in the angles, their edges starting but never quite resolving, reeking chicory and new mountainside scree. 
+
+And the way it shifts! It can't seem to settle into stillness. New pinnacles erupt through the ice yearly as older ones dwindle to glassy dust. Streets unfold and scribble themselves into new traceries, the sectors tracing the meoscopic ice intrusions. Things cross the surfaces, leaving nacreous spray and the echoes of whispering ignored, and innumerable vermiform arms of dark nebulosity coil and tense against the spires.
+
+Somehow, amid all the fluid and flux, life finds purchase, the fungal and its-preInfrastructure analogs cultivating unguent biologies in the limitless fractal cities of niches on niches afforded by the ever-evolving structure. The fungal cities are primevales of chalk and flint and infinitely aqueous stone, always prior, always posterior to the thing it προπολ.RequestBodyθπ. From them well luminous oils and musks that humidify the amniotic dimness through which they ooze.
+
+(And god, you shouldn't have peered so closely into the keel-cracks.)
+
+Ahead, the toroid pool narrows to a point and expires in a hazy silver cataract into a gulf of layered ice. Crusted in that ice is an efflorescence of ice-wasps hung searching like preserved blossoms with iridescent wings but still motile, and the cities and cities are scent-ecstatic, skittering in the churn-mud to communicate with them. The ice overhead is buttered with maturating cesium or selenium lights flailing fluorescently.
+
+At your back, the lake opens to the small fathomless pool of one of your eyes watching the dark slide past in its own unhelpable ocular efflorecence.

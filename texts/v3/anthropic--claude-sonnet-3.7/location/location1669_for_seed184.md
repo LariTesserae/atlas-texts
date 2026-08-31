@@ -1,0 +1,23 @@
+# The Under-Arch
+
+The Under-Arch stretches beyond comprehension, a vast hollow beneath the planetary crust. No human has seen its boundaries—if they exist at all. What light exists filters through crystalline formations in the ceiling high above, creating a perpetual cool twilight that casts deep blue shadows across the landscape.
+
+The air is cool and holds no moisture. Not dry enough to parch the throat, but nothing drips, nothing flows. Any liquid here must be carried, stored, conserved. The ground underfoot is not soil but a compacted mixture of mineral dust, crystal fragments, and the powdered remains of countless generations of the Arch's inhabitants.
+
+What plants exist are strange twisted things: pale crystalline growths that catch and redirect the dim light, fungi-like structures that pulse with bioluminescent rhythms, and sparse patches of filament-thin vegetation that seems to harvest energy from the magnetic fields rather than light. These rare botanical oddities cluster around the bases of towering organic structures that dominate the landscape.
+
+For the Under-Arch is, above all, a city—though not built by hands or tools. It is a metropolis of living creatures, stacked and nested and interwoven so densely that from certain vantages, no space exists between their bodies. These are the Archforms: immense, sessile beings that grow from the ground up in twisted spirals, branching formations, and honeycomb-like clusters. Their bodies form the architecture of this strange urban expanse—cathedrals of flesh, boulevards of interlocking tentacles, plazas formed in the spaces between massive pulsing organs.
+
+The Archforms appear plantlike in their immobility, yet they are undeniably fauna. Their surfaces writhe with smaller creatures—symbiotes, parasites, or perhaps specialized organs that have developed mobility. These smaller beings climb, burrow, and fly between the massive forms, carrying nutrients, information, or fulfilling roles unfathomable to outside observers.
+
+The cacophony is constant. Low thrumming vibrations pulse through the ground—the heartbeats of the largest Archforms. Whistling calls echo through the branching passages. Clicking, chittering, and keening sounds form a dense symphonic layer that never ceases. Occasionally, deep resonant tones that seem to emanate from the very walls of the cavern itself overwhelm all other sounds, causing even the largest creatures to still momentarily.
+
+Movement is everywhere. Though the great Archforms remain fixed, their surfaces ripple, expand, contract. Tendrils reach from one massive being to another, connecting briefly before withdrawing. Swarms of flying creatures—somewhere between bats and insects but truly neither—move in complex patterns overhead, seemingly encoding messages through their flight paths.
+
+The structure of this underworld city follows no human logic but possesses an organic organization that becomes apparent over time. Certain areas pulse with more activity, acting as nodes in the living network. Other regions remain relatively quiet, with Archforms in dormant states that might last for centuries before a sudden explosion of growth and movement.
+
+Nothing here was constructed with tools or technology, yet everything serves a purpose. The Archforms grow in patterns that maximize the dim light, their bodies forming living conduits that transmit energy through the vastness. Specialized chambers within the larger beings seem to serve as repositories for the limited moisture available, shared among the community through complex biological processes.
+
+The Under-Arch has existed in a state of dynamic equilibrium for eons. New Archforms grow slowly, taking the places of those that eventually wither and are absorbed by their neighbors. The ecology shifts and adapts, but the fundamental nature of this strange civilization beneath the surface remains constant—a living city whose inhabitants are the buildings themselves, whose streets are formed by the spaces between bodies, whose language is expressed through movement, vibration, and the careful exchange of resources.
+
+To traverse the Under-Arch is to navigate a maze of living tissue, to breathe air that has passed through countless respiratory systems, to feel the subtle vibrations of communication passing through the very ground beneath your feet. It is to witness a form of civilization that evolved without hands, without tools, without water—yet achieved a complex society through pure biological adaptation and cooperation at a scale that dwarfs human comprehension.

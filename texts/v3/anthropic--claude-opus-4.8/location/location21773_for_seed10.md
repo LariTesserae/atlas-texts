@@ -1,0 +1,33 @@
+# The Sphagnum Engine
+
+Start at the height of it, where the air thins and the cold gets into the seams of things. You are standing on a plateau that has been worn down for longer than there have been words for time. Whatever mountains stood here once have been rounded to nothing, sanded to the bone, until the whole upland is a single vast bog held up against the sky like an offering nobody asked for.
+
+The ground is not ground. It is moss — *sphagnum* gone monstrous and total, a living mattress kilometers deep, breathing water up from somewhere beneath and never letting it go. You sink to the ankle and the moss closes over your boot with a sound like a swallow. Everything is the color of old bruises: ochre, rust-purple, a green so dark it reads as black until the dim light catches it. The light itself comes filtered through a permanent low cloud, the sun reduced to a paler smear in the grey, so that noon and dusk are nearly the same hour and the day never quite commits to being a day.
+
+Walk, and the whole surface walks with you. The moss-skin flexes underfoot in slow waves that travel out for fifty meters, so that the land itself seems to be taking a breath at your arrival. Pools open between the hummocks — black mirror-water, cold enough to ache, fringed with sundew and cotton-grass. These are sparse, scattered, each one a long way from the next, so the eye keeps reaching across emptiness to the next dark eye of water. The scale is regional. You can see for miles in the dim, and what you see is more of the same, fading into the cloud: a turbulent green ocean that does not move and yet is never still.
+
+Here is the first wrong thing, and it is wrong on purpose.
+
+Listen.
+
+There is a sound up here that should not be — a deep, rhythmic *labor* coming from below the moss. A churning, a piston-stroke, a wet mechanical breathing. It is loud, loud enough that you feel it in your sternum before you name it: the sound of an industry, an engine-house, a mill running full at the bottom of a valley. But there is no valley. There is no building. There is no smoke, no wheel, no made thing anywhere in this whole untouched waste. The sound rises straight out of the peat.
+
+The bog is the engine. The bog *runs.*
+
+Press your palm flat to a hummock and feel it: a steady throb, hydraulic and enormous, water being drawn down through the moss-roots and forced back up, a circulation system the size of the plateau, pumping itself for no reason and toward no product. The plants have organized into the *shape* of machinery without any of the matter of it. There are flywheels of woven heather that turn slowly in the pools, throwing off droplets in a fine cold spray. There are bellows of bladderwort that fill and collapse with a sigh you can hear from a kilometer off. There are long ranks of reed that piston up and down in their beds, slick and deliberate, like the legs of a loom. No metal. No fire. Only growth, doing the work of an age that never came, mimicking a revolution that never reached this place — or reached it once, long ago, and left, and the bog kept *remembering* the rhythm and grew itself into the memory.
+
+This is the third wrong thing, and it sits underneath everything: the place is *ancient.* It has settled into its final form. Erosion has done all it can do; there is nothing left to wear away. And yet it is the most turbulent place you will ever stand. The two facts ought to cancel and they do not. The bog has reached its end-state, and its end-state is *perpetual frenzy* — a machine that finished being built so long ago that all it has left to do is run, forever, processing nothing into nothing.
+
+The fauna are abundant and they are part of the works.
+
+You will see them everywhere once your eye learns them. Frogs the dull green of the moss, hundreds to a pool, who time their throats to the engine's stroke so that the whole bog croaks in a single concussive beat — that is half the loudness, that rhythmic roar that rolls across the flats and comes back off the cloud. There are wading birds on legs like wet wire, walking the hummock-tops in long scattered files, stitching the surface with their beaks, and where they stitch the moss pulses brighter, as though they are servicing it. There are insects in clouds that move like exhaust. And there are the larger things, glimpsed: long low backs sliding through the deep peat-channels, neither fish nor mammal, that surface to take a slow breath of the cold air and submerge with a noise exactly like a valve.
+
+Nothing here eats anything, as far as you can tell. The whole ecology has gone past hunger into pure motion. The frogs feed the moss with their singing; the moss feeds the birds the rhythm; the birds feed the engine back its tempo. It is a closed loop that produces only its own continuance, the way a heart's only product is the next beat.
+
+And the reality of the place is thin.
+
+It frays at the edges of perception. Stare at a turning flywheel of heather and it will, for a moment, *be* iron — you'll catch the gleam, smell the hot grease, hear the shriek of a bearing — and then it is only wet plant again, and you cannot say whether the bog dreamed the machine or you did. The pools sometimes reflect a sky that isn't there: a sodium-lit factory ceiling, girders, the orange glow of a furnace floor, all upside-down in the black water, and when you look up there is only cloud. Distances refuse to hold. The far hummocks come closer when you aren't watching. Your own footprints fill not with water but with a faint, receding sound of footsteps continuing on without you.
+
+The cold keeps you honest. It is the one fact that won't slip. It comes up off the water and into the marrow and reminds you that whatever this place is *doing,* it is doing it slowly, at the temperature of held breath, in no hurry, because it has all the time that has ever existed and intends to spend every second of it pumping water up and letting it fall and singing in one enormous froggy voice to keep the rhythm of an industry that the world dismantled everywhere else a long, long time ago.
+
+Stand here long enough and you will feel your own pulse trying to find the beat. Let it. There is nothing else to do up here. The engine does not need you. It never needed anyone. It only needs to run, and it will run after you have gone, sinking its rhythm down through ten thousand years of dead moss, drawing the cold water up, and breathing.

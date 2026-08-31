@@ -1,0 +1,17 @@
+The Thermal Shelf
+
+High on the shoulder of a young volcanic peak, where the mountain's flank has recently cracked and settled, a narrow ledge extends like a cupped palm—no more than fifty meters across at its widest point. The stone beneath is black basalt, still sharp-edged from its violent birth, though already the mountain's interior heat has begun to work strange changes here.
+
+Steam rises constantly from dozens of small fissures, carrying with it a mineral tang that coats the tongue. The air itself feels thick, nearly breathing you as much as you breathe it. Moisture condenses on every surface—the sparse, stubborn grasses that have managed to take root in pockets of volcanic ash glisten perpetually with droplets that never quite evaporate in the warm, humid air. Water seeps from the rock walls behind the shelf, not flowing in streams but weeping steadily, collecting in small pools that stay blood-warm from the earth's heat below.
+
+What makes this place extraordinary—and strange—is not the sparse vegetation or the perpetual mist, but the density of life that has discovered these thermal seeps. The air thrums and buzzes with an overwhelming profusion of insects drawn to the warmth and constant moisture. Clouds of steam-midges rise and fall in columns, their wings catching what sunlight filters through the vapor. Beetles with shells like polished obsidian crowd around the warm pools, clicking and whirring as they jostle for position. Moths the size of dinner plates, their wings scaled in iridescent copper, navigate the steam plumes with deliberate, heavy wingbeats that add a deep thrumming bass note to the insectile symphony.
+
+The sound is remarkable—a layered wall of chittering, buzzing, clicking, and humming that seems to pulse with its own rhythm. Occasionally, the mountain itself contributes a low groan or hiss as steam finds a new vent, adding to the industrial quality of this natural theater.
+
+Stranger still are the adaptations: insects that seem to feed directly on the mineral-rich water, their bodies swollen and translucent with stored moisture. Some have developed what look almost like primitive heat-exchangers—wing cases riddled with channels that gleam wetly as they regulate the creatures' internal temperature. A few species seem to have evolved a symbiotic relationship with the sparse moss that clings to the warmer rocks, the plants' surfaces dotted with insect-tended gardens of what might be fungal spores.
+
+The creatures move in slow, almost ritualistic patterns, as if following ancient flight paths around the thermal vents. Their movements are unhurried but constant—a continuous, patient circulation that has worn faint paths in the air itself, visible as subtle currents in the steam. 
+
+Despite the overwhelming abundance of life, there's something pristine about this place, untouched by any hand but nature's. The recent geological violence that created this shelf has left it raw and immediate, a glimpse into the planet's own industrial processes made manifest in warm stone and rising vapor, colonized by life with an urgency that feels both ancient and utterly modern.
+
+The light filtering through the perpetual mist creates an even, pearl-gray illumination that makes everything seem to glow from within—the wet rocks, the bronze-winged moths, the jeweled shells of countless beetles, all suspended in this small cathedral of steam and sound, perched on the edge of the mountain's breathing earth.

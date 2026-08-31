@@ -1,0 +1,15 @@
+A hanging valley caught in perpetual dawn, where the air itself seems to breed life. The space is cathedral-sized, bounded by near-vertical walls of dark, wet stone that catch and amplify every sound into a cacophonous chorus. Water weeps constantly from the rock faces, but never reaches the ground as liquid – instead, it's intercepted by masses of translucent, tubular plants that grow horizontally from the cliff faces, their crystalline structures catching and fracturing the intense light into rainbow cascades.
+
+The valley floor isn't soil but a dense mat of pale fungal growth that pulses visibly with each step, sending ripples outward like disturbed water. This living substrate hosts forests of vertical stalks – some thin as hair, others thick as tree trunks – that constantly sway despite the still air. Their movement isn't random but coordinated, like the tentacles of some vast organism sensing its environment.
+
+The overwhelming brightness comes not from above but from within: billions of thumbnail-sized creatures that might be insects or might be seeds drift through the air, each trailing its own cold phosphorescence. They move in sharp, geometric patterns, forming and reforming abstract shapes that hint at some larger purpose or intelligence.
+
+The few human artifacts here are being rapidly consumed by the ecosystem. Simple stone tools, remnants of leather bags, and what might once have been a wooden shelter are now serving as scaffolding for colonies of iridescent moss that seems to be slowly reorganizing these materials at a molecular level. The moss emits a high-pitched harmonic tone that varies with the light's intensity.
+
+The ambient temperature hovers just above freezing, yet the air feels thick and tropical due to the density of life forms. Every surface hosts multiple layers of competing organisms: creeping vines with leaves like mirrors, colonies of bouncing spherical spores that respond to sound, and patches of what appears to be living frost that grows in fractal patterns.
+
+The soundscape is almost solid – a physical presence you have to push through. It's composed of the continuous clicking of unseen creatures, the crystalline resonance of the water-catching plants, the harmonic hum of the moss, and the percussion of countless small impacts as life forms collide and interact. These sounds reflect off the valley walls, creating standing waves that make certain spots unbearable to stand in.
+
+Small structures that might be nests or might be machines appear regularly throughout the space, constructed from a combination of gathered materials and living tissue. They pulse with internal activity but seem to serve no clear purpose, occasionally releasing clouds of spores or changing color in response to unseen stimuli.
+
+The whole valley feels like a single organism testing out different forms of life, an evolutionary experiment running at high speed in isolated conditions. Nothing here seems quite finished evolving, and the boundaries between plant, animal, and mineral are fundamentally unclear.

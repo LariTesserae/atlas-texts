@@ -1,0 +1,19 @@
+The world is a scream of water.
+
+Not an ocean, not truly. You stand on what feels like stone, but it is only the peak of a drowned mountain, and the water is not just beneath you but around you, above you, a perpetual, churning mist so thick it is a liquid atmosphere. The roar is the first and last fact: the grinding of submerged continents, the hiss of a billion tons of spray atomized against rock, the deep, resonant thrum of pressure differentials collapsing. It is a sound so total it becomes a physical medium, a vibration in the teeth and the bones of the world.
+
+This is a cathedral-sized cove, a hollow in the skeletal remains of a mountain range that only last year (or last century; time is muddled here) was still dry land. The rock is sharp, angular, untouched by gentle weathering. It shears in great, fresh slabs, stained with bright, mineral veins—ochre, verdigris, stark white. There is no soil. Sparse, tough vegetation clings in crevices: lichens that look like dried blood, and a few salt-stunted shrubs with waxy, black leaves, their roots gripping like desperate fingers.
+
+The light is dim, a perpetual grey-twilight filtered through the roaring hydro-sphere. Sun is a rumor, a faint, diffuse brightening in the sky-ocean. The air is warm—unnervingly warm for this much water—a humid, body-temperature heat that encourages condensation on every surface. Your own skin is instantly slick.
+
+The water that defines this place is not a surface. It is a state. It falls in curtains from above, surges up through fissures in the stone as if the mountain is bleeding, and pools in basins that have no bottom, their depths a darker, churning grey. There are no horizons, only gradients of mist and falling water.
+
+And in the deafening tumult, the rules fray.
+
+The ground shudders, not just from geology but from *addition*. A spire of obsidian-like rock, jagged and wet, *grows* from a fissure over minutes, groaning as it rises, only to be battered and shattered by a sudden, violent upsurge of water from below. The debris doesn't just fall; some fragments hang suspended in the thick air, vibrating, before being snatched away by an impossible current that flows *upwards*. The waterfall to your left falls *up* for three heartbeats, a roaring pillar of white ascending into the grey void, before collapsing back into normality.
+
+Life is rare, but present. A creature like a cross between a salamander and a feather, with iridescent, water-shedding skin, clings to a rock face, its throat pulsing not with croaks but with small, counter-melodic whistles that somehow cut through the din. It watches you with eyes that are smooth, wet obsidian. Once, you see something larger—a shape like a manta ray woven from kelp and shadow—glide silently through the water-fog above, its passage creating a temporary, silent vortex in the roar.
+
+The scattered artifacts of built things are not structures, but wounds. A length of rusted iron, thick as a man's thigh, protrudes from a cliff face, bent into a perfect spiral. What might be the corner of a stone building, perfectly cut, sits balanced on a pinnacle, too high to reach, holding a pool of perfectly still, fresh water in which inverted clouds swim. It is not a ruin from a past civilization, but a fragment of *something else* that has become entangled in this place's violent emergence.
+
+This is a world in a state of constant, turbulent birth. The deafening sound is its creation-hymn. The warm, wet air is its breath. The sharp, unstable rock is its flesh, perpetually torn and remade. It is a small, intense wound in reality—a single feature-area where the concept of "shore" is being violently argued, and the argument is everything.

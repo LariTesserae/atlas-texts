@@ -1,0 +1,27 @@
+The first thing that hits you is not the cold, though it is biting enough to burn the lungs, and it is not the dark, though the light here is weak and brown. It is the sound.
+
+It is a deafening, constant roar—a low-frequency thrum that vibrates in the marrow of your bones. It is the sound of a million tons of water being forced through the guts of the earth, mixed with the rhythmic, heavy-clanking stomp of massive pistons. The noise is so total that it becomes a kind of silence; after the first hour, the ears stop trying to hear it and simply surrender to the pressure.
+
+You are standing in a vast subterranean hollow, a space so wide that the distant walls are lost in the gloom. The elevation is significantly below sea level, a sunless sinkhole that feels more like the interior of a planet than a cave. The air is freezing, hovering just at the point where breath freezes upon exit, hanging as a temporary ghost before falling to the floor. It is a damp cold, the kind that soaks through wool and leather, settling into the joints.
+
+There is no stone here. There is no soil.
+
+This is a landscape of pure biomass. The "ground" is a tangled, interwoven mat of colossal roots, each one as thick as a metro tunnel, pressing so tightly together that they form a solid, wooden floor. They are pale and anaemic, stripped of bark by the friction of their own growth and the moisture of the environment. The walls of the cavern are the same—a curved, woody cliff of ancient lignin that stretches up into the darkness. It feels less like standing in a cave and more like standing inside the hollowed-out trunk of a world-tree that has died and been fossilized while still somehow maintaining its structural integrity. The vegetation is total; it is the substrate, the architecture, and the boundaries of the world all at once.
+
+Despite this total coverage of plant matter, the space feels stark and sparse. The root-mass is surprisingly flat in this section, creating a wide, open arena of pale wood that extends into the brown haze. There are no thickets, no brambles, no leaves to clutter the view—just the smooth, sweeping curves of the mega-roots and the vast, empty air between them.
+
+The light comes from scattered industrial fixtures mounted on tall, thin pylons that rise haphazardly from the root-floor. These lamps hum with a dying, amber voltage, casting long, weak shadows that do little to pierce the gloom. They are spaced far apart, creating islands of visibility in a sea of dimness.
+
+Water is everywhere, yet scarce. The "damp" parameter manifests as a heavy, slick condensation that coats every surface. The wooden floor is treacherous, sheened with a film of black ice and slime. Pockets of water have collected in the natural hollows between the roots, creating still, black mirrors that reflect the amber lights. Occasionally, a distant drip echoes, but the sound is swallowed instantly by the roar of the machines.
+
+And the machines are everywhere, yet they are few. This is the paradox of the place. Scattered across the vast, open root-plain are immense, singular structures. A hundred meters away stands a pump-house the size of a cathedral, riveted together from iron plates stained black by the cold. Further off, a cluster of ventilation stacks rises from the floor, chugging white steam into the freezing air. These are not ruins; they are active, working mechanisms. They are the source of the deafening noise. They thrum and hammer, driving pistons deep into the root-mass, presumably drawing water or nutrients up from the depths below.
+
+The technology is industrial and heavy, uninterested in elegance. Thick pipes, wrapped in shedding insulation, burst from the wooden ground like exposed arteries, tracing paths toward the distant factories. They shake violently with the pressure of the fluid inside. The contrast is jarring: the organic, eternal, slow-moving wood of the planet, and the violent, rapid-fire metal spikes driven into it.
+
+There are no animals. The roar and the cold have driven them away, or perhaps the environment is too hostile for anything larger than a microbe. Occasionally, a pale, blind moth might be seen clinging to the warm casing of a pipe, but for the most part, the fauna is non-existent. The ecology is reduced to the plant—the vast, dead-seeming root—and the machine that parasitizes it.
+
+The entire place feels "young" in a geological sense, despite the age of the roots. The cavern feels freshly emerged, perhaps by a recent collapse of the upper crust or a sudden shift in the water table that scoured the space clean. The edges of the roots where they meet the air are sharp and raw, not yet weathered smooth. The industrial structures look hastily assembled, a frantic attempt to exploit a newly exposed resource.
+
+Movement here is slow. The dynamic of the world is glacial. The steam rises in lazy, suspended spirals. The condensation drops form and fall with agonizing slowness. The machines move with a heavy, rhythmic inevitability. To walk from one pump-station to the next is a journey of hours across a slippery, vibrating wooden plain.
+
+It is a cold, wet, loud cathedral of industry built inside a corpse, a place where the organic is merely the foundation for the mechanical. The silence of nature is not just absent; it has been hunted down and killed by the roar of the engines.

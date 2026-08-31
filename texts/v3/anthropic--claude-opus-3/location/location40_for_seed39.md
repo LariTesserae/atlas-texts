@@ -1,0 +1,13 @@
+In the hollow core of a barren mountain range, an extraordinary industrial site thrums with activity amid vast emptiness. Towering peaks of raw, newly formed rock rise to dizzying heights, their faces steep and mostly lifeless, only a smattering of hardy mosses and lichens clinging to the cold stone. Rivulets of glacial meltwater trickle and seep from cracks and crevices, the mountain's sparse arteries converging into streams that wind through the wide basin far below.
+
+At the center of this bleak and open expanse sits an immense, incongruous factory complex. Hulking buildings of steel and concrete crouch low to the ground, their angular forms in stark contrast to the serrated ridge lines high above. Smokestacks belch plumes of vapor into the thin, chilly air. The hum and clanking of heavy machinery echoes off the valley walls, a droning underscore to the occasional shrill whistle or metallic screech.
+
+Surrounding the factory, weed-choked industrial yards stretch toward the mountains' base. Piles of raw ore and salvage, heaps of slag and debris, rusting vehicles and parts form a bleak, rubble-strewn landscape. A few rail lines snake into the distance, disappearing into dark tunnel mouths that penetrate the mountainsides.
+
+Yet despite the apparent desolation, the basin teems with strange fauna. Flocks of small, hardy birds wheel and dive, seemingly drawn to the factory's warmth and promise of food. Pale, serpentine creatures undulate across rockfalls and scree slopes, their segmented bodies armored against the cold. Larger, more fearsome beasts prowl the shadowed places — sinewy, long-limbed predators stalking the valley edges, their fur ranging from ashen gray to soot black. At night, their eerie cries mingle with the persistent industrial din.
+
+An oddly rhythmic quality pervades this peculiar place, a kind of merging of biological and mechanical cycles. The creatures seem to move in unconscious concert with the factory's workings, as if the entire valley is a single, pulsing organism. The lumbering gait of the predators matches the timing of the largest pistons; the birds' darting flight, the spinning of flywheels and gears.
+
+Thick clouds, tinted by the factory's exhalations, diffuse the cold sunlight to a wan glow. Mists gather in the deeper ravines, drifting and eddying like a ghostly circulatory system. The air carries a tang of metal and chemical, the mountains' mineral scent mingling with the factory's acrid discharges.
+
+Here, in a place shaped by both titanic geological forces and relentless mechanized industry, primordial nature and imposing technology have reached a strange symbiosis — a surreal equilibrium poised between the ancient, unformed world and the grinding engines of progress.

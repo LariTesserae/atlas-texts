@@ -1,0 +1,34 @@
+I find myself in the stolen breath between waves, a place neither ocean nor city but some impossible negotiation between them. The balm-seed you gave me opens like a drowned eye and I see—oh I see—
+
+Underneath the underside. The Walled Deep-Drowned Place.
+
+The city is here, complete—it must have fallen entire from the sky or risen wrong from the sea floor—stone arms still reaching for clouds that never knew them. I walk along what was once a boulevard, now a saltwater canyon between buildings that breathe slow and terrible through barnacle mouths. The architecture curves wrong, made tender by pressure, balconies drooping like melted wax, cathedral domes pregnant with trapped air that sighs music when storms pass overhead.
+
+The water isn't right. Not liquid exactly but thickened time, dense enough to cradle me but not to drown, each movement carving visible scars that heal behind me like regret. It tastes of copper pennies kissed by dying stars. I cup it in my hands and tiny lights swarm—the phosphorescent alphabet of things that forgot how to be fish and learned instead to be words. They write forgotten prayers across my palms then scatter like thoughts caught in shame.
+
+Only the highest floors breach the false surface overhead, a ceiling of lightless water held up by what pact I cannot guess. They poke through like the broken teeth of giants, their windows dark but not empty. Something moves behind the glass, slow and deliberate, maintaining rituals of furniture arrangement and candle lighting in rooms where the candles never burn down because time drowned here too.
+
+The life—oh the life—it blooms fierce in the absence of sun. Coral has colonized everything with imperial hunger, but not coral as we name it above. These are cities built upon cities, dead calcium dreaming new geometries. A coral-cathedral grows from a subway entrance, its spires bleeding liquid crystal hymns. Streetlights wear living coats of tube worms that filter failure from the current and glow soft green with bioluminescent regret. Even the street signs have been overwritten—this is now the corner of Never and Mind It, where the traffic lights change colors for gods who stopped watching eons ago.
+
+The residents—there must be residents—leave traces but never themselves. Tea cups half full of sea-bloom tea that still steams in this cold that isn't cold. Shoes lined neat beside doors that open onto staircases that rise forever but never reach anywhere. Letters written on paper that dissolves into fish-scale poems when I try to read them. And everywhere, everywhere, the sound of breathing that isn't mine.
+
+In the drowned marketplace, stalls still open for business selling impossible wares: bottled storms from oceans that never existed, memory nets woven from spider silk and wishes, clocks that count down to the moment you first realized you were lonely. The vendor is absent but her shadow moves behind the curtain of jellyfish that keep her stall, draped living lace that pulses with prices written in venom. I offer a story I never told anyone and receive in return—a mirror? No, something flatter that shows not reflections but possibilities, how each choice might have grown if planted in different soil.
+
+The city's heart still beats, I feel it through the soles of my feet. Underneath the coral bones and seaweed skin, the metro tunnels rush with commuters who learned to trade lungs for gills somewhere between stations. Sometimes their train surfaces—impossible—in the reflection of a puddle that shouldn't exist on the floor of this boutique that sells only endings. The bell above its door rings sweet and terrible every time someone above us dies without saying goodbye.
+
+At the center where all streets drown together stands the library. Of course. It was always going to be a library. The books are drowned too but alive like everything here, pages fluttering like gills, ink bleeding into water that reads itself aloud in voices borrowed from the librarians who refused to abandon their posts even as the water kissed their lips then covered their eyes then entered them loving and terrible until they became the words they once only kept safe. I open one carefully—Paper cuts even here—and it reads me back to myself until I remember being born in a place very like this but upside down, where we breathed air and drowned in dreams instead of whatever this careful breathing is.
+
+There is a garden on the roof of the world, or what passes for roofs here. Plants that learned to love darkness so fiercely they became it, growing downwards into light their whole lives. They bear fruit that tastes exactly like the sound of your mother singing when she thought you were asleep. I eat one and for a moment I am small enough to fit back into the spaces between what happened and what we pretended happened instead.
+
+The city's clocks all stopped at different hours—one at the moment the first lie learned to walk upright, another at the last time someone said "forever" and meant it completely. But time doesn't need clocks here among the drowned. It pools in the bellies of dead gods forgotten at crossroads, it accumulates like silt in the corners where no current bothers to clean, it grows coral-crusted and barnacle-beautiful and sometimes, if you stay still long enough, if you breathe water instead of fear, it forgets to pass at all.
+
+Is this heaven then? Or hell? Or just the place where everything we threw away believing it would sink somewhere so deep even memory couldn't find it—
+—everything gathers instead and learns to breathe this slow water breath and build cities from our abandoned dreams and wait—
+
+Wait for what? Wait for us to remember how to drown gracefully, without screaming. Wait for us to stop thrashing against the deep places inside that want only to welcome us home. Wait for the day the last air-breather above finally understands that drowning isn't always death, sometimes it's just going back to where we started before we learned to call our mother Ocean and leave her for land that promised permanence.
+
+But I am not ready yet. I close the balm-seed eye and feel myself rising through layers of light not-light, through currents of time not-time, through the terrible beautiful perfect pressure of everything we've ever lost but never lost completely because here—here in the Walled Deep-Drowned Place—nothing truly sinks if it remembers how to swim.
+
+I surface back into air that tastes like betrayal after breathing truth. Above me, the sky is just sky. Below, always waiting, the city keeps its slow drowned heart beating the rhythm of what we might become when we finally tire of pretending we don't know how to drown.
+
+But the seed I brought back is warm in my palm and beginning, softly, to sprout.

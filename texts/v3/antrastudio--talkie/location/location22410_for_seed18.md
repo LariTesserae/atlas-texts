@@ -1,0 +1,1 @@
+The place is a territory imbedded in hills, between river and sea, where the atmosphere is warm and damp, and the climate mild, the scale small, and the vegetation luxuriant. It is built, fully constructed, and industrially mechanized. Its sound is deafening, and its dynamics slow. Strange creatures and weird noises haunt it.

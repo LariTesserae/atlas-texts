@@ -1,0 +1,19 @@
+# The Resonant Cavern
+
+A tight squeeze through raw, newly-split granite leads to a small chamber that shouldn't exist—a pocket beneath the mountain's crown, so high that the air is thin and each breath feels insufficient. This cavern, barely larger than a modest cathedral nave, was born in geological violence mere decades ago when a tectonic shift created a fault that is still resolving itself.
+
+The space thrums with an overwhelming, percussive drone that makes your bones vibrate and your ears ache even with protection. This sound—this relentless, deafening pulse—emanates from a cluster of massive steam-driven pistons that occupy the chamber's center. The machinery rises in a dense tangle of copper pipes, iron chambers, and brass gauges, all gleaming dully in the sparse light cast by scattered electric lamps affixed to the rough stone walls. Condensation beads on every metal surface, catching the dim light like constellations.
+
+The industrial apparatus was clearly installed after the cavern's formation—an opportunistic exploitation of some geological advantage. The machinery seems to be harvesting energy from the mountain itself, perhaps tapping into a geothermal pocket or collecting some rare gas that seeps through the newly formed fissures. Pressure gauges fluctuate wildly, and safety valves occasionally release jets of steam that add to the chamber's constant percussive symphony.
+
+Around the edges, where machine meets stone, sparse vegetation has found purchase—peculiar pale mosses and tiny translucent ferns that have evolved to thrive in this strange environment. They absorb moisture from the cool, damp air rather than from the emerging stone floor, which is still too raw and mineral-laden to support conventional plant life. In places, the moss glows with a faint bioluminescence, providing additional ghostly illumination.
+
+Water doesn't flow here so much as it accumulates—condensing on the cool stone ceiling and dripping irregularly onto the machinery below, creating small, transient pools in the uneven floor. The liquid carries dissolved minerals from the fresh rock, leaving behind crystalline deposits that grow visibly over weeks, creating nascent stalagmites that are still too young to have the traditional conical shape.
+
+Occasionally, small flying creatures—not quite bats, not quite birds—dart through the space between the ceiling and the machinery. They seem to be feeding on insects too small to see in the dim light, both species having found their way in through the same cracks that allow occasional gusts of alpine wind to sweep through the chamber. These gusts cause the pitch and tone of the machinery's drone to fluctuate unpredictably, as though the entire setup is some enormous, primitive musical instrument being played by the mountain itself.
+
+Around the periphery of the chamber are scattered evidence of human presence: a small wooden platform that serves as both monitoring station and occasional bunk, a filing cabinet bolted improbably to the stone, a few abandoned tools whose specific purposes are unclear. Yet there are no people present—the machinery appears to operate autonomously, requiring only periodic maintenance visits from its creators.
+
+The entire environment exists in a state of active becoming. The cavern walls still occasionally shed stone as the mountain continues to settle. The machinery constantly adjusts itself through a system of counterweights and pressure differentials. The sparse ecosystem of adapted organisms shifts and evolves with each passing month. Nothing here is finished; everything is emergence.
+
+And always, unrelentingly, there is the sound—a thunder so constant it becomes a presence, a deity demanding acknowledgment, making thought difficult and communication nearly impossible without elaborate gestures or written notes. It is the cavern's heartbeat, its reason for being, both threat and promise in its industrial rhythm.

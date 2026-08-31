@@ -1,0 +1,18 @@
+This is the interior of a massive, water-logged geode, a subterranean hollow no larger than a cathedral’s chapel, buried deep beneath the crust of a cooling world. Here, the laws of the surface are forgotten. It is a humid, mineral lung, breathing at a rhythm impossible for humans to perceive.
+
+**The Terrain and Architecture**
+There is no earth here, only silica and wet stone. The floor is a fractured basin of translucence, polished smooth by eons of weeping moisture. Rising from this floor is a "city" not built by hands, but by the relentless, organized chemistry of the cave. It is a dense, urban sprawl of salt-lattices and calcified spires, crowded so tightly together that there is barely room to pass between them. These structures are built in layered, geometric tiers, resembling miniature ziggurats or tenement blocks carved from pearlescent brine. 
+
+The tech of this place is primitive and integrated—grooves have been scraped into the softest crystals to channel the constant drip-drip-drip of water into specific basins. Stone basins, carved with blunt tools of harder flint, sit at junctions to catch the overflow. There are no machines, only the gravity-fed hydrology of a society that vanished or perhaps never arrived.
+
+**The Atmosphere and Light**
+The air is heavy, cooling, and saturated. It smells of wet tin and cold salt. Light does not fall here; it is emitted. A dim, pervasive luminescence seeps from the walls—a bioluminescent sludge or perhaps a trick of phosphorescent minerals reacting to the water. It casts the landscape in a bruised violet and indigo, turning the dense clusters of "buildings" into a forest of silhouettes. Everything is perpetually damp. Condensation beads on every vertical surface, trickling down the filigreed stone like sweat on skin.
+
+**The Absence of Life**
+There is not a single green thing. No moss, no lichen, no mold. This is a pre-biotic or post-life world of pure mineral expression. The only movement comes from the water and the rare, agonizingly slow presence of the residents: soft-bodied, translucent gastropods the size of pebbles that move once every hundred years. They are the "fauna," little more than sentient drips of jelly that filter-feed on the mineral salts. They are rare, cherished features of the landscape, like living jewels embedded in the architecture.
+
+**The Sound**
+Despite the stillness of the stone, the environment is deafening. Because the space is small and the density of the crystalline structures is high, the "weeping" of the cave is amplified into a percussive roar. Every drop of water hitting a hollow salt-tower echoes and refracts, creating a polyrhythmic drumming that never ceases. It is a loud, chaotic symphony of splashes, gurgles, and metallic strikes. To stand in the center of this pocket-city is to be enveloped in a wall of white noise, a watery cacophagus that drowns out the very possibility of speech.
+
+**The Rules of the World**
+Time has no currency here. The dynamic of the cave is one of "frozen equilibrium." The water flows, but the water levels never change. The crystals grow, but only at the rate at which they are eroded by the drip. It is a perfect, stagnant balance. The erosion isn't a sign of decay, but a sign of maturity—the city has reached its final form. It is a dense, wet, loud, and lonely masterpiece of chemistry, tucked inside a cold pocket of the earth, indifferent to the sun. Items placed here do not rot; they are slowly encased in translucent stone, becoming part of the urban sprawl of the geode.

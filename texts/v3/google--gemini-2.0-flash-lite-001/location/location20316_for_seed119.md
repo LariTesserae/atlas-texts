@@ -1,0 +1,15 @@
+This place is a submerged gallery, a maze of polished, bone-white corridors that wind through a vast, subterranean space. The architecture is impossibly regular, the stone perfectly smooth, carved with intricate, interlocking patterns that seem to shift and writhe in the dim light. The rooms are grand, but often empty, the scale monumental, a cathedral of the forgotten.
+
+Water is everywhere, a film on every surface, a constant, low-level humidity that condenses on the cold stone. It drips from the high, vaulted ceilings, and pools in the shallow basins carved into the floors. The sparse vegetation clings to these damp surfaces, a few stubborn patches of bioluminescent fungi that pulse with a faint, internal light, the only source of illumination besides the faint glow emanating from the water itself.
+
+The temperature is consistently cool, a perfect, unchanging chill that seems to seep into your bones. It's a place of echoes, filled with the constant sound of dripping water, a chorus of tiny plinks and plops that amplify in the vast chambers. The air feels heavy, pregnant with the scent of damp stone and something else, something metallic and faintly sweet.
+
+The very stone itself weeps; it seems to perspire a pale, viscous fluid that occasionally crystallizes into fragile, geometric shapes. An ancient erosion has long since stabilized, so while there is water, every surface holds its form.
+
+The emptiness is striking. There is no sign of the builders, no tools, no refuse, nothing to indicate the purpose of this immense construction. The only inhabitants are the abundant fauna, small, bioluminescent creatures that flit through the corridors. They resemble delicate jellyfish, but with chitinous exoskeletons and multiple, flickering eyes. They move with an unnatural grace, their bodies leaving shimmering trails of light in their wake. Their clicks and chirps fill the space, a constant, chattering symphony that adds to the strange, alien quality of the place.
+
+The tech is primitive. The architecture is flawless but achieved with tools unknown. There are no seams, no joints, no obvious means of construction. It is as if the entire structure has grown and been carved from a single, massive piece of stone. Scattered throughout the chambers are small, metal tools, crafted from a dark, unknown alloy, each tool perfectly crafted to hold a unique curve or shape. They seem useless, or at the very least, out of touch with any specific task.
+
+The rules don't seem to be laws, but more like a state. There is a deep biological rhythm; a constant cycle of growth and decay, as the stone itself seems to slowly, endlessly morph along with the fauna. The architecture provides its own kind of wind, a circulation caused by the changing of internal and external conditions. This dynamic, coupled with the abundance of fauna, creates a vibrant sense of activity, a constant flux of life and death, of light and shadow.
+
+This place is a mystery, a tomb, a gallery, a hidden dimension. It invites, but it also warns. The silence is not peaceful; it knows everything, and will never tell.

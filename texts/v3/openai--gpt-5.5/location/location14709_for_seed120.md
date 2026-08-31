@@ -1,0 +1,89 @@
+At the top of a mountain too young to have learned the shape of mountains, there is a small room hidden inside the summit.
+
+Not a cave. Nothing here is natural enough to be a cave. The chamber has been made—packed by hand, pressed, woven, plastered, stacked, knotted, wedged. It sits inside the peak like a seed inside a fruit, except the fruit has not finished becoming fruit, and the seed is older than the rind around it.
+
+The altitude is extreme. Outside, if outside can be trusted, the world falls away in sheer unfinished drops: vapor, red-black stone, glare, and the far curvature of cloud seas below. But inside this pocket, the height is felt more than seen. Breath comes hot and thin. The air is feverish, damp, and insufficient, as if boiled at a low flame. Every inhalation tastes of clay, wet fiber, sweat, green sap, and mineral steam. The chamber is small enough that a person standing in the center could touch three walls by leaning, but the density of it defeats measurement. Space has been used too many times. Every surface bears another surface. Every corner has been made into a shelf, trough, wick-channel, root-bed, drip-run, or shrine-mouth. There is no unused plane.
+
+The walls are built from hand-sized tablets of unfired clay, each stamped with thumbprints and rope impressions, then plastered over with layers of white lime, black soot, yellow pollen paste, crushed shell, and a glossy resin that never quite dries. Between the tablets are reed ribs, stitched root-mats, bone pegs, stone wedges, and braided cords swelling with moisture. The craft is primitive but total. Nothing is machine-cut; nothing is abstractly engineered; yet every piece has a task. The place is constructed the way a nest is constructed, the way a dam is constructed, the way a memory palace might be constructed by hands that only know mud, vine, heat, and persistence.
+
+No natural substrate shows. Even the floor is made: a springy lattice of woven cane, packed moss, hardened pitch, and ceramic basins fitted together like scales. Beneath it, water moves. You hear it constantly, not as a stream but as many small decisions: ticking droplets, sucking seams, gurgling pockets, the wet flex of bladder-like reservoirs, the cough of bubbles from submerged vents. The chamber is not merely wet; it is organized around wetness. Water is kept, delayed, passed along, condensed, tasted, warmed, cooled, offered, stolen back. The walls weep through deliberate punctures lined with hollow thorns. Clay gutters no wider than fingers carry rivulets around the room in looping courses, some flowing downhill, some uphill, some forgetting the idea of direction and circling in place until touched.
+
+It is dim, but not dark. Light seeps rather than enters. A few narrow slits are hidden behind hanging mats of fern and fiber, admitting a thick green-brown glow from the cloud-wrapped exterior. More light comes from damp mineral films spread across the walls: bruised violet, weak amber, low blue, the color of embers seen through closed eyelids. These films brighten when the room is loud and fade when silence threatens. There is no flame. Flame would be foolish here, and possibly impossible. The air is too wet, too hot, too crowded with invisible exhalations.
+
+The vegetation is lush in a way that seems illegal at this height. It does not grow from soil—there is no soil—but from pockets, straps, bowls, hanging nets, and cracks intentionally left in the built skin. Ferns crowd the ceiling like inverted feathers. Thick moss bulges from the seams between clay tiles. Vines have been guided along cords and ribs until they form living knots over every support. Their leaves are dark, glossy, and close together, sweating constantly. Pale rootlets dangle in curtains and twitch when water runs over them. Some plants grow in spirals around stone pins; some spread flat as green tongues across plaster; some inflate translucent sacs that collect condensed vapor and release it with soft popping sounds.
+
+Everything is too close. Leaves press against wall-shrines. Rivulets pass through baskets. Baskets bulge with tubers. Tubers split the plaster. Plaster is patched with more reed, more mud, more plant fiber, more resin. The chamber is less a room than an argument between craft and growth, except both sides are cooperating. Whoever made this place did not build against vegetation. They built a scaffold for overcrowding. They invited saturation and then gave it rules.
+
+The rules do not always hold.
+
+This is a place in which reality has softened under heat, altitude, damp, and repetition. The room is pocket-sized, but sometimes one wall recedes into a humid distance filled with hundreds of miniature terraces, each crowded with its own vines and dripping troughs. Sometimes a clay gutter pours into itself from above before it has left the wall below. A fern shadow may lag several breaths behind the fern that casts it. A bead of water may fall, strike the floor, and then continue falling from the ceiling again, larger and more tired. Knotted cords occasionally pass behind a wall and emerge from the same wall older, darker, frayed by journeys that could not have fit inside the peak.
+
+The mountain around the chamber is still emerging. There is no erosion because there has not yet been time for wearing down. Stone is being born rather than broken. Through gaps in the wall, behind the layered plaster and reedwork, you can see raw geology swelling slowly: black glass, red pumice, gray mineral foam, yellow seams still soft enough to dent with a fingernail. The rock has no weathered skin. It looks kneaded. It pushes gently inward in places, and the builders have answered by adding braces, padded wedges, counterweights of water, prayers tied in knots. Some clay tiles have been cracked by new stone forming behind them; others have been swallowed halfway into the mountain’s body, as if the peak is trying to learn from the room how to become solid.
+
+The chamber may have been built before the summit existed. Or the summit may be growing around it in obedience to a forgotten plan.
+
+The heat is constant but not still. It pulses. At intervals, a breath of vapor rises through the floor lattice and the whole room sweats harder. Leaves tremble. Resin softens. Clay darkens. The water in the channels quickens and begins to chatter. Then comes a pressure change, sudden and intimate, as though the chamber has been lifted another thousand meters in a single moment. Your ears fill. The mineral lights dim. Condensation pearls on every surface and falls all at once in a brief indoor rain.
+
+The rain is loud.
+
+Sound is one of the main substances here. Water knocks in ceramic throats. Reeds creak. Roots slurp. Hidden stones grind slowly against newer stones. Air whistles through bone vents set in the upper walls, each one carved by hand into a crude mouth-shape, none of them making a human note. The mountain groans in wet, low syllables. The room answers with its own percussion: drip on leaf, drip on clay, drip in basin, drip on stretched hide, drip on water, drip into hollow gourd, drip onto sleeping root. The result is not music, though it approaches music and retreats from it. It is a working noise, a process noise, a crowded noise. Even when no living creature moves, the place is busy enough to sound inhabited.
+
+Fauna are rare. The chamber is too packed, too hot, too tightly governed by moisture and handmade passageways for many animals to live here openly. Now and then a small translucent lizard appears on the underside of a clay shelf, its bones visible as faint blue marks. It drinks from a wall-seam and vanishes into a slit too thin for its body. Blind gnats gather briefly in the mineral glow, then are swept into a gutter and carried away without ceremony. Somewhere behind the root curtains, something with a shell clicks once every few hours. There are no birds, no large insects, no mammals. The ecology belongs mostly to plants, fungi, water, and the unfinished mineral body of the mountain.
+
+Yet the absence of animals does not make the chamber feel empty. It feels watched by its materials.
+
+There are niches in the walls, each one constructed from tiny slabs of clay and lined with woven grass. Inside them sit objects: stone knives dulled by scraping; cups made from seed husks hardened in resin; cords tied into records of rainfall; pellets of dried green paste; thumb-sized figurines with no faces; folded leaves stitched shut; little ladders that go nowhere; bowls full of black sand that trembles when the mountain forms new stone. Some niches hold water. Some hold roots. Some hold both, the roots curling around the offerings as though reading them.
+
+The built world here is total, but it does not feel like architecture in the monumental sense. It feels like maintenance extended until it became cosmology. Every mark says: someone patched this, someone returned, someone noticed the leak, someone trusted the leak, someone moved the leak three finger-widths to the left and gave it a basin. The tools that made the place are simple: hands, stones, shells, scraping blades, knots, wedges, heat, patience. No metal gleams. No wheel turns. No measured beam lies straight. But the chamber is sophisticated in its intimacy. It knows how to persuade water. It knows how to make plants grip walls. It knows how to let a mountain be born without crushing the small, wet order inside it.
+
+There is no open sky visible, only the suggestion of height beyond veils. If you pull aside one of the fern mats covering a slit, hot cloud presses against the opening like wet wool. Far below, lightning moves inside the cloud sea, silent at first because of the distance, then arriving as a dull shove through the ribs of the chamber. The slit shows impossible things depending on the hour: a cliff face still smooth and steaming from creation; a chain of peaks unfolding like knuckles; another version of the same chamber visible across an abyss, turned inside out; a sun that appears below rather than above; rain rising from the depths in silver threads.
+
+But the chamber always closes back around you. Its scale insists on secrecy. It is a hidden organ in the mountain, not a vista. Its grandeur is compressed into the size of a shelter, a cistern, a womb, a lung. The extreme elevation has been miniaturized. The summit is not a point but a pocket. The peak’s highest place is inward.
+
+The floor is uneven and soft in some places, hard and hot in others. Step on one reed panel and it exhales steam smelling of pepper and wet bark. Step on another and the entire wall of ferns shivers, shedding droplets into a row of bowls that overflow in sequence. A path exists, but only barely: a human-width negotiation between hanging roots, stacked basins, clay buttresses, plant beds, and channels of hot water. You must turn sideways often. You must duck. You must accept being touched by leaves, cords, vapor, and dripping plaster. The room does not allow a clean observer. To enter is to become one more surface collecting moisture.
+
+The water is not all the same. Some is clear and fast, brought from condensation nets strung in hidden shafts above. Some is milky with dissolved stone. Some is brown-green from passing through root masses. Some is almost black and warm as blood, rising from vents below. Some moves in defiance of gravity, climbing twisted cords through capillary insistence until it reaches shallow dishes on the ceiling, where floating mosses drink upside down. Some beads on the wall and refuses to fall no matter how heavy it grows, swelling until it contains distorted images of the whole room: walls bending, vines multiplying, your face made of clay.
+
+There are cycles here, but they are not day and night in any simple sense. The dim light thickens and thins. Heat surges. Pressure drops. Water rises, gathers, runs, falls, vanishes, returns. The plants open pores, close them, twist leaves toward mineral glow, then away from it. The mountain pushes. The builders’ patches strain. New cracks appear and are immediately colonized by moss or sealed by swelling resin. Gourd floats lift in their basins, tipping open channels that had been dry. Stone weights descend as fibers stretch, pulling plugs from drains. Little dams collapse by design. The chamber rearranges its wetness every few hours, as if rehearsing different futures.
+
+In one phase, the ceiling rains so hard that the air turns white with splash, and the noise becomes nearly unbearable. The floor channels flood. The root curtains drink until they are heavy as soaked hair. The clay walls shine black. Then, suddenly, the rain stops. Steam rises from the floor. Every leaf releases a second, quieter rain. The mineral lights glow brighter, fed by the recent violence. In this after-rain dimness, the room seems larger than before, its walls farther away, its niches deeper.
+
+In another phase, the heat becomes almost solid. Water retreats into the walls. Plants fold inward. Resin scents sharpen. The clay begins to tick as it dries at the surface, though underneath it remains wet. During this phase, the mountain’s formation is easiest to hear: a slow granular shove, a bubbling understone pressure, the tender cracking of new mineral membranes. The room feels like a boat trapped inside cooling lava, except the lava has not cooled and the boat was built from reeds by people who expected this.
+
+The weirdest phase comes when the pressure outside collapses and the chamber forgets which way is up. It does not turn over; instead, up becomes local. Water in one basin climbs the wall while water in another falls normally. Rootlets point in several directions at once. The hanging ferns hang toward different centers. A stone knife in its niche casts three shadows, each shadow wet enough to drip. The sound grows layered, as if every previous rain is happening again just behind the present one. During this time, the little ladders in the shrines almost seem functional. They lead not across space, but between versions of the same hand-built room.
+
+No one is visible now, though the place is not abandoned. It is too carefully alive to be abandoned. Fresh clay has been pressed into a crack near the floor; fingerprints remain glossy. A vine has been recently redirected with a new cord of braided grass. A basin has been scraped clean of mineral crust. Three small cups of hot black water sit in a row before a niche, each covered with a leaf to keep out falling grit. Perhaps the makers come only during certain pressures. Perhaps they are very small. Perhaps they have become part of the maintenance system—hands appearing as roots, voices as vent-whistles, memory as knots.
+
+The rules of the world here are practical and unstable:
+
+Water must be given a path, or it will invent one through time.
+
+Stone is newborn and cannot yet be trusted.
+
+Plants are not decoration; they are structural.
+
+Nothing dry is sacred.
+
+Every leak is a message.
+
+Every patch is temporary, but temporary things may last longer than mountains.
+
+Height folds inward when hidden.
+
+A room can be older than the summit that contains it.
+
+If a sound repeats enough times, it becomes a passage.
+
+There are signs of construction still underway. Bundles of reed lean against a wall, already sprouting. A tray of clay tablets waits under a damp cloth, each tablet soft, blank, and slightly breathing. Shell scrapers lie in a basin to keep them from cracking in the heat. A half-built gutter stops in midair, its unfinished end dripping upward into a suspended bead. Beside it hangs a plumb line made of fiber and a stone weight, but the weight points diagonally, obeying a gravity that has not yet been adopted by the rest of the room.
+
+The place feels embryonic not because it is simple, but because it is still choosing its laws. Erosion has no authority here. Nothing has been worn smooth by age. Edges are fresh. Clay bears the marks of fingers. Stone bulges raw and unweathered. Plant growth is fast, opportunistic, almost fevered. Water’s channels are newly assigned and frequently contested. The chamber is not a ruin, not a mature temple, not a garden settled into balance. It is a first draft under constant repair, a saturated prototype at the top of the world.
+
+And yet, for all its instability, it shelters something.
+
+At the very center of the chamber, where the narrow path bends around a cluster of basins, there is a raised mound no larger than a sleeping animal. It is made from layered clay, moss, and white mineral crust, bound with root cords and encircled by seven trickling channels. Ferns lean over it from all sides. Condensation gathers above it and falls in perfectly spaced drops. The mound is warm. It pulses faintly, not like a heart exactly, but like a spring deciding whether to become a spring.
+
+Sometimes the mound opens.
+
+Not visibly. No seam appears. But the room responds as if something has opened. The water lowers its voice. The mineral lights turn inward. The vines tighten. The mountain stops pushing for several breaths. In the dim heat, under the loud ceiling and the hidden summit, the center of the chamber becomes deeper than the chamber itself. It suggests an interior behind interiors: a pocket inside a pocket, a wet beginning held in a handmade world while the mountain grows around it.
+
+Then the noise resumes. A basin overflows. A root twitches. A new crack forms behind the plaster with a soft, promising snap. Steam presses through the floor. The peak rises another imperceptible measure into the cloud, carrying its secret room higher, though the room remains hidden, intimate, crowded, wet, dim, and furiously alive.

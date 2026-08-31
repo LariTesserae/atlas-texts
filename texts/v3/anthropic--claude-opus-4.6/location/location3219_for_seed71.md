@@ -1,0 +1,87 @@
+# The Plateau of Resolved Distances
+
+---
+
+There is a flatness here that took a billion years to achieve. Not the flatness of plains or deserts — those are merely young and lazy — but the flatness of mountains that once were, that rose and were ground and rose again and were ground again until the stone itself forgot the idea of height and settled into its final, exhausted agreement with gravity. The plateau extends in every direction past the curve of seeing, past the curve of knowing, past — if you walk long enough — the curve of something else that is not exactly the horizon but behaves like one. It takes eleven days to cross, they say, but nobody who has crossed it agrees on the number. Some say seven. Some say thirty. One man arrived before he left, and sat at the far edge for two days waiting for himself to depart.
+
+The rock is metamorphic, folded so many times its original nature has been argued out of it. Grey-violet, grey-green, grey-grey. In places, pale seams of quartzite run through it like the memory of rivers that predated rivers. The surface is scoured to a smoothness that approaches — but never quite reaches — glass. You can see the grain of it under your feet, the compressed centuries visible as laminations thin as paper, each one representing some inconceivable span of pressure and patience. In a few places, the stone has developed shallow basins, depressions no deeper than a hand's breadth, where condensation gathers in the cold air and sits in trembling discs of water that reflect a sky that does not always match the one above.
+
+This is one of the first things you notice. The reflections in those shallow pools are *almost* right. The clouds are in the correct positions but perhaps a slightly different shade. The light comes from the correct angle but arrives — you could swear — a half-second late. Look away from a pool and back again, and the reflected sky has changed in a way the real sky has not, or vice versa. Some of the older settlements have built low walls around certain pools, not to contain the water but to contain the looking.
+
+---
+
+## The Cold
+
+It is cold the way stone is cold — not the biting cold of wind and blizzard, but the deep, planetary cold of altitude and exposure, of rock that has forgotten it was ever warm. The air is thin enough that breath comes shallow, and exhalation produces faint clouds that hang a moment too long before dissipating — not freezing, exactly, but *hesitating*, as if the moisture is uncertain which state it should commit to. Frost forms in the early hours on exposed stone, delicate crystalline lattices that grow into patterns too regular, too architectural, to be wholly natural. They melt by midmorning into a general dampness that seeps into everything: clothing, tools, the joins between stacked stones. By afternoon the plateau is dry again, or nearly so. By evening the frost begins again.
+
+The cold is not lethal but it is permanent. It lives in the stone and radiates upward through the soles of your feet. The people here have learned to build raised floors, to sleep on platforms of layered felt and dried moss, to never touch the bare rock with bare skin for longer than necessary. Not because of frostbite — the cold is not that kind — but because of a subtler effect. Prolonged contact with the stone surface produces a sensation the locals call *thin-feeling*: a growing sense that you are becoming less substantial, that the boundary between your body and the rock is negotiable, that the plateau is slowly, patiently, considering whether to erode you too.
+
+---
+
+## The Vegetation
+
+And yet things grow here, improbably, stubbornly, in the cracks and seams where millennia of erosion have left pockets of powdered stone that passes for soil. Moss, primarily — deep emerald and rust-orange and a vivid yellow-green that seems to generate its own faint warmth. It grows in long ribbons along the quartzite veins, following the mineral traces, sometimes spanning dozens of meters in unbroken lines that from a distance look like someone has drawn on the plateau with colored chalk. In the deeper fissures, where moisture collects and is sheltered from the wind, the moss gives way to small tough ferns and ground-hugging shrubs with leaves like dark leather, waxy and thick, designed to hold every drop of water they encounter.
+
+There are flowers, too, in their season — though the season does not correspond to any recognizable calendar. They emerge unpredictably, sometimes in clusters that span hectares, sometimes as solitary blooms pushing through a crack in otherwise bare stone. They are pale: white, lavender, a blue so faint it might be grey. They have no scent. They produce no nectar, because there is nothing here to drink it.
+
+No insects. No birds. No animals of any kind. The silence of the plateau is partly this — the absence of the biological hum that underlies every other living landscape. No rustle of small bodies in undergrowth, no distant calls, no wingbeats. The flowers pollinate by wind or by some other mechanism that has not been adequately explained. The moss reproduces by spore, carried on air currents that move across the plateau's surface in patterns that repeat but never exactly, like a conversation that keeps almost arriving at the same sentence.
+
+The vegetation is lush for what it is — surprisingly dense in the fissure-gardens, unexpectedly green and vivid against the grey stone — but it is distributed sparsely across the plateau's immensity. You may walk for an hour across bare rock before encountering the next ribbon of moss, the next cluster of ferns huddled in their crack. The effect is of a vast empty room with small, intensely detailed paintings hung very far apart.
+
+---
+
+## The Settlements
+
+People live here. This is perhaps the most surprising thing, and the least easily explained.
+
+The settlements are scattered across the plateau at irregular intervals — a cluster of structures here, another half a day's walk away, another visible only as a smudge of smoke on the far edge of perception. They are built from the plateau's own stone, naturally: flat slabs prised up from the surface layers and stacked into walls, fitted without mortar by hands that have learned the stone's grain and temperament over generations. The buildings are low, wide, thick-walled. They look less like they were constructed and more like they were *negotiated* — agreements between human need and the plateau's tolerance for vertical things.
+
+From above — from, say, the vantage of one of the rare promontories where the stone has not yet been fully leveled — a settlement looks like a planned thing, organized, intentional. Streets of a sort, or at least navigable paths between structures. Central gathering spaces floored with fitted stone. Workshops where the plateau's quartzite is worked into tools: scrapers, blades, bowls, the flat grinding stones used to process moss into a flour-like substance that forms the basis of the local diet. Channels cut into the rock to direct condensation-water toward cisterns. Raised sleeping platforms visible through open doorways. It is a civilization of careful, considered craft — not primitive so much as *essential*, reduced to the things that matter and stripped of everything that does not.
+
+The tools are stone and bone — though the bone is old, traded from lower elevations or inherited from some earlier time when animals may have lived here. There is some copper, worked cold into pins and fasteners and the occasional decorative element, but it is rare and valued. The primary technology is *lithic*: the art of reading stone, of understanding where it wants to break, of coaxing flat surfaces and sharp edges from material that has already been shaped by forces far greater than any human hand.
+
+The settlements number perhaps forty across the plateau's breadth, with populations ranging from a few dozen to a few hundred. They trade with each other — moss-flour for quartzite, felt for copper pins, information for information — along routes that are marked not by roads but by sequences of shallow cairns, stones stacked no higher than the knee, because the plateau does not tolerate tall things. Anything built above a certain height — roughly twice a person's standing reach — begins to experience what the locals call *the flattening*. Not collapse, not weathering. Something more patient. The stones at the top simply become thinner. Their surfaces become smoother. Over weeks, then days, then hours, the structure loses height, as if the plateau is gently, implacably, pressing it back down toward the mean. The people have learned the limit. They do not test it.
+
+---
+
+## The Breakdown
+
+Here is where the plateau departs from the world you know.
+
+The erosion that shaped this place did not only act on stone. It acted on the *rules*. Over the spans of time required to grind a mountain range to a tabletop, something else was also being ground down: the consistency of physical law, the reliability of cause and effect, the basic agreements that reality makes with itself about how things work.
+
+The effects are not dramatic. There are no portals, no ruptures, no visible tears in the fabric of space. The breakdown is quiet, weathered, old. It has settled into its own patterns the way the stone has settled into flatness. It is part of the landscape now, as natural as frost.
+
+**Distance is unreliable.** Two settlements that appear to be a day's walk apart may take three days to reach, or may be arrived at in an hour. The effect is not consistent — the same journey may take different times on different days, or different times for different walkers on the same day. The locals navigate not by distance but by *sequence*: pass the split cairn, then the long moss-ribbon, then the third reflection pool, and you will arrive. The order matters. The distance does not.
+
+**Direction has texture.** North feels different from south — not magnetically, not in terms of wind or light, but *ontologically*. Walking north across the plateau produces a faint sense of increasing resolution, as if the world is becoming more precisely defined with each step. Walking south is the opposite: a gentle blurring, a softening of edges. East and west have their own qualities — east is denser, heavier in some unphysical way; west is lighter, more provisional. The locals orient their buildings according to these qualities. Sleeping chambers face south, for the softening that aids rest. Workshops face north, for the clarity that aids craft.
+
+**Time pools.** In certain areas of the plateau — always near the reflection pools, always in the shallow basins — time moves at a different rate. Not faster or slower in any way a clock could measure, but *thicker* or *thinner*. In a thick-time area, moments have more weight; a single breath contains more experience than it should. Actions taken in thick time feel more consequential, more permanent. In thin-time areas, hours pass like thoughts — barely noticed, leaving little impression. The locals have mapped most of these zones, and they use them. Councils and important decisions are held in thick-time spaces. Grief and illness are endured in thin-time spaces, where suffering passes quickly and leaves shallow marks.
+
+**The reflection pools show adjacent possibilities.** Not the future, not the past, but *nearby versions of the present* — moments that almost happened, configurations that differ from reality by a single choice or a single fallen stone. The differences are usually trivial. A cloud in a slightly different position. A crack in the stone that forks left instead of right. Occasionally the differences are larger: a settlement visible in a reflection where none exists in the world above, or a pool that reflects a sky with two suns, or one with none. The locals do not consider this supernatural. It is simply what the pools do. They have a word for it that translates roughly as *the stone remembering other ways it could have worn*.
+
+**Sound behaves strangely near the edges.** The plateau has edges — eventually, after those uncertain days of walking, the stone ends and the world drops away into whatever lies below (cloud, mostly; the plateau is high enough that its edges are usually wrapped in a dense white mist that obscures the descent). Near these edges, sound carries differently. Words spoken at the rim may be heard at the center, arriving days later, stripped of their original speaker's voice and wearing a flat, neutral tone, as if the plateau itself is relaying them. Sounds from below — if there is a below — occasionally rise through the mist: deep, slow tones that might be geological or might be something else. No one goes to the edges willingly. The *thin-feeling* is strongest there, and people who linger too long at the rim have been known to become translucent, then transparent, then simply part of the view.
+
+---
+
+## The Quiet
+
+The plateau is not silent. True silence would be a positive quality, a presence of its own. The plateau is merely *quiet* — a vast, shallow quietness, like the bottom of an empty bowl. The sounds that exist are small and separated by large spaces of nothing. The scrape of a stone tool in a workshop, carried farther than it should be by the thin air. The rustle of moss in a wind that has traveled unobstructed for hundreds of kilometers and arrived barely stronger than a breath. The faint, irregular *tik* of frost crystals forming on stone in the early hours, a sound so small it might be imagined. The occasional low murmur of voices from a settlement — indistinct, uninflected, the words eroded by distance into pure human sound.
+
+There is no music here. Or rather — the locals do not distinguish between music and the sounds the plateau makes. The tik of frost, the hush of wind, the stone-scrape of labor: these are the plateau's composition, and it has been playing for longer than anyone can account for.
+
+---
+
+## The Activity
+
+Despite its stillness, the plateau is not static. It is deeply, continuously active — but its activity operates on scales that require patience to perceive.
+
+The frost cycles daily, building and dissolving, each cycle leaving faint traces of mineral deposit that are slowly, over centuries, changing the chemical composition of the surface stone. The moss advances along its quartzite veins at a rate of a few centimeters per year, pioneering new fissures, dying back in old ones, engaged in a slow territorial negotiation with the stone that has been ongoing for millennia. The condensation pools fill and empty and fill again, their water carrying dissolved minerals in microscopic quantities, gradually deepening the basins by fractions of a millimeter per century. The reflection pools cycle through their adjacent possibilities, sometimes settling on one for days, sometimes flickering between dozens in an hour, responsive to some stimulus no one has identified.
+
+The settlements shift too. Not physically — the buildings stay where they are built — but socially, economically, relationally. Trade routes adjust as distance-effects change. A thick-time zone may migrate, slowly, a few meters per year, and the council space must migrate with it. A moss-ribbon that sustained a settlement's food supply for generations may die back, forcing a dispersal, a regrouping, a new negotiation with a neighboring community. Conflicts arise — over copper, over favorable time-zones, over interpretation of what the reflection pools show — and are resolved through processes as patient and deliberate as the erosion that made this place.
+
+And underneath it all, the plateau continues its ancient, fundamental work: the wearing-down, the leveling, the patient reduction of everything — stone, distance, time, certainty — toward a final, absolute flatness that it will never quite achieve but will never stop approaching. The people here understand this. They have built their lives in the narrowing gap between *almost flat* and *truly flat*, in the residual wrinkles of a world that is slowly ironing itself out. They know that the breakdown is not a catastrophe but a *stage* — the late stage of a landscape that has eroded not just its mountains but its own physics, and is now settling, slowly, creakily, like an ancient body lowering itself into a chair, into whatever comes after rules stop being strict and edges stop being sharp and the difference between here and there, between now and then, between *this* version of the present and *that* one, becomes too thin to insist upon.
+
+They do not seem afraid of this. They build their low stone houses. They grind their moss-flour. They read the pools and walk the sequenced paths and sleep in the south-facing rooms where time is soft. They live in the dissolving margin of a world that is very, very old, and they live there with a calm that might be wisdom or might be simply the affect of people who have spent too long on a plateau where everything — even urgency — has been worn down to a nub.
+
+The frost is forming again. You can hear it, if you're patient: *tik, tik, tik*, like the world's slowest clock, counting down toward something that is either the end of everything or the final, perfect stillness that was the point all along.

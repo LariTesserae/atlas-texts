@@ -1,0 +1,13 @@
+Beneath a canopy of eternal night, the depths churn with an unseen vitality. This is a realm where the very concept of surface is a distant memory, an alien notion drowned in fathoms of liquid shadow. Here, water reigns supreme, an all-encompassing medium that permeates every crevice and pore, leaving no space unfilled.
+
+The inky expanse pulses with a sluggish rhythm, as if the entire world were a single, colossal organism drawing languid breaths. Currents ebb and flow, carrying whispers of hidden realms and forgotten secrets. Yet, silence prevails, a haunting stillness broken only by the occasional gurgle or creak of unknown origins.
+
+Scattered throughout this liquid abyss are sparse outcroppings of life, twisted forms that defy conventional classification. They cling to existence with a tenacious grip, their shapes contorted by the relentless pressure and the scarcity of light. Some resemble gnarled trees, their branches reaching out in frozen supplication, while others appear as grotesque amalgamations of flesh and stone, their purpose inscrutable.
+
+These eerie fixtures serve as anchors for a delicate web of existence, a fragile tapestry woven from strands of primitive life. Tiny creatures, no larger than a fingernail, drift aimlessly, their movements glacial and dreamlike. Some possess bioluminescent properties, their faint glows flickering like distant stars in the void, hinting at the presence of something greater, something beyond comprehension.
+
+Yet, even in this realm of eternal night, echoes of a reality once known can be glimpsed. Faint traces of structures linger, their forms worn down by the relentless passage of time and the inexorable weight of the waters. These crumbling remnants, perhaps the last vestiges of a forgotten civilization, stand as mute testaments to a bygone era, their secrets lost to the ages.
+
+But this is no mere graveyard of the past; it is a realm where the boundaries of reality itself seem to blur and distort. The very fabric of existence quivers with an unseen energy, a palpable force that whispers of realms beyond our understanding. Shapes shift and morph in the periphery of vision, tantalizingly familiar yet utterly alien. It is as if the laws of nature have been rewritten, or perhaps they were never truly known in the first place.
+
+In this submerged realm, where water is the air we breathe and darkness the eternal sky, the line between dream and waking blurs. It is a place where the impossible becomes plausible, where the boundaries of perception are stretched to their limits, and where the only constant is the ever-present embrace of the liquid void.

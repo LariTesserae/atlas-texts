@@ -1,0 +1,30 @@
+The place perches high in the world’s scaffolding, a pocket of terrain no wider than a small hamlet yet walled on every side by knuckled peaks. Imagine that someone lifted a cathedral’s nave, set it on the shoulder of a mountain, then roofed it only with sky: that is the scale here. You can cross the entire hollow in twenty minutes, but during those minutes the rock is always pressing close—columns, buttresses, archways of stone that almost touch above your head, a labyrinth so crowded that daylight ricochets from face to face and floods every seam with a fierce, color-stripped brilliance.
+
+Terrain and materials  
+Everything is mineral. The dominant stone is a pale, fine-grained carbonate riddled with veins of quartz; ages of wind-driven ice have fretted it into organ-pipe pillars and delicately undercut ledges. Between the pillars lie shelves of glacial till: rounded pebbles locked in a matrix of gritty dust that crunches underfoot like coarse sugar. Here and there the ground hollows into shallow pans where meltwater lingers—each pool ringed by a dark fringe of manganese oxide that reads, at first glance, like the ghost of vegetation. There is none. No lichen, no moss, not even a discoloring film of algae. The cold and the thin air have scoured every living chemistry away, leaving only the eloquence of stone.
+
+Water and temperature  
+By day the sun blazes in a sky so thin it seems already half outer-space. Surfaces warm just enough for the rime to weep; beads of water crawl down vertical faces, gather in cracks, and re-freeze as soon as a cloud drifts over the sun. At night the whole pocket snaps back below freezing, and the rivulets turn to brittle filaments of clear ice that the wind can snap like glass. Weather here is a pulse, a quick inhale-exhale of thaw and lock that repeats every twenty-four hours. Once or twice a week a true cloudbank pushes across the ridgeline and dusts the hollow with needle-fine snow that vanishes into the labyrinth’s long-established crevices.
+
+Light  
+Brightness defines the mood. Quartz threads, frost crusts, and the pale host rock weave a reflector’s nest; even in shadow the air seems lit from multiple directions. When the sun stands overhead, the pillars throw a confusion of hard white bars across the ground, strobing as the wind nudges drifting ice crystals. Night brings no animals, no fires—yet the place never goes entirely dark. The quartz is faintly piezo-luminescent: gusts flex the slabs a hair’s breadth, and the stress coaxes weak blue sparks that glide across surfaces like dying embers. It is not enough to read by, but enough to outline every edge, turning the hollow into a dimensional blueprint of itself.
+
+Sounds  
+Mostly silence: an acoustic stillness so deep you hear your own pulse echo inside your hood. Break it and the rock answers—tap a pillar and it hums a pure, bell-like note that hangs for seconds. Other noises arrive sparingly: the hiss of blown snow skittering across a ledge, a drip falling ten meters into a hidden shaft, the far-off boom of ice calving from some unseen cirque.
+
+Built traces  
+Toward the hollow’s center crouch half a dozen low rings of stacked slate, each waist-high and a few paces across. Their interiors are floored with soot-blackened gravel and splinters of bone too old, too leached, to speak of any identifiable creature. Primitive hearths, perhaps—yet fuel is absent here. Whoever lit those fires must have hauled tinder upward from forests thousands of vertical meters below, or burned fat carried in skins. Along one wall a hand-wide groove has been chipped into the quartz, a trough polished glassy by years of meltwater feeding the central pools. It suggests deliberate irrigation, as though the builders needed every fingertip of liquid this austere place could offer.
+
+Technology and culture (inferred)  
+Toolmarks are shallow, made by stone against stone or by the simplest hammered metals: soft copper, maybe meteoric iron. There is no inscription, no icon, only functional shaping: a talus ramp here, a thumb-deep catch basin there. Evidence points to brief, episodic visits rather than settlement—pilgrimage, observatory, refuge? The harshness of the environment and the effort of reaching it argue a purpose proportionally intense.
+
+Ecology  
+No plants, no animals, yet the place is not static. Mineral “flowers” bloom where water seeps: radial sprays of calcite that grow a fingernail’s breadth each decade, break, and regrow. Freshets carry microscopic silts that settle into banded varves at pool edges. Windborne spores from lower biomes arrive but never germinate, leaving only a dusting of desiccated organics soon abraded to nothing. Life tries, fails, tries again—an ongoing, mostly invisible drama of arrival and erasure.
+
+Dynamics  
+Freeze-thaw wedges pillars fractionally farther apart each season, yet at the same time centuries of sublimating ice knit new mineral bridges overhead. The hollow is both disassembling and self-repairing, settling into a long, slow equilibrium. Weather remains the principal engine, flurries sweeping through narrow aisles, polishing stone to a soft matte that the next gust immediately scours.
+
+Atmosphere—felt sense and implicit rules  
+Stay an hour and your body learns the protocols: breathe shallow or the cold razors your throat; speak softly or a single note can summon rockfall from frost-loosened shelves. Water is treasure—every droplet that drips is something to cup, lest it freeze again. Fire is a luxury taxed by altitude. Stone responds to respect: lean on a slab gently and it will hold; strike it and the whole labyrinth sings, a chorus that might forewarn collapse—or welcome.
+
+So the hollow persists: bright, silent, mineral, dense; an elevated room in which weather and rock conduct their ancient duet, and the only sign that people ever entered is a scatter of tentative, primitive gestures—proof that even a world seemingly without life can still inspire the urge to build, however lightly, upon its patient stone.

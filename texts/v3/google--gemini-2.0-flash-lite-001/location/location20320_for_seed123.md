@@ -1,0 +1,13 @@
+The valley is a wound in the earth, barely wide enough for two to walk abreast. Erosion hasn't had time here; the valley walls are stark, fresh-cut, packed with a sooty, porous stone. The air is warm, thick, and tastes metallic. Droplets of water cling to surfaces, not in any consistent pattern, but as if the fog itself has a personality, sometimes clinging here, sometimes there.
+
+The scale is intensely *small*. It’s a place that seems to have been created as a kind of private theater. You could miss it entirely if you weren't looking.
+
+The valley floor is paved with a network of rivulets. The water here is not clear, but a murky, iron-tinged stream of the valley's mineral heart. Patches of tough, dark grass struggle to gain purchase on the stone, interspersed with strange, bulbous plants whose surfaces are covered in what could be tiny, glittering eyes. These "eyes" are not biological but artifacts of the industrial heart of the place — tiny, perfectly-formed magnifying glasses, arranged in patterns that shift and ripple in the ambient light.
+
+Sounds are mostly quiet, but not silent. A low thrum vibrates through the ground, accompanied by the occasional *chug* and hiss of machinery. The valley walls echo with these industrial ghosts.
+
+Scattered amidst the anomalous plant life and mineral outcroppings are the scattered remains and structures. These are not relics, exactly. They are more like the components of a single, immense machine, dismantled and strewn about. Gears the size of houses, sheets of blackened metal, and pipes that twist and contort through the landscape. This is where the strangeness truly comes into play. The parts don't seem to have been abandoned, but left mid-process, as if the operation was abruptly suspended.
+
+Fauna is abundant but… *altered*. The valley isn’t a natural ecosystem, but rather an arena for a modified biome. The animals that inhabit the valley have been fundamentally changed. Strange, six-legged creatures with bodies of polished obsidian scuttle along the ground, their forms reflecting the strange, industrial light. Larger, airborne predators — things with leathery wings and metal bodies, but with the sinuous grace of bats — patrol the air, their metallic chitter filling the spaces between the industrial sounds.
+
+The light itself is constant and ordinary, but made strange by the setting. The density of everything is astonishing, an endless press of forms and processes. The valley is actively *working* — the air is full of pheromones, and the ground itself seems to pulse gently. It is a space of constant, restless activity.

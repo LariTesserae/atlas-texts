@@ -1,0 +1,21 @@
+The cold is the first thing that greets you in this interstitial hollow, a deep, sharp chill that bites at the lungs and smells of ozone and distilled water. You are far below the surface of the world, tucked into a pocket-space no larger than the interior of a shipping container, yet the boundaries of the room are impossible to define. There are no flat walls, no floor, no ceiling. Instead, the entire volume is a dense, three-dimensional thicket of exposed machinery, a mechanical chrysalis suspended in the subterranean dark.
+
+Every surface is constructed. There is no trace of bedrock or dirt, only brushed alloys, braided carbon-fiber cables, and the smooth, matte surfaces of structural composite. Yet, the space does not feel like a finished factory. It feels embryonic. 
+
+The environment is in a state of rapid, silent genesis. Everywhere you look, the architecture is weeping, growing, and knitting itself together. 
+
+Thick clusters of capillary-tubes and structural ribs cross the space in a complex, layered lattice, making the room incredibly dense. You could not walk through it; you would have to carefully weave and climb through the metallic bramble. Along these struts, automated extrusion nozzles, resembling articulated silver spiders, glide along magnetic tracks. They move with an eerie, frictionless grace, completely devoid of the grinding or clanking you would expect from heavy industry, laying down micrometer-thin layers of hyper-chilled alloy. They are building a new organ for whatever massive, unseen engine surrounds this pocket.
+
+Because the extrusion processes require cryogenic stabilization, the ambient temperature hovers near freezing. But the machinery also bleeds intermittent heat. This thermal tug-of-war creates a pervasive, heavy dampness. A thick, localized mist hangs suspended in the tangled cabling. When the extruders pause, the air cools rapidly, and the ambient moisture condenses on the pristine metal, blooming into intricate, feathery crystals of rime ice. Then, a power conduit will flush with a silent surge of energy, warming its sheath just enough to melt the frost. The ice turns back to water, beading up and dropping into the dark. 
+
+*Drip... plink... tsssh.* 
+
+These scattered droplets provide the primary soundtrack. The acoustic profile of the room is muted, highly insulated by the dense layering of cables and soft, synthetic sheathing. Beneath the dripping water and the occasional sharp *tick* of contracting metal, there is only a sub-audible, rhythmic thrum—a heartbeat of raw voltage pumping through the facility's veins.
+
+Light here is sparse and sickly. It bleeds from deep within the machinery: the pale, violet glow of ultraviolet sanitizers, the slow, rhythmic pulsing of icy blue data lines, and the deep, molten amber of heating filaments buried inside insulated ceramic cores. The dimness casts long, intersecting shadows across the dense scaffolding, creating a deep optical confusion. The light catches the wet metal and the suspended water vapor, making the air itself seem to shimmer with a ghostly bioluminescence.
+
+Life—or something that mimics it—has found a foothold in this dark, cold womb. Clinging to the junctions where the condensation is thickest, a strange, sparse vegetation has taken hold. It is a synthetic-facing extremophile, a pale, translucent lichen that looks like spun glass or crushed optical fiber. It feeds on stray galvanic currents and the chemical runoff of the extrusion fluid, spreading in thin, ghostly veins across the dampest pipes. It has no leaves, no real roots, just creeping networks of pale green tendrils that shiver whenever a droplet of ice-melt strikes them. 
+
+The room is fiercely active, governed by a mechanical circadian rhythm. Fluid loops cycle, pressure valves open with a soft, breathy *hiss*, and new struts extend outward like the stems of time-lapse vines. The extruders weave their intricate geometries, pausing only to let the supercooled air harden their work. Frost builds, melts, drips, and feeds the creeping electric moss. 
+
+It is a pocket of pure, strange industry acting with the quiet, determined pace of biological growth—a hidden, unfinished heart, beating in the cold, wet dark, building itself from the inside out.

@@ -1,0 +1,25 @@
+The place is called the Shroud Plateau, though no one who still walks it uses that name.
+
+It hangs at a high, wind-scoured altitude where the air is thin and the light is merciless. The sun does not simply shine here; it arrives like a verdict, white-gold and almost liquid, pouring across every surface so that even shadow feels scalded. Yet the heat never quite becomes desert heat. Instead it is a dry, baking warmth that draws slow beads of condensation from the rocks at night and feeds faint, intermittent seeps that appear between strata like silver veins, only to vanish again by mid-morning.
+
+The terrain itself is ancient and settled, a vast highland of rust-red and ochre sandstone that has been eroding with such patience for so many millions of years that it has achieved a kind of architectural calm. mesas, fins, and rounded domes stand far apart, each one isolated by wide, silent basins of gravel and shattered stone. Between them the land feels less empty than measured, as though the emptiness itself has been calibrated. Distance here is not illusion; it is the primary texture.
+
+Vegetation is sparse and deliberate. Knee-high thickets of iron-colored scrub squat in the lee of boulders, their leaves coated in a waxy mirror-finish that reflects the glare. Here and there rise solitary pillar-trees, impossibly tall and slender, their bark the color of bleached bone. Their crowns are not leaves but delicate lattices of translucent crystal that drink ultraviolet the way other plants drink water. When the rare rain comes—brief, hard, almost apologetic—they ring softly like wind chimes.
+
+The fauna is abundant in a way that feels statistically improbable given the sparsity of cover. Small iridescent lizards the color of heated copper skitter across open rock and then simply fold themselves into two-dimensional reflections, vanishing against the stone. High above, vast flocks of something like glass-winged bats wheel in perfect silence, their bodies refracting the sky so cleanly they look like floating absences. On the ground, herds of pale, long-limbed ungulates drift between the mesas. Their legs end in wide, dish-shaped hooves that barely disturb the dust; their eyes are multiple and arranged in a delicate ring around the skull. They move as though listening to music no one else can hear.
+
+The strangest presences are the artifacts.
+
+Scattered across the plateau are structures that do not seem built so much as grown or precipitated. Tall, narrow spires of a material that is neither metal nor stone rise at mathematically precise intervals. Their surfaces are covered in shifting moiré patterns that hurt to stare at directly. Some are broken, their upper thirds lying in enormous crystalline shards that have not moved in centuries. Others still function in ways that defy description. At noon, when the light is at its most tyrannical, certain spires emit a soundless pulse that makes every living thing on the plateau pause mid-step for three full seconds. Even the wind seems to stop. Then everything resumes.
+
+There is tech here older than cognition. Beneath certain mesas, half-exposed lattices of what might be quantum circuitry or planetary nervous tissue glimmer with soft inner light. They are not ruins in the usual sense; they feel tended. Dust never quite settles on them. Occasionally a pillar-tree will extend a root tendril that fuses with the lattice, and for days afterward the tree’s crystal crown will bloom with slow-moving holographic diagrams that describe orbital mechanics of stars that no longer exist.
+
+The quiet is profound. Footsteps become events. A single breath feels like an announcement. Yet the place is not dead. It is listening with the patient, enormous attention of something that has outlived every reason to hurry. The only regular sounds are the soft click of ungulate hooves on stone, the occasional crystalline ringing of a pillar-tree after rain, and, very rarely, a low subsonic thrum that seems to rise from the plateau’s own bones when two of the functioning spires align with the sun.
+
+At twilight the temperature drops sharply. Condensation gathers in the hollows of ancient erosional bowls, forming temporary mirrors that reflect a sky now bruised violet and green. The glass-winged flocks descend, folding themselves into crevices that should not be able to contain them. The ungulates gather in loose circles, lowering their ringed heads as though in prayer or conference. The spires begin to glow with cold stellar light, mapping constellations that have not been visible from this world for forty thousand years.
+
+This is not a dead land. It is a land that has achieved a state beyond decay or renewal. Everything here has found its final, strange equilibrium—warm stone, bright silence, sparse life, and technologies that have forgotten their original purpose and now simply continue, like a heart that keeps beating long after the body has accepted a different definition of life.
+
+If you stay long enough, you begin to feel the plateau deciding, molecule by molecule, what you are becoming. Most choose to leave before the decision is final.
+
+Some do not.

@@ -1,0 +1,15 @@
+Deep within the maintenance shafts of an ancient thermal processing facility, a pocket-sized world persists. Here, in a chamber no larger than a closet, countless copper pipes writhe together like frozen serpents, their surfaces darkened with age. The pipes sweat constantly - not from internal pressure, but from the perpetual condensation of hot, mineral-laden vapor that rises from somewhere below.
+
+The walls themselves are alive with moisture, though no organic life exists here. Tiny droplets form and merge and trickle in endless patterns, leaving behind delicate traces of dissolved metals. Over decades or centuries, these deposits have built up into fragile terraces of verdigris and rust-colored mineral formations, like inverted stalagmites that seem to defy gravity.
+
+The heat is profound but not overwhelming - a constant radiating presence that turns the small space into a tiny hammam. The source seems to be some ancient geothermal tap far below, its original purpose long forgotten. The vapor it produces carries dissolved minerals that give the air a subtle metallic taste and a faint ozone scent.
+
+Sound here is muffled and intimate: the occasional ping of expanding metal, the barely audible patter of drops, and a deep, almost subsonic rumble that seems to come from everywhere and nowhere. The pipes themselves might be speaking in voices too slow for human comprehension, sharing secrets across timeframes measured in rust patterns and mineral accretions.
+
+The light is oddly constant - seeping in through translucent mineral deposits that have formed over ancient light panels in the ceiling. This creates a diffuse, amber glow that catches the water droplets and makes them shimmer like tiny copper beads.
+
+The chamber feels like it's still being born, still forming itself from the interaction of heat and moisture and metal. New mineral deposits appear daily, microscopic at first, slowly building into larger formations that reflect the mathematical poetry of natural crystallization, despite every surface being manufactured. It's as if the built environment is trying to remember how to be natural, recreating cave formations in miniature using industrial materials as their medium.
+
+The space seems to defy its own artificial origins - though every surface was once machined or forged, the slow processes of mineral deposition have softened all edges, covered all joints, transformed the geometric into the organic. It's a tiny temple to the marriage of the manufactured and the mineral, where human engineering has been slowly transmuted by patient chemical processes into something that feels both ancient and embryonic.
+
+The closeness of the space, the constant presence of water, and the perpetual heat create an atmosphere that feels almost prenatal - as if this small chamber is an artificial womb slowly gestating some new form of hybrid existence, neither fully natural nor fully manufactured, operating on a timescale too vast for human perception.

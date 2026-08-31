@@ -1,0 +1,35 @@
+The place is not a valley, though it has a valley’s floor and walls. It is a pocket: a shallow chamber hidden inside an ancient mineral shelf, reached through cracks no wider than a person’s shoulders. Beyond the entrance, the rock opens unexpectedly into a low, flattened basin perhaps the size of a railway platform. There is no view beyond it. The walls rise only a few meters before folding inward again, their upper edges lost beneath layers of darker stone.
+
+Everything is old.
+
+The floor is made of gray-white saltstone, not powdery but compressed into broad, hard plates. Ancient erosion has worn it nearly level, rounding every exposed edge and filling the seams with fine black grit. Here and there the mineral has been polished to a dull sheen by the constant traffic of feet, claws, shells, and segmented bodies. The walls show long horizontal bands: pale salt, rust-colored iron deposits, charcoal seams, and thin greenish veins of some dry industrial compound. Nothing drips. Nothing grows. There is no mud, no moss, no thread of root seeking a crack. The pocket is entirely mineral and animal.
+
+Daylight enters through a narrow break in the ceiling. It is ordinary daylight, cool and white, falling in one clean column across the basin. Dust turns in it. The rest of the chamber lies in a soft gray illumination reflected from the saltstone, bright enough to see by but never warm. The air is dry enough to tighten the skin. Every breath tastes faintly of chalk, old metal, and the bitter residue of machinery.
+
+The life here is concentrated almost beyond reason.
+
+Animals cover the ground in a continuous, restless layer. Most are small: pale many-legged scavengers with translucent armor, blind beetle-things whose shells have been darkened by iron dust, flat-bodied creatures that slide over the stone on hundreds of fine vibrating limbs. They occupy every seam and cavity. When one stone is lifted, the darkness beneath it is alive immediately, boiling with bodies that recoil from the light and then rush back into the space it has left.
+
+Larger creatures move through them with the slow entitlement of cattle through grass, though there is no grass. They are low, broad, and heavily plated, their bodies shaped by the chamber’s ceiling and floor. Some have rasping mouths capable of stripping the mineral crust from old metal. Others possess long sensory whiskers that sweep ahead of them, detecting vibration rather than scent. A few are almost stationary, swollen creatures anchored beneath the walls, opening and closing their circular mouths as smaller animals pass over them. Their feeding is not dramatic. It is simply constant.
+
+The fauna are not organized into a clean food chain. They form a dense moving economy. Small animals consume dust, salt crystals, fungal-looking residues that are not actually fungi, and the soft corrosion of old machines. Medium animals consume the small ones. The largest consume whatever moves, and occasionally whatever does not. Dead bodies vanish quickly beneath the traffic. Shells and bones are ground into the floor, adding new pale layers to the ancient stone.
+
+The chamber’s scattered industry stands among this living carpet like the remnants of an abandoned settlement. There is a narrow conveyor half-buried in salt, its belt long gone but its metal rollers still turning a fraction of a revolution whenever the ground trembles. A squat electric pump sits against one wall, sealed in a casing of rust and mineral bloom. It gives off a low, uneven hum, though there is no visible source of power. Nearby, a line of metal hoppers has collapsed into a row of shallow troughs. The animals use them as corridors, shelters, breeding chambers, and feeding basins.
+
+The machinery has not been preserved so much as incorporated. The mineral has flowed around it over ages—not as liquid, but as dust and pressure and chemical deposition. Bolts have become knobs of stone. Gear teeth show through the floor like fossilized ribs. A broken inspection ladder leads nowhere, its lower rungs polished by countless climbing bodies. Every industrial surface carries tracks: parallel scratches, circular scuffs, tiny punctures, and broad dull patches where generations of creatures have passed.
+
+The pocket is loud.
+
+The machinery contributes a background of intermittent knocks, electrical buzzing, and slow internal grinding. The animals provide the greater sound: a fine innumerable skittering beneath everything, like heavy rain on a roof; the clack of shells striking stone; sudden bursts of shrill alarm; wetless rasping from feeding mouths; the deep, hollow thud of large bodies crossing the basin. Nothing here is silent for long. Even when the larger creatures stop moving, the floor continues to tremble with hidden activity.
+
+At intervals, the whole ecosystem changes direction.
+
+A vibration passes through the shelf from somewhere outside the chamber—perhaps an old engine starting in a deeper abandoned level, perhaps the settling of the mineral itself. The small animals freeze. Then the entire basin ripples. Millions of bodies retreat into cracks, beneath machinery, and into the packed seams at the wall. Larger animals flatten themselves or turn sideways, exposing armored backs. A few heavy things emerge from recesses that seemed too shallow to contain them. For several minutes the pocket becomes a choreography of pursuit and avoidance, every creature responding to vibrations that no human ear can interpret.
+
+Then the disturbance fades, and the animals return. They spill from the walls in streams, climb over one another, reclaim the conveyor, the hoppers, the machinery casings, and the bright shaft of light.
+
+There is no weather inside, but there are cycles. The daylight shifts across the floor. The machinery wakes and falls quiet. Mineral dust descends from the ceiling in soft, nearly invisible veils. The animal population surges toward warmth when the buried engines begin to hum, then spreads outward again when they cool. Old chemical deposits are exposed, consumed, and buried. Cracks open under pressure and become nurseries within a day. A carcass can be reduced to armor fragments before the light has moved a meter.
+
+The rules of the place are simple and severe: nothing green, nothing wet, nothing unused. Every surface is a resource, and every resource is temporary. The machines do not truly serve the animals, nor do the animals maintain the machines. They have merely reached a long equilibrium in which dead industry, eroding stone, and overwhelming fauna sustain one another.
+
+From the entrance, the pocket looks almost empty at first: a cool gray hollow, an old floor, a few scattered mechanisms. Then the floor shifts. The wall blinks with hundreds of small reflective eyes. A broad plated body slides from beneath the conveyor, followed by a tide of smaller bodies. The chamber reveals its actual density—not a ruin inhabited by animals, but an animal world wearing the thin remains of a factory as its skeleton.

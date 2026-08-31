@@ -1,0 +1,23 @@
+The water here is warm—not hot enough to scald, but holding the thick, sleepy heat of a shallow bath, though the light is nearly gone. We are very high up, perched on a drowned summit that rises like a column into the upper reaches of an endless ocean. Here, sheltered within a stone basin the size of a small cathedral, the water is perfectly still. No currents stir the dark. It is a pool of ancient, heavy liquid, trapped in the hollow of a peak that sits far above the abyssal plains below.
+
+There is no earth here. No sand, no raw granite, no clay banks. Every surface has been made.
+
+The floor is a mosaic of hand-cut basalt tiles, six-sided and fitted together without mortar, though the seams have long since been sealed by calcified grime. The walls are built of massive, hand-hewn blocks of dark stone, stacked in inward-leaning tiers that suggest a primitive dome, though the ceiling has either collapsed or was never finished, leaving the chamber open to the black water above. The architecture is simple, heavy, and total. No natural stone is visible; even the pillars that rise at the corners are stacked drums of terra-cotta, pinned through their centers with thick rods of cured mammoth bone. 
+
+Every edge of this construction has been licked smooth. The corners of the great stone blocks, once sharp from the chisel, are now as rounded and soft as soap. The water has spent thousands of years softening the work of the builders, wearing away the flat faces of the masonry until the joints look like the shallow seams between cushions. The place has settled into its final, most stable shape—an ancient, sunken plaza that has forgotten the hands that shaped it.
+
+The darkness is nearly complete, a deep, velvety shade of indigo that swallows the eyes. What little light exists does not come from the sun, which is a pale, forgotten myth somewhere far above the ceiling of water. Instead, the chamber glows with a faint, cold bioluminescence. 
+
+There is no vegetation here. Not a single blade of seagrass, no kelp, no green algae, no moss. The world is entirely animal and mineral. 
+
+The stone is not bare, however; it is densely, claustrophobically alive. Every square inch of the hand-carved basalt is covered by a living carpet of fauna. What looks at first like gray mold is actually a colony of millions of tiny, delicate bryozoans, their microscopic tentacles waving in the dark to filter the warm water. Over them grow pale, fleshy sea-pens and glass-sponges that look like intricate vases of spun thread. From the joints between the stone blocks, clusters of ivory-colored tube worms emerge like fingers, their feathery red gills blooming for a moment before snapping back into their calcareous sheaths at the slightest vibration.
+
+The density of life is staggering. It is a layered, crowded world. Blind, white crabs, no larger than a coin, scramble over one another in the crevices of the masonry. Translucent shrimp with antennae three times the length of their bodies hang suspended in the open spaces between the pillars, their legs twitching in slow, rhythmic patterns. Occasionally, a slow-moving, ribbon-like eel—pigmentless and eyeless—glides through the water, its body weaving between the terracotta columns with a lazy, effortless grace. It does not hunt with speed; it simply drifts until it bumps into something soft enough to swallow.
+
+Everything here happens in slow motion. The warmth of the water seems to have lulled the inhabitants into a state of permanent, patient languor. A crab may take an hour to climb from one tile to the next. The tube worms expand and contract with the slowness of breathing. The warm water holds them all in a gentle, hydrostatic embrace, neutralizing weight and neutralizing hurry.
+
+And it is quiet. 
+
+The silence is thick, cushioned by the depth and the density of the water. If you listen closely, there are sounds, but they are tiny, isolated, and dry: the faint *click-click* of a crab’s leg against the glazed surface of a ceramic tile; the soft, watery *huff* of a tube-worm retreating into its shell; the muffled, rhythmic pulse of a basketball-sized jellyfish that hovers near the center of the chamber, its bell contracting once every thirty seconds to keep it aloft in the warm dark.
+
+Around the edges of this high, built platform, the walls drop away into nothingness. If you peer over the lip of the hand-carved balustrade, the faint blue glow of the chamber’s life dies out quickly, replaced by a bottomless, silent void. The sanctuary sits alone on its high peak, a small, densely crowded island of hand-made stone and quiet, pale life, suspended in an ocean that has no end.

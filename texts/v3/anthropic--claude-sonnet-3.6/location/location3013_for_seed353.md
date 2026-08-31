@@ -1,0 +1,15 @@
+A maintenance tunnel, forgotten beneath the sprawling city above, has transformed into something else entirely. The concrete walls weep constantly - not with groundwater or rain, but with a thick, warm condensation that seems to emerge from the material itself, as if the tunnel were alive and perspiring. This liquid has an oily sheen that catches what little light exists, creating swimming rainbow patterns that move independent of any apparent source.
+
+The tunnel is barely shoulder-width, and in places you must duck. Despite its confining dimensions, it feels strangely empty, with peculiar pockets of negative space that seem larger inside than their outer boundaries should allow. The air here is dense, warm, and carries an electric charge that makes skin tingle and hair stand on end.
+
+Rust-colored fungi carpet the lower corners where wall meets floor, but they're not quite fungi - they pulse with faint bioluminescence and occasionally emit soft clicking sounds, like tiny relays switching. Their spores float visible in the air, each one glowing briefly before fading, creating ephemeral constellations in the darkness.
+
+The most striking residents are the tunnel creatures - thousands of them, ranging from pinhead to palm-sized. They seem to be hybrid forms of rats, insects, and industrial debris. Some have carapaces made of corroded copper, others trail fiber optic filaments like luminous whiskers. They move in coordinated swarms that form and dissolve like liquid mercury, yet make almost no sound beyond a subtle electric hum and the occasional metallic tick.
+
+Ancient control panels line some sections of wall, their displays long dark. But sometimes numbers flicker across them unbidden, responding to some forgotten program or perhaps to the movements of the swarm-creatures. Steam pipes run overhead, wrapped in decaying insulation, but the steam they leak feels more like data than water vapor - it carries whispers of machine code and fragments of corrupted memories.
+
+The air grows thicker toward the end of the tunnel, where reality becomes uncertain. Space bends subtly, making it impossible to tell if the tunnel is straight or curved. Time moves strangely too - watches stop working, digital devices display impossible times, and there's a sensation of moments overlapping like shuffled cards.
+
+This place exists in a liminal state between infrastructure and organism, between built environment and evolved ecosystem. It's as if some crucial boundary was breached long ago, allowing the mechanical and the biological to blur together, creating something that follows neither natural law nor engineering principles, but some third set of rules unique to this hidden pocket of warped reality.
+
+The whole space pulses slowly, like a breathing thing, though it's impossible to tell if this rhythm comes from the city's power grid above, the movement of the swarms, the weeping walls, or something else entirely - something that exists in the spaces between what's real and what's possible.

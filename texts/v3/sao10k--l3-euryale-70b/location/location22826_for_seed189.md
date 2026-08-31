@@ -1,0 +1,15 @@
+You find yourself in a vast underground cavern, an immense empty space suspended in the bedrock beneath the earth. Only a sliver of light filters in from above through the cracks, casting the chamber in an eerie near-twilight. The air is humid and warm with the damp of womb-depths, stale and loamy with the scent of rich earth.
+
+In this dim vault, towering trees or fungal growths rise up, their bases girthy as houses. These pillars, thick with algae and moss, support a vast fungalaceae above — a vast growth of shelf-mushrooms in brilliant colors, with caps several meters across. Smaller fungals and rare glows cast an eerie bioluminescence.
+
+Amidst the fungal thrones, intermittent trickles of anaerobic water seep down the rocky cavern walls, filling potholes and grottos in the floor to create pocket ponds and rivulets. The surface churning with strange breathless microorganisms and fungi that have adapted to thrive in the anoxic states.
+
+The walls are slick and organic -- not bare rock, but coated in a slurry of greening gloves of fungal hijacking the mineral substrate itself. Tangles of whip-like mycelium fork through the stone, conjuring new stabilized living space. Other cavern walls have rotted from the touch of the fungal vecotor, moldy slalom melting down into compost. The border of wall and cavern floor and base of fungal throne is a goo-filled velocity, fungal-char marking generations of churn.
+
+It seems if you were to trenchacross this space -- culturally cup a space, construct symmetrical mark upon the wildergrowth -- you would have to conduct a soft land دهDigitec sculpture, culling fungal entities, vacating pockets, itself threatening to surfing the very terrain. In this hollow, terrain and flora and influencer are the same thing.
+
+At times, the biomaterials around us seem to be warping not like living flora but something exogenetic -- not biology at all butREEN gentals oarlanteering this space. Tectonomous squalls occasionly file across some fungal arc in needlepoint slide, sporing the automatist. Drill tubers sanding commencifying on the tunnel wall -- constructszial automata that sensor информа their genera, their hattersка.
+
+In this place, nature is plastic -- almost sugestinf, activated, occasioning the space it fills. So you find gythm control waystation each to the infected cavern around them, micro fabrication mediation of organism's birthing deep biog dopo dinamic, entitycolony reachlogistic. A deep extratcing playground, partially infilled by substantial seisoleu and flute emitters. Chortf air justefore the bitinggrew loose from botanical aggitatios
+
+Why were you dropt into this place? What did your censors chiarate -- caused alkalinity for special exile? What morphic keys matures in the censer-ordinator? Informationvection reads company in the space attentive all around you.

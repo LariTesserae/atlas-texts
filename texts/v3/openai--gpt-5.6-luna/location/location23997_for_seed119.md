@@ -1,0 +1,43 @@
+The place is a low basin made entirely by hand.
+
+Not built upon the earth so much as built in its place: a shallow, oval enclosure of fitted slate, clay brick, and pale mortar, no wider than a village square. Its walls rise only as high as a person’s shoulder, though they continue outward in broken terraces and channels, suggesting that the whole basin was once part of a much larger work. There is no visible soil. Every surface is made—flagstone, brick, fired tile, woven reed matting sealed with pitch, the occasional rib of dark timber. Where the builders left gaps, the gaps have been carefully lined too.
+
+Water occupies the lowest parts. It lies in long, narrow troughs and shallow reflecting pans, rarely more than ankle-deep, though the darkness beneath the surface makes some of them seem bottomless. It gathers from the air as much as from any rain. Droplets bead on the walls, swell along the undersides of arches, and fall at irregular intervals with the sound of fingers tapping clay. The stone is always wet. Mortar has softened and hardened countless times, producing rounded seams and shallow channels worn into the floor. The place has long since reached its settled shape: no wall is new, no collapse is recent, and every break seems to have become part of the design.
+
+The basin is roofless, but the sky above it is seldom visible as a sky. Low cloud presses over the enclosure, a dim pewter ceiling that brightens without becoming light. Mist hangs in the open spaces between the walls. At dawn—or what passes for dawn here—the whole landscape becomes a gray chamber, with no clear boundary between air and water. At night, the darkness is not complete. Faint greenish glimmers appear beneath the pans, and tiny amber points move through the cracks in the masonry, as if the walls contain a buried constellation.
+
+There is very little vegetation. A few cords of black reed grow from joints where water has accumulated, their leaves thin and blade-like, each one beaded with condensation. Low mats of gray moss cling to the shaded sides of the channels. Here and there, a pale fungus has spread across a tile in the shape of a hand or a branching map. Nothing rises high. No tree, shrub, or grass softens the geometry. The living things have accepted the construction as their ground and occupy it in narrow strips, seams, hollows, and waterlines.
+
+Yet the place is full of animals.
+
+They are concentrated rather than numerous in any one open space. Long-bodied water creatures slip through the channels in sudden silver movements. Their heads are small and blunt, with lidless black eyes, and they propel themselves by folding their bodies into angular waves. Hundreds of tiny shell-backed things cling to the wet walls, grazing at the invisible film that coats the mortar. When disturbed, they release themselves all at once and clatter into the water like thrown pebbles.
+
+The air above the basin belongs to insects. Small moths and translucent flies hover in loose columns over the deepest troughs. Their wings make a continuous dry vibration, loud enough to blur individual sounds. Some have no visible bodies at all, only beating wings and a pinprick of blue light where the head should be. Others are heavy, beetle-like things that crawl from the wall vents and throw themselves against the dim air, striking tile with sharp, wooden knocks.
+
+At intervals, the animals erupt.
+
+A submerged swarm passes beneath one of the long pans, turning the dark water briefly white with backs and bellies. Reed-dwelling birds—if they are birds—burst from the low growth in a flurry of wet wings. They are narrow and jointed, with legs too long for their bodies, and they call to one another in harsh, metallic cries. Their voices ricochet from the surrounding walls until it sounds as though the basin is full of shouting people concealed behind the masonry.
+
+The loudness is made worse by the architecture. Every surface has been arranged to carry sound. The troughs amplify trickling water into a rushing, hollow roar. Curved retaining walls return footsteps from the wrong direction. A struck tile rings for several seconds, and neighboring tiles answer in lower tones. Rain, when it comes, does not patter—it drums. It strikes the terraces, pours down the channels, and fills the enclosure with a layered clamor of impacts, splashes, wingbeats, and animal cries.
+
+The original builders may have intended this.
+
+Near the center stands the basin’s only vertical feature: a squat tower of interlocking clay cylinders, perhaps a shrine, perhaps a water regulator. It leans slightly but has not fallen. Its sides are incised with shallow grooves, each groove ending in a small opening. Water emerges from some of them. From others come insects, pale roots, warm breath, or nothing at all. The tower has no door. Its upper rim is broken open to the sky, and from within rises a steady sound like distant chewing.
+
+Around it, the floor is marked with raised paths only a handspan wide. They cross the water without bridges and divide the basin into careful compartments. Most are empty. A traveler can stand in the middle of one and see no other human presence, no tool, no abandoned bundle, no sign of recent habitation. The emptiness feels deliberate, maintained. The animals do not cross certain lines. Water stops at others, though the channels on either side slope together. In one section, every creature moves clockwise. In another, all sound ceases whenever a shadow passes over the wall.
+
+These are the rules of the place, though they are not written down.
+
+Water must be allowed to return to the same basin from which it came. Anything placed on a dry tile becomes wet within a few breaths. Living things may cross the raised paths only if they are carrying something. A person who speaks their own name hears it answered from beneath the floor. The insects gather around metal, even though there is almost no metal here, and become violent around worked iron. Fire burns blue and gives off no heat unless fed with a piece of the architecture.
+
+The people who made the basin used simple tools, but they worked with an astonishing patience. Their fingerprints remain in the clay under the oldest tiles. Thumb-sized impressions repeat along the mortar. Some bricks bear the marks of cords, woven mats, fish bones, and palms. The construction is not elegant in the way of a palace. It is thick, practical, repetitive: walls for holding water, channels for directing it, shelves for storing jars, low enclosures for breeding or trapping the small aquatic animals. But over generations, maintenance became ritual, and ritual became landscape. Repairs were made with whatever the place produced. A broken tile was replaced by a shell. A collapsed drain was packed with feathers and resin. The basin slowly became less like a machine and more like a body.
+
+There are no natural horizons here. The outer walls hide whatever surrounds the enclosure, and their tops are softened by moss, moisture, and age. Beyond them may be more rooms, more terraces, more abandoned basins. Sometimes a deep vibration comes through the masonry, followed by a shudder of water in every channel at once. Sometimes a wall exhales a gust smelling of clay, fish, and cold stone. The structure may extend far underground, though the visible landscape remains small enough to cross in a few minutes.
+
+In the dimness, distance behaves strangely. A nearby wall can seem remote and blue, while a far corner appears close enough to touch. The basin is never crowded, but it is never vacant. Between each visible presence—each reed, animal, droplet, crack, and drifting wing—there are broad intervals of bare constructed surface. Those empty spans make every movement conspicuous. A single creature crossing a tile becomes an event. A single falling drop can command the whole enclosure before the insects reclaim the sound.
+
+Everything is damp, cool, and active.
+
+The walls sweat. The water shifts. The animals feed, flee, hatch, molt, and vanish into the seams. The ancient channels continue to perform their work despite having no keeper. Somewhere below, hidden mechanisms of stone and clay open and close with the weather. When the air pressure changes, the tower groans, the pans tremble, and the creatures all turn at once toward the same unseen opening.
+
+Then the rain begins again—not from above, but from the walls themselves.

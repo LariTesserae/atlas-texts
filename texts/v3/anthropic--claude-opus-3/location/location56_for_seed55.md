@@ -1,0 +1,11 @@
+Deep beneath an ancient sea, a strange and vast cityscape stretches across the abyssal plain. The ocean here is cold and still, an endless liquid night broken only by the faintest shafts of light filtering down from the distant surface. 
+
+Constructed eons ago by unknown hands, the sunken metropolis covers the seabed as far as the eye can see. Its cyclopean structures are hewn from the very bedrock - mammoth foundations and seawalls assembled from great polygonal blocks of basalt, granite and limestone. Atop these rise edifices of worked stone, their once sharp edges and angles softened by the patient erosion of ages.
+
+Forests of stony columns and arches, barren of any ornamentation, march into the gloom. Megalithic domes and pyramids loom like sunken mountains. Broad avenues paved with flagstones wind between the buildings, disappearing into submarine canyons and reappearing atop undersea rises. 
+
+Lush gardens of kelp and seaweed carpet the ancient structures, great fronds swaying gently in the frigid currents. Bioluminescent algae cling to the stones, casting an eerie blue-green glow. Beds of tube worms and forests of glass sponges sprout from the silt-covered streets. But no fish swim through the drowned boulevards, and no crustaceans scuttle in the sunken forums. The cyclopean city is eerily devoid of animal life.
+
+Time moves slowly here in the lightless depths. The only sounds are the occasional groans and creaks of the ancient stones settling ever further into the seabed under their own titanic weight. Silt drifts down in lazy curtains, an eternal snow adding to the yards-thick blanket already smothering the city.
+
+This ageless necropolis has sat undisturbed for epochs beneath the waves. Abandoned by its enigmatic builders, worn down to its foundations by the patience of the sea, it endures as a brooding monument to civilizations so ancient that even the continents above have forgotten them. The solemn buildings keep their secrets in the silent, lightless depths, awaiting the ending of the world.

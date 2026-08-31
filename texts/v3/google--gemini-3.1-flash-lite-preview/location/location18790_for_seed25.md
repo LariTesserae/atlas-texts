@@ -1,0 +1,17 @@
+The terrain is not stone, nor is it soil. It is a calcified, porous laminate of countless eons, a colossal shelf of hardened, obsidian-hued resin that spans the horizon in a rolling, low-lying basin. Because there is no vegetation, the landscape lacks the soft interruption of leaves or moss; instead, the world is a texture of jagged, interlocking mineral plates and slick, weeping vents.
+
+The air here is perpetually cool, hovering in a state of suspended dampness. It is not quite rain, but a heavy, pervasive weeping that clings to the surface of the resinous plates, coalescing into oily, iridescent rivulets that pool in the shallow depressions of the ground. Every few minutes, a misting cycle activates—a shudder of pressure from beneath the crust—releasing a spray of chilled vapor that renews the slickness of the world.
+
+The darkness is absolute, a thick, light-drinking gloom, yet the space is crowded to the point of suffocation. The density is not of trees or structures, but of *presences*.
+
+The landscape is a vast, heaving graveyard of bioluminescent, chitinous swarms. Millions upon millions of multi-legged, arthropod-like entities—each the size of a human palm—cling to one another in dense, pulsating carpets that cover every inch of the resinous floor. They do not build structures; they become the architecture. They crawl over one another in a frantic, ceaseless industry, a living masonry of twitching husks and grinding mandibles.
+
+The sound is not merely loud; it is a physical weight. It is a deafening, rhythmic chittering—a millions-fold abrasion of dry, serrated limb against carapace. It sounds like a landslide of metallic shards continuously shifting in a wind tunnel. Beneath this top-layer of friction is a low-frequency tectonic hum, a vibration that travels through the resin floor and rattles the chest cavity of any observer.
+
+There is no "prey" in the way understood on the surface world, for there is nothing here that is not the swarming mass itself. They are a closed loop of consumption and regeneration; they feed on the heavy, mineral-rich condensation and the cast-off husks of their kin. When one dies, the colony instantly absorbs the remains, recycling the biology back into the carpet.
+
+Everything is in motion. The landscape is a churning sea of black, wet leather and obsidian segments, shifting imperceptibly as the swarm migrates in slow, agonizing waves across the basin. They are the topography. They are the ecosystem. 
+
+In the crushing dark, the only light comes from the creatures themselves—not a constant glow, but a rhythmic, erratic flickering of phosphorescent vents located along their lateral segments. It is a chaotic, strobe-light mimicry of lightning or distant gunfire, illuminating the glistening, slick terrain for a fraction of a second before plunging it back into a darkness that feels heavier than sound itself. 
+
+There is no sky here, only the oppressive ceiling of the basin, and no horizon, only the edge of the next rising swell of the collective, twitching mass. It is a world that has perfected its own stillness through total, exhausting activity—a low-lying, damp, and deafening machine of biological geometry that has been turning in the dark since the beginning of time.

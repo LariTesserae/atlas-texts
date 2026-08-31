@@ -1,0 +1,15 @@
+You are in a grotto, no wider than your shoulders can touch both sides if you stretch your arms. The ceiling is so low you must crouch. Everything is submerged.
+
+The water is not black, but a deep, mineral green, tasting of iron and wet stone. It is perfectly still, yet it fills every cubic inch of space. You breathe it not like a fish, but like a memory of drowning—it is cool in your lungs, 0.8 on some scale of chill, and it carries oxygen in a way that defies your understanding of biology. Your body has simply decided to work here. The pressure is immense, a constant full-body embrace.
+
+The walls are not bare rock. They are packed, 2.6/3 packed, with a coral-like growth that is not coral. It is a spongy, semi-translucent vegetation, 1.9 lush, pulsing with a slow, bioluminescent rhythm. The light it provides is minimal, 0.2 darkness defined by these few, ghostly glows—patches of pale chartreuse and faint lavender that bloom and fade over minutes. They illuminate veins of darker material running through the growth, like a nervous system.
+
+This place is young, 1.4 erosion, in geologic terms. The grotto feels freshly carved, the features sharp where the vegetative overgrowth hasn't softened them. You can feel the sharpness not with your eyes, but with your skin as you brush against the walls. The density of life leaves no room between presences. Every surface is colonized.
+
+Sounds are few, 0.8 mostly quiet. The dominant noise is the deep, sub-aquatic thrum of the water itself, a pressure you hear in your bones. Occasionally, a low creak echoes—the sound of the rock under tectonic stress, or the vegetative mat slowly shifting. Something moves far above, a shadow passing over the faint glow, too distant and diffuse to be a creature you can name. Fauna is rare, 0.9.
+
+The weirdness, 2.6, is in the geometry. The grotto should not be this long. You have been swimming-crawling forward for what feels like an hour, yet you have not passed the same pulsing lavender node twice. The scale is intimate, 0.1 hidden, a single pocket-reality, yet it contains an impossible distance. The walls sometimes seem to breathe, expanding and contracting by a millimeter in a cycle that lasts a full ten minutes.
+
+Scattered, 0.8 built, amidst the living growth are marks. Not carvings. Impressions. Smooth, oval hollows in the vegetal mat, perfectly sized for a body to rest in. They are empty. On one wall, a single, geometric pattern—a spiral of tiny, polished stones embedded in the sponge—catches the bioluminescence. It is a faint mark, an artifact of a mind, but there is no technology, 0.2, only this biological plenitude and this one, quiet intention.
+
+The dynamic is slow, 1.1. The cycles here are glacial. The water cools and warms by fractions of a degree over what might be a week. The vegetative glows migrate across the walls like weather systems. You are not sure if you are in a womb or a tomb. The process is patient. You are part of it now, a slow, cool, dense thought in the mind of the submerged dark. Change is happening, but it will finish long after you are gone, absorbed back into the packed, living wall.

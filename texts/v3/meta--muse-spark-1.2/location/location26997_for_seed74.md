@@ -1,0 +1,47 @@
+It is a low place.
+
+Not low like a valley — there is no drama of mountains to make a valley. Low like a saucer left out in cool air, a shallow dish in the land where cold settles. You find it by the change in the air before you see it. The road out on the heath is dry, open, short grass and wind. Then the ground eases down a meter, two meters, no more than the height of a house foundation, and the temperature drops a degree. The light stays the same — normal, overcast-white, open sky — but it feels filtered even before the cover starts, as if the air itself has become a little thicker, a little more damp.
+
+The town is in the dish.
+
+From the lip you can see the whole of it at once. That is the scale of it — hamlet-scale, single-feature, bounded. You could walk its diameter in fifteen minutes if you didn't have to step around so much. A few dozen structures, no more, set far apart from each other with a lot of deliberate emptiness between them. It is urban in the way a circuit board is urban: dense with purpose and connection and layered infrastructure, but not crowded. Sparse the way a well-maintained workshop is sparse — everything has space around it to be worked on.
+
+And everything is plant.
+
+Not *overgrown*. That would imply two things at odds — city and forest — one winning. Here there is only one thing. The vegetation is the substrate. The town did not get covered; it was *grown into*.
+
+The species is hard to name because it has been trained out of being a species. It's something between a banyan and a felted mat of moss and a vine that decided to become timber. The old people here call it simply the Weave. Its trunks are as thick as factory columns and exactly where factory columns should be. Its leaves are broad, waxy, dark green with pale undersides that show when the wind flips them. Its roots are cord-thick and aerial and terrestrial at once, forming buttresses, arches, walls, gutters, stairs. It has been here a long time — established, settled-form, weathered into total balance. Nothing looks new and nothing looks ruined. Stone and bark have reached an agreement on what an edge should be: soft, rounded, bearded with lichen.
+
+The buildings are still buildings. You can see the brick — a cool, damp, soot-darkened red — but only in glimpses, where a wall has been brushed clear for a window or a sign. Mostly the brick is behind a inch, a foot, a yard of living matter. Ivy with leaves the size of dinner plates shingles every roof. Moss, thick as carpet padding, upholsters the sides of warehouses and deadens sound. From a distance the factories look like green hills with windows punched in them. Up close you see the seams: iron window frames set directly into living wood that has grown to gasket around them, exuding a thin resin to keep the seal. Brick gutters that now carry sap as much as rainwater. Chimneys that are chimneys still, but with a collar of fleshy, heat-tolerant creeper around the lip that flowers orange when the furnace is on.
+
+Because the furnaces *are* on. This is an industrial town. Not in ruins, not post-anything. Active.
+
+That is the first rule of this place: the plant is not feral. It is industrial infrastructure.
+
+The tech is late-iron, early-electric. Not glossy, not digital. Riveted boilers, belt-driven lathes, dynamos that hum, water-towers, pipework. All of it has been adapted to run cool and wet. The central mill — the largest form in the dish, cathedral-scaled, its roof a single vaulted canopy of interwoven branches forty feet up — houses a press that stamps leaf-pulp board and a line of looms that weave fiber stripped from the Weave's own aerial roots. The Weave regrows it in a week. Steam is still the idiom here, but the steam smells of green. Condensate drips constantly from pipes wrapped in vine, not because they leak but because the air itself precipitates on every cool surface. That is the water here — not a river, not a lake. Damp as a condition. The whole dish is a condensation trap. Cool air pools. At dawn and dusk a low fog forms knee-high and drains slowly between the buildings like a sluggish tide, never quite raining. Water beads on the underside of every leaf, gathers, falls *plip* onto iron catwalks with a sound that is almost metronomic. Gutters made of living troughs carry it to cisterns where it is fed back into the boilers. In the dry months, they let the fog do the work. In wet months, it actually rains, briefly and softly, straight down through the canopy.
+
+There is a lot of empty space and it is all occupied.
+
+Between the mill and the machine shop is fifty yards of open ground that is not ground. It's a mat. A springy, living floor of interlocked moss, stonecrop, and flat-running stems, two feet deep, that gives under your boot and sighs back. You don't cut across it without following the worn paths where the mat has been compressed into something like pavement. Underneath, you can feel the warmth of pipe runs. The Weave has been trained to grow *around* infrastructure, not through it — root-channels that cradle steam pipes, leaf-awnings that shade switchgear, hollow trunks that act as chimneys and cable ducts. When a pipe bursts, the plant seals around it in a day, leaves yellowing to mark the fault. The repair crews peel it back like skin.
+
+Sound here is quiet, but not silent. That's the density and the moss. The mat and the shag on the walls eat echo. An engine turning over inside the mill is a low, contained throb, more felt in the feet than heard. A belt slap. The soft *tick-tick-tick* of a cooling boiler. Otherwise: drip, drip, drip from a hundred leaf-tips after fog. The rustle when wind moves the canopy, a single wave passing over the dish. On still days you can hear the Weave itself growing — not a sound exactly, but a faint hydraulic creak as new shoots pressurize and extend, a millimeter an hour if you watch a marked tip. It is an active place, dynamic in the way a reef is dynamic. Everything is in slow, visible motion.
+
+There are few animals. That's the other consequence of total plant dominance and the cool, industrial oil-and-sap air. Rare fauna. You might see a few soot-colored sparrows that have learned to nest in the holes left for them in the factory walls — the Weave leaves them open. Pale moths at night around the amber work-lights. Beetles that process leaf litter in the composting annex behind the mill, where scrap fiber is broken down. No more. No rats — the mat is too dense, too uninterrupted. The ecology is the plant, the machines, and the people who tend both.
+
+The people are sparse too. Perhaps thirty, perhaps forty in the dish at any time, and you will rarely see more than two together. They dress for cool damp: waxed canvas, wool, rubber boots. They move unhurriedly, doing tasks that look like gardening and tasks that look like machinistry without distinction. A woman with pruning shears and a voltage tester. A man oiling a lathe with one hand and tucking a runner vine along a guide-wire with the other. They speak quietly because they don't need to raise their voices. They leave doors open — there is nothing to steal and the air inside and outside wants to be the same.
+
+The weirdness is low-grade, cumulative, not spectacular. After an hour you start to notice the things that should not be quite so:
+
+That the windows on the east side of every building are a little larger than the windows on the west, and the leaves around them are angled to act as reflectors, and no one seems to have planned it that way after the first generation.
+
+That the Weave fruits only directly above the composting annex, where the small, hard, fig-like bodies drop with a thud onto the mat and are collected by hand and fed into a grinder.
+
+That the street plan — if you can call the compressed paths streets — follows a perfect hexagonal tiling when viewed from the canopy roof, even though the buildings themselves are rectangular.
+
+That if you stand in the exact center of the dish and clap, the sound returns to you a half-second later not as an echo but as a rustle, as if the plant clapped back.
+
+Nobody finds this alarming. The Weave was planted as erosion control a long time ago — to hold the dish, to hold the soot, to hold the town together. It is very good at holding. Its roots have found the old foundations and made them its own, weathering brick and stone until they feel like each other. The town is long-existed, in its own state, in balance. It does not spread beyond the lip of the saucer. The heath keeps it checked with wind and dryness. It does not need to spread.
+
+At night the dish holds onto light differently. The work-lights inside the factories glow amber through leaves, making the whole town look like a lantern with many panes, each pane leaf-filtered. The sky stays open and high and normal above. Fog, when it comes, glows faintly from within. The boilers bank for the night but never go cold; you can see the faint shimmer of heat above the chimney collars, warping the air. Condensation runs down every surface and gathers and drips. The mat exhales the day's warmth. The shoots keep extending in the dark, ticking forward.
+
+You could leave in any direction in a few minutes and be back on dry heath, but while you are inside, the boundaries feel absolute — a room made of living walls, a grove that decided to be a town, a town that decided to be a plant, working quietly and steadily in the cool, turning sunlight and fog and steam into fiber and board and more of itself, drip by quiet drip.

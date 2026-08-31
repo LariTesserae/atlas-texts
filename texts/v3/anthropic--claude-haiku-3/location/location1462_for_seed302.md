@@ -1,0 +1,7 @@
+In the unimaginable depths of a primordial ocean, a strange and alien world unfolds. The water here is not the familiar blue-green of surface seas, but a deep, impenetrable darkness that swallows all light, save for the occasional eerie glow of bioluminescent creatures drifting through the gloom.
+
+The terrain is an ancient, geological landscape, sculpted and worn by eons of relentless currents. Towering spires of mineral formations rise from the seafloor, their surfaces etched and pitted by the slow, steady march of time. Vast, undulating plains of silt and sediment stretch out as far as the eye can see, broken only by the occasional outcrop or deep, yawning chasm.
+
+This is a world devoid of plant life, a realm of simple organisms and strange, otherworldly forms. Bizarre, tentacled creatures drift through the water, their movements languid and serpentine. Bioluminescent microbes pulse and flicker, creating an eerie, ethereal glow that permeates the darkness. The only sounds that break the oppressive silence are the faint, mournful calls of rare, deep-sea denizens.
+
+The air here is cool and dense, the pressure immense, and the very fabric of reality seems to bend and warp, as if the laws of physics themselves are mere suggestions in this alien realm. This is a place that has long ago settled into its final, ancient form, a world that has seen the birth and death of countless eons, a primordial remnant of a time before life as we know it.

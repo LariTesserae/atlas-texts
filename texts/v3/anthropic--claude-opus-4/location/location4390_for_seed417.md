@@ -1,0 +1,21 @@
+High in the mountains, where the air thins and clouds snag on granite teeth, there exists a hollow—a perfect bowl carved by ancient glaciers into the living rock. From outside, you would never know it was there. The approach shows only weathered stone and sparse alpine grasses, but slip through the narrow cleft between two leaning boulders, and you enter another world entirely.
+
+The hollow spans perhaps thirty meters across, its walls rising in a natural amphitheater of moss-softened stone. But stone is merely the backdrop here—every surface that isn't vertical rock face has been claimed by an impossibly dense carpet of vegetation. Not trees, for this place exists above their reach, but something stranger: a living mat of intertwined alpine plants that have evolved beyond recognition.
+
+The plants form architecture. They've grown together into a spongy substrate two meters thick in places, creating tunnels and chambers within their mass. Cushion plants have merged with ground-hugging willows, their boundaries dissolved. Moss campion has hybridized with arctic poppies until you cannot tell where one organism ends and another begins. The entire floor of the hollow has become a single, breathing entity—bright green in the perpetual light that somehow reaches every corner despite the high walls.
+
+And through this plant-flesh, the animals move.
+
+They pour through the vegetation in streams—pikas, voles, ermines, ground squirrels—but changed. Adapted. There are too many of them, far too many for such a small space, yet the plant-mass supports them all. They've grown smaller to fit the scale of their world, some no larger than beetles. They navigate the three-dimensional maze within the plants, their paths invisible from above, only betrayed by the constant rippling of leaves and the occasional flash of tiny eyes.
+
+The animals are silent. Evolution has stolen their voices in this acoustic bowl where sound would only bring predators. They communicate through vibrations in the plant substrate, through chemical signals, through the arrangement of flower petals. The only sounds are the whisper of wind across the rim high above and the soft rustle of countless small bodies moving through green corridors.
+
+Water beads on every surface. The hollow traps moisture from passing clouds, and the plants exhale it in a constant cycle. Dewdrops hang like jewels, never quite drying even in the bright light. In certain spots, the plant-mass has shaped itself into natural cisterns, palm-sized pools where the animals drink. The water tastes of chlorophyll and stone.
+
+The dynamism is in the living systems, not the landscape itself. Animal populations boom and crash in waves. One week, the rust-colored voles dominate, their numbers swelling until the plant-mass itself begins to buckle. Then disease or predation sweeps through, and within days the emerald shrews have claimed the vacant tunnels. The plants respond, shifting their growth, closing some passages and opening others, maintaining the delicate architecture that supports this impossible density of life.
+
+Scattered throughout are remnants of human presence—or something like human. Stone cairns mark the cardinal directions, though they're nearly swallowed by growth. In the deepest part of the plant-mass, if you knew where to dig, you would find small offerings: carved bone animals no bigger than fingernails, placed here by people who understood this place was sacred, or dangerous, or both. They left their tokens and departed, wise enough not to disturb the balance.
+
+The light comes from everywhere and nowhere. The high mountain sun reflects off the granite walls, but the plants themselves seem to glow with captured brightness. Even in the deepest tunnels within the living mat, a green luminescence persists. The vegetation has learned to share light the way it shares water, passing photons from leaf to leaf until every cell can photosynthesize.
+
+This is a place of contradictions held in perfect tension: overwhelming life in a tiny space, bright emptiness dense with motion, ancient stability in constant flux. It pulses with the heartbeat of ten thousand tiny lives, yet maintains the profound quiet of high places. It is a world complete, hidden in plain sight, asking nothing from the larger universe but the occasional kiss of cloud.

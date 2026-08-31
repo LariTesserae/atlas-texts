@@ -1,0 +1,15 @@
+A living city rises from the mountainside, its "buildings" formed entirely of massive triangular leaves that fold into inhabitable spaces. These leaves, as thick as castle walls and large as circus tents, grow from thick woody vines that serve as the city's foundation. The structures aren't built so much as cultivated, guided over generations by the careful work of the city's gardener-architects.
+
+The air is thick and hot, catching in the throat like steam. Water perpetually condenses on the waxy upper surfaces of the leaf-buildings, running down their precisely angled surfaces in choreographed rivulets that feed the city's needs. The sound of this eternal dripping mingles with the deep creaking of growing plants and the constant rustle of leaves adjusting their positions throughout the day - a slow ballet of phototropism that causes the whole city to gradually shift its geometry with the sun's movement.
+
+Between the major leaf-structures, countless smaller plants create the city's infrastructure: twisting lianas serve as staircases, broad shelf fungi form platforms and balconies, and dense masses of epiphytes create the walls of smaller dwellings. The spaces between are filled with a perpetual green twilight, filtered through layers of translucent leaves above.
+
+Inhabitants move through this living architecture via paths worn smooth in the bark of major branches or across bridges of woven aerial roots. Their tools are primarily wooden, grown rather than built - curved poles for reaching and pruning, containers grown from gourds, nets woven from thin vines. The work of maintaining the city is constant but unhurried: careful trimming, selective breeding, the gentle guidance of new growth.
+
+The fauna is primarily arboreal - countless species of birds nest in the upper canopy, while troops of monkeys move through the mid-levels. Iridescent insects buzz between flowers that bloom year-round in this humid heat. In the dense understory, small deer pick their way between the massive trunk-like stems that anchor the larger leaves.
+
+During the day, the city rings with birdcalls and the deep bass vibration of giant bees pollinating the structural plants. The evening brings a different chorus - the thrumming of massive crickets and the soft calls of nocturnal creatures, all echoing through the organic chambers of this living metropolis.
+
+The highest points of the city reach above the surrounding canopy, where especially large leaves fold into observation platforms. From here, one can see how the city follows the natural contours of the mountainside, its green architecture blending seamlessly with the surrounding forest. The boundary between city and wilderness is soft, gradual - tendrils of cultivation extending outward, wild growth reaching inward, creating a complex gradient rather than a clear edge.
+
+This is a place that measures time in growing seasons rather than days, where architecture is measured in rates of growth rather than speed of construction, where the line between nature and civilization has dissolved entirely into a new form of habitation.

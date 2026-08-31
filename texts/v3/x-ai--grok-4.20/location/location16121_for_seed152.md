@@ -1,0 +1,19 @@
+The place is still deciding what it wants to be.
+
+It hides inside a shallow limestone fold no wider than a large house, a secret crease in the land that the surrounding hills have not yet finished closing. Everything here feels embryonic, half-made, as though the world pressed its thumb into the rock while it was still soft and then walked away before the print had quite set. The air is warm and damp in the lungs, the kind of warmth that makes stone sweat.
+
+A single ribbon of water, no broader than a wrist, slides down the center of the cleft. It does not flow so much as pause and pool and pause again, collecting in shallow basins it has only just begun to carve. Condensation beads on every surface and falls in slow, irregular drops that sound like the ticking of a wooden clock. Sometimes the ribbon disappears entirely into a crack, only to reappear ten paces later as if it had changed its mind. The water is the only thing here that seems sure of its direction.
+
+Around these hesitant pools the vegetation has already become lush, almost indecently so for such a small space. Pale ferns unfurl like slow green lungs. Mosses the color of oxidized copper cling in thick pelts to the rock, drinking the constant mist. Vines with heart-shaped leaves drape from overhangs that have not yet earned the name “ceiling,” their tendrils searching for purchase that does not quite exist. Everything grows in nervous, exuberant clusters separated by long stretches of bare stone, as though the plants themselves are still arguing over territory.
+
+The light is dim, indirect, filtered through a narrow slot high above that the hills have not yet sealed. It arrives as a kind of underwater dusk even at noon. Colors here are saturated but muted—deep greens, wet ochres, the sudden startling white of tiny orchids that bloom only where a single shaft of light finds them for an hour each day.
+
+Fauna is everywhere, though you rarely see more than a flicker. Tiny iridescent lizards the length of a finger patrol the moss carpets. Frogs no larger than thumbnails call in wet clicks from hidden crevices, their voices overlapping in soft, overlapping rounds. A single species of pale butterfly drifts between pools like scraps of paper caught in an invisible current. Once in a while something larger—a civet cat the color of damp clay—pads along the higher ledges, pausing to drink before vanishing into a fissure no wider than its whiskers. The air itself seems to breathe with small movements: the rustle of wings, the click of insect legs, the constant quiet dripping.
+
+There are ruins here, but they are barely ruins. A few courses of hand-laid stone, rounded by moisture and time, suggest that something once tried to make a wall. A flight of three uneven steps leads nowhere. A carved basin, now half full of moss and water, still carries the faint spiral mark of a forgotten people. These fragments feel less like the remnants of a city and more like the first hesitant gestures of one—urbanity in embryo, a settlement that changed its mind before it ever truly arrived. The stones are not old enough to be arrogant; they still look surprised to be here.
+
+Everything is in motion, yet nothing seems urgent. Water finds new routes. Roots widen cracks. A sudden rain high above sends a brief silver curtain hissing down the cleft for twenty minutes, then stops as though embarrassed. The temperature never quite settles; warm air rises, cooler air slips in from the shaded side, creating slow, invisible breaths that stir the ferns.
+
+This is a pocket that has not yet been noticed by the larger world. A place still negotiating with itself. The limestone is still deciding whether it will become a cave, a ravine, or simply close again and forget the whole experiment. The plants vote for lushness. The water votes for patience. The animals vote for silence.
+
+For now, the place remains hidden, warm, damp, and quietly, tirelessly becoming.

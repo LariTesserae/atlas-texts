@@ -1,0 +1,17 @@
+# The Well of Embers
+
+The Well of Embers sits in a shallow depression at the center of a vast mineral plain. Its walls are smooth copper-black stone worn to a polish by the passage of countless years, so ancient that even its minerals have reached their final, stable forms. The well's opening is barely ten feet across, though it extends deep into the earth beyond measure.
+
+The air here is warm and still. Breath comes easily, but with a mineral taste—a faint sweetness of copper and salt. The ground around the well is a tapestry of fine dust in amber and rust tones, broken occasionally by outcroppings of darker stone. Nothing grows here; no plant has ever taken root in this soil. Yet it is not lifeless.
+
+When you approach the well, you'll first notice the soft, rhythmic sounds—like distant breathing. Small creatures scurry across the dust-fine mineral floor, leaving faint tracks that persist for days in the still air before slowly being erased by the rare, gentle rains. These creatures—the Scintillae—are neither insects nor mammals, but something else entirely. Their translucent bodies glow with a faint internal light, casting weak blue shadows as they move in small groups across the plain. They seem to feed on the mineral dust itself, leaving microscopic etchings wherever they travel.
+
+The well emits no visible light, but occasionally releases puffs of warm, damp air that condense briefly in the cooler atmosphere above before dissipating. This is the primary source of moisture here—these breath-like exhalations from deep underground that maintain the delicate humidity balance. Every few days, a gentle rain falls, barely enough to dampen the dust, creating temporary patterns of darker coloration across the landscape before evaporating.
+
+Around the perimeter of this depression stand seven structures. They appear like slender obelisks at first glance, but closer inspection reveals them to be technological in nature. Each stands about fifteen feet high, composed of a material that seems to shift slightly when not directly observed. Their surfaces display no seams or joins, and they emit a barely audible hum that changes pitch so gradually it takes hours to notice the difference.
+
+The obelisks form a perfect circle around the well. They've stood for so long that the ground beneath each has compressed and settled, creating shallow bowls in the mineral soil. Occasionally, one of the structures will emit a soft pulse of energy that sweeps across the plain. When this happens, the Scintillae freeze momentarily, their glow intensifying, before resuming their activities.
+
+Between the obelisks and the well itself lies an intricate pattern in the dust—too precise to be natural, too complex to be easily comprehended. It resembles a circuit board or perhaps a map, etched into the ground by some unknown process. The pattern shifts imperceptibly over months, reconfiguring itself according to rules no observer has yet deciphered.
+
+The Well of Embers is a place of quiet contemplation. Nothing happens quickly here. The Scintillae go about their mysterious business. The obelisks stand their eternal watch. The well breathes its warm, damp exhalations. And visitors, should they come, find themselves naturally speaking in whispers, as if in the presence of something ancient and profound that deserves their reverence.

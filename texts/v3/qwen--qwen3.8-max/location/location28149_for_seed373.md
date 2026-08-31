@@ -1,0 +1,3 @@
+It is easiest to call it the Dry Organ, though it is also a bowl, a ruin, a garden, and a storm that has learned to stay in one place.
+
+It sits high, where the air is thin and cool and painfully clear. There is a mountaintop feeling to it even if no ordinary mountain could have made it: a small, bounded basin at the crown of a pale, wind-scoured height, no larger than a cathedral nave or a hamlet square. From the rim you can take it in almost at once. The space is open, nearly hollow, with vast air between the few solid things. It does not feel crowded. It feels like an empty room that has been filled

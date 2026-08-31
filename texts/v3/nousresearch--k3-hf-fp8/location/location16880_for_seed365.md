@@ -1,0 +1,33 @@
+Thornveil Crest
+
+The Crest rises impossibly thin from a sea of mist—no wider than a walled city at its crown, tapering down over forty turns to an invisible root somewhere in the sleeping continent below. A single spine of obsidian rock, still cooling from its birth beneath the world, thrust through clouds older than kings.
+
+Cool dampness hangs everywhere but never quite falls. Moisture gathers as silver beads on every thorn and blade, rolling upward against gravity's memory toward the Crest's absent centerpoint. These droplets chime softly as they collide—quiet glass bells marking time for those who remember how to listen.
+
+Life has seized this poisoned opportunity with mad abandon.
+
+From every crack and cooling fold of the newborn stone explode gardens of impossible lushness—violent green and purple-black foliage that drinks the stone's ashen heat and breathes out oxygen thick with hallucinogens. Trees like coiled serpents, their bark shed daily in papery sheets that crawl away to start new groves. Vines that bloom into screaming mouths at dusk, then collapse into spidersilk tunnels by dawn. Beneath them all, a carpet of fungal mats pulse slowly with bioluminescent veins, digesting the stone's youth into soil for stranger generations.
+
+The Firstbuilt cling to the outer edges where stone still cools enough to touch, their village-scale sprawl clinging like barnacles to impossible angles. Their walls are woven from living thornwood trained to keep growing upward, windows sealed with resin harvested from the vine-flowers' screaming mouths. Every structure breathes, exhales steam, drinks the upward-crawling moisture through capillary pipes pulsed by trained heartfruit tendrils. No streets connect them—only bridges of braided silk that dissolve behind each walker, re-forming for the next according to pheromone-contracts written in morning dew.
+
+Their tools are clever beyond metal: knives of obsidian flakes bonded to handles of frozen sap that grip tighter when blood touches them; ladders woven from self-healing vines that grow new rungs ahead of impatient feet; baskets made from stomachs of the sky-whale things that die dreaming against the upper cliffs, still digesting for centuries after death.
+
+But the Firstbuilt are few and shrinking—the Crest itself is too young for humans, its fertility a fever dream that burns through generations like candlewicks. Children born here learn to walk on vertical surfaces before flat ones, forget the direction of down by age five, speak languages that require four dimensions of tongue movement. Most die before thirty when their bones remember the true shape of gravity and try to fold themselves into it.
+
+The true masters of Thornveil Crest are smaller and wilder.
+
+From the mist below rise the cloud-eaters—colonies of spider-like creatures each no larger than a fingernail, their bodies masses of iridescent bubbles that drift up on thermals until they snag on thorns. There they dissolve their shells and pour themselves into the spaces between thorn and vine, becoming living mortar that binds the whole ecosystem together with silk threads stronger than steel and thinner than betrayal. Through this web they drink the thoughts of every living thing on the Crest, metabolizing memories into pheromone histories that drift downward on the dying wind to shape the dreams of the continent below.
+
+At night (a meaningless term here where sun and stars are both myths half-remembered from below), the sky-whales come dreaming. Vast creatures of crystallized methane and frozen dreams, they rise on sleep currents to scrape themselves against the upper cliffs, shedding layers of themselves that shatter into snowflakes of pure consciousness. Where these flakes land, new species hatch fully formed from the stone overnight—birds with wings of mirrored eyes that reflect futures never lived, worms that tunnel through time instead of earth, flowers whose petals unfold into complete symphonies that erase themselves from memory the moment they end.
+
+The Firstbuilt harvest these gifts carefully, always in odd numbers, always leaving the most beautiful specimens untouched for reasons they have forgotten but still obey. They have learned that here, to take too much is to become part of what is taken—to eat a dream-whale snowflake is to wake up one morning having always been a different person, your old self wandering somewhere in your former body with no memory of the trade.
+
+Between the few human survivors and the overwhelming wilderness-to-come, a delicate equilibrium trembles. The Crest itself grows still younger at its heights even as it ages at its base—a paradox of birth and erosion locked in eternal feedback. At the pinnacle where stone is still molten from yesterday's dawn, the Firstbuilt have built nothing, only placed a single mirror made of still water in a thorn-frame that keeps it liquid against all laws. At noon (a moment calculated not by sun but by the precise alignment of seven thousand hovering cloud-eater colonies), they gather to stare into it together.
+
+What they see there none ever speaks—they only return changed, carrying new tools made from materials that shouldn't exist yet, speaking fragments of languages that will not evolve for a thousand years below. Some walk directly off the edges afterward, trusting the mist to remember their names and deliver them somewhere they might fit better. Others begin building immediately, constructing impossible geometries that serve purposes only future generations will learn to ask questions about.
+
+And always the thorns grow thicker, the vines coil tighter, the cloud-eaters drink deeper of memories while dreaming their own thoughts into the stone's young bones. Always the Crest grows stranger and more itself with every passing moment that cannot decide whether it is first or last.
+
+Here at the edge where the world is still making up its mind about what it wants to become, all futures and pasts grow wild together in a garden that remembers tomorrow's seeds and yesterday's harvests as the same thing—just different petals of the same impossible flower blooming up through the wound where the sky once touched the earth and found it unbearably young and strange and full of terrible beauty.
+
+The mist listens to all of this without comment, hoarding echoes for the day when the Crest's dream finally ends and it must choose what kind of rain to become.

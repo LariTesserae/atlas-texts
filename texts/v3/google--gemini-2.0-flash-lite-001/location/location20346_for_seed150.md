@@ -1,0 +1,17 @@
+This is the city of the Gills, woven from the living bodies of trees and vines. It clings to the face of a raw mountain, a stone face that seems to weep perpetual tears, the source of the frequent, near-constant rain. The air itself feels wet, pressing against the skin, and cold.
+
+The city is built *into* the mountain, rather than upon it. The "stone" is less stone than the exposed roots of the highest trees, their undersides coated in a slick, dark, fungal matter. These are the *weepers* — ancient, gigantic trees whose roots have become the very bedrock of the city. Their canopies, far above, are lost in the perpetual twilight, leaving the city in a perpetual dim.
+
+Everything here is green, every shade you could imagine and many you can't. The architecture is organic, the "buildings" grown from living wood and woven with living vines, creating structures that shift and change with the weather and the growing season. The Gills themselves are beings of plant and fluid, their bodies a lattice of living wood and fungal tissues. They move slowly, their forms blending seamlessly with the architecture. Their "houses" are living cells, and their "streets" are paths carved through the dense, vibrant vegetation.
+
+Water is everywhere. It trickles down the weeping rocks, collecting in pools and streams. It condenses on the leaves, dripping from the massive eaves of the wooden structures. Water is channeled, too, by the Gills, through a complex, interwoven system of living canals and aqueducts made of the same adaptable plant matter. The city breathes.
+
+Sound is mostly absent, but not entirely silent. A constant, low hum permeates the space, the combined music of the wind and the trees' own internal workings. Every so often, there's a gentle *plip* as a water droplet falls from a leaf, or the rustle of a vine as it slowly creeps deeper into the living city. You hear the deep and slow creaks and groans of these great old trees slowly twisting in the wind. 
+
+Fauna is scarce. A few hardy moss-slugs, shimmering with iridescent colours, crawl slowly over the wet surfaces. Perhaps the occasional flash of a small, scaled creature within the dense foliage.
+
+The city feels young. The lines of the interwoven buildings are sharp, still forming. Erosion is present but not dominant, slowed by the constant rain. The roots of the weepers are still pushing their way into the rock, reshaping the mountain, and the city with it.
+
+The Gills are a singular culture. Their society is communal, driven by a deep understanding of the city's living architecture. There is no technology, but there is an intimate partnership with the living world. They use the plants to capture water, to weave their structures, and to even control the weather in small ways. Their lives are intertwined with those of the weepers; the trees are their homes, their providers, and their protectors.
+
+The city is small, perhaps the size of a large town, but it feels packed, every space filled with life. The density and the activity constantly remind you there is no room to waste, nothing to discard: everything in the city’s environment is always moving, flowing, growing. The cold, the dim light, the scarcity of fauna — all of it contributes to the feeling of an isolated place pushing itself slowly into a difficult world. Yet its activity feels strong, as if this place wants to live.

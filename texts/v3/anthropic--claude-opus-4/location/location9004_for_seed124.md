@@ -1,0 +1,19 @@
+The steam rises in sheets from the terraced city, a thousand condensation plumes threading between tower-gardens and elevated aqueducts. This is a place built on thermal gradients—where hot springs surge up through young volcanic stone to meet cooler mountain air, creating perpetual clouds that cling to every surface.
+
+The city sprawls across a series of natural limestone terraces, each level connected by a network of ceramic pipes and stone channels that direct the endless flow of thermal water. The rock here is sharp-edged and porous, formed perhaps only centuries ago when the earth cracked open and released its heat. Water seeps through everything—beading on glass surfaces, running in thin films down the faces of buildings, pooling in carved basins at every intersection.
+
+Industrial greenhouses rise in stepped pyramids, their iron frameworks black with moisture, glass panes forever fogged. Inside, enormous ferns and heat-loving vines grow in hydroponic towers, their roots trailing in nutrient-rich thermal streams. The plants here are cultivated things—bred for density, for maximum yield in minimum space. They press against the glass walls in thick curtains of green, their fronds uncurling in the perpetual warmth.
+
+The streets are narrow channels between buildings, more like covered walkways than true roads. Everything is built vertically to escape the wet—workshops stacked atop dormitories stacked atop communal kitchens. Steam-powered elevators hiss and clank in their towers, moving people and goods between levels. The machinery is everywhere but subdued: pipes running beneath walkways, turbines spinning silently in underground chambers where the hottest water flows, electrical lines strung between buildings like vines.
+
+At ground level, the original volcanic stone shows through in places—black and glassy, still sharp enough to cut. The builders have worked around these formations rather than through them, incorporating the natural terraces and steam vents into their architecture. Public baths occupy natural hot pools, their edges lined with worn stone where generations have sat. Market halls cluster around the largest vents, using the heat for cooking and food preservation.
+
+The atmosphere is thick, almost tactile. Visibility rarely extends beyond a few blocks before the steam interposes itself. The air tastes of minerals and green growing things. Colors appear saturated in this environment—the verdigris of copper fixtures, the deep green of wet moss on stone, the rust-red of iron pipes bleeding their slow oxidation.
+
+There is no birdsong here, no insect hum. The only sounds are mechanical and geological: the steady drip of condensation, the distant rumble of water through pipes, the occasional release of pressure from a safety valve. Even these sounds are muffled by the dense air, creating a profound quietness despite the city's industry.
+
+The light comes filtered through perpetual cloud, bright but diffuse. It catches in the steam, creating a luminous haze that makes distances uncertain. At night, electric bulbs glow like captured stars in the mist, their light scattered into soft halos. The industrial greenhouses become lanterns, their internal grow-lights turning them into geometric constellations.
+
+Change happens slowly here. The thermal springs will flow for millennia, the city growing incrementally around them, adding new terraces, new levels, new networks of pipes and channels. The plants grow and are harvested in patient cycles. The stone weathers grain by grain. Even the rust spreads gradually, a slow red bloom across the ironwork.
+
+This is a place of constraint and abundance—limited by its vertical nature and the demands of the wet heat, but rich in water, warmth, and cultivated life. A city that breathes steam and grows its sustenance in towers of glass and iron, forever wrapped in its own warm, quiet cloud.

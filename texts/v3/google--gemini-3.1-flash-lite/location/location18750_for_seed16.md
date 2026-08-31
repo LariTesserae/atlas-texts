@@ -1,0 +1,15 @@
+The environment is a vast, subterranean honeycomb of calcified, copper-veined silicate, tucked away within a singular, massive basalt pillar that stands in the middle of a dead, wind-scoured salt flat. To look at the pillar from the outside, you would see nothing but weathered gray stone; but to find the hairline fissure that leads inside is to step into a pressurized, sweltering furnace of engineered life.
+
+There is no water here. The humidity is zero, replaced entirely by a thick, aromatic vapor exhaled by the flora. The ambient temperature hovers at an oppressive 110 degrees Fahrenheit, baked into the very history of the stone, which has been smoothed and curved by eons of thermal expansion and contraction.
+
+The "urban" quality of this place is biological. It is a city of stalks. The flora—a dense, rigid variety of fibrous, silica-based vegetation—has been woven, knotted, and grown into complex, multi-story infrastructure. There are bridges made of hardened, amber-colored root-tendrils, arched walkways grown to specific curvature, and hollowed-out central trunks that serve as chambers. It is urban without a hand ever having laid a brick; everything is "built" through intentional cultivation, a primitive, heavy-handed mastery of organic growth.
+
+The air is loud. The heat forces a constant, rhythmic expansion of the plant stems, creating a relentless chorus of creaking, snapping, and rhythmic grinding, like a thousand wooden ships groaning at sea. The sound is not chaotic; it is a methodical, industrial thrum that permeates the pores of the rock.
+
+Because the density is so low, you can walk for miles through the interlocking chambers and rarely sense the presence of another living thing—partly because there is no animal life, and partly because the flora is so widely spaced. It is a hollow city, a vast, vertical cavern system where the "buildings" are merely dense clusters of greenery separated by wide, echoing voids of bare, heated stone.
+
+Light is a precious commodity. It filters down from the surface through thin, quartz-filled cracks in the ceiling, diffusing into a dim, amber twilight that clings to the mossy, dry surfaces. The moss here is not soft; it is a dusting of microscopic, dry crystalline spores that glitter in the low light.
+
+There are no animals to disturb the silence of the spaces between the growth. The ecosystem is in a state of perfectly balanced, high-friction motion. You can watch, if you stay still enough, the slow, visible twisting of a vine as it seeks out a new structural anchor, or the way a heat-venting pod periodically flares open, releasing a huff of scent into the dim chamber before sealing shut with a sharp, percussive *click*.
+
+It is a place of solitary, heat-driven industry. It feels like a tomb built by a gardener who refused to leave, a city that has been growing in its own dry, hot, and lonely way for millennia, weathered into its own permanent, ticking rhythm. There is no decay here, only the constant, slow-motion labor of the plants building, shifting, and bracing themselves against the heavy silence of the stone.

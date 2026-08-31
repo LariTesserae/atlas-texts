@@ -1,0 +1,19 @@
+### The Submerged Engine
+
+The place is a drowned city, a labyrinthine machine-world encased in the crushing depths of an endless ocean. The water is warm, thick with dissolved minerals, and saturated with a faint bioluminescent glow that clings to surfaces like a second skin. It is a liquid world, but the water feels alive — a restless, murmuring presence that presses against the senses. The sound is ceaseless: a deafening roar of rushing currents, the grinding of metal against stone, the whir and clank of machinery that struggles against the weight of the deep.
+
+The terrain is a stratified maze of industrial ruins. Towers of corroded steel rise like skeletal fingers from the seabed, draped in curtains of silt and algae. The structures are vast but fragmented, their forms softened by centuries of erosion yet still retaining the sharp geometry of human design. The seabed itself is a mosaic of ancient cobblestones, their edges worn smooth by the relentless current. Here and there, patches of volcanic glass glisten like obsidian, their surfaces unnaturally smooth amidst the chaos.
+
+The city is empty, save for the occasional flicker of movement — rare, ghostly shapes that dart through the shadows. These creatures are barely recognizable as fauna: translucent, ribbon-like forms that twist and writhe like living film, their bodies faintly luminescent. They are more energy than flesh, fleeting and strange, as if they are fragments of the city itself given fleeting awareness.
+
+The vegetation, if it can be called that, is sparse and alien. Filaments of fungal matter cling to the metal surfaces, their growth stunted and erratic, resembling more a mineral deposit than life. Their pale, ghostly forms pulse faintly, reflecting the rhythm of the machinery around them. There is no green here, no photosynthesis — only the slow, patient creep of something simpler, older.
+
+The light is dim, filtered through the water in uneven shafts that reveal glimpses of the city’s scale. It is a hidden world, vast yet intimate, a single feature embedded within the crushing void of the ocean. The emptiness of the place is palpable, a yawning absence that makes the machinery seem all the more alive. The machines themselves are the city’s heart: massive, rusting engines that groan and churn, their pistons rising and falling in a rhythm that feels almost organic. Conduits snake through the ruins, carrying currents of warm, mineral-rich water that hiss and steam as they vent into the darkness.
+
+The atmosphere is turbulent, charged with a restless energy. The water churns unpredictably, swirling in great eddies that carve new paths through the ruins. Structures shift and groan, their forms settling and collapsing in a slow, inevitable dance. The city feels alive, not in the sense of growth, but in the sense of entropy — a place caught in the throes of ceaseless change, a storm that never ends.
+
+The world is industrial yet abandoned, a paradox of human design and natural decay. The technology is advanced but broken, its purpose long forgotten. The machines churn on, their tasks meaningless, their existence a testament to the hubris of those who built them. The city is a relic, a monument to a civilization that drowned itself in its own ambition.
+
+The rules of this world are fractal and strange. Time feels fluid here, slipping and pooling like the water itself. The machinery seems to operate on a logic all its own, its rhythms unpredictable yet somehow harmonious. The rare creatures that inhabit the ruins move in ways that defy comprehension, their forms shifting in and out of perception, as if they exist in multiple states at once.
+
+It is a place of contradiction: desolate yet alive, chaotic yet ordered, ancient yet eternal. It is a world that resists definition, a submerged engine that hums and strains, struggling against the weight of the deep and the inexorable passage of time.

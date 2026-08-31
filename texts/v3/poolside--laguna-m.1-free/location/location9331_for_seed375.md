@@ -1,0 +1,23 @@
+**The Saltern Expanse**  
+
+The landscape stretches like a cracked mirror, vast and hollow, its surface a mosaic of geometric salt polygons that click faintly underfoot, sharper than any desert. This is the **Saltern Expanse**, a low-lying basin where an ancient sea once lay, now reduced to a mineral crust that hums with latent energy. The terrain is young, its edges jagged and unsoftened by time—sharp ridges of salt and gypsum jut upward in crystalline spires, their faces etched with intricate patterns by wind and chemical processes. The elevation is barely above sea level, but the basin feels cavernous, its emptiness amplified by the near-absence of life or structure.  
+
+### Terrain & Materials  
+The ground is a patchwork of salt flats and hardened mud, veined with veins of sulfide and traces of metallic salts that oxidize into rainbow-hued stains. Here and there, half-buried structures emerge: the ruins of a forgotten urban settlement, built from blocks of compacted salt and rusted metal. The buildings are small in scale—single rooms or clustered huts— their skeletal frames preserved by the arid air. Windows and doorways yawn open, their edges eaten away by salt crystallization, leaving gaps like crystallized tears. The materials are raw, unworked: coral-like formations of salt grow over brick, and the faint glitter of mica flakes in the walls catches the dim light.  
+
+### Atmosphere & Light  
+The air is cool, just above freezing, carrying the faint metallic tang of salt and ozone. Light filters through a sky perpetually veiled in high, wispy clouds, casting a diffuse, silvery glow that makes the landscape seem both shadowless and stark. The dimness (1.3/3) comes not from darkness but from the diffuse nature of the light—everything is illuminated but without sharp contrasts, as if the world exists in perpetual twilight. The salt itself emits a faint, bioluminescent shimmer where it has been disturbed, leaving ghostly trails in the paths of moving figures.  
+
+### Ecology & Fauna  
+Life here is sparse and specialized. Patches of **halophytic lichen** cling to shaded corners of ruins, their gray-green tendrils metabolizing salt and trace minerals. In hollows where the ground traps moisture, clusters of **saltbush-like shrubs** grow, their leaves coated in fine crystals. Fauna is rare (1.0/3): the **glasswing moth**, a creature with wings like translucent salt, flits silently between structures, and the **burrower**, a blind, serpentine animal that tunnels through the salt, leaving smooth, rounded passages. Their presence is felt more than seen, as their movements crack the crust in faint networks.  
+
+### Active Processes & Dynamics  
+The Expanse is eerily active despite its silence (0.0/3). Wind sculpts the salt into fresh patterns daily, etching spirals and ridges into the flats. Beneath the surface, **subsurface brine flows** carry dissolved minerals that recrystallize into new formations, slowly rebuilding the landscape. When disturbed, the salt releases a faint hiss and sparks—a chemical reaction with the air that leaves behind tiny, ephemeral flames of light. These bursts are the source of the Expanse’s **weirdness (2.1/3)**: if one touches the salt, it briefly *sings*, a high-pitched resonance that fades into silence within seconds.  
+
+### Rules of the World  
+The salt here is alive—or something like it. It reacts to pressure, heat, and even sound waves, rearranging its molecular structure in unpredictable ways. Structures built over centuries have been partially absorbed into the crust, their materials integrated into the salt’s lattice. Travelers speak of hearing whispers in the wind, which are actually the salt reforming itself in response to footsteps or voices, creating transient echoes of the past.  
+
+### Sounds  
+The dominant sound is the soft crunch of salt underfoot, a sound that seems louder in the void. When the wind dies, there is an almost oppressive silence, broken only by the occasional crack of a salt spire collapsing or the whisper of brine moving underground. The glasswing moths produce no noise, nor do the burrowers, but their presence is marked by the subtle shifting of salt and the faintest vibrations in the ground.  
+
+This is a place of stark beauty and quiet menace, where the laws of chemistry and geology have conspired to create something both alien and hauntingly familiar. The Saltern Expanse does not forgive carelessness; step wrongly, and the salt may remember.

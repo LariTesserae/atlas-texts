@@ -1,0 +1,21 @@
+# The Phonic Flats
+
+The cold seeps up from below rather than down from above. It rises through the permanent slick of black water that covers the ancient stone plain, a level expanse stretching nearly to the horizon in all directions. This water, no deeper than an ankle in most places, doesn't behave as water should. It flows in overlapping currents that sometimes oppose each other, creating standing ripples that never dissipate. In places it pools into perfect geometrical shapes—hexagons, triangles, spirals—that shift position when you look away.
+
+The dim light comes from below as well, a subtle blue-gray luminescence emanating from the stone itself, as if the bedrock remembers some ancient sun it once absorbed. This glow reveals a landscape devoid of anything recognizable as plant life, yet hardly barren. The plain is densely packed with what appear at first to be rock formations but reveal themselves as neither fully mineral nor fully organic.
+
+These structures—countless thousands of them—stand like the weathered stumps of impossible teeth in a giant's petrified mouth. Each is unique yet familial: twisted spires of calcified material with hollows and chambers, porous surfaces riddled with perfectly circular holes. Some emit continuous tones that change pitch with the air pressure. Others collect the ever-present water and pipe it through internal channels that somehow amplify and modulate it into something between a gurgle and a voice.
+
+The fauna are everywhere, and they are wrong. Creatures like oversized crabs but with too many legs skitter between the formations, their translucent shells housing visible machinery—gears and pistons that seem to have grown rather than been manufactured. Schools of what might be fish dart through the shallow water, but they leave no wake and occasionally pass through solid objects. Floating just above the water's surface, bulbous entities with metallic skin drift in formation, trailing filaments that periodically discharge sparks into the water below.
+
+The noise is inescapable. The landscape itself seems to function as an enormous sound-processing apparatus. Every droplet, every movement of the strange fauna, every disturbance in the water is captured, amplified, distorted, and broadcast back across the plain. Certain areas produce deep bass tones that make the water tremble in concentric patterns; others emit high, keening frequencies that seem to bend the dim light. The overall effect is of standing inside some vast, cold instrument played by inhuman hands.
+
+Though no conventional structures rise from the plain, technology is integrated into every aspect of this environment. The creatures' bodies incorporate mechanical components that whir and click. The stone formations house complex networks of silvery filaments that pulse with signals. In some places, the water itself seems to organize into circuitry patterns that process information in flashes of bioluminescence.
+
+Occasionally, reality simply fails. A section of the landscape might invert, the water becoming a ceiling from which everything hangs. Sound might briefly solidify into crystalline structures that shatter and reform. Time accelerates in pockets, where you can watch the crab-machines evolve new appendages in seconds, then revert to their previous forms.
+
+What appears at first to be weather—fog banks rolling across the plain—reveals itself as swarms of microscopic organisms that function collectively as computational systems, processing the data of the environment itself. They drift through the formations, sampling, analyzing, modifying.
+
+This is a world where the boundary between evolved life and engineered technology never formed. Where sound has physical presence and time is another dimension that can be navigated. The water doesn't erode; it records and replays. The creatures don't simply live; they process. The ancient plain doesn't merely exist; it computes.
+
+And it has been doing so for eons, each pattern of ripples building on the last, each tone adding to a composition that has been playing since before anything like human ears existed to hear it.

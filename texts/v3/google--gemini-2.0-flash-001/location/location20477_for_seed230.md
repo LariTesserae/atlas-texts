@@ -1,0 +1,17 @@
+The air is thin and bites with a cool, persistent dampness. Not a downpour, nor even mist hanging heavy, but a film that clings to everything: stone, skin, the meager vegetation clinging to life in the high cracks. It’s the kind of damp that seeps into your bones and festers there.
+
+You stand on a plateau, maybe a mile across, ringed by peaks that are rarely seen clear of cloud. The stone beneath your feet is gray, a close-grained granite weathered smooth by centuries of wind and the relentless, subtle creep of water. Erosion hasn't ravaged this place, not in a long time. Instead, it has shaped it, honed it, brought it into a kind of patient equilibrium. The edges of the plateau are softened, rounded like the corners of a well-worn tool.
+
+The "city" – if it can be called that – occupies a single corner of the plateau. It's not a sprawling metropolis but a cluster of structures, hugging the rock like limpets. Buildings are constructed from the same gray granite as the plateau itself, seamlessly blended into the landscape. It's hard to tell where the natural rock formations end and the worked stone begins. This is not a place of grand designs or ambitious architecture. Practicality reigns, dictated by the harshness of the environment. The structures are low, mostly single-story, with thick walls designed to withstand the wind and shield against the cold.
+
+Sparse vegetation ekes out a living in the cracks and crevices. Tough, wiry grasses and low-growing, moss-like plants form a patchy green-gray carpet. Here and there, stunted, wind-sculpted trees cling to the rock, their branches twisted and gnarled like arthritic fingers.
+
+The plateau is largely empty. The density of life – both plant, animal, and constructed – is low, emphasizing the vast, open space between things. The wind whispers across the plateau, carrying with it the faint scent of wet stone and a hint of something metallic. It's a sound that never truly ceases, a constant drone in the background. Occasionally, the wind will gust through the narrow streets of the city, creating a low, mournful howl.
+
+Smoke rises lazily from a handful of chimneys within the city, the only visible sign of human activity. The technology here is rudimentary. Stone tools, lever-and-pulley systems, and painstakingly carved channels for water management are the most advanced creations. There's a pervasive sense of limitation to all that is built, as if every object is the result of immense effort matched against stingy resources.
+
+Animal life is scarce. You might see a hawk circling high overhead, or perhaps a glimpse of a tough, mountain goat clinging to a distant crag. But for the most part, the plateau is eerily devoid of fauna.
+
+The light here is peculiar. Because of the altitude and frequent cloud cover, the light is often diffused, lacking strong shadows. The colors are muted, a palette of grays, greens, and browns. On rare clear days, the sun can be sharp and brilliant, but those days are few and far between.
+
+Despite the settlement, the dominant impression of this place is one of stillness, of enduring quiet. There is a sense of equilibrium, as if this place has been in this state for a very long time and will remain unchanged for the foreseeable future. No rapid growth, no apparent decline, just a slow, steady rhythm of life in a harsh and unforgiving environment. The plateau and its city seem to exist outside of time, a monument to endurance and silent adaptation. It is quiet, and that quiet is somehow very, very old.

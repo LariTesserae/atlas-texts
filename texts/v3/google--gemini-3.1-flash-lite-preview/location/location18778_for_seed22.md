@@ -1,0 +1,15 @@
+The horizon does not end; it merely folds. You are standing in the Basin of Resonating Glass, a low-lying, sprawling expanse that feels like the interior of a colossal, humming lung. 
+
+The ground is composed of "young" obsidian—it is sharp, jagged, and geometrically perfect, having erupted from the mantle only recently, cooled by the constant, heavy condensation that blankets the region. There is no standing body of water here, yet the air is so thick with pressurized mist that your clothes remain perpetually soaked. Moisture beads on the obsidian in rhythmic pulses, sliding down the razor-sharp slopes to feed the vegetation.
+
+And the vegetation is aggressive. It doesn’t grow so much as it *manifests*. Enormous, translucent ferns—some thirty feet tall—shimmer with bioluminescent phosphors that flicker in the dim indigo twilight. They are wired with metallic, thread-thin ley lines that thrum with a frequency just above human hearing. 
+
+You are entirely alone, yet you feel crowded. The density is near-void—you can walk for miles without seeing another solid, heavy object—but the *sound* is absolute. It is a deafening, polyphonic roar of oscillating fields. The "towns" here are not structures of wood or stone, but of woven light and localized reality-loops. Spires of impossible, folded geometry hover inches above the jagged black earth, tethered to the ground by pulses of humming, ionized air. These are the urban shells of a civilization that has transcended mass; they are massive, complex, and currently empty. They pulse like a heartbeat, creating a rhythmic bass that vibrates in your marrow.
+
+The ecology is frantic. Beings—if they can be called that—dart through the gaps between the ferns. They look like clusters of refractive bubbles, shifting their molecular density to drift through the obsidian spires. When they pass, the air smells of ozone and petrichor. They are the primary predators here, feeding on the excess energy bled by the hovering infrastructure.
+
+The light is a dim, bruised violet, filtered through a permanent ceiling of high-altitude nanite-clouds. These clouds aren't atmospheric; they are *machinery*, performing a constant, planet-wide cooling cycle that keeps the temperature at a languid, humid warmth. 
+
+There is an eerie, terrifying rule to this place: motion is recorded. If you walk across the obsidian shelf, your footprints glow with a trailing, golden residue that lingers for hours. You are carving a map of your journey into the very fabric of the landscape. Because the tech is so advanced, the environment is reactive. If you linger too long in one spot, the ground begins to reshape itself at a subatomic level, attempting to "accommodate" your presence, folding the black glass into a chair, a wall, or a trap.
+
+The sound—the roar of the infrastructure—is the white noise of a collapsing timeline. It is chaotic, wet, and relentlessly busy, yet when you close your eyes, the emptiness is absolute. You are wandering through a ghost city of cosmic-scale engineering, lost in a garden that is trying to turn you into a fixture of its own beautiful, deafening design.

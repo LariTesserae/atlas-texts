@@ -1,0 +1,21 @@
+# The Silent Grotto of Lichenglass
+
+Nestled within a forgotten crevasse, invisible until you're nearly upon it, lies the micro-city of Lichenglass. One does not discover this place—one falls into it, descending through a narrow fissure that appears to be nothing more than a shadow between two ordinary rocks.
+
+The first sensation is silence. A stillness so profound it feels like pressure against your eardrums, as though sound itself has been gently erased. The second is light—unexpectedly brilliant, almost painfully bright. This radiance emanates not from above but from the very walls of the grotto, where countless thousands of crystalline formations capture and amplify what little daylight filters through hidden fissures in the ceiling.
+
+The temperature is biting cold, your breath forming clouds that hang suspended in the still air, yet against all logic, plant life flourishes here in astonishing abundance. Moss carpets every surface in jewel-toned greens and blues. Ferns with translucent fronds spiral outward from cracks in the stone. Peculiar flowering vines with paperwhite blooms climb the walls, their roots drinking from the thin film of condensation that perpetually beads upon every surface.
+
+The city itself appears to have been carved directly from the ice and stone, or perhaps grown like a crystal formation. Hundreds of tiny dwellings stack upon one another in teetering arrangements that should collapse but never do. Each structure is no larger than a modest room, yet they pile ten or twelve high in places, connected by a labyrinth of narrow staircases and bridges fashioned from polished bone and petrified wood. The entirety of Lichenglass could fit within the bounds of a small village square, yet houses perhaps a thousand souls in its dense maze.
+
+The inhabitants move about their business with deliberate slowness, communicating through an elaborate sign language. Their tools and implements are simple—hand-carved from bone, stone, and the occasional piece of hammered copper—yet they create objects of surprising intricacy. The people wear layers of felted moss-wool and leathers from the small, pale creatures that scurry along the ceiling crevices.
+
+These creatures—somewhere between rodent and bird, with translucent skin and oversized eyes—are everywhere once you notice them. They nest in the upper reaches of the dwellings, sharing space with the residents in apparent harmony. Occasionally, one might descend to accept an offering of crumbs or to deliver small bundles of luminescent fungi harvested from inaccessible crevices.
+
+Water is present but precious, appearing as condensation that collects in carved stone basins. Every few hours, a soft percussion of drips echoes through the grotto as moisture gathers and falls from specific points in the ceiling—the only regular sound that breaks the silence. The residents have built their lives around these water-clocks, moving their collecting vessels in a choreographed rotation that hasn't changed in generations.
+
+The architecture shows signs of extreme age—corners rounded by centuries of touch, staircases worn into smooth depressions from countless footsteps. Nothing appears to have been built recently, nor does anything ever seem to fall into disrepair. The city exists in perfect equilibrium, neither growing nor decaying.
+
+What makes Lichenglass truly unusual is how it captures light. The crystalline formations in the walls don't merely reflect illumination—they seem to store it, releasing accumulated brightness throughout what should be dark hours. Time loses meaning here; there is no day or night, only the eternal, silent brightness and the unchanging routines of its inhabitants.
+
+The rare visitor who stumbles upon Lichenglass often finds it difficult to leave. Not because of any magical compulsion, but because the perfect stillness and ordered density of the place creates a sense of completion—as though this tiny pocket of civilization has discovered a perfect balance that the outside world continues to seek in vain.

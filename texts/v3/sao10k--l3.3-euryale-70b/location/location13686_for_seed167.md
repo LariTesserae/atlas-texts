@@ -1,0 +1,5 @@
+In the dim, warm depths of this sub-aquatic realm, life converges in a vibrant den. Schools of luminescent fish dart past blue-green algae, suspended in the cloudy water. Delicate sea fans wave in a subtle current.
+
+On the ocean floor, layered shells create a natural bed for the seed murations scattered across it. These growths have been considered a delicacy for generations, and the ecosystem has adapted to the harvesting. Enzos produce them in a unique relationship — they share the seeds' shell nutrient council during the algae bloom, and then bloom-breaking roots stimulate one seed shape for every thousand Enzos dead.
+
+Enzo husks, some from when Eld Enzos rose, march across the seafloor. Sand from over a hundred layers buries much of the early pod-seeds and out itemList oldest livekar dead akrons. Once there were those alive under the council. The burning daddy school does further eating for nutrients now.

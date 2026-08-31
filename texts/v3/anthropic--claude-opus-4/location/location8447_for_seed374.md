@@ -1,0 +1,23 @@
+The Singing Hollow sits high in the mountain's throat, a natural amphitheater carved from ancient stone where plant life has achieved something close to sentience. In the perpetual darkness, you cannot see the vegetation—but you feel it, hear it, know it surrounds you completely.
+
+The plants here grow as a single networked organism, their roots and rhizomes forming a substrate that has entirely replaced the original rock. They've evolved beyond photosynthesis into something that feeds on vibration itself. Every surface pulses with fibrous growth—walls, ceiling, floor—all woven from woody tissue that has learned to conduct sound the way nerves conduct thought.
+
+The cacophony never stops. What began as wind passing through the hollow has become the plants' language, their metabolism, their very existence. They've shaped themselves into living instruments: hollow tubes that shriek, membrane-thin leaves that drum against rigid stems, cavities that resonate at frequencies that make your teeth ache. The sound is architectural—bass notes so low they register as pressure, overtones that spiral up beyond hearing into realms where only the plants can perceive them.
+
+This is agriculture beyond human understanding. Scattered throughout the hollow, you find the remains of cultivation structures—not for growing plants, but built by them. Delicate frameworks of calcified cellulose where the organism tests new acoustic geometries. Resonance chambers it grows and discards like shed skins. The technology is biotechnology in its purest form: the plants have learned to manipulate their own growth at the molecular level, responding to sound-shapes that program their development.
+
+In the rare moments when the wind dies—perhaps once in a decade—the sudden silence is apocalyptic. The plants begin to wither immediately, their metabolism crashing. But within seconds, they generate their own emergency frequencies, beating their parts together in desperate percussion until the natural currents return.
+
+The darkness is absolute because the plants have no need for light. They've covered every surface, sealed every crack where photons might enter. The few creatures that survive here have evolved echolocation sophisticated enough to navigate the acoustic maze, their calls adding to the chorus. Tiny blind things with hypertrophied hearing organs, they feed on the plants' sonic nectar—specialized organs that produce concentrated sound-nutrition.
+
+Walking through the Singing Hollow is like moving through the interior of a living instrument. The plants respond to your presence, sampling your footfalls, breathing, heartbeat. They incorporate these new rhythms immediately, weaving them into harmonies that seem random but follow mathematical rules too complex for human minds to parse. The sound presses in from all sides—not just through your ears but through your bones, your flesh, the air in your lungs.
+
+Sometimes, in the maelstrom of noise, patterns emerge. The same phrase repeated at different scales—a fractal melody that might be memory, might be computation, might be dream. The plants are processing something vast, their collective intelligence running on sound-logic, calculating answers to questions we couldn't formulate if we tried.
+
+This is what total vegetation looks like when divorced from sunlight and water: a kingdom of resonance, where life has found another way to be abundant. The mountain holds this pocket of alien ecology like a secret, the stone walls containing pressures and frequencies that would dissipate in open air. 
+
+The turbulence never resolves. New structures grow and collapse within hours, acoustic experiments that succeed or fail by criteria unknowable. The plants learn, adapt, evolve at timescales that make Darwin's finches look glacial. Each visit to the Singing Hollow finds it transformed—the same organism expressing itself through radically different architectural forms, always optimizing for some ineffable acoustic ideal.
+
+In this small space, evolution has taken a path so divergent it amounts to an entirely different kingdom of life. Not plant as we understand it, but something that shares only the most basic characteristics with photosynthetic organisms. It builds, it computes, it responds—and it does it all through sound in perfect darkness, having transcended every limitation we associate with vegetable life.
+
+The roar continues, will always continue, must continue. The Singing Hollow breathes sound the way other places breathe air—necessarily, unconsciously, eternally.

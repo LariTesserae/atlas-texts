@@ -1,0 +1,23 @@
+The plateau trembles.
+
+At this altitude, where the ancient stone has been worn to something between mountain and mesa, the world exists in perpetual transformation. The rock here is older than memory—a weathered tableland of rust-red sandstone shot through with veins of white quartz that catch the afternoon light like frozen lightning. Time has softened every edge, rounded every outcrop into forms that seem almost alive, almost breathing. The stone holds the heat of the day well into darkness.
+
+The vegetation erupts wherever water finds its secret paths. Along the plateau's thousand hidden seeps and springs, explosions of green defy the altitude—strangling figs that split boulders with their roots, air plants that cascade from nothing but mist, orchids that bloom in colors that shouldn't exist at this height. These pockets of jungle growth appear without warning: you walk through sparse rock and suddenly you're beneath a canopy so thick the sound changes, becomes muffled and close. The plants grow with disturbing vigor, as if making up for lost time. Vines thicken visibly over days. Trees fruit and die and sprout again in cycles too quick for comfort.
+
+Water moves strangely here. It rises from below through cracks in the primordial stone, condensing in morning mists that roll across the plateau like living things. Sometimes these mists carry seeds, spores, possibilities—a bare rock face will wear a beard of moss by noon. The moisture never quite settles into proper streams, instead seeping and weeping through the stone, emerging in temporary pools that appear and vanish with their own logic.
+
+The sound is the thing that breaks newcomers. It's not one sound but millions—the stone itself groans and cracks as temperature shifts send fractures racing through its ancient body. The plateau is always settling, always adjusting, and these adjustments create a constant background roar like distant thunder that never arrives. Add to this the shriek of wind through the carved channels, the explosive growth of vegetation (you can actually hear trees growing, cells dividing, bark stretching), the crash of rockfalls that happen dozens of times each hour as the edges crumble and reform.
+
+Scattered across this demanding landscape are the remains of those who tried to live with the turbulence. Stone circles filled with pottery shards. Platforms built to catch morning mist, now split by roots. Carved handholds up cliff faces, leading to caves where someone once thought they could wait out the chaos. The tools left behind are simple—obsidian blades, grinding stones, rope made from plant fibers—but they show ingenuity, adaptation. Whoever they were, they learned to move with the plateau's rhythm rather than against it.
+
+The fauna has learned the same lesson. Birds nest in the brief stability between rockfalls. Small mammals—something between rabbit and deer, with legs too long and eyes too large—appear at the edges of vision, always moving, never still. They browse the explosive vegetation in quick raids before disappearing into cracks that weren't there yesterday and won't be there tomorrow. Insects swarm during the humid mornings, their lifecycles compressed to hours.
+
+The light here is honest but strange—unfiltered by pollution or moisture at this height, it reveals too much. You can see how nothing is truly solid, how everything is in motion. The rocks shimmer with heat mirages that might not be mirages. The plants pulse with chlorophyll-drunk urgency. Sometimes, in the corner of your eye, you catch the plateau reshaping itself—a hillside slumping into a new configuration, a spire of rock emerging from what was flat ground an hour ago.
+
+At night, when the temperature drops, the sounds intensify. The stone contracts, screaming. The mists rise faster, carrying phosphorescent spores that paint temporary constellations across the ground. The vegetation continues its desperate growth in darkness, guided by some other sense.
+
+This is not a landscape that tolerates permanence. Every structure, every footpath, every attempt at order is immediately attacked by the plateau's relentless transformation. The ancient stone provides the stage, but the performance never stops—growth and collapse, emergence and erosion, all happening simultaneously at speeds that make human timescales irrelevant. 
+
+To survive here is to accept constant motion, to build nothing you can't abandon, to move when the plateau moves, to grow when it allows growth, to hide when it chooses destruction. The few creatures that thrive here understand this. They live not on the land but with it, participants in its endless, deafening dance of creation and collapse.
+
+The plateau trembles, and everything living trembles with it.

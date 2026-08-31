@@ -1,0 +1,13 @@
+This is the interior of an infinite clockwork lung, a space no larger than a cathedral nave, yet it feels as crowded as a packed stadium. You are standing inside a "Gear-Chamber," a pocket-reality embedded within the substrate of a greater, unseen machine.
+
+There is no sky, no open horizon, and certainly no moisture. The air is dry, smelling of ozone, heated filing, and the metallic dust of ages. Everything here is built; there is not a single atom of unrefined rock or organic soil remaining. The walls, the floor, and the ceiling—if you can call them that—are composed of interlocking, hexagonal brass plates and interlocking copper lattices that have been polished by an eternity of friction.
+
+The landscape is a vertical forest of clockwork. Towering, articulated spires of bronze extend from the floor to the ceiling, vibrating with a constant, thunderous mechanical roar. This sound is not musical; it is a dense, physical thrum that you feel in your marrow, a wall of white noise produced by trillions of tiny interlocking teeth grinding against one another in perfect, unchanging synchronization. 
+
+Despite the total lack of water or living animals, the space is "vegetated" in a mechanical sense. Sparse, spindly outgrowths of stiff, crystalline filaments—resembling rusted wire-grass—sprout from the joints of the hexagonal tiles. They do not grow; they are fixed, permanent fixtures of the geometry, glowing with a faint, static charge that provides the piercing, shadowless white light flooding the chamber.
+
+The density here is absolute. There is no empty space. Every millimeter is claimed by a pipe, a gear, a shim, or a microscopic fastener. To move through this place, one would have to occupy a space meant for another part, though there is no room to pass. It is a world of total order. You are looking at a finished thought, a landscape that reached its final state eons ago and has since surrendered to the stillness of perfect equilibrium. 
+
+Nothing moves in terms of progression—there is no life cycle, no weather, no biological decay. The "erosion" here is the long-term polish of metal against metal, a soft rounding of corners that took millennia to achieve. The brass is honey-colored and smooth to the touch, worn thin by the relentless vibrations of the hidden machinery. 
+
+It is a world of eternal, loud, and blindingly bright stagnation. It is a room that holds itself together with such intensity that it has forgotten what it means to be a space and has become, instead, a solid object. The silence is impossible here, replaced by the crushing volume of the machine’s own heartbeat—a low, grinding pulse that ensures nothing ever changes, nothing ever dies, and nothing ever truly begins.

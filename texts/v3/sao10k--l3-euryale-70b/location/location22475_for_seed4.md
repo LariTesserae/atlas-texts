@@ -1,0 +1,5 @@
+In a hidden crevice, wedged in the roots of an ancient tree, a pocket dimension unfolds. Condensation drips from the craggy rock walls, collected in small pools and rivulets which reflect the eerie bioluminescent glows of fungal growths carpeting the space. This damp, dim light clings to the bristly hair of wizened creatures foraging between the toadstools and leaf litter.
+
+Deeper in the cleft, an unexpected scene reveals itself - a ruined village, eroded to its foundations. Twisted planks and moss-grown stone walls make a maze of shadowed lanes and constricted doorways. Thorny creepers impale weathered signs and broken easels, crossing beams sag under masses of sickle-leafed vines. 
+
+In this secret bower, time has ceased to progress; life clings in tangles around the remnants of a long-abandoned hamlet. The dripping and skulking things peering from the undergrowth speak of a strange, enclosed apex, an umbral ecosphere bound by the gnarled Veteran that pens them in. Who or what might have dwelled here, to sow such a bower of living and unliving shadows, tangled with such strangeness, only their wraiths now scouring the only home they have ever known?

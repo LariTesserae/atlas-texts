@@ -1,0 +1,28 @@
+The place is called the **Chime-Basin**, and it exists in the tense, shimmering interval between a mountain’s birth and its old age. It is a high-altitude hollow, a bowl of raw geology cupped between shoulders of dark, porous stone that drink the frequent mist. The scale is that of a large cathedral or a small village—you can walk its perimeter in an hour, but you cannot comprehend its processes in a lifetime.
+
+**Terrain & Materials:**
+The basin floor is not soil, but a slow, warm sludge of pulverized rock and mineral colloids, constantly agitated. It is the consistency of thick cream, sometimes yielding like a wet sponge, sometimes setting into a brittle, lace-like crust overnight. This is the *emerging* erosion: the landscape is not being worn down, but *assembled* by invisible molecular masons. You see the work in progress—geodes the size of skulls embedded in the sludge, half-formed with crystalline interiors still glowing faintly. The solid ground is rare, appearing as sintered terraces of black and rust-red material, looking less like stone and more like frozen lightning.
+
+**Water & Atmosphere:**
+Water is not a body here; it is a *condition*. A perpetual, warm, drizzling mist condenses from the basin’s own breath and weeps from the porous high walls in silent streams. Pools of mercury-bright liquid collect in hollows, but they are not water—they are a heat-sink byproduct of the basin’s underlying processes, evaporating without a trace. The air is thick and humid, tasting of wet slate and ozone. Light is dim (1.3), not from clouds but from the sky itself: a permanent, opalescent dawn, as if the sun is a rumor the atmosphere refuses to confirm.
+
+**Vegetation & Ecology:**
+Vegetation is sparse (0.9) in the traditional sense. There are no tall plants. Instead, the basin is carpeted in low, velvety **moss-crusts** that pulse with a slow, vascular bioluminescence—amber by day, a deep blue at the basin’s “night.” They are the primary producers, feeding on atmospheric ions and the mineral soup. Scattered like fallen chess pieces are **Shelf-Fungi Trees**: not trees, but massive, woody-stemmed fungi with ginkgo-like leaf-fans of translucent membrane. They do not grow upward but outward, forming tiered, Shelob-like shelves that collect the mist. Their surfaces are gardens for microscopic life.
+
+**Fauna (Abundant & Loud):**
+Fauna is everywhere (1.9), and it is loud (1.9). The soundscape is a percussion section: the *tock-tock-tock* of **Glimmer-Beetles** (their carapaces chip quartz as they burrow), the deep, resonant *hum-buzz* of **Mist-Siphons**—flyers with bellows-like bodies that filter the air, their wingbeats sounding like giant tuning forks. The most common sound is the soft *crunch-scritch* of thousands of **Sludge-Grazers**, six-legged creatures like land-bound seahorses with mouths of fine mesh, sucking the nutrient-rich ooze. Their movements are constant, a low, grinding chorus.
+
+Predation is visible. **Rime-Stalkers**, panther-like with skin of shifting, frosted glass, move silently through the mist, hunting the Grazers. Their kill is not a maul, but a precise, freezing touch that crystallizes the prey’s internal fluids in seconds. The Stalkers then lick the crystalline husks clean.
+
+**Built & Tech (Beyond Modern):**
+The “built” elements (1.4) are not buildings, but **resonant structures** and **bio-engineered artifacts**, woven into the geology. They are the proof of the tech (2.8). A ring of six **Acoustic Spires** of fused basalt and glass, each 30 feet tall, stands on the basin’s rim. They do not *produce* sound; they *organize* it. They channel the basin’s ambient noise—the beetles, the wind, the grazers—into standing waves of focused energy. You can feel the sound in your teeth. Where these waves focus, the mineral sludge crystallizes faster, forming the basin’s new “terrain.”
+
+Scattered are **Vat-Pods**: smooth, ceramic-like spheres half-buried in the muck, humming with internal light. They are neither machine nor organism. They seed the basin with tailored bacteria and mineral-eating nanites, directing the “emerging” geology. To disturb one is to have your tools dissolved by a swarm of grey goo that then replants itself as a new, functional Spire foot.
+
+**Atmosphere & Weirdness (Strange):**
+The weirdness (2.0) is in the active, intentional-seeming processes. The basin *self-assembles*. The Mist-Siphons follow precise, non-random flight paths that map perfectly to the nodal patterns of the Acoustic Spires’ resonance. The Shelf-Fungi Trees grow not toward light (there is little), but toward the faint heat signatures of buried Vat-Pods, as if farming them. Time is fluid. A patch of sludge might age and harden into a terrace in an hour, only to be dissolved by a passing nanite swarm and return to slurry the next day.
+
+The rules of this world are thermodynamic and acoustical. Energy flows as sound and heat. Matter is sculpted by resonant frequencies. Life is not a separate kingdom but a process intensity—the Glimmer-Beetles’ chitin is a side-effect of quartz deposition; the Rime-Stalker’s freeze-touch is a localized, biological application of the Spires’ technology.
+
+**The Feeling:**
+To be in the Chime-Basin is to be inside a living, half-finished instrument. The air vibrates. The ground shifts underfoot with a soft, wet sigh. The dim light makes every bioluminescent pulse a dramatic event. You are never alone; the abundance of life is a tactile, auditory pressure. And everywhere, the silent, patient work of creation-decreation-creation goes on, guided by a physics that is more like music than mechanics. It is a place of profound, loud, and beautiful becoming.

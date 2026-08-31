@@ -1,0 +1,9 @@
+The world is a vertical ocean, a colossal, flooded chasm carved into the spine of a jagged, high-altitude mountain range. There is no air here—only high-pressure, chilling water, dense and salt-heavy, suspended in a state of perpetual, turbulent circulation. It is a world without a surface; the "sky" is merely a darker, crushing depth of ink-black water, and the "floor" is a jagged, unseen abyss.
+
+At this altitude, the water is perpetually near freezing, shivering with a frigid kinetic energy. Yet, despite the cold, the landscape is violently, aggressively lush. Massive, bio-luminescent kelp-trees—hardened, fibrous structures that resemble petrified obsidian—stretch for miles, their translucent, fern-like fronds swaying in the rhythmic, violent currents. These plants do not photosynthesize; they feed on the strange, mineral-rich thermal vents that pulse from the mountain walls like the exhales of a slumbering titan.
+
+The sound is overwhelming. It is a constant, booming orchestration of low-frequency thrums caused by the shifting of tectonic plates against the pressure of the water, punctuated by the sharp, metallic *cracks* of water-logged stone settling. It sounds like a thousand distant gongs being struck in a cathedral of ice.
+
+There is no animal life, no heartbeats to interrupt the stillness of the vegetation. The silence of the biological world is stark; nothing moves of its own volition. The flora drifts, caught in the relentless, rhythmic heave of the regional currents, swaying in perfect, mechanical synchronization.
+
+Scattered throughout this drowned valley are the "Spires"—ancient, primitive structures fashioned from massive, smoothed river-stones and bound together by thick, calcified vines. These settlements are not homes in any

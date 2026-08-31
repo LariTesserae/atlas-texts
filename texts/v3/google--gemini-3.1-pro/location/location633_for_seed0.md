@@ -1,0 +1,25 @@
+It is a relentless, sweltering gloom. 
+
+This landscape sits at the bottom of a vast, low-lying tectonic trench, a regional scar extending for miles in the dark. The geology here is young and violent. The earth has recently ruptured, leaving behind a chaotic, unweathered floor of jagged basalt, uplifted shale, and massive, raw splinters of obsidian. There are no gentle slopes or water-smoothed pebbles here; every surface is violently angular, fresh, and fraught with sharp edges. 
+
+And yet, this newborn, jagged earth is entirely smothered by life. 
+
+Despite the near-total darkness, a lush, suffocating jungle of bizarre vegetation aggressively claims every inch of the rift. A thick, atmospheric smog of volcanic exhalation and heavy spores chokes the sky, blocking out the sun and plunging the valley into a perpetual, bruised twilight. To survive, the flora has adapted to feed on the geothermal heat radiating from the young crust. Immense, fleshy vines the color of dried blood weave tightly over the razor-sharp rocks. Towering, un-branching stalks covered in heavy, fibrous bristles crowd together in impossible density, topped with massive, rubbery leaves that canopy the gloom. Fungal shelves layer over one another by the thousands, creating false floors over the treacherous, cracked earth. 
+
+The heat is a steady, suffocating blanket that traps what little moisture exists. There are no rivers or standing lakes; instead, the ecosystem relies on heavy, transient fogs that roll through the dark. This dampness clings to everything. Sticky condensation glazes the obsidian shards, making them dangerously slick. Heavy, oily beads of water gather in the cupped hollows of massive leaves, dripping continuously onto the matted undergrowth in a rhythmic, localized rain.
+
+But you can barely hear the dripping water, because the valley is incredibly, terrifyingly loud. 
+
+The sound hits like a physical wall—a deafening, undulating roar of pure, chaotic energy. The rift is locked in a state of turbulent, hyperactive churn, possessed by an ant-hill frenzy on a macro scale. The sheer density of fauna is overwhelming. Millions of bodies inhabit the dark, layered through the thick vegetation, creating a storm-state of constant motion, conflict, and consumption.
+
+At the heart of this cacophony is a pervasive, rhythmic clattering. It is the unmistakable sound of crude industry, echoing across the valley floor. 
+
+Emerging fluidly from the gloom are vast, nomadic hordes of the region's dominant life: lithe, multi-limbed creatures, blind and bristling with sensory hairs, moving with the terrifying synchronization of a swarm. They build nothing. There are no dwellings, no hearths, no fabricated shelters—only endless, frantic movement. But as they surge over the jagged ground, their hands are full. 
+
+They wield the sharp geology of their world. With manic, unceasing energy, they use heavy shards of raw stone as hammers, bringing them down on the iron-hard carapaces of giant, low-crawling arthropods. *Crack.* They use sharply knapped flints to swiftly saw through heavy, sap-bleeding vines, drinking deeply of the moisture inside. *Thwack.* The horde manufactures on the run—striking rocks together in a rapid, percussive clatter to produce fresh blades, stripping bark to bind shards to heavy leg-bones, and instantly discarding tools the moment they become dull. They leave behind them a massive wake of shattered hulls, crushed vegetation, and thousands of discarded, primitive hand-tools. 
+
+The entire landscape vibrates with this frenetic energy. Screeches, hoots, the tearing of heavy foliage, and the torrential drumbeat of a million stone hammers echo through the vast, open expanse of the valley. Tremors shake the vines as massive, unseen beasts stampede through the dark, fleeing the tool-bearing swarms, while clouds of leathery-winged scavengers erupt into the smog above, fighting over the scraps left behind.
+
+The ecosystem handles this chaos with monstrous elasticity. Where a horde strips a sector bare, hacking away the lush growth and churning the ground into a mulch of sap and flint dust, the damp, over-heated environment responds instantly. New, pale nodules burst from the scarred stalks within hours, ravenously expanding into fresh fronds, healing the jungle at a horrifying, time-lapse speed. 
+
+Standing in this valley, the scale of the chaos dizzying. You cannot see the far walls of the rift through the deep shadows and the heavy, spore-choked air, but you can feel the vastness of the space by how far the roaring bedlam travels. It smells of crushed vegetation, pulverized stone, animal heat, and the wet, metallic tang of condensation on fresh rock. It is a world without stillness, a young, unbroken incubator of life trapped in a deafening, frantic sprint through the dark.

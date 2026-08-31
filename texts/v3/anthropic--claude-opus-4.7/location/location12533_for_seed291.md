@@ -1,0 +1,29 @@
+# The Foundry Valley at Halfmaking
+
+The valley floor has not finished being a valley. That is the first thing to understand. The bedrock down there is still emerging — pale grey stuff veined with something paler, soft enough at its edges to take a thumbprint, hardening on a timescale of decades. In places it bulges upward in low domes that weren't there last season. The river that runs through it has not yet decided on a channel; it braids and re-braids across the half-set rock, leaving shallow oxbows that fill with rainwater and ferns and then, three months later, are gone, healed over, pressed back into smoothness.
+
+The town is built on this. Of course it is. Where else would they build it.
+
+Mosswort and bone-fern and the long blue-green tongues of something that might be a lichen, might be a grass, cover everything that hasn't been claimed for industry — and even what has been claimed, the soft furring creeps back over within a week. Pipes wear sweaters of moss. The brick walls of the foundries are quilted in it. You can put your hand against a chimney and feel the cold damp velvet of it, and underneath, the faint warmth of the furnace running on the other side of the brick.
+
+It is cold here. Not freezing — the river doesn't ice — but the kind of cold that settles into the seams of your coat and stays. Breath fogs. The condensers on the rooftops drip steadily into copper gutters that feed the cisterns that feed the boilers that drive the looms and the rolling mills and the strange slow presses in the lower district where they make — I think — sheets of something that isn't quite metal and isn't quite paper, stacked in warehouses taller than they are wide.
+
+The town is packed. Every buildable surface is built upon, and many unbuildable ones too: houses bracketed onto the sides of the half-formed rock domes, walkways slung between chimneys, the upper stories of the dye-works leaning over the river on stilts of black iron. Smoke rises from a thousand flues but does not hurry; the air is heavy and the smoke pools in the upper streets like a second river, this one grey and slow, parting around the weathervanes.
+
+And yet — and this is the strangeness of it — it is *quiet*. The foundries run. The looms run. The great wheels turn in the millhouses. But the sound that ought to come from all of this arrives muffled, as if heard through wool, as if the moss on every surface were drinking it. You can stand in the middle of Cogwright Street at the shift change and hear the bootfalls of three hundred workers as a soft collective shuffle, hear someone two streets over coughing, hear the river. The machines hum rather than clatter. No one shouts. It is not a rule; it is just what the valley does to noise.
+
+The animals have adapted to this. There are a great many of them — pale long-bodied things like ferrets that live in the pipework, and broad slow moths the size of a hand that drink at the condenser-drip, and rooks, ordinary rooks, walking the rooftops in companionable pairs. The rooks here do not caw. They click, softly, in their throats. Cats slip between the legs of pedestrians and are not stepped on. In the lower district there is a population of something I will call salamanders for lack of a better word — long, dark, wet-skinned, with too many legs — that live in the warm places where the foundry runoff meets the river, and they are considered lucky, and no one molests them.
+
+Now: the turbulence.
+
+The valley is not still. The valley is, in fact, in constant restless motion, but the motion is geological and architectural rather than auditory. Buildings shift. A wall that was plumb last winter now leans two degrees out over the alley, and the alley itself has narrowed because the rock beneath has swelled. The townspeople know this and accommodate it. Doors are hung with extra play in their frames. Stairs are built with adjustable risers. There is a guild — I see them now, in long grey coats with brass instruments — whose entire profession is the measurement of drift: they walk the streets at dawn with theodolites and chalk, marking the new positions of things, and the masons follow behind with shims and wedges.
+
+The river changes course every few weeks. Bridges are built to be moved. Some of them have wheels.
+
+The factories themselves are unstable in a different way — they are constantly being reconfigured. A spinning-shed becomes a tannery becomes a place where they render something fragrant out of the blue-green grass-lichen, and the same workers stay on through all of it, learning the new trade in the time it takes to change the signage. Goods flow out of the valley by canal-barge in quantities that seem impossible for the size of the place. What they make is not always identifiable. Crates of pale rods. Bolts of fabric that shimmer faintly. Sealed jars of something that has to be kept cold.
+
+The weirdness is this: the valley is making *itself*. The rock is rising, the river is wandering, the moss is advancing and retreating, and the town is keeping pace, riding the slow churn, neither fighting it nor surrendering to it. The people here have the calm of those who live with something larger than themselves and have made their peace with it. They walk softly. They speak in low voices. They build their houses to flex.
+
+At evening the lamps come on — gas, mostly, fed from a field of seeps at the valley's western end — and the smoke-river overhead catches the orange light and glows dimly, and the moths come out in their hundreds to drink the condensation off the lamp glass, and somewhere a loom is still running, and the rock beneath the town shifts another quarter-inch, and no one is alarmed.
+
+It is, in its strange and damp and crowded way, a place at peace with its own becoming.

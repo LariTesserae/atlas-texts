@@ -1,0 +1,36 @@
+It is low here. Not low like a valley. Low like the first place water goes to think about what it is going to do. A basin the size of a weather system.
+
+You are standing on something that was made. Not built on. Of. There is no underneath. There is no bedrock under this. If you could peel it apart — which you can't, it's too hot to touch for long — you would find more making. Hand-made.
+
+The plain is terracotta and slag and basalt that did not cool correctly. It's all tile. It's all brick. It's all block. Every surface is a surface that has been pressed, patted, stacked, left to bake. The world is a brickfield without a horizon because the horizon is also brickfield. Low courses of them, vast, stupid, continent-wide. Some are only one high, sunken into black mud that sweats up between them. Some rise thirty, fifty high in stepped pyramids that never finished, their topmost courses still soft enough to take a fingerprint. No mortar. Just weight and wet.
+
+That's the primitive part that doesn't make sense until you see it up close. This is total construction, planet-rim to planet-rim, but it was made with hands, or with something that had hands. You can see the palm drag in the clay where it was pulled up from the seep. You can see the thumb. The blocks are not uniform. The big ones are too big, carried somehow. The small ones crumble. There are tool marks — a wooden edge, a stone flake — scraped across every surface and then abandoned mid-stroke, as if the maker was called away.
+
+And it is hot. A kiln-hot that never got vented. The air is dim, even though the heat should mean blaze. The sky is a low, bruised lid, the color of cooling iron, and it does not give light so much as withhold darkness. The light that does make it through is diffuse and sourcelike and sourceless at once; it pools in the courtyards without a sun to cast it. You sweat immediately and then you keep sweating. The sweat never evaporates. The air is already full.
+
+Because of the water. This place weeps. 1.7 out of dry, if dry were a thing anything here remembers. Water comes up from below, because below is also this same unfinished brick, and water is part of how it was made. It condenses out of the hot air on every cooler block and runs in slow fingers. It gathers in the joints. In the low places between the endless low walls, it stands — not lakes, but the memory of lakes, palm-deep sheets of warm water that reflect the dim lid of sky and then, without wind, ripple anyway, as if something moved under the tiles. Every surface is slick. Rocks that are not rocks weep from within. You hear dripping everywhere — like after rain, except the rain never stopped being potential. The whole plain is post-rain without the rain having happened.
+
+There are no plants. Not even scum on the water, though the water is warm enough that there should be. The water is clean in the way distilled water is clean. Sterile. The clay is too new for rot. If biology ever existed here, it was scraped off when the tiling began. Sometimes you get a white or yellowish film in a corner where the bricks are cooler — not mold, because mold wants something — just mineral bloom, salt whiskers, a fuzz of silica that breaks if you breathe on it. The world is mineral and still deciding if mineral is allowed to be anything else.
+
+And it is very, very empty. Sparse the way a construction site is sparse when the crew leaves. A ziggurat here. Two kilometers of flat tiled mud. A line of upright slabs, maybe a wall, maybe the idea of a wall. A pit where bricks were taken out faster than they were put in, now full of hot, cloudy water that never overflows because the water table sinks away from itself. You can walk a long time with nothing happening to your left or right except more hand-made distance. The scale makes its own weather — you can see fronts moving, not clouds but heats, shimmers of hotter air prowling across the flats, meeting and annihilating each other with a soft, concussive *whuff* and a sudden local rain that falls for twenty seconds and then is reabsorbed.
+
+Nothing lives. No insects, no birds. That's wrong for a wet hot place, and your body keeps waiting for the buzz. When you lift a tile, nothing runs out.
+
+That's where the quiet comes in. Mostly quiet. Not silence — the dripping, the faint tick of cooling ceramic, the faint sigh of steam escaping from a crack, your own breath too loud because the air is thick. But no animal sounds, no leaf sounds. And underneath it, intermittently, a different quiet: places where sound is simply missing, cut out with a knife, so that your own footstep stops mid-crunch and resumes a half-step later when you've left the dead spot.
+
+Because this place is not holding together. The weirdness is in the way it is built.
+
+Erosion hasn't happened yet — nothing has had time to wear down — but that also means nothing has had time to decide it exists. The geometry is raw. Edges are too sharp. You round a corner made of wet black brick and realize the corner was on the wrong side, or that the wall you walked beside is now behind you without you crossing it. Distance stretches when you're not looking directly. A ziggurat you walked away from for an hour is suddenly beside you again, but with one more course of brick added to its top, still steaming. A courtyard you stepped into has no way out except the way you came, but when you look up the walls are taller than before and the opening is gone. Then it is there again when you blink.
+
+The rules here are embryonic:
+
+1. Things continue being made when unobserved, primitively and quickly, in fits.
+2. Unfinished things undo themselves if they get too much water in the seams. You will see a tower that was there this morning dissolve in the afternoon, not collapse — dissolve, bricks relaxing back into warm slurry with a series of soft splashes, as if it changed its mind.
+3. Gravity is a suggestion that the bricks mostly believe in. Water sometimes runs up the side of a wall for a meter before remembering and falling. Steam sometimes falls instead of rising and pools on the ground like fog.
+4. Nothing casts a double shadow.
+
+The turbulence is not wind. It's change. The whole vast low floor is in a state of anthill-busy, hyperactive self-revision, like it is being built by a billion invisible workers who do not agree, who tear down each other's work in silence, in dim heat, with wet hands. You can feel it in your soles — a faint, constant tremor of placing and taking, placing and taking. The water table rises, the water table falls. A line of bricks in the distance zips itself into being, one after another, *tok tok tok* like knuckles knocking, fast as a running thought.
+
+You kneel. The brick under your knee is warm through your clothes. It is the only warm thing that isn't air. It is damp. It leaves a red grit on your skin that does not wash off in the warm standing water. In the grit you can see the fingerprint again. It is larger than yours.
+
+If you stay still for long enough, a roof may be built over you.

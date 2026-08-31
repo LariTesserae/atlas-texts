@@ -1,0 +1,17 @@
+The ancient water-city rises in endless tiers, its foundations lost in the depths of the global ocean. This is Meridian, one of the last stable megastructures of the drowned world. Its weathered spires, worn smooth by eons of tidal forces, pierce upward through kilometers of green-tinted water, their surfaces encrusted with layers of coral-like growths that have accumulated over millennia.
+
+The city's architecture follows the physics of water more than the remembered rules of land. Vast archways and buttresses curve with the flow of deep currents, their forms suggesting both intentional design and organic growth. The building material itself defies easy categorization - neither quite stone nor metal nor living tissue, but a composite that seems to have slowly transmuted through all these states over immense spans of time.
+
+Vegetation dominates every surface, but not as we know it. These are the deep-adapted plants of the water world: massive fronds that undulate in slow motion, fields of translucent tendrils that gather both light and vibration, and vast colonies of something between algae and fungus that create shifting patterns of bioluminescence across the city's face. Their growth is careful, deliberate - the product of thousands of years of coevolution with the structure itself.
+
+The sound is overwhelming - a constant deep resonance that vibrates through the water and the city's framework alike. It's the voice of Meridian itself: the product of current movements through its countless passages, the settling of its ancient foundations, and the subtle harmonics of its inhabited spaces. The sound shapes the behavior of all who dwell here, creating zones of relative quiet where thought and work are possible, and thunderous corridors that serve as natural thoroughfares.
+
+The city's inhabitants are few but adapted. They move through the waters in loose-fitting garments that ripple like cuttlefish skin, using simple but elegant tools fashioned from the living materials of their world. Their settlements cluster in the middle layers of the structure, where the pressure is bearable and the light from above still penetrates in shifting beams through the green waters.
+
+Time moves differently here. The city's cycles are measured in the slow pulse of deep currents, in the gradual drift of its floating gardens, in the patient accumulation of new layers upon its ancient core. Even the inhabitants seem to move with a deliberate slowness, their gestures and activities tuned to the rhythm of their water world.
+
+Near the surface, where the pressure eases and the light plays in fractured patterns, vast chambers house hanging gardens of luminescent life. These upper reaches catch the movements of storms far above, translating surface turbulence into deep, rolling harmonics that travel down through the city's skeleton.
+
+The deepest levels remain largely unexplored, their structures so old they've become indistinguishable from natural formations. Here, the pressure turns water itself strange, and the city's original foundations merge with the planet's crust in ways that blur the line between built and grown, between structure and geology.
+
+This is a place that has found its final form, where the distinction between the works of its long-vanished builders and the slow processes of the ocean have ceased to matter. Meridian endures not despite the water's endless erosion, but because it has become one with it, achieving a stability born of perfect surrender to time and tide.

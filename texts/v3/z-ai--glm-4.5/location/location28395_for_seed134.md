@@ -1,0 +1,21 @@
+The water here is not a medium so much as it is a fact. It presses in from all sides, a clear, high-pressure void that admits the sunlight with shocking brilliance. This is a submerged plateau, a high-elevation ridge thrust up from the depths but still drowned beneath three hundred meters of cool, crystalline ocean. The light at this depth is normal—noon-bright, stark, and unforgiving—illuminating a world that feels less like a coral reef and more like a workshop abandoned by giants.
+
+The terrain is violently young. There is no sand, no sediment, no smoothing touch of time. The sea floor is a jagged architecture of fresh basaltic glass and obsidian shards, shattered into a chaotic, vertical city of knives. The rock formations are sharp enough to flay the passing current, rising in serrated spires and sudden, sheer cliffs that look as if they cooled yesterday. It is a grove-scale arena, a bounded amphitheater of black stone perhaps fifty meters across, walled in by the tumbled ruins of a recent volcanic eruption.
+
+There are no plants. The spectrum of green is entirely absent. This is a mineral world, austere and sterile, colored only in the blacks of glass, the oxidized rusts of heavy metals, and the blinding white of reflected sun.
+
+But the silence of a graveyard is nowhere to be found. The sound is deafening.
+
+It is a grinding, industrial cacophony, a roar of continuous collision and rhythmic crushing. It sounds like a foundry operating inside a bell jar. The source is the fauna, which is abundant beyond measure and packed tight into the rocky crevices.
+
+The creatures here do not resemble fish. They resemble biological machines, evolutionary offshoots that have converged upon the aesthetics of industry. They are the "tech" of this world—engines of flesh and chitin. The walls are alive with them. There are "grinders," heavy, crab-like entities the size of busses, their shells plated in what looks naturally formed iron. They scrape the obsidian spires with massive, serrated forelimbs, feeding on the mineral-rich glass. The contact of metal-on-glass sends a screeching vibration through the water that feels like a toothache.
+
+Between the giants are the "filters." Dense, writhing clusters of tube-like organisms that hang from the overhangs like rusted pipes. They pulse slowly, drawing water in through siphons and ejecting it with a loud, rhythmic *thump-thump-thump* that synchronizes across the cluster, creating a bass note that thrums in the chest.
+
+The density is extreme. It is difficult to see the rock for the creatures. They are layered, stacked upon one another—limpet-things the size of dinner plates clinging to the backs of the grinders, translucent worms weaving through the joints of the filters like wiring in a junction box. The ecology here is not based on photosynthesis or decay, but on the raw consumption of the earth itself. They eat the glass, they eat the stone, and they metabolize the heat still rising from the cooling rock.
+
+Despite the noise, the movement is agonizingly slow. This is the central paradox of the place: the auditory landscape suggests frantic speed, a factory at full tilt, but the visual reality is glacial. A grinder will lift a crushing claw over the course of twenty minutes, the water around it trembling with the hydraulic groan of its muscles. The creature then brings the claw down with a speed that is barely perceptible to the human eye, a slow-motion collapse that results in a violent, instantaneous crack of rock. The sound is sharp and fast, the action is slow and heavy.
+
+It is a realm of immense patience. The "dynamic" of the world is weak gradients of change across long durations. The rock is being eaten, but it will take centuries for these living engines to level the spire.
+
+The atmosphere is cool, nearly cold, a crisp liquid medium that carries the vibrations with perfect fidelity. To be here is to float in a bright, cold room filled with the slow-motion operation of terrible machinery. It is a place where biology has mimicked the factory, where the line between an organism and a tool has dissolved, and where the only harvest is the earth itself. There is no shelter, no softness, just the endless, grinding efficiency of the deep.

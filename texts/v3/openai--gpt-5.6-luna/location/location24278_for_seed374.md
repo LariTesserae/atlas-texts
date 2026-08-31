@@ -1,0 +1,47 @@
+The city lies in a broad, low basin where the ground is still raw from its making.
+
+It is not a ruin, though it has the look of something abandoned: walls without wear, roads without ruts, stairs whose edges remain sharp as if cut yesterday. The basin is a shallow depression of dark basalt and pale mineral clay, surrounded by low ridges that rise only a little above it. They are not mountains so much as folds in the world’s unfinished surface. Their faces are clean and severe. Rain—or something like rain—has not had enough ages to soften them.
+
+Water is everywhere, but rarely in one broad body. It gathers in seams, gutters, hollows, and channels. It seeps from the ridges in thin continuous curtains, collects beneath streets, rises through grates, and travels in open trenches between buildings. The water is warm enough to steam in the cooler air near the ground, though the basin itself is always warm and close. Every surface sweats. Walls glisten. Door lintels drip. The undersides of bridges are covered in beads that tremble constantly but never quite fall.
+
+The settlement occupies most of the basin. It is built from materials taken almost directly from the land: black stone broken into blocks, gray slabs of compressed clay, brick-colored mineral deposits, and pale shells or bones set into plaster. Nothing has been polished smooth. The construction is practical and thick. Houses lean against one another in dense rows, their upper floors connected by narrow walkways and wooden ladders. Roofs overlap like scales, made from fired tiles, stretched hide, or flat sheets of dark stone. Most have gutters. Most gutters are full.
+
+There are no gardens, no weeds between paving stones, no hanging vines, no green on the rooftops. The absence is not barren in the usual sense. It is simply complete. The people of the basin have built as if plants never existed, or as if they had once existed somewhere else and left no descendants here. Courtyards are filled with basins, drying racks, cages, ovens, and piles of tools rather than soil. The few patches of soft ground are fenced off because they are needed for water collection, not cultivation.
+
+Life is abundant in another form.
+
+Small pale animals move through every level of the city. They are long-bodied, many-legged, shell-backed, or soft and eyeless, depending on where they live. Water-beasts slide through the drainage channels in such numbers that the flow itself seems to ripple with muscle. Thick-bodied amphibious things lie packed beneath the bridges, opening and closing their mouths in the warm runoff. At night—if the dimness can be called night—winged creatures cling to the undersides of roofs and pour out through the alleys in dense, rustling clouds. They are not mysterious. They are ordinary animals of this place: bred, trapped, eaten, traded, or tolerated.
+
+The larger beasts are part of the city’s infrastructure. Heavy, low animals haul sledges through the streets, their broad feet adapted to the wet stone. They stand patiently beneath loading platforms while water runs down their flanks. Long-necked filter-feeders are kept in communal tanks and emptied into the channels when their owners need them to clear silt. Packs of blind, warm-skinned scavengers live beneath the floors and emerge whenever a door is opened. Their presence is so constant that people step over them without looking.
+
+The animals make the city deafening.
+
+There is the permanent thunder of water. It descends from the ridges in thousands of narrow streams, strikes roofs and gutters, pours through stone culverts, and drops into the basin’s central trench. The trench is not deep, but it runs the whole length of the settlement and carries a heavy, uninterrupted current. Around it, animals call over one another: booming territorial notes from the water pens, shrill cries from roof colonies, the chitter of small scavengers, the wet clapping of things moving through mud.
+
+Human voices are not raised so much as abandoned. People communicate by touch, gesture, flags, and short-range signs. Markets are arranged around sightlines instead of sound. Bells would be useless here, so warnings are given by colored shutters opening and closing along the streets. At the busiest crossings, children watch for the sequence of signals and pull ropes that lower barriers across the animal lanes.
+
+Even inside the buildings, silence does not exist. The walls carry the impact of water. Pools beneath the floors pulse and knock against their stone chambers. Every house has a low vibration in it, a tremor felt in the teeth and fingertips. The city is not merely noisy; it is immersed in sound, as if built inside a vast instrument whose single note never changes.
+
+Light is scarce and practical. The sky above the basin is usually obscured by a persistent veil of moisture, and the surrounding ridges cast long shadows across the settlement. Daylight arrives as a gray wash without direction. It enters alleys weakly and dies beneath the covered streets. Most illumination comes from shallow oil lamps, heated stones, and small fires kept behind clay screens. Their glow catches on the wet masonry and turns every corridor into a sequence of dim reflections.
+
+There are no brilliant colors. The city is black, brown, gray, bone-white, and the dull red of fired clay. Wet surfaces hold the light for a moment, then lose it. At a distance, the whole settlement resembles a dark fabric laid over the basin, dense with moving points: lamps, eyes, wet backs, open doors.
+
+The streets follow no clean plan, but neither are they chaotic. They have been shaped by water. The oldest paths run along the highest dry ridges, while newer roads bridge the channels or descend toward the central trench. Houses are stacked wherever stone remains above the surface. Beneath them are cisterns, animal pens, workshops, and tunnels. The lowest districts are the busiest and most dangerous, crowded with barges, baskets, wading beasts, fishers, tanners, and children who know exactly which stones are safe to step on.
+
+Metal is rare. Tools are made from stone, shell, bone, fired clay, and the hard teeth of local animals. Wooden handles exist but are precious, since no trees grow in the basin; they are inherited, repaired, and wrapped in layers of hide. Most cutting edges are chipped rather than forged. Most hinges are leather. Most fastenings are cord, peg, wedge, or weight. The civilization is urban without being refined. It has districts, laws, tolls, public works, storehouses, and inherited trades, but no machinery beyond what muscle, water, heat, and simple leverage can provide.
+
+The basin’s geology seems newly exposed. Fresh fractures show everywhere, with interiors darker or brighter than their outer faces. Mineral crusts form along the watercourses in clean, abrupt borders. Whole shelves of stone appear to have lifted into place without crumbling. The ground is not being worn down so much as revealed. There are few rounded stones, few deep scars, few sediment fans. Collapse is uncommon. Walls stand. Cliffs remain angular. Mud settles where it falls and stays there.
+
+This lack of erosion gives the city an uncanny permanence. A wall built by a dead mason may still show the exact impression of his fingers in the clay. A wheel track remains visible in a road for generations. The same broken pot lies beside the same drain, half-submerged and unchanged. Nothing seems to decay quickly. Organic matter is consumed by animals before it can rot, and stone does not weather unless deliberately struck.
+
+The people understand the world through this stability. They do not speak of seasons. They speak of levels, flows, and customary positions. The water always enters through the western seams, the animals always migrate toward the warm lower channels, the dim light always strengthens briefly along the eastern ridge. A flood is not an event but a condition accounted for in the architecture. Doors are raised. Floors are sloped. Children learn the height of each channel by age.
+
+Nothing here advances very far. Buildings are repaired but seldom redesigned. Tools are improved by making them thicker, sharper, or more carefully fitted, not by inventing unfamiliar principles. New streets are added only when a new shelf of stone becomes available. The city grows outward across the basin, not upward into ambition. Its order is ancient even where the materials are fresh.
+
+At the far end of the settlement, the central watercourse widens into a shallow inland lake. The lake is crowded with animals and crossed by low stone causeways. Beyond it, the basin opens into a flat expanse of wet black ground, marked by pools and low ridges that continue toward the horizon. There are settlements there too—small clusters of roof and wall, connected by raised roads. Their lamps appear faintly through the damp air. Between them, the open ground is thick with movement.
+
+The entire region feels inhabited to its full capacity. Every channel has a creature in it. Every ledge supports a nest, a tool, a shrine, or a sleeping body. Every sound is layered over another sound. Yet the place is not frantic. It has settled into a tremendous, damp equilibrium: water falling, animals feeding, people carrying, walls holding, lamps burning low.
+
+The basin does not feel alive in the way a forest does.
+
+It feels occupied.

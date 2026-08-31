@@ -1,0 +1,29 @@
+This is a country that has finished becoming.
+
+It is low, so low you feel the curvature of it before you see it. Not flat like a plain that was made flat yesterday by a flood, but flat like something that has been scrubbed and rinsed and worn down for so long it has forgotten how to be tall. The continent here is old rock - gneiss and sandstone that was mountains a billion years ago - and now it lies with its belly to the sky, barely a hundred feet above sea level if that. You could walk for a day and gain twenty feet of elevation without knowing it, only feeling it as a change under your boots.
+
+Because the rock is so old, it holds water like a tired sponge.
+
+The ground itself is not really ground. There's no deep soil left. Everything soluble was taken away eons ago. What remains is a skin: pale, leached sand so white it looks bleached, and under that, a hard pan of ironstone, red-black and pitted, that goes on for miles just beneath the surface. It doesn't drain. Rain falls - and it falls often in this warm country - and it cannot go down, so it stays up.
+
+So the whole landscape weeps.
+
+Every low place is water. Not lakes, not really. Sheets, a few inches to a few feet deep, spread out over acres, so wide and so shallow you can't tell where the dry ends and the wet begins. Between them are lifts of land so slight they would not be called hills anywhere else - slow swells of that white sand maybe two or three feet high, enough to stay dry for a week. The water moves between them but so slowly you have to stare at a fallen leaf for a long time to be sure it is moving at all. The rules here are slow rules: water finds the lowest way when the lowest way is only a millimeter lower per mile.
+
+In the bright normal light of late morning - sun high, air thick and white at the edges with humidity - the whole open basin glitters. It is open in a way that makes distance difficult. You can see three, four miles to the next tree line, but heat and water vapor stack up and make the far side tremble. There is nothing to stop your eye. This is country on the scale of a small watershed, a valley so wide its edges have been worn off. A hundred such pans might be linked together, all draining so lazily toward a coast you cannot see.
+
+Vegetation is sparse, and that makes the water look even bigger. The ancient soil will not feed much. On the dry rises there are clumps of wire-grass, thin and yellow-green, and scattered banksias or tea-trees - short, gnarled, their bark peeling in wet papery sheets, their roots spread wide and shallow instead of deep. They stand alone, or two or three together, far apart from the next group, so you get the white sand and the dark ironstone between them like negative space. In the water itself: spikerush, a few lilies with pads the size of your hand, and films of algae that look like green smoke just under the surface. No forest. No cover. Just enough plant to mark the wind.
+
+And yet it is not empty. Not at all.
+
+The air is loud.
+
+At first you think it is only water - the ever-present trill of water over ironstone lips, too many tiny runnels to count - but then it separates. Cicadas from every lone tree, sawing at a pitch that seems to come from inside your skull. Frogs, hundreds, thousands of them, buried in the sedge with throats puffed out, calling in overlapping waves that never break. Finches and honeyeaters stitch through it. Something bigger splashes, heavy, in the next pan over - a long-necked turtle, or a wading bird lifting off, or three at once. Dragonflies are everywhere, in such numbers they make their own wind; they are red and blue and clear-winged, hawking over the shallow water, laying eggs that will take months to hatch because nothing here is in a hurry.
+
+The warmth settles on you like a damp cloth. It is not brutal heat. It is old, humid, 85 degrees and staying there, the air so wet it condenses on the undersides of leaves and drips back even when it is not raining. Your skin is wet in minutes. Rocks weep, too - the few that remain, low domes of sandstone that are all that is left of hills, their sides black with seepage, with moss in the cracks that never dries out. Water comes out of them at eye level with no source you can see and runs down in a slow varnish. If you put your hand under it, it's cool.
+
+There is no sign anyone ever built here. No cut, no path, no stack. The white sand does not hold a footprint for long because the next rain - this afternoon, maybe tonight - will smooth it again. The ironstone is too hard to mark and too patchy to quarry. This is a landscape that outlasted the need for use. Its ecology is patient to the point of stubbornness.
+
+Nutrients are locked. Life is lean but constant. The trees flower only after fire, which comes rarely and moves slowly through the sparse grass, never hot enough to kill a banksia. The fish, where the pans are deeper, are lungfish and rainbow fish that know how to live in mud when a pan dries to a damp sheen for a month. The birds know every pan for fifty miles and walk their circuits day after day, beak-deep in the shallows. The insects breed in trillions but live for days. Everything is abundant within very strict limits: a lot of life, spread thin, sharing a lot of water that doesn't go anywhere fast.
+
+If you stand still in the middle of one of the white sand rises, with the water on all sides barely lapping at your ankles, and you close your eyes, the sound becomes a wall. The water breathing out of the rock. The frogs answering each other across distances they will never cross. The dry seedheads of the wire-grass knocking together. It is loud because there is nothing to block it. It is a low, wet, old world sound, the sound a place makes when it has been left alone so long its own processes have grown over each other like lichen, and all they do now is hum.

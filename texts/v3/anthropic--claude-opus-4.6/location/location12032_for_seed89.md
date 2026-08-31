@@ -1,0 +1,47 @@
+# The Roost
+
+---
+
+You come to it by climbing. That much is certain, though the route changes depending on who you ask — if there were anyone to ask. A cleft in the basalt shoulder of a mountain that has been old for so long it has forgotten its own youth. The rock here is dark, iron-veined, fissured by eons of thermal cracking and the patient leverage of ice that visits in centuries-long cycles. The summit is somewhere above, but irrelevant. What matters is this place: a pocket in the mountainside, a wound that became a room.
+
+It is perhaps thirty meters across at its widest, shaped roughly like a cupped hand — three walls of eroded columnar basalt rising fifteen, twenty meters before curving inward to almost meet overhead, leaving a ragged aperture open to the sky. Almost a cave. Almost a chimney. The columns themselves are ancient, hexagonal, their edges softened by deep time until they resemble the bones of something unimaginably large, fused together and polished by wind and the occasional rain that finds its way in. The floor is uneven, a jumble of collapsed rock and fine volcanic grit that has settled into the crevices over millennia, packing itself into something that is not quite soil.
+
+It is dark. That is the first thing you understand about the interior. The aperture above admits only a sliver of sky, and at this hour — most hours, given the orientation of the cleft — what light enters is indirect, reflected off the upper rock face before tumbling down in a diffuse gray wash that never quite reaches the floor. Your eyes adjust slowly. The darkness is not absolute but felt, a thickness in the air that makes you aware of your own pupils widening.
+
+And then you hear them.
+
+---
+
+The sound comes before comprehension. A layered, surging, chitinous murmur — thousands of small voices producing a collective noise that fills the enclosed space and presses against your chest. It is not a roar. It is closer to a river heard from inside, a continuous braided thing made of clicks, high whistles, the leathery snap of membranes flexing, the scratch of claws on stone, and beneath it all a deep, almost subsonic hum that you feel more in your sternum than your ears. The acoustics of the near-enclosed basalt amplify everything, fold sounds back on themselves. Echoes arrive from the wrong directions.
+
+Your eyes have adjusted enough now.
+
+The walls are alive.
+
+---
+
+Every surface — every column face, every ledge, every crevice and overhang — is packed with bodies. They cling to the rock in overlapping layers, three and four deep in places, a mosaic of fur and membrane and small gleaming eyes. Bats, yes, many of them — fruit bats with russet pelts and foxish faces, smaller insectivores with crumpled leaf-nose structures, microbats so tiny they disappear into the cracks between the columns. But also others. Swiftlets have colonized the upper reaches where a faint breath of air circulates near the aperture, their mud-cup nests cemented to the stone in dense constellations, each nest touching the next, some built on top of older nests that are themselves built on older nests, the whole formation a layered geological record of occupation. Geckos — pale, translucent-skinned — thread between the bat colonies, feeding on the moths and beetles that are themselves drawn to the warmth and the guano and the complex fungal chemistry of the floor. There are centipedes the color of old copper, coiling through the grit below. Mites you cannot see but whose presence you intuit from the way the bats scratch and shuffle.
+
+And spiders. Everywhere, spiders. They have strung their webs in the gaps between columns, across ledges, in delicate catenary curves from wall to wall, and the webs are beaded not with dew but with condensation — the moisture in the warm air meeting the cooler stone and precipitating into droplets that cling to the silk like tiny lenses. In the faint gray light from above, the webs catch what illumination exists and hold it, so the middle air of the chamber is laced with faint silver lines, a suspended architecture more intricate than anything a hand could build.
+
+The condensation is everywhere, actually. It slicks the rock in patches, darkening the basalt to near-black. It pools in shallow depressions in the floor, forming puddles no larger than your palm, warm and slightly alkaline from mineral leaching. The air is humid — not wet, but close, carrying the warmth of the massed bodies and the slow geothermal breath that rises through fractures in the mountain's roots. You can feel the moisture on your skin, a film that never quite becomes sweat. The walls weep in places, thin tracks of water following the vertical grooves between columns, feeding tiny films of algae and cyanobacteria — the only vegetation, if you can call it that — that form dark green-black stains on the stone. In one corner, where a seep is slightly more generous, a single fern clings to a crack, pale and etiolated, its fronds reaching toward the distant aperture with a kind of desperate patience. It has been growing here for decades, perhaps, adding a frond every few years. There are no others.
+
+---
+
+The density is what overwhelms. Not any single species, but the sheer saturation of life per unit of space. Every surface is claimed. Every niche is occupied. The ecological relationships are stacked — the guano feeds the fungi, the fungi feed the beetles, the beetles feed the geckos and the smaller bats, the bats feed the parasites and the decomposers, and all of it together generates the warmth and humidity that makes the chamber different from the bare rock outside, a microclimate folded into the mountain like a secret. The air smells of ammonia and musk and something faintly sweet, like overripe fruit — the breath of the fruit bats, perhaps, or the fermenting guano, which lies in mounds on the floor, soft and stratified, the lower layers compacted into something almost geological. If you pressed your hand into the deepest deposits, you would find them warm. The decomposition generates its own heat.
+
+The sound shifts. A ripple passes through the bat colonies on the south-facing wall — something has disturbed them, or this is simply one of the slow tidal movements that passes through roosts periodically, a collective shudder, bodies rearranging, wings half-opening and folding again. The noise surges: a concentrated burst of high-frequency clicking, social calls, the leathery percussion of wings against wings, and then it subsides, settles back into the baseline murmur. The swiftlets above are unbothered. They have their own rhythm — a constant stream of departures and returns through the aperture, navigating the dim interior by echolocation, their clicks sharp and precise against the broader bat-noise, like pins dropped on a drumhead.
+
+---
+
+Nothing here was built. There are no structures, no artifacts, no evidence that anything with hands and intention has shaped this space. And yet there is a quality of *craft* to it — a primitive, unconscious craft. The swiftlet nests are constructed things, after all, built from saliva and mud, each one a small act of fabrication repeated thousands of times. The spider webs are engineered, tensioned, maintained. The bat colonies organize themselves by species and by temperature preference, the warmth-seekers deeper in, the cold-tolerant species near the aperture, and this organization has the look of design even though it is only the accumulated result of individual choices made over generations. The guano mounds have been sculpted by the beetles that mine them, leaving tunnels and ridges that give the floor a worked appearance, like clay shaped by many small thumbs.
+
+You could call this technology, if you stretched the word. Tool use at the simplest level: saliva as mortar, silk as net, sonar as sight. The organisms here have solved the problems of darkness and enclosure and resource competition with methods that predate metal, predate fire, predate everything except the deep cellular ingenuity of life doing what it does in confined spaces.
+
+---
+
+The mountain does not care. It has been eroding for tens of millions of years, and this chamber is one of its many slow exhalations — a void created by the differential weathering of harder and softer rock, widened by frost and thermal cycling, shaped by its own collapse. The columns that remain standing are the survivors, the most resistant, and they will outlast the current colony by orders of magnitude. The colony itself is old — centuries, probably — but it exists within the mountain's patience the way a single breath exists within a life. The rock will close or open further. The seep will dry or strengthen. The aperture will widen as the lip erodes, admitting more light, changing the temperature gradient, and eventually the balance that sustains this particular community will shift, and they will go, and other things will come, or nothing will, and the chamber will be empty and dark and still.
+
+But not now. Now it is full, and warm, and loud, and the condensation beads on spider silk in the gray half-light, and the fern unfurls another millimeter of frond toward the sky it has never seen, and something with many legs crosses your boot without pausing, and the bats above you breathe in unison like a single vast lung folded into the stone.
+
+You are a guest in a room that did not expect you and will not remember you. The mountain exhales. The colony murmurs. The darkness holds.

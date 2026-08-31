@@ -1,0 +1,17 @@
+The air *felt* wet, though it didn’t seem to be raining. It had the weight of the sea, pressing down, a constant, pervasive dampness that clung to everything. Visibility was maybe twenty meters, tops. The light was good, though — enough to see by, with a diffuse quality that seemed to come from everywhere and nowhere at once. Not quite twilight, but close.
+
+The landscape was a cathedral of stone, but not like any cathedral of ours. Its walls were black, impossibly smooth, polished to a dull sheen. The stone was unyielding, unmarred by any sign of weathering, and the architecture… well, there *wasn't* any. It simply *was*. Massive, monolithic pillars rose from the depths, their forms bulging and contracting in slow, almost imperceptible undulations. They were close together, jostling, shouldering each other. A strange pressure filled the air, as if these columns were not static, but slowly, inexorably, shifting.
+
+There was no floor as such. The base was a chaotic jumble of the same black stone, but broken into a thousand thousand fragments, all sharp-edged, none of them moving. It rose and fell in a chaotic manner, like the surface of a disturbed bog. The water, a milky grey, filled the space between, up to the top of the ankle on the deepest points. Where the stone rose, small rivulets ran down, their paths and speed determined by the angles of the rock.
+
+There was no sound of water, no trickling or dripping, just a deep, persistent hum which carried through the air, vibrating against the stone, a constant, industrial drone that seemed to be the very heartbeat of the place. It was punctuated by sharp, metallic clicks and clacks, coming from deep within the stone.
+
+And the fauna… They were everywhere.
+
+Creatures, or whatever passed as creatures here, swarmed the heights. They weren’t organic, not in any way I recognized. Shiny, metallic, arachnid forms that clicked and whirred, each a tiny, self-contained engine. They crawled up the pillars, their legs clicking against the smooth stone, their bodies reflecting the diffuse light. How they *moved* through the water was a mystery, they didn't seem to be bothered by it. There were thousands, tens of thousands, maybe more. And they were busy.
+
+Each creature carried something– a small, boxy, almost blocky shape, maybe half a meter long by a third high and wide. They moved these along the surface of the rising and falling stone field at the base, creating narrow paths or what seemed like paths. There was an insistent, underlying energy in it all. Purposeful, somehow, despite the utter strangeness of the scene.
+
+There was no visible source for the industrial hum. No chimneys, no vents, no open flames. Not even any obvious indication of how any of the metal-creatures created their sound or the things they were carrying. The very stone itself seemed alive with a hidden, alien energy.
+
+The place exerted a strange pull – an invitation to contemplate the slow dance of an alien creation, a hymn sung by stone and metal in the depths of a perpetual twilight. The strangeness was not hostile, not precisely. But it was *other*, a testament to an order utterly foreign to Earth. And as long as you accepted that that order was beyond understanding, it was not unfriendly.

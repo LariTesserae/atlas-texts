@@ -1,0 +1,17 @@
+Welcome to the Greenglow Swamp, a mirage of light and life all intertwined in a ballet. There lies a calm serenity here, even in the sedated chaos of a world separated by a breath from the familiar. Amidst a flat, low terrain, water weaves this landscape together, one wistful droplet at a time. The scale is vast enough to be an autonomous region, yet every corner brims with a sense of individuality and purpose, like a worker bee dedicated to its role within the hive. 
+
+Here, everything is man-made, a complete construct, a testament to the unmistakable ingenuity of the mortal hand. A wondrous world crafted without the complex tools of the industrial age, betrays an old charm; a primitive world made with simple tools, raw materials and human genius. There's a palpable evidence of hand-hewn aesthetics, underscored by the artful design and meticulous detail in the swamp-edge dwellings and the woven pathway that spirals out into the heart of the enclave.
+
+Waterway channels, with their depth rarely exceeding a grown man's knee, guide the paths and homes, replacing once trodden roads. The many bridges that arch over are woven with vivid creepers from sturdy trees; with simple lever and pulley systems, they’re lifted allowing boatmen to glide by in their little reed pontoons.
+
+The prevalent temperature, scorching yet bearable, fuels the vibrant vegetation. With a seductive green shroud wrapped around itself, the swamp teems with robust foliage, both tall and short. Cypress and willow trees tower above, their roots like clawed hands splayed across the dank soil, in harsh contrast to the softness of the verdant ferns and blooms that pepper the area. Abundant fauna thrive in this lushness; their quiet existence whispers along the light breezes.
+
+The mossy ground beneath, webbed with water channels, reeks of marshlands after a rain shower. The effervescent sheen of water clinging to every leaf and structure is a constant companion here. Every visible surface weeps with wetness, a testament to the swamp's adherence - water is the lifeblood.
+
+Sunlight permeates freely and completely. Come midday, the entire marshland is a stage showered in a spotlight of celestial radiance. The architectural marvels gleam, refracting the sunlight into a mesmerising spectacle, like an enigma of shadows and lights at constant play. 
+
+Yet, time seems to be a lost concept here, a meaningless entity - each moment frozen, each image static like a painting. In its never changing state, the Greenglow Swamp is an ethereal stasis in the transient world.
+
+The most disconcerting yet intriguing element here is the constant hum of the landscape — a kind of vibration that resonates with a deep, barely audible buzz, almost as if the land sings an ancient song to itself.  This, combined with the incredible silence that pervades the air only intensifies the sensation of a divergent reality - a different strain of reality that knit up this hot-house tapestry of peculiar splendour.
+
+The essence of this land is strange and yet disarmingly familiar. The underlying connection of the constructs, the guttural vibrational hum, nature's bounty all but man-made - it's all a little off but straight enough to draw you in. The Greenglow Swamp is a living testament to stillness and growth cohabiting harmoniously, where water and light weave a dance daily, birthing a lucidity that splays itself across the lush landscape. A total embodiment of the elusive spirit of a world hinged precariously between reality and the ethereal.

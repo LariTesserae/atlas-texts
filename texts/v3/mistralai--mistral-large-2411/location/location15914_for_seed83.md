@@ -1,0 +1,19 @@
+In the bowels of the earth, far from the reach of the sun's rays, lies a place called the Stygian Cisterns. This is not a landscape of expansive vistas, but rather an introspective world, a secret held close by the earth's crust, a whisper in the dark.
+
+The terrain is a labyrinth of narrow, winding tunnels and compact chambers, carved not by water or tectonic forces, but by the methodical pickaxes and drills of industrious miners. The walls are smooth, slick with intermittent moisture that drips from the ceiling in a steady, rhythmic plip-plop, echoing through the darkness. The air is thick and humid, a warm breath that fills the lungs and leaves a faint metallic taste on the tongue. The temperature is high, a constant, enveloping heat that makes skin glisten and amplifies the scent of oil and metal.
+
+Every surface is constructed, a testament to the relentless human drive to shape the world. Iron supports brace the ceilings, and rusted pipes run along the walls, carrying water, steam, and other, more mysterious substances. Valves and gauges jut out at intervals, their needles flickering in the dim light, measuring unseen forces. The floors are grated in places, revealing the shadows of yet more machinery below, the guts of this underground beast.
+
+The light is scarce, a commodity stolen from the daylit world above. Flickering bulbs cast weak, jaundiced glows, interspersed with long stretches of shadow. Lanterns swing from hooks, their flames guttering in the stale air. The darkness is not absolute; it is a living thing, a shroud that shifts and breathes with the slow pulse of the Cisterns.
+
+Water is a whispered secret here, a shy creature that reveals itself in beads of condensation, in occasional drips from overhead pipes, in stagnant pools that reflect the sparse light like old mirrors. It gathers in odd corners, a quiet resident claiming its space amongst the iron and stone.
+
+Vegetation is a rarity, an anomaly in this man-made ecosystem. Yet life finds a way, as they say. Moss clings to the damp walls in patches, a muted green against the dull gray of the stone. Mushrooms sprout from cracks, their pallid flesh luminescent in the gloom. They are not the vibrant flora of the world above, but they are tenacious, adapted to this unlikely environment.
+
+The fauna is equally sparse but no less tenacious. Pale, eyeless creatures scuttle in the shadows, their chitinous shells clicking softly against the stone. Bats nest in the higher recesses, their leathery wings rustling as they come and go, the only regular traffic with the world above. Their guano forms pungent piles, a rich soil for the rare fungi.
+
+The soundscape is a muted symphony of industry. The distant rumble of machinery, the drip of water, the faint echo of footsteps on metal grating. Voices are rare, a low murmur that fades as quickly as it comes. The air hums with a faint, almost imperceptible energy, a reminder of the power that courses through the veins of this place.
+
+There is a weirdness here, an otherworldly quality that defies easy explanation. Shadows seem to move of their own accord, gathering in corners like silent observers. The machinery seems to operate on its own, following some ancient, predetermined rhythm. There are whispers of ghosts, of spirits trapped in the machines, but they are only whispers, echoes of superstition in the dark.
+
+Change is slow here, a patient process of decay and renewal. Metal rusts, stone crumbles, but new structures are erected in their place. The Cisterns are in a state of constant evolution, a cycle as old as the earth itself. It is a place of dichotomies, a stark contrast of the natural and the artificial, the hot and the damp, the dark and the dim. It is a world unto itself, a secret heart beating in the depths of the earth.

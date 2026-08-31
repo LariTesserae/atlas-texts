@@ -1,0 +1,31 @@
+# The Terraces of Vethnir Quoth
+
+The plateau announces itself before you reach it — a wall of stone climbing out of lower mists, edges still sharp, still raw, as if the land had only recently decided to be this tall. Geologists from elsewhere (if any came) would call the rock young: fractured basalt and pale sedimentary shelves that haven't yet rounded into hills, that still hold the angular memory of whatever upheaval set them here. There is no record of that upheaval. There doesn't need to be. The place simply is, and has apparently always been arranging itself into this same configuration — nothing here trends toward collapse or growth. The terraces do not erode further. The town does not expand. It exists in a held breath that has lasted, by every account, since accounts began.
+
+## The Shape of the Land
+
+Vethnir Quoth occupies the upper folds of a high plateau, a series of stepped terraces cut — by hand, originally, though so long ago the cutting looks geological — into the rising stone. Each terrace is wide enough to hold a neighborhood: stone houses with turfed or slate roofs, small fenced plots of cool-weather vegetable beds, narrow lanes paved in fitted rock. Between terraces run staircases worn shallow in their centers, the only erosion visible anywhere, a single concession the world makes to time.
+
+The scale is regional without being vast — you can see, from the highest terrace, perhaps three or four other settlements scattered across adjacent rises, smoke-threads or lamp-glints in the cool distance, but the air doesn't carry sound that far. The space between things here is generous. Houses cluster in loose neighborhoods with long gaps of garden, scrub, and bare rock between them; the town reads as urban in its organization — there are guildhalls, a market square, a council house with a slate roof steeper than the rest — but sparse in its actual density. A city's worth of *function* packed into a village's worth of *footprint*, with room to spare.
+
+## Water and Green
+
+Water here is a presence felt rather than seen continuously. Mist rolls up from the lower valleys most mornings and beads on every surface — stone, leaf, wool — before burning off by midday into a cool, clear light. Cisterns cut into the terrace walls catch rain that comes in soft, irregular showers, never torrential, never quite absent for long. Streams thread down between the terraces in channels both natural and stone-lined, feeding mossy hollows and small irrigated paddies of high-altitude grain.
+
+The vegetation is lush in pockets rather than blanket — thick stands of broad-leafed cold-hardy trees in the sheltered lows of each terrace, lichen and moss furring every north-facing stone, kitchen gardens dense with cabbage-analogues and tangled vine. But the high outer edges remain bare rock, wind-scoured, holding nothing but a few wiry shrubs in cracks. Lushness alternates with austerity terrace by terrace, like the land hasn't finished deciding what kind of place it wants to be — except it has decided, and decided permanently. This alternation is simply its fixed and final form.
+
+## What Moves
+
+Fauna abounds in a way that seems disproportionate to the human quiet. Herds of small sure-footed grazing animals — something between goat and deer, short-haired and pale-eyed — move between terraces along routes worn into the stone, unbothered by walls, occasionally milling through the market square itself while vendors wave them along without much irritation. Birds nest in every eave and crevice; their calls are the loudest sound the place reliably produces. Insects hum thick in the garden plots in slow afternoons. Below the visible terraces, in burrows and root-systems, smaller things rustle — never seen, often heard as a faint percussive shuffling beneath the floorboards of ground-floor rooms, which the residents have long since stopped remarking on.
+
+The townsfolk keep some animals — wool-bearers, a few sturdy pack creatures for hauling stone and grain up the staircases — but most of the abundant life here is wild, tolerated, woven into the margins rather than herded into them.
+
+## Craft and Construction
+
+Nothing here runs on more than hand-tools, fire, and patient labor. The buildings are dry-stone and timber, joined without nails where nails aren't necessary, roofed in slate or turf. Looms click in open windows. A smithy near the market works in iron, simply — knives, hinges, plowshares — the hammer-fall one of the few percussive sounds that breaks the general hush. Terracing itself, the great defining labor of the place, was apparently finished long ago; no one currently alive remembers it being otherwise, and no new terraces are being cut. The infrastructure is complete. It was complete, perhaps, from the start.
+
+## The Quiet and the Strange
+
+Sound here sits low — wind across open rock, birdcall, the distant complaint of a grazing herd, the click of a loom, footsteps on worn stair-stone. Conversation in the market is conducted at a register just above murmur, as if loudness would be somehow unseemly, out of proportion to the place's own restraint.
+
+The unusualness is subtle, easy to miss if you're not paying attention: lamps in the council house burn with a flame that never needs trimming or replacing, fed from some source no one discusses because no one has ever needed to refill it. The shallow stair-wear is the only erosion in a landscape otherwise frozen at the exact moment of its making — buildings don't crumble, roofs don't sag, gardens yield the same harvest at the same time every cycle without fail or surplus. Children are born, people age and die in ordinary fashion, but the town around them holds its exact shape regardless, as though it were the fixed point and the people merely passing through its unchanging rooms. Ask an elder how old the town is and you'll get a shrug, not from ignorance but from the simple fact that the question doesn't quite parse — Vethnir Quoth isn't old or new. It is calibrated, permanently, to itself, and has been since whatever moment — unwitnessed, unrecorded, perhaps uncaused — first set its stones in their final, unmoving order.

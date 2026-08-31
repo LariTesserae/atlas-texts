@@ -1,0 +1,11 @@
+In the heart of a vast desert lies an oasis, a small grove of lush vegetation that clings to life against the odds. Towering trees with gnarled trunks and thick, leathery leaves cast deep shadows from the punishing sun. Their trunks are woven together at the base, interlaced and anchored to the stone below by thick tendrils and vines in a solid matrix. Over the grove, a dense canopy of leaves and ferns blots out the merciless sun, dappling the air with shaded relief.
+
+Strange animal calls echo through the undergrowth - the piercing screech of a predatory bird, the guttural bellow of a herbivore, the click and chitter of smaller prey flitting through the brush. The air is thick with the musky scent of abundant wildlife.
+
+Amidst the foliage, ruined structures built from a dark stone have settled into the land over eons. Crumbling blocks and toppled column are tangled in vines and moss, almost consumed by the luxuriant jungle. Faded mosaics peep out from under riotous vegetation - depicting scenes of lush forest, active volcanoes, and teeming seas. The stones radiate an ancient, primordial weight and stillness.
+
+Winding narrow lanes and walkways, often half-flooded with cloying vines and trying to creep back into the stonework, link the ruins into a network that was once the center of a primeval community. Overgrown plazas and fountains have been reclaimed by the mimosa and oleander bushes. A towering steeple rises at the center, laden with dripping epiphytes and orchids, the gothic stonework roofless and collapsed but still standing sentinel over the entire colonade.
+
+Inside the ruins are found implements of stone, bone, and verdigris metal - the hallmarks of a most archaic technology shaped by unskilled, ignorant hands. Bows and tumble-scrolled iron swords, stone altar with crude bloodletting knives, wooden juggernauts on copper axles. All work-a-day items of a stark and abrassive culture.
+
+The only illumination is the diffuse glow above the forest roof, and the flaring torches and candles of the locals. Depravity and squalor hang as thick as the humidity in these crumbling ruins. Cruel sycophants and addicted simpleminded slaves scuttle through the wrecked city. The slump-walled tenements are a Filth-rook, a pesthole of syphilis and clap rot, shinglehanded thence dwell in loutsome conditions that would sicken a goat.

@@ -1,0 +1,15 @@
+The city grows itself. This is not a metaphor - the structures literally emerge from the living rock, pushing upward in geological slow-motion that becomes visible if you watch long enough. The buildings are a peculiar fusion of mineral and organic: crystalline spires that weep constant moisture, their surfaces etched with dendritic patterns that could be frost or fungal growth or both.
+
+The air is thick with sound - a constant harmonic drone that rises from deep within the stone itself, accompanied by the percussion of water droplets falling from every surface. The drops don't fall naturally; they pull sideways, curve upward, create impossible arcs through the humid air. Some say the sound shapes them, but no one really knows.
+
+Streets wind between the growing towers, not planned but formed like riverbeds, and indeed they often become shallow streams after the frequent rains. The ground is a meshwork of smooth stone and bioluminescent moss that pulses in slow waves, creating an ever-shifting map of light across the city's floor. Where the moss grows thickest, new spires begin to emerge.
+
+The few people who live here build nothing - they don't need to. Instead, they learn to read the growth patterns, to predict where new passages will form, where chambers will hollow themselves out inside the towers. They develop an intuition for which drops of water are safe to drink (most aren't, carrying dissolved stone that would calcify your insides) and which phosphorescent patches mark stable ground.
+
+Higher up, where the older towers taper into delicate needles, the air grows thin but somehow wetter. Clouds form inside rooms, roll down corridors, carry whispered fragments of the city's song. The geometry becomes uncertain here - windows may look out onto views that can't possibly exist, doors might open onto chambers that were previously dozens of stories below.
+
+The only wildlife are the liquid birds - if they can be called birds at all. They appear as fluid-formed shapes that ripple through the air, their "bodies" constantly reorganizing themselves around nuclei that might be hearts or might be stones or might be tiny fragments of whatever logic makes this place possible. They seem to feed on sound itself, gathering where the harmonics are strongest.
+
+At the city's edges, where the growth patterns begin to fade, there's a zone where reality reasserts itself in patches. Normal rock, normal water, normal gravity seep back in like dye spreading through fabric. But even here, you can feel the vibration in your bones, hear the songs that shape stone into dreams, and see the first traces of moss beginning to glow.
+
+This place asks no questions and offers no answers. It simply grows, sings, drips, defies - an impossible city writing itself endlessly into existence.

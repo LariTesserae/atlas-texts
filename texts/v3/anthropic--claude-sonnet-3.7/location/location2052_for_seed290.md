@@ -1,0 +1,21 @@
+# The Abyssal Song-Plains
+
+Here in the submerged depths, where water has completely claimed dominion, exists a realm both ancient and strange. The Abyssal Song-Plains stretch for miles in all directions—a vast underwater plateau that seems to have settled into its final form eons ago.
+
+The water here is dense, not merely in its pressure (which is considerable), but in its very composition. It carries particulates that have never known the touch of air or sun—primordial minerals that diffract what little light manages to penetrate these depths. The result is a dim, scattered illumination that creates moving shadows even when nothing is moving.
+
+The plateau's surface is almost perfectly flat—eroded beyond recognition from whatever geological features once defined it. Ancient currents, working with the patience of millions of years, have polished the bedrock into smooth, shallow undulations. In some places, the rock has been worn so thin it's translucent, revealing deeper chambers below.
+
+Vegetation is sparse but specialized. Pale, threadlike algae colonies grow in concentric patterns, forming enormous rings that might be centuries or millennia old. These rings pulse with faint bioluminescence at irregular intervals—not for light, but as some form of slow communication between colonies separated by vast distances.
+
+The soundscape is what truly defines this place. It is deafening, though not in a way familiar to surface dwellers. The water conducts and amplifies vibrations that originate from massive geological vents scattered across the plains. These vents—some merely yards across, others wide enough to swallow small villages—exhale rhythmically, releasing bursts of mineral-laden water slightly warmer than the surrounding coolness. Each vent produces a distinct frequency, creating a constant, overlapping drone that becomes physical at these depths, vibrating through tissue and bone.
+
+Fauna is rare but significant. Enormous filter-feeders, resembling nothing so much as living sails, drift languidly through the water column. Their translucent bodies, stretched over cartilaginous frames, can span hundreds of feet, yet they're so thin they nearly disappear when viewed edge-on. They navigate the currents to position themselves above the nutrient plumes from the vents, where they hang for weeks or months before moving on.
+
+Evidence of some bygone civilization exists in scattered ruins. Curved walls of an unknown material—neither stone nor metal, yet somehow both—emerge from the sediment at odd intervals. These structures appear designed to channel the vent emissions, suggesting their builders understood and perhaps harnessed the sonic properties of this place. Most intriguing are the enormous acoustic receivers—dish-like constructions positioned at calculated distances from the major vents. Their purpose remains unclear, though they still function, focusing and redirecting the sound waves in patterns that change with the slow cycles of the vents.
+
+The technology apparent in these artifacts suggests industrial capabilities, yet with purposes alien to human understanding. Mechanisms within some of the receiver stations still function, driving clockwork-like components that shift and adjust according to the changing sound patterns. Occasionally, these mechanisms emit responding tones, adding new layers to the overwhelming acoustic environment.
+
+Time moves differently in the Song-Plains. The omnipresent vibrations seem to alter perception, stretching moments into what feel like hours. Change happens, but so gradually it's imperceptible. The filter-feeders drift, the vent cycles shift, the algae rings expand—all in timeframes measured in decades or centuries rather than minutes or days.
+
+What might be most unsettling about this place is the sense that the cacophony of sounds isn't chaos but communication—that the entire plain is a single vast mechanism, still functioning according to its design parameters, waiting for instructions or responses that may never come again.

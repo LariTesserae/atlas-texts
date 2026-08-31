@@ -1,0 +1,77 @@
+# The Rootcellar Riot
+
+---
+
+You descend through a crack in something that might have been earth once but is now a kind of dry, fibrous rind — like climbing down through the split skin of a fruit the size of a continent. The walls around you are woven from root-matter so dense it has its own geology: strata of pale heartwood compressing into darker and darker lignin-stone, threaded with capillaries that carry no water at all but something thicker, something amber-gold and resinous that moves with a slow peristaltic insistence. The air is warm and close. It smells like sawdust and sandalwood and something fermenting. Your skin prickles immediately with a fine dust of pollen or spore-matter. It never stops.
+
+There is no water here. You need to understand that first, because it will keep confusing you. Everything that grows — and *everything* grows — draws not from aquifer or rain or dew but from a substrate chemistry that has nothing to do with the liquid you know. The sap in these roots is anhydrous. The moisture you think you feel is a trick of warmth and density. Lick your lips and taste resin, taste sugar-dust, taste the dry electric tang of something metabolizing without a single hydrogen-oxygen bond in play. The plants here run on different fuel. They crack mineral salts directly. They metabolize silicate lattices. They breathe in something like methane-heavy air exhaled by the geological rind above and convert it through structures that look like leaves but function like furnaces. The warmth you feel is partly them. The whole place is exothermic. You are inside a living engine that runs dry.
+
+Drop another twenty meters and the crack widens and suddenly you are standing in the Rootcellar proper, and it extends.
+
+---
+
+It extends *vastly*. The cavity is kilometers across and its ceiling — a matted canopy of inverted growth, root-trees that grip the overhead rind and hang downward like chandeliers made of living wood — is perhaps eighty meters above you at its highest and as low as four meters in places where some colossal tuber-structure has bulged downward and nearly kissed the floor. The light is amber-gold and omnidirectional, produced by bioluminescent bark-sheaths that spiral around every major trunk and branch in long helical strips. It is the light of late afternoon in a room of honey. It doesn't cast hard shadows. You can see clearly enough, but distance goes soft, goes golden, goes uncertain.
+
+The floor is not stone. The floor is root-plate: a living mat of interlocked root systems compressed so densely they form a continuous undulating surface with the texture of petrified muscle fiber. It gives slightly underfoot. In places it has buckled upward into ridges ten meters high — young ridges, fresh ridges, their surfaces still pale and oozing that amber not-sap where the growth has torn through its own skin in the urgency of expansion. This is new geology. This is landscape still being *made*. You can watch the ridges grow if you're patient — or rather, if you stand near one for ten minutes, you'll hear the deep popping creak of fibers splitting and realigning, and you'll see the ridge-line shift a centimeter to the left, and a fissure will open near your feet and a white tendril as thick as your thigh will emerge, blindly questing, and begin to braid itself into the existing mat with a speed that seems impossible for something with no muscles and no mind.
+
+But about minds. And about the sound.
+
+---
+
+**The sound.**
+
+It hits you when you drop into the open cavity and it does not relent. It is not one sound. It is a *riot* — the word is precise.
+
+The dominant layer is biological: the fauna. They are *everywhere*. The Rootcellar is so saturated with animal life that the air itself seems to have a pulse. Begin with the obvious — the swarms. There are flying things, but they are not insects exactly. They have six wings arranged in radial symmetry and bodies like segments of dried fruit, and they move in columns so dense they appear solid, like ropes of living smoke threading between the hanging root-trees. Each one makes a sound: a sharp, dry *click*, a snapping of wing-chitin against thorax. A single one would be barely audible. A column of ten thousand produces a sustained rattling buzz like a locust plague heard through a wooden wall. There are dozens of columns visible from any point. They braid around each other, merge, split, collide. When two columns merge there is a brief cacophonous *roar* of clicks accelerating into something almost tonal, almost a chord, before the merged stream finds its rhythm.
+
+But the clickers are only the topmost voice. Below them — on the root-plate, in the crevices, swarming over the ridges and through the fissures — are the *crawlers*. Picture something between a centipede and a hermit crab but built from the same dry-chemistry biology as the plants: chitinous shells that look like bark, amber-translucent legs that move in rippling waves. They range from thumb-sized to the length of a human body. They are *loud*. They scrape. They gnaw. The large ones crack open fresh root-ridges with mandibles that work like splitting wedges and the sound is like someone breaking green wood — a wet-dry *CRACK-tear* that echoes through the cavity. The small ones rasp at bark-sheath surfaces in their millions and produce a pervasive white-noise hiss, a sandpaper ocean. And they communicate — or at least they vocalize — in a register you feel more than hear: a subsonic thrumming transmitted through the root-plate floor into your feet, your legs, your chest. You'll feel your teeth itch.
+
+And *above* the clickers, louder than anything, are the callers.
+
+They live in the inverted canopy overhead. You can't see them clearly at first — they are large, they are the color of old wood, they grip the hanging roots with limbs that look too many and too long, and they *call*. The sound is extraordinary. It is somewhere between a foghorn and a pipe organ note played through a didgeridoo, a low resonant blast that seems to use the entire cavity as a resonating chamber. When one starts, others answer. At peak — which is frequently, which is maybe always — there are thirty or forty of them going at once, each at a slightly different pitch, and the interference patterns of their overlapping calls create standing waves you can *feel* pressing against your eardrums, pulsing in your sinuses. The sound is so loud it has texture. It is so loud it has *weather*. In certain zones of the Rootcellar the convergence of multiple callers creates acoustic nodes where the pressure fluctuates visibly: you can see the pollen-dust tremble and organize into fleeting patterns, Chladni figures in midair, before the pattern shifts and they scatter.
+
+There is never silence. The quietest it gets is merely *very loud*. The loudest it gets makes your vision blur.
+
+---
+
+Now: the strangeness. Because this is where it lives, in the interplay between the vegetable and the animal, in the turbulence, in what this place is *doing*.
+
+The Rootcellar is not stable. It is not an ecosystem in equilibrium. It is an ecosystem in *emergence* — something is being born here, or something is being negotiated, and neither the flora nor the fauna have settled into their final roles.
+
+Watch carefully: the crawlers that crack open the root-ridges are not simply feeding. They are *rearranging*. They drag severed root-fibers to new locations and weave them into configurations that don't match the plant's own growth pattern. Left alone, the root-plate grows in radial spirals outward from anchor points. The crawlers make *right angles*. They make *stacks*. They braid fibers into load-bearing arches. You will find, scattered across the Rootcellar floor, structures the size of small huts — things that look almost architectural, almost deliberate — made of root-fiber that was grown by the plant and shaped by the crawlers. Some of them are occupied. Some of them are already being consumed back into the root-plate as the living floor grows up and around and through them. Others are new, half-built, with crews of crawlers still working, their rasping and cracking filling the local air with a sound like a workshop.
+
+These are the "buildings." They are not human. They were never human. But they have doorways and interior chambers and something that might be shelving. They are made by animals using plant-material that is itself still alive and still growing, and the plant *responds* to the shaping — not passively, not like timber, but reactively, sending new growth along the paths the crawlers have laid, reinforcing some structures, rejecting others, dissolving the ones it doesn't favor back into the substrate overnight. It is a negotiation conducted in growth and gnawing. It has been going on for perhaps a very long time or perhaps it just started. The Rootcellar has the feeling of something that might be hours old or millennia old and there is no way to tell because nothing here has had time to wear down. The erosion signature is near zero. Everything is new. Everything is raw. Everything is *becoming*.
+
+And the callers participate too, in their way. Their sonic blasts are not just communication — they are *morphogenic*. In zones where the callers focus their overlapping calls, the root-plate grows differently. Faster, slower, in different patterns. You can find spots where the bioluminescent bark-sheath has organized into geometric arrangements that correspond to no natural growth pattern — hexagons, nested spirals, interference-pattern moirés — and they always correlate with acoustic hot zones. The callers are *sculpting the plant with sound*. Whether they know this, whether they intend it, whether the distinction between knowing and intending means anything here — this is where the strangeness refuses to resolve.
+
+Because the plant may be sculpting them back. The spore-dust in the air — the fine pollen that coats everything, that you've been breathing since you arrived — it is not passive either. Watch a caller long enough and you'll see the bark-sheath growth on the nearest root creep *toward* it, extend tendrils that brush its many limbs, deposit amber not-sap on its shell. The caller doesn't flinch. It may lean in. In some cases the caller is *partially rooted* — its lower limbs have been colonized by growth, anchored to the hanging root-tree it grips, so that it is no longer clear whether the animal is perched on the plant or the plant has grown through the animal. They still call. Their calls may be louder.
+
+---
+
+Walk deeper. The cavity expands and contracts like a breathing thing — because it is, because the root-plate walls flex on slow cycles as growth surges occur in waves, and you can feel the atmospheric pressure shift as the volume changes. In the deeper zones the root-plate floor becomes more convoluted, more folded, the ridges closer together and taller, so that you are walking through a labyrinth of warm amber-lit canyons between walls of living fiber that creak and shift and occasionally split open to reveal the pale questing tendrils beneath. The crawler density here is extreme. They carpet every surface. Walking means walking on crawlers. They don't bite — they barely acknowledge you — but the sound of them, the rasp and click and subsonic throb, is inside your body now.
+
+Here you'll find the hive-mounds. These are the largest of the crawler-built structures: root-fiber constructions the size of houses, baroque and spiraling, clearly *grown-and-shaped* collaboratively by plant and animal in some process neither one controls entirely. They pulse. Not metaphorically — they physically pulse, the living walls expanding and contracting as the root-fiber inside undergoes rhythmic growth surges, and the crawlers inside doing — *something*. The sound from inside a hive-mound is a deep, almost mechanical throbbing, like the heartbeat of a vast machine made of wood and chitin.
+
+Break one open (not that you should; not that the crawlers would let you easily) and inside you find chambers arranged in patterns that are *almost* regular, *almost* crystalline, and in the deepest chambers, structures that defy easy categorization: root-fiber woven into shapes that look like cradles, or like molds, or like casting-forms, and inside them, things growing that are neither plant nor animal but something the Rootcellar is *trying to become*. Fetal shapes. Hybrid morphologies. A root-node with a chitin shell. A crawler larva threaded through with living fiber. Eyes that are bioluminescent bark-sheath arranged into something light-sensitive. Mandibles made of lignin-stone.
+
+This is the project. This is what the turbulence is *for*. The Rootcellar is not an ecosystem — it is a *cocoon*, a continental-scale developmental chamber in which a dry-chemistry biosphere is attempting to merge its kingdoms into something unified, something new, and the sound and the fury and the constant growth-and-reshaping are the labor pains of a form of life that does not yet exist and is fighting to be born.
+
+You can hear it almost arriving. The callers reach a crescendo and the root-plate flexes and the crawlers surge and for a moment, just a moment, every sound in the Rootcellar synchronizes into a single pulse, a single vast chord, and the golden light brightens and the air hums with spore-dust organized into transient geometric perfection —
+
+— and then it collapses back into chaos, into the riot, into the million competing voices and the ceaseless growth and the cracking and scraping and calling, and the Rootcellar continues its turbulent, deafening, magnificent work.
+
+---
+
+The tools. I should mention the tools.
+
+In some of the hive-mounds, in alcoves near the surface where crawlers come and go, you'll find objects. Small things. Splints of lignin-stone that have been gnawed into shapes — wedges, levers, things with points, things with edges. They are crude. They are unmistakably *made*. They are not made by hands — they are made by mandibles, by patient rasping, by the same process the crawlers use to shape root-fiber but applied to harder material with apparent forethought. Some of them have been used: there are wear-marks consistent with prying, scraping, cutting.
+
+The crawlers are toolmakers. Primitive ones. They make splitting-wedges to crack root-ridges they couldn't crack with mandibles alone. They make scrapers to harvest bark-sheath bioluminescence and apply it to the walls of their hive-mounds, bringing light into chambers that would otherwise be dark.
+
+Hold one of these tools. Feel the warmth of it, the dry smoothness, the faint vibration of the living material it's made from. Consider that the creature who made it might be, in a generation or a hundred generations, *part of the plant it shaped*. Consider that the tool might be, in some sense, the plant's first artifact as much as the crawler's.
+
+Set it down carefully. It will be reclaimed — by crawler or by root-growth or by the merger that is coming.
+
+Step back. Breathe the thick, dry, resinous air. Let the sound fill you until you can't distinguish it from your own pulse.
+
+The Rootcellar is not a place. It is an *event*. And it is not finished.

@@ -1,0 +1,23 @@
+It is a room without walls, or perhaps a room that has forgotten its walls, sunken into the earth like a dropped coin. The landscape here is defined by a deep, hollow impression—a blister in the crust of the world. The elevation is low, descending into a rounded bowl that feels remarkably intimate, a pocket of existence separated from the horizon above.
+
+The air is thick enough to chew. The heat is oppressive, a heavy, wet blanket that presses against the skin, rating a 2.7 on the scale of discomfort. It is not the dry heat of a desert, but the suffocating, tropical warmth of a greenhouse left too long in the sun. The humidity is absolute; the atmosphere is condensing constantly, turning the air into a visible, shimmering haze that smells of wet iron and ozone.
+
+There are no gentle curves here. The erosion is virtually nonexistent, rating a mere 0.6. The terrain is young, raw, and jagged. The rock that comprises the basin walls looks like it broke off from the mantle only yesterday. Sheer faces of dark, grey basalt terminate in knife-edged ridges, sharp enough to cut. There is no weathering, no rounding of the stones, no soil to speak of—just fresh, fractured geology that looks painfully new.
+
+Water is everywhere, yet it is not a place of swimming. With a rating of 2.2, the water is weeping. It pours continuously out of the fresh fractures in the rock, not in torrents, but in a persistent, mournful tears. The black stone glistens, slick with runoff that gathers in shallow, irregular puddles on the basin floor. The condensation is so heavy that water drips from the invisible ceiling of the humidity itself, creating a constant, random percussive plinking sound.
+
+Vegetation is sparse, struggling to gain a purchase on the sheer, wet stone. Where the water gathers in the crevices, a few tenacious clusters of algae cling, glowing a bilious neon green against the dark rock. There are no trees, no grass, no reeds—just these singular, isolated islands of slime that mark the water’s path. The rating of 1.1 suggests life is an afterthought here.
+
+The silence of biology is deafening because the sound of the place is loud. Rated at 2.5, the noise is industrial and pervasive. It originates from the heart of the depression: a massive, scattered artifact of built technology. It looks like the spilled entrails of a factory. Huge, rusted pistons lie half-buried in the sharp scree, and a great, cylindrical engine housing, the size of a small building, protrudes from the rock wall, pulsating with a deep, rhythmic thrumming that vibrates in the teeth.
+
+This is the tech level of 1.6—industrial decay that is somehow still functioning. The machine is loud, a churning, grinding roar punctuated by the high-pitched hiss of escaping steam. The noise bounces off the steep, sharp walls of the basin, amplifying into a cacophony that drowns out any thought. It is a mechanical heartbeat, slow but immense.
+
+The light is normal, a stark, white illumination that filters down from the rim above, casting hard, sharp shadows that emphasize the fresh, jagged nature of the rock. There is no diffusion here; the light reveals every imperfection, every crack, every rivet of the alien machinery.
+
+The scale is hidden, a 0.5. The depression feels like a micro-world, a self-contained diorama of heat and noise. From the distance, it might look like a small scar on the landscape, but inside, it feels like the entire universe.
+
+Fauna is nonexistent (0.3). There are no birds, no insects, no skittering lizards. The noise and the heat have driven everything away, or perhaps the land is too young to support them yet. It is a sterile, loud, wet purgatory.
+
+The weirdness is subtle but present, rating 0.8. It lies in the relationship between the rock and the machine. The rock has grown *around* the pistons. The basalt has fractured in ways that cradle the gears. It suggests that the machine erupted from the earth naturally, or that the earth rose up to swallow the machine in an instant, freezing them both in a state of arrested violence.
+
+Everything moves with agonizing slowness (dynamic 0.6). The water weeps at a steady rate, the puddles expand by millimeters per hour, and the machine cycles through its operations with glacial patience. The steam rises lazily, hanging in the still, hot air before dissipating. It is a landscape of endurance, where the rock waits, the machine churns, and the water weeps, all locked in a slow, hot, loud eternity.

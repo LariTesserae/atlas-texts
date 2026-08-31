@@ -1,0 +1,21 @@
+## The Thermal Nursery
+
+Deep beneath fractured basalt, a pocket of impossible heat maintains itself through principles that shouldn't work—but do. The chamber spans perhaps thirty meters at its widest, though its true dimensions shift with the steam that perpetually rises from shallow pools scattered across the obsidian floor.
+
+The water here defies expectation. It emerges from hairline cracks in the volcanic glass, beading and streaming down walls that remain perpetually slick. The droplets move too slowly, gathering mass beyond what surface tension should allow before finally releasing to join the pools below. Each pool maintains a different temperature—some near boiling, others merely warm—though they sit mere centimeters apart. The boundary between thermal zones is absolute, as if invisible membranes partition the space.
+
+The brightness comes from the water itself. Not all of it glows, but enough does—a clean white luminescence that originates somewhere in the molecular structure, perhaps in the way hydrogen bonds form and break in this particular pressure and mineral environment. The light pulses gently, following no discernible pattern, casting everything in sharp relief against deep shadows.
+
+The chamber's youth shows in every surface. The obsidian walls still hold their conchoidal fracture patterns, edges sharp enough to draw blood. No weathering has softened these geometries. The floor rises and falls in frozen waves of recently-cooled lava, creating the depressions where water gathers. Steam has not yet had time to deposit minerals; everything remains purely volcanic, purely glass.
+
+Something moves in the furthest pool—a ripple that travels against the convection currents. Then nothing for long minutes. Then another disturbance in a different pool. Whatever lives here exists at the edge of detection, perhaps something that barely qualifies as fauna at all. A colony organism that precipitates and dissolves. A self-organizing mineral process that mimics life. The distinction matters less than the rarity—hours might pass between confirmable sightings.
+
+The only sounds are water sounds: the occasional drip, the subsurface gurgle of circulation, the soft sigh of steam condensing on the ceiling and releasing back into rain. But underneath these watery voices runs something else—a thrumming that lives more in the bones than the ears. It's the sound of the mechanism that maintains this place, the technology embedded in the rock itself at scales too small to see.
+
+The chamber exists in perpetual flux. New cracks open, releasing fresh surges of superheated water. Pools overflow their bounds and merge, then separate again as the floor subtly reshapes itself. The steam thickens and thins. The light-emitting water seems to migrate between pools through underground channels, changing the illumination from hour to hour. This is not a place finding equilibrium but one held in constant, deliberate disequilibrium.
+
+The air tastes of minerals and electricity. Breathing here feels like breathing the future—or perhaps the deep past, when the Earth's first chemistry experiments were just beginning. The humidity approaches saturation but never quite achieves it, leaving skin perpetually damp but never soaked. The heat presses close without oppressing, maintained at exactly the temperature where human discomfort begins but does not escalate.
+
+This is a made place masquerading as a natural one, or perhaps a natural place achieved through artificial means. The technology reveals itself only in the impossibilities—the temperature gradients that shouldn't hold, the light that shouldn't exist, the perfect maintenance of conditions that should decay. Someone or something built this, but built it out of physics itself rather than matter, encoding function into the quantum foam, teaching ordinary water an extraordinary trick.
+
+The chamber waits. For what, it's impossible to say. But the sense of purpose is unmistakable, as clear as the sharp volcanic edges, as present as the perpetual steam, as patient as the rare things that move beneath the glowing water's surface.

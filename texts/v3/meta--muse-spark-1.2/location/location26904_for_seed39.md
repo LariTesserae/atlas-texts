@@ -1,0 +1,39 @@
+This is a high place that hasn't finished being made yet.
+
+You are at almost five thousand meters, where the air is thin enough that every breath feels shallow and deliberate, and cold enough that the breath never really leaves you - it hangs, condenses, falls back as frost on your collar, your eyelashes. The light is dim, not because it is night but because the sky here is always a low, even lid of cloud. No sun breaks through it, not really; the light diffuses through a mile of vapor and hits the ground flat and pearlescent, without shadow. Early morning late afternoon forever. It makes distances hard to judge.
+
+The range is still rising. That is the first thing you feel under your feet. This is not old mountain, not the softened, sawtooth of a range that has been weathered down into wisdom. This is emerging geology, raw and unapologetic. The uplift is recent - plates shoving, basalt and granite shouldering up through limestone that has not yet decided what it is. Everything is angular. Tilted slabs the size of concert halls lean against each other at impossible angles, their faces not yet scarred by water or wind, still showing the fresh break, the glitter of un-oxidized feldspar and quartz. Scree hasn't had time to become soil. There are no deep valleys, no canyons, no riverbeds cut deep. Instead there is a broad, high, open trough - a regional basin between new peaks - perhaps ten kilometers across and thirty long, its floor still corrugated with the pressure ridges of its birth. You can see its whole extent from any small rise, and beyond it more of the same, peak after raw peak, white and grey and black, disappearing into low cloud.
+
+There are no buildings here. No walls, no roads, no cairns, no ruins. No artifact of any kind. No straight line that was drawn by a hand. The rock has never been cut.
+
+And yet the place is industrial.
+
+Not because someone built a factory here. Because the mountain itself is working at industrial scale, and it sounds like it.
+
+Water is everywhere despite the cold. The air is saturated. It condenses continuously on every cold surface - on rock, on lichen, on your skin - and gathers and weeps. The slabs sweat. The cliffs weep in dark vertical streaks that never dry, even when it hasn't rained for days. In the low parts of the basin the ground cannot hold it. Permafrost is close to the surface, and melt cannot drain through young, unfractured rock, so it sits. A cold marsh spreads for kilometers: not a lake, not a meadow, but a maze of shallow pans, black pools, sphagnum and sedge mats floating on silt, connected by braids of water that never found a single channel. When you step, water rises around your boot from below as much as from above. The rocks at the edges are glazed with ice that is always melting and refreezing, weeping and healing. In places the ground sighs steam where geothermal heat leaks up through the new faults - narrow fissures exhaling warm fog that instantly condenses and falls as drizzle.
+
+Vegetation is sparse and low and stubborn. Nothing tall can root in this unfinished ground or stand this wind. What grows hugs. Black-green crust lichens seal the windward faces of boulders. On the lee sides, sudden olive cushions of moss campion and saxifrage, tight as fists, holding heat. In the marsh, sedge and cotton-grass in thin, tough tufts, widely spaced, each with its own little hummock. No forest. No shrub. From a distance the basin looks mostly stone. Up close you realize the stone is stippled with life, but it never covers.
+
+The emptiness is profound. The density of things is absurdly low. A single cushion plant might be the only thing in three meters of wet stone. A boulder field can go for a half kilometer with nothing moving on it but water. The sky is huge and empty. The silence has scale.
+
+Which is what makes the abundance of animals so strange at first, until you understand the scale they operate on.
+
+There are many of them, but they are spread so thin and move so constantly that you rarely see two at once. This is not a teeming jungle abundance. This is an alpine abundance that is active, mobile, and dispersed - a whole regional ecology in motion across the open basin.
+
+Herds of wild ibex and a smaller, denser, dark-coated ungulate like yak but leaner - perhaps twenty to forty at a time - pick their way across the slabs, distant as ants, their hooves clicking on stone. Pika colonies whistle and flash between rocks, haying even now, dragging minute stalks of sedge into cracks. Above, almost always, there are birds: alpine choughs and white-winged snowfinches in loose flocks of hundreds, wheeling low under the cloud deck, not calling much, turning together. In the marsh pools, waders - stilts and phalaropes - probe in constant, nervous motion. And on the ridges, if you stay still long enough, you will see the pale flicker of a snow leopard or wolf moving along a skyline, never close.
+
+They are not crowded. You might walk an hour and see only one herd far off, and a few birds. But over the course of a day, across the whole valley, the count is enormous. Life is everywhere, just never in the same place.
+
+The cold keeps everything quiet. Sound does not carry well in the damp, heavy air. Mostly what you hear is water - the faint, continuous trickle of seep, the drip from weeping rock, the soft suck of your boots in marsh silt, the occasional plink of a pebble loosened by ice. The wind, when it moves, is a low, even push, not a howl.
+
+Under that quiet, the industry.
+
+It takes a while to hear it as machine sound, because there are no machines. There are no engines made and placed here. But the processes themselves are mechanical at scale and regular as shift-work.
+
+On the flanks, glaciers that have not had time to carve U-valleys act instead like presses - great, raw slabs of ice, dirty with rock flour, creeping a few centimeters an hour with a sound exactly like a hydraulic press: a deep, subsonic groan, a creak, a sudden pop and hiss of pressure release. Where geothermal fissures meet the ice, there are blowholes that cycle - pressure builds, releases in a gust of warm, mineral steam with a valve-like shriek and clatter, then seals again. Meltwater, forced under pressure through young rock, has drilled natural penstocks; it jets from cliff faces in hard, white, electrified arcs that hammer the pools below with the roar of turbines. In the marsh, the ice at night forms, expands, and at noon cracks and jackhammers itself into polygonal plates that tilt and grind. Even the wind through the natural arches and half-formed lava tubes plays them like organ pipes and factory whistles, low and resonant.
+
+It is all natural, all untouched, but if you closed your eyes you would swear you were standing outside a vast, decentralized mill at night - power looms running somewhere beyond the fog, conveyor belts turning, steam venting on timers, all without a single building to house them.
+
+The rule here is simple: nothing is finished, everything is working. Water does not flow away so much as it sweats out of the stone itself. Life does not cluster; it patrols. The mountain does not erode; it is still being extruded, and its first job upon reaching the air is to start acting like an engine - turning heat and cold and height and water into motion, noise, and work.
+
+If you stay until the light thins even further toward evening - though the cloud never really lets it be day or night - you see the whole basin begin to exhale. The fissures steam harder. The herds bed down on drier slabs, steaming themselves. The birds go still on the rocks, hundreds of small dark shapes. The ice ticks. The water keeps weeping. The press keeps pressing. No one built any of it, and it will not stop.

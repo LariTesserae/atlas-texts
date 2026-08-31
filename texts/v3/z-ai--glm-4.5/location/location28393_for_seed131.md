@@ -1,0 +1,19 @@
+The roar is absolute. It is not a chaotic noise, but a solid, unbroken wall of sound—a low-frequency thrum that vibrates in the teeth and settles deep in the marrow of the bones. It is the sound of a system that has achieved perfect equilibrium, a machine so vast and so ancient that its operation has ceased to be motion and has become a state of being.
+
+This is the Sump.
+
+It is a room, or perhaps a single, vast chamber—a hidden pocket universe tucked away in the guts of a megastructure that no one has visited for millennia. The "sky" is a vaulted ceiling of riveted iron, lost high above in a thick, humid haze. The light is normal, a stark, clinical white that filters down from flickering arrays of long-stripped tubes, but the atmosphere catches it, scattering the beams through the eternal mist of condensation.
+
+The air is heavy and warm, like the breath of a sleeping giant, and it is saturated with water. This is a wet place, a post-rain landscape trapped indoors. Every surface is slick. Water does not just exist here; it is the architect of the space. It weeps from the pipes that run like gnarled roots along the ceiling, forming constant, precise stalactites that drip onto the metal floor below. The sound of a million droplets striking the grating is lost entirely within the greater roar of the machinery.
+
+The ground is a landscape of industrial decay frozen in time. Massive, cylindrical pressure vessels the size of office buildings lie on their sides, half-submerged in a shallow, stagnant marsh that covers the floor. The water is murky, reflecting the white lights in oily rainbows, and it is utterly still. Despite the deafening noise of the engines, the water surface is unrippled, caught in a perfect, hydrodynamic stasis.
+
+Vegetation has claimed the iron. It is lush, a verdant riot of mosses, ferns, and thick, rubbery vines that have overgrown the gantries and catwalks. The green is vibrant, almost glowing in the artificial day, feeding on the warmth and the endless moisture. The plants have merged with the machine; thick mats of moss cushion the control panels, and ferns unfurl from the joints of massive pistons. There is no dirt here, only the oxidation of the ancient metal providing the substrate for this profusion of life.
+
+The space feels incredibly empty. It is a hollow. The sheer volume of the chamber dwarfs the machinery within it; vast, empty stretches of humid air exist between the scattered equipment. There is a sense of profound isolation, of a room that has been waiting for a very long time. There are no crowds, no workers, no movement other than the invisible flow of electricity and water.
+
+The technology is purely industrial, brutally functional, but it has been eroded by the aeons. The metal is not shiny; it is pitted and flaking, coated in a patina of rust and mineral deposits that looks like stone. This is the end state of engineering—the point where the constructed becomes geological. The pipes are no longer pipes; they are calcified arteries. The gears are fossilized.
+
+There is no fauna. The noise and the isolation have driven everything else away, or perhaps they simply never evolved to live in a place of such constant, deafening vibration. The only movement is the slow, inevitable creep of the vines and the silent drift of the mist.
+
+Nothing changes. The water level remains exactly at the halfway mark of the rusted stanchions. The lights do not dim. The temperature never wavers from its warm, muggy set point. The roar does not pulse or fluctuate; it is a constant note, a drone that has been held for so long it has become the silence of the place. It is a room in the deepest sense—contained, complete, and finished, a lush, terrifying terrarium built by gods who left the switch on.

@@ -1,0 +1,23 @@
+## The Breathing Chamber
+
+You must crawl to enter, pushing through curtains of aerial roots that weep perpetual moisture. The passage narrows until you emerge into a pocket no larger than a modest dwelling—yet this hidden hollow contains impossibilities.
+
+The walls are volcanic glass, still sharp from recent formation, black mirrors that catch and multiply the filtered daylight seeping through the root-veiled opening above. Water beads constantly on these obsidian surfaces, running in silent sheets that never quite reach the floor. Instead, the droplets slow, pause, and begin ascending again, tracing the same paths in reverse. Time moves in lazy loops here, though not uniformly—some water drops race upward while others hang frozen for minutes before resuming their journey.
+
+The floor defies the altitude. Despite being carved into a mountainside peak, it hosts a miniature marsh, complete with cushions of emerald sphagnum and sprays of orchids that shouldn't survive at this elevation. The moss grows in impossible spirals, folding in on itself until it occupies more space than the chamber should contain. Step carefully and your foot might sink through what appears to be solid ground, finding warm water beneath—or finding nothing at all, a brief pocket of absent space before the moss reasserts itself.
+
+Ferns unfurl from every crevice, their fronds reaching maturity in moments, then aging to brown lace, then reversing to tender green shoots, cycling through seasons in the span of breaths. Air plants cluster so densely on the ceiling roots that they form a living constellation, their tiny flowers opening and closing in patterns that suggest language or mathematics, though following the sequence too long makes the eyes water and the mind skip.
+
+The warmth comes from nowhere and everywhere. The volcanic glass should be cold at this altitude, but it radiates a gentle heat that makes the whole chamber humid as a throat. Sometimes the warmth has color—brief washes of orange or violet that you see in peripheral vision but never directly.
+
+Small creatures move through this dense garden, though counting them proves impossible. A jeweled beetle walks across a fern frond, reaches the tip, and continues walking on air for several steps before remembering it cannot fly and tumbling into the moss. Hummingbirds hover backward, their wings beating in reverse but somehow still maintaining position. Transparent frogs appear to be inside the glass walls one moment, perched on leaves the next, without ever visibly traveling between states.
+
+In one corner, someone long ago built a simple shelter—just three walls of fitted stone with a thatched roof that perpetually drips yet never rots. Inside, clay vessels hold water that remembers being rain, being river, being cloud. Drink from them and taste tomorrow's storm. Simple tools hang from wooden pegs: a jade knife that cuts shadows as easily as vines, a woven net that catches thoughts if you're not careful, a hammer that builds with each strike rather than breaks.
+
+The only sounds are the almost-silence of growth and decay, the whisper of water defying gravity, the soft pop of spores releasing from ferns. Occasionally, a note like a glass bell rings from nowhere—the sound of time cracking just slightly before healing itself.
+
+Stay long enough and you notice your reflection in the obsidian walls aging and growing younger independent of your actual body. Stay longer and you might glimpse yourself entering the chamber before you decided to come here, or see yourself leaving through a passage that doesn't yet exist. The chamber breathes around you, each breath drawing in the impossible and exhaling the merely improbable.
+
+At the center of it all, where the moss grows thickest and the time-loops overlap most densely, something is trying to grow—or perhaps trying to remember how to grow. It might be a tree, or a tower, or a person made of wood and leaves. Its roots dig down through solid rock that parts like water. Its crown pushes up through dimensions that weren't there a moment ago. It grows forward and backward through time simultaneously, meeting itself in the middle, and at that meeting point, for just an instant, everything in the chamber makes perfect sense—
+
+Then the moment passes, the impossible reasserts itself, and the pocket continues its quiet existence, hidden in the sharp young peaks, a secret room where the world's rules grew too thin and something else leaked through.

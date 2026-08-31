@@ -1,0 +1,17 @@
+In the high reaches of a young mountain range, a peculiar city clings to the rocky slopes. The air is cool and crisp, carrying the scent of damp stone and verdant growth. This place exists in a state of perpetual dawn, the light neither dim nor bright, but caught in an endless moment of potential.
+
+The city itself is a marvel of primitive engineering. Structures of rough-hewn stone and intricately woven plant fibers rise in terraced layers, following the contours of the mountain. These buildings seem to have grown organically from the rock itself, their edges still sharp and uneroded by time. Bridges of tightly knotted vines span gaps between cliff faces, swaying gently in the constant, gentle breeze.
+
+Lush vegetation covers every available surface, from mosses carpeting the stone streets to climbing vines that engulf entire buildings. Ferns unfurl from crevices, and stunted trees with dense, twisted branches cling tenaciously to precarious ledges. The greenery is vibrant and ever-present, yet it never seems to grow or change, locked in a state of perpetual verdancy.
+
+Water is a precious resource here, collected in intricate systems of stone channels and clay pots. Moisture beads on leaves and trickles down rock faces, gathering in small, still pools that dot the cityscape. Occasionally, a fine mist rolls through the streets, momentarily obscuring the view before dissipating just as quickly as it came.
+
+The city teems with life, yet remains strangely quiet. Abundant fauna moves through the urban landscape with silent grace - iridescent lizards skitter across walls, while birds with elongated, ribbon-like tails glide between buildings without a sound. Small, furry creatures with too many legs dart between shadows, their movements barely disturbing the plant life.
+
+Human activity is evident everywhere, from the carefully maintained buildings to the intricate carvings that adorn every surface. Yet the inhabitants themselves are seldom seen, moving with such practiced stealth that they seem to blend into the environment. Their tools and artifacts hint at a culture deeply attuned to their surroundings - woven baskets that mimic the structure of bird nests, stone knives shaped like leaves, and clothing that seems to shift color with the light.
+
+The most striking feature of this place is its utter stillness. Despite the abundance of life, nothing ever truly changes. The mist always rolls in at the same time, the plants never grow or wither, and the inhabitants move in set patterns, like actors in an endlessly looping play. It's as if the entire city exists in a bubble outside of time, preserved in a single, perfect moment.
+
+This timelessness extends to the very fabric of reality here. Occasionally, an observer might notice impossible geometries in the architecture, or glimpse creatures that seem to phase in and out of existence. These anomalies are treated as utterly mundane by the inhabitants, accepted as simply another facet of their unchanging world.
+
+The rules that govern this place are as immutable as they are strange. Water always flows uphill here, seeking the highest points of the city. Gravity seems to be more of a suggestion than a law, with some areas allowing for effortless vertical movement. And while day never fully arrives, neither does night ever fall, leaving the city in a perpetual state of anticipation for a dawn that will never come.

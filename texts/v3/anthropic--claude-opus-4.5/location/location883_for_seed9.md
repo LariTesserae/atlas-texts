@@ -1,0 +1,19 @@
+# The Nursery Vats
+
+The room breathes. That's the first thing you notice—the slow, humid respiration of the place, the way the air itself seems to pulse with warmth and moisture. You stand on a grated walkway, industrial iron that has begun to sweat, and below you, around you, rising in terraced rows to a domed ceiling of riveted copper panels, are the vats.
+
+Each one is roughly the size of a carriage, made of thick green glass banded with brass. They glow from within—not with fire, but with the phosphorescent warmth of the cultures growing inside them. Geological cultures. You can see the shapes forming in the nutrient slurry: infant mountains still soft as bread dough, their peaks barely beginning to harden. Embryonic river systems threading through gelatinous substrates, learning which way to flow. In one vat near the walkway, a tiny archipelago floats in suspension, its islands still translucent, still deciding what kind of stone they want to become.
+
+The ceiling weeps. Condensation runs down the copper in constant rivulets, collecting in channels that feed back into the system. Pipes snake everywhere—fat ones carrying the base material, thin ones delivering mineral supplements, flexible tubes that pulse with something that might be water or might be something more alive. Steam vents hiss at irregular intervals, releasing pressure, filling the air with the smell of wet iron and growing earth.
+
+Vegetation has found purchase here, though nothing was planted. Ferns cluster in the joints between walkways, their fronds heavy with moisture. Moss colonizes every horizontal surface, thick and emerald, softening the industrial edges. Hanging vines have descended from somewhere in the upper reaches, their roots drinking directly from the humid air, their leaves brushing against the warm glass of the vats as if curious about what grows inside.
+
+The vats themselves are *active*. You can watch the process if you're patient: the slow churning of the cultivation medium, the way nutrients spiral down through the liquid, the tiny seismic shivers that run through a forming plateau as it develops its first fault lines. In the largest vat—central, elevated, monitored by a cluster of brass gauges—something that will become a caldera is learning how to hold heat. Its future magma chamber glows like a coal in the heart of the growing stone.
+
+A single attendant moves through the space, far down a lower walkway. Human-shaped, wearing heavy canvas and rubber boots, adjusting valves, checking readings. They move slowly, deliberately, like someone who understands that the things being born here cannot be rushed. Occasionally they pause at a vat and simply watch, the way a parent watches a sleeping child.
+
+The sounds are small and wet: the drip of condensation, the soft gurgle of pumps, the occasional click of a pressure release. Underneath it all, if you listen, there's something else—a kind of subsonic murmur, the sound of stone teaching itself how to be stone, of water finding its first channel, of mountains dreaming their own shapes into existence.
+
+This is where landscapes come from. Not all of them—but these ones, the commissioned ones, the ones that will be installed in private estates and public gardens and the courtyards of palaces. Somewhere, a patron has ordered a weeping cliff face, and here in Vat Seventeen, that cliff is condensing out of the warm mineral soup, learning how to hold moisture, how to grow the precise mosses that will make it beautiful. The world outside has its own geology, old and slow. This is the other kind: geology with intention, geography grown to specification, terrain that someone wanted badly enough to pay for.
+
+The warmth settles into your skin. The air is so wet it feels like drinking. In the vats, the young places pulse and shift and grow.

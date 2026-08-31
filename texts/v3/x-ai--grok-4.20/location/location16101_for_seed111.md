@@ -1,0 +1,21 @@
+The place is called the **Veins of the Hollow Choir**.
+
+It is not large—no farther than a hamlet could spread—yet it feels infinite because every inch of it is occupied. You stand inside a wound in the world: a jagged, vertical fracture in a young mountain that never finished forming. The rock here is still raw, black and glass-edged, as if the stone tore itself open only a few centuries ago and has not yet decided whether to heal or keep bleeding.
+
+Elevation is merciless. The fracture begins two thousand feet below the visible sky and rises in a single crooked chimney so narrow that in places the opposing walls almost kiss. What little light reaches the bottom is stolen, pale, and blue-grey, arriving only as a exhausted rumor from a slit of sky so far above it looks like a blade wound in night itself.
+
+Everything is damp, but never truly wet. Water moves like a shy secret: it condenses on every razor ledge in slow silver beads, gathers in fist-sized pockets of black stone, then slips away through hairline fissures with a sound like distant glass bells. Occasional rain finds its way down the chimney in thin, hesitant curtains that evaporate before they reach the floor. The air itself feels moist and cold, the kind of cold that lives inside cathedrals made of ice.
+
+There is almost no soil. What vegetation exists is sparse, stubborn, and deeply strange. Matte-black succulents the size of fists grow in vertical seams, their leaves edged with translucent hooks. Long pale filaments—neither root nor fungus—hang in dense beards from overhangs, swaying although there is no wind. They glow faintly, a cold bioluminescent violet that only becomes visible once your eyes have given up on ordinary sight.
+
+But the fauna is overwhelming.
+
+The Veins are loud with life that should not be able to live here. Thousands upon thousands of pale, armor-plated creatures the size of thumbs scuttle, click, and sing across every surface. They are not insects. Their bodies are jointed plates of something between shell and bone; their many legs move in perfect, hypnotic synchrony. They travel in slow, living tides that coat entire walls in rippling carpets. When they sing—which they do constantly—the sound is deafening: a layered choral scraping and chiming that rises and falls in patient, geological waves. Some of the larger ones (the size of rabbits) possess translucent wings they never fully open; instead they vibrate them like tuning forks, adding deep bass drones to the unending hymn.
+
+Everything here touches everything else. The singing creatures crawl over one another, over the black succulents, over the hanging filaments, over the slick rock. Their bodies click and rasp against the stone in a constant, slow percussion. Occasionally a whole colony will freeze for hours, every plate locked in perfect stillness, as if listening for something only they can hear. Then the song begins again, slightly altered, slightly deeper, as though the mountain itself has answered and they are replying.
+
+There are no paths. There is only the slow negotiation of space between overlapping bodies, dripping condensation, and knife-like rock. Movement must be patient. The creatures do not bite, but they do not move aside either; you must become part of the density or be gently overwhelmed by it. Some travelers say that after days inside the Veins your own breathing begins to fall into the rhythm of their song.
+
+The strangest law of the place is this: nothing here is finished. The rock is still settling. New fissures open with glacial slowness, revealing fresh, mirror-bright surfaces that have never seen light. New colonies of creatures emerge from these cracks already singing, as though they were born mid-note. Even the hanging filaments lengthen by imperceptible degrees, year after year, until their tips touch the floor and begin to root, becoming something new.
+
+It is a cathedral-sized pocket of world still being born, densely packed with cold-blooded life that has never known sunlight or silence. A place where the mountain itself is learning how to sing, and every living thing within it is the learning.

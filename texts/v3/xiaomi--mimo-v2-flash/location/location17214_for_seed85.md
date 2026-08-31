@@ -1,0 +1,21 @@
+The place is called the Chancel of Still Waters, though no one sings here anymore.
+
+It exists at a high altitude, a plateau suspended in a permanent cloud-deep where the air itself has become liquid—a slow, cold, silent ocean of atmosphere that never clears, never ripples. The water is not falling; it *is*. It fills the space between structures, presses against windows, carries sound in viscous, delayed waves. To move here is to swim slowly through a medium that is both air and sea, buoyant but dense, cool to the touch and always moving in currents you cannot see.
+
+The ground is not earth. It is a formation of basalt and engineered crystal, sharp-featured and young, as if the plateau had risen from some deeper stratum only yesterday. No erosion has softened its edges; every surface is a plane, a facet, a cut. The geometry is strict: hexagonal pillars, staggered towers, archways that hold themselves without visible support. The buildings are not ruins—they are maintained. The stone is clean, the crystal facets polished to a dull gleam that catches the faint light and holds it.
+
+There is no plant life. Not even the memory of it. The rock is bare, the structures unadorned. Where one might expect moss or lichen, there is only mineral silence. The world here pre-dates biology or has outgrown it; either way, the notion of green is alien.
+
+Light is sparse, sourced from nowhere obvious. It seeps from the crystal itself, a cold phosphorescence that seems to emanate from within the stone, illuminating the water-saturated air with a pale, diffuse glow. The darkness is not complete—it is a graded thing, deepening in the spaces between structures, pooling in the submerged courtyards, but never absolute. You can see, always, but never clearly.
+
+The buildings are urban in scale but not in spirit. They form a settlement—a town, perhaps, or a monastery of engineers—but the spaces between them are vast. The density is low; you can stand in a plaza and see no other soul for minutes, even hours. The architecture is layered, as if built in phases, but the phases are indistinguishable. There are no seams. The structures seem to have grown, not been assembled, and they are all of a piece: towers, arches, domes, all carved from the same basalt and crystal, all connected by submerged passages that fill with the same quiet water.
+
+The technology is beyond modern, but it is not flashy. It is embedded. The crystal glows with a light that is not electric, the water moves in currents that obey no simple gravity, the structures maintain themselves without visible mechanism. You might walk through a passage and feel the water part before you, not by force but by intention—a subtle pressure, a gentle suggestion. The world here is engineered, but the engineering is seamless, invisible. It is the logic of something that has always been.
+
+Fauna is rare. You might see a glimmer—a fish-like thing that swims through the air, all light and shadow, or a lattice of energy that hums in the depths of a tower, but they are not creatures. They are phenomena. They do not eat or breed or die. They simply *are*, and then they are not.
+
+The sound is mostly quiet. The water carries noise, but there is little to carry. The silence is not empty; it is a presence. You hear the slow current of the air-sea, the occasional chime of crystal settling, the distant pulse of something that might be a machine or might be the world’s own heartbeat. But mostly, you hear your own breathing, amplified and softened by the water around you.
+
+And the dynamic is zero. Nothing changes. The water does not rise or fall. The light does not flicker. The structures do not decay or grow. The time here is a flat line. You might swim through a submerged courtyard and return hours later to find the same dust motes suspended in the same shaft of light, the same current pressing against the same archway. It is a place of equilibrium, of frozen intention. The world is not waiting. It has arrived, and it has stopped.
+
+This is a place that has forgotten the urgency of time. It is cool, high, submerged, sparse, and strange. It is a Chancel, a shrine to the idea that the world can be finished, perfect, and silent. And in its silence, it hums.

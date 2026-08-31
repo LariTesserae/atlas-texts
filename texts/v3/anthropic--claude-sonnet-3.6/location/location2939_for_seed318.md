@@ -1,0 +1,17 @@
+The first thing you notice is the sound - a constant roar that seems to come from everywhere, a denseweave of biological noise that makes your bones vibrate. It takes time for your mind to parse it into components: the thundering stampede of countless tiny feet, the electric crackle of neural networks spanning miles, the subsonic rumble of vast underground migration patterns.
+
+This is the Processor Plain, where an ancient civilization built their living computers. The terrain appears flat at first glance - eons of erosion have worn down whatever mountains once stood here. But the flatness is an illusion created by scale. The plain stretches beyond the horizon in every direction, a continent-sized expanse of undulating topology optimized for computation.
+
+The ground itself is alive, or perhaps more accurately, is life. Trillions of specialized organisms form the hardware - colonies of cold-adapted bacteria arrange themselves into logic gates, fungal networks carry signals across vast distances, specialized insects serve as mobile memory units. The whole system is kept at precisely 0°C through a combination of biological processes and ancient climate control infrastructure that still functions after millions of years.
+
+Moisture is carefully regulated. Periodic rains release exactly the amount of water needed to maintain the system, falling in complex patterns that themselves form part of the computational process. Between rains, a network of underground aquifers distributes water through living channels that pulse like veins.
+
+The vegetation is both dense and purposeful - engineered plants grow in intricate fractal patterns, their growth and interaction performing calculations. Their roots interweave with the fungal networks below, forming three-dimensional processing arrays that extend hundreds of meters deep. The plants are primarily in shades of deep blue and purple, optimized for energy efficiency rather than conventional photosynthesis.
+
+Scattered across the plain are crystalline structures, remnants of the civilization that built this place. They appear to be monitoring stations or maintenance hubs, though their exact purpose is difficult to discern. Most are partially overgrown, integrated into the living system rather than standing apart from it.
+
+The fauna is overwhelming in both quantity and complexity. Swarms of insects move in precise mathematical patterns, their movements encoding data. Larger creatures serve specialized roles - some maintain the system, others transfer information between regions, others protect critical nodes. All are coldblooded, adapted to the constant temperature.
+
+The entire plain is in constant motion, processing unknown calculations with living components. Waves of activity sweep across the landscape like weather patterns. Swarms of creatures rise and fall in precise formations. The ground itself seems to pulse with activity.
+
+What's most unsettling is the sense of purpose. This isn't a natural ecosystem that happened to evolve computational abilities - it's a computer that happens to be made of living things. Every organism, every process, every pattern serves the greater calculation. Even now, millions of years after its creators vanished, it continues to compute something. The question is: what?

@@ -1,0 +1,51 @@
+# The Ascending Deep
+
+You are standing on a platform of corroded iron—or what was once iron—at an elevation where the air itself has become a problem. The platform is one of hundreds, suspended on massive cable-bundles that disappear both upward and downward into a world that has forgotten the distinction between sky and ocean.
+
+The water is *everywhere*, but not as a simple thing. It exists in states that shouldn't coexist. Directly below, at perhaps a hundred meters' depth, the liquid is dense and black—true seawater, submarine, pressing against the platform's undercarriage with a weight you can *feel* in your sternum. But here, where you breathe, the air has become something else: a persistent mist that clings to exposed skin like a living thing, neither quite vapor nor quite spray. Higher up—and "up" becomes increasingly meaningless—the mist thickens into a wall of suspended water so complete that sunlight arrives as a uniform gray-white diffusion, coming from no particular direction, casting no shadows. The mist tastes of salt and deep minerals. It tastes old.
+
+The temperature is a sustained freeze that doesn't kill but doesn't permit rest. The water vapor condenses on every surface—the cables sweat, the metal railings form armored sleeves of accumulated ice that crack and re-form with groaning sounds. Your fingers go numb. The air pressure, at this elevation, has created a strange acoustic property: sound travels far and arrives distorted, as if everything is being broadcast through water. And it *is* water, mostly.
+
+The sound is what first disorients. It is *never quiet*.
+
+Below: the deep percussion of massive pumps, industrial and relentless. Three of them, distributed across the visible platform sector, each the size of a warehouse. They operate on a rhythm that isn't quite mechanical—there are variations, hesitations, adjustments—but fundamentally unwavering. They pull seawater upward through intake ports the diameter of subway tunnels. The sound is a thrumming that resonates in your bones, occasionally punctuated by the shriek of stressed metal, the groan of overstressed engineering.
+
+Above: wind. Not natural wind—this plateau is too high, too sheltered by the architecture of water itself—but the sound of vast quantities of fluid moving through channels, through the industrial infrastructure that threads through the mist like the internal organs of some continental creature. Hissing. Whistling. A deep, rhythmic *whoomp-whoomp-whoomp* from somewhere higher, suggesting immense turbines or the beating of something vast and mechanical.
+
+And between: the *sound of the water itself*, moving, being pushed, being cycled through the system. A susurration that fills every gap, every moment of silence between the mechanical intervals. It's hypnotic and maddening in equal measure.
+
+There is no biological life visible. None. The ecosystem, if it ever existed here, has been entirely replaced by a constructed one—or perhaps it never existed, and what you're witnessing is the creation of a world from pure engineering.
+
+The cable-forest rises above you, and it's only when you stop looking at the immediate surroundings that you grasp the *scale*. The cables don't terminate in sight—they continue upward into the opaque mist, bundled in groups of fifty or more, their thickness increasing as they converge toward whatever point they're anchored to. You can count six distinct cable-groups in your immediate view, each thick as a redwood, and between them smaller bundles, secondary supports, diagonal cross-bracing that suggests this entire structure is under constant, immense tension. They must extend kilometers upward. The platforms themselves—and now you notice there are other platforms, visible only as dark geometric shapes in the mist, above and below—suggest a vertical city of sorts, stacked at intervals up the cables like beads on strings.
+
+The metal is dying. Not quickly—this is a young structure still, recently emerged from its manufacturing phase, the erosion still in its first aggressive decades—but you can see the corrosion pattern. Where water contacts the iron, a rust-bloom spreads like cancer, eating inward. The engineers have tried to fight it: sections of the platform are wrapped in plastic sheeting, patched with what looks like concrete that's already separating. One entire corner platform is missing, leaving only the cable-anchors, and the metal here is darker, more compromised, suggesting a failure rather than deliberate removal. The edges of everything are *sharp*—the breaks in the corroding metal form knife-edges because there's been no weathering, no tumbling through seasons, no time for the world to soften its violence. This place is sharp with newness despite its corruption.
+
+Industrial structures are scattered across the visible platforms: condensers, perhaps, or heat-exchangers—great ribbed rectangles of metal pipe work, algae-like in their density but rigid and purpose-built. A control station, all windows and antenna arrays, sits on the platform directly above your current position, its glass so fogged that you can't see inside, though you can see movement: human-shaped shadows moving behind the condensation. Small structures—maintenance sheds, probably—dot the platforms at irregular intervals. One is clearly abandoned, its door hanging open, interior a void of darkness. Another still shows signs of habitation: a faint glow from a porthole window, a thin line of smoke somehow climbing the mist despite the pressure.
+
+The fauna emerge slowly into perception. They are *not* the expected things.
+
+At first you think the movement is just water-turbulence, distortion in the mist. But no: there are *creatures* here, and they are abundant, and they move through the water and mist with a terrible adaptive perfection. They have no names you could pronounce, but you can observe:
+
+Pale, elongated things, translucent in the way of deep-sea creatures, with bioluminescent organs that pulse in colors that don't quite exist on land—a blue so deep it's almost ultraviolet, a green that might be in the infrared. They move with undulating grace through the water below the platforms, gathering in clusters around the pump intakes, where the suction pulls nutrients, or debris, or the processed output of whatever industrial process runs here. Their bodies are thin as ribbon, some extending three or four meters in length, with sensing organs—barbels, antennae, crystalline protrusions—that sample the water constantly.
+
+Smaller things too: spherical, gelatinous, existing in the water-saturated mist in a state that's neither fully aquatic nor aerial. They pulse rhythmically, moving in coordinated schools, their collective pattern suggesting either a hive-mind or an incredibly sophisticated predator-prey relationship. When they pass near the platform, you can hear the subtle clicking they make—communication or echolocation.
+
+And larger. Beneath the deepest platform you can see, moving with the slow, deliberate pace of something massive and old, a shape that might be a creature or might be a geological feature of the submerged world. It's difficult to determine its true form because it moves so slowly that your eyes struggle to parse movement over the seconds it takes to shift position. It seems to be *filtering* the water somehow, its body moving in a pattern that pulls liquid through structures you can't quite resolve at this distance. You suspect it's enormous. You suspect it may never leave the depths below this entire platform complex.
+
+The rules of this place are becoming apparent:
+
+*First*: water moves upward. The pumps make this clear. Seawater, drawn from depths, pushed through channels and conduits toward some goal higher than this, higher than visibility allows. It's a continuous process, unwavering, part of the structure's fundamental function.
+
+*Second*: the mist is neither weather nor accident—it's exhaust. As the water is pumped upward, something changes it. Cools it. Treats it. And the byproduct is released as vapor that rises and creates the permanent saturation you're standing within. This isn't a storm passing through; it's the steady state of industrial process meeting cold air at extreme altitude.
+
+*Third*: life here has adapted to the margins. The creatures visible are all specialist extremophiles—things that live in the high-pressure, high-salinity, chemically altered water produced by whatever machinery runs the pumps. They've found an ecological niche in contamination. They're *abundant* because the industrial processes create the exact conditions they need: pressure, strange chemistry, constant disturbance that prevents competing ecosystems from establishing.
+
+*Fourth*: nothing here grows. There's no plant life, no fungi, no algae except whatever exists in the engineered water itself. This is a place of minerals and machines and creatures that exist only because of the machines. If the pumps stopped, everything would die within hours. This is a constructed world, held in existence only by continuous industrial exertion.
+
+*Fifth*: time doesn't move here the way it does elsewhere. The structure is young—decades old at most—yet already deeply corroded. The mechanisms repeat their cycles in perfect equilibrium. The creatures live in constant adaptation to a stable abnormality. There is no seasonality, no growth, no decay in the traditional sense. Only erosion and exhaustion and the continuation of process.
+
+The sky, to the extent one exists, is made of water. The ground, to the extent one exists, is more water. And between them, suspended on cables of rusting metal, is a chain of platforms that represents someone's attempt to *do something* in a space that nature had already claimed entirely for its own.
+
+You don't know what the ultimate purpose is. But you know it's vast. You know it's failing. And you know that in this place of cold and pressure and unending sound, something about the fundamental relationship between water, industry, and life has been rewritten.
+
+The mist moves against your face. The cables sing with tension. The pumps continue their rhythm, unwavering, deafening, pulling water upward into the gray.

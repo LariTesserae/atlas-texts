@@ -1,0 +1,19 @@
+In this place, the world is a hollow, wet machine that has forgotten its purpose but never ceased its motion.
+
+You are standing inside a vessel so vast it has its own horizon, yet the scale is deceptively intimate; you are tucked into a service niche, a small architectural pocket where the heavy industrial curves of the architecture press inward. Here, there is no dirt. There is no stone. The ground is a floor of perforated brass and oxidized copper, worn so thin by the passage of eons and the friction of water that it has reached a state of primordial smoothness. 
+
+This is the end-state of a built world. The erosion is absolute; every sharp corner of the original machinery has been rounded into a soft, organic bulbousness by a trillion cycles of condensation and vibration. The metal does not rust—it pales and thins, becoming like antique vellum.
+
+The environment is saturated. The air is more than humid; it is a suspended lake, a constant, condensing mist that clings to the warm metal walls and drips in rhythmic, heavy chords. Water is the primary inhabitant. It does not flow so much as it occupies. It wells up through the floor grates, pools in the shallow depressions of the ancient brass basins, and weeps from the overhead conduits in thick, silver strings.
+
+But the defining characteristic of this landscape is not the sight, but the sound. It is deafening.
+
+The space is a resonance chamber for a colossal, unseen engine. The noise is a singular, unchanging roar—a deep-bore industrial drone that vibrates the marrow of your bones. It is the sound of a thousand turbines spinning in a vacuum, layered with the percussive, metallic screaming of steam trapped in infinite pipes. Because the dynamic of the world is fixed at a perpetual equilibrium, the sound never wavers. It is a solid wall of noise, a tectonic hum that has become the atmospheric baseline. You do not hear it with your ears so much as your entire skin surface.
+
+Despite the roar and the relentless water, the place is lush. In the absence of soil, a specialized, technophilic flora has claimed the machine. Thick, translucent mosses, the color of bruised emeralds, carpet the copper catwalks. Fern-like structures with leaves like hammered tin sprout from the joints of the plumbing, their roots digging into the microscopic fissures of the metal. These plants are succulent, heavy with the recycled warmth of the internal heaters, thriving in the "normal" light—a sourceless, steady glow that emanates from recessed filaments behind frosted, salt-crusted glass.
+
+The density of the place is unnerving. While the architecture is massive, the actual presence of *things* is sparse. There are vast, empty volumes of mist between one heavy gear-housing and the next. It is a hollowed-out world, a ghost-factory where the only "fauna" might be a rare, pale crustacean skittering through a flooded conduit, or a singular, heavy-winged moth adapted to the vibration, clinging to a warm pipe.
+
+Everything here is total. There is no "outside." If you were to walk for miles, you would find only more copper valleys, more brass plains, more weeping valves. It is an ancient, industrial wetland. Time has stopped here, not because movement has ceased, but because the movement has become so perfectly repetitive that it acts as a form of stillness. 
+
+The heat is steady—a muggy, mechanical warmth, like the breath of a large animal. You sit in this small, hidden pocket of the machine, watching the water bead on a velvet-soft leaf of moss, as the world screams its unchanging, industrial song into the mist. It is a stable, drowned civilization of one, where the only rule is the persistence of the hum.

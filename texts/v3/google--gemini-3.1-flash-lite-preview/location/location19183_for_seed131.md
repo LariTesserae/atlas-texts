@@ -1,0 +1,15 @@
+The space is a colossal, subterranean pipe, or perhaps a series of interconnected hexagonal conduits, stretched to an impossible, horizonless length. It is a humid, artificial gut, a place of infinite "underneath."
+
+Everything here is built. There is no raw earth, no stone, no sky. The surfaces are composed of heavy, molded industrial polymers and riveted iron plates, aged to a state of primordial stability. The erosion parameter here is a triumph of time; the metal has been scoured clean by eons of pressurized condensation, worn down not into dust, but into a smooth, featureless fatigue. Every surface is curved, softened by mineral-rich moisture that beads and runs in constant, rhythmic trickles.
+
+The atmosphere is thick, warm, and heavy with the smell of warm oil and ionized rain. It is a pocket of pressurized, eternal afternoon.
+
+The most striking aspect of this place is the sound. It is a singular, thundering roar—the collective, unchanging output of millions of hidden pistons and turbines grinding in a constant state of equilibrium. It is a wall of white noise, a deafening mechanical heartbeat that obliterates the possibility of interior thought. It is loud enough to vibrate the skin, yet because the environment never changes, the sound possesses a terrifying, hypnotic comfort. It is the sound of a system that finished its task a million years ago and simply refused to stop.
+
+Lush, bioluminescent ferns—thick-leafed and oily—grow directly out of the rivet joints and the seams of the conduits. These plants have no soil; they draw their entire existence from the weeping moisture that seeps from the pressurized walls. They are the only living things here, dark, glossy, and indifferent. They cluster in the recesses of the conduits, creating small, vibrant, green pockets in an otherwise monochromatic tunnel of oxidized grey and copper-tinged black.
+
+The density is hauntingly low. The space is vast—a cathedral of piping—but it is empty. You could walk for days through these humid corridors without seeing anything other than the rhythmic dripping of water and the swaying of the ferns in the warm, recycled air currents. There are no creatures here. Occasionally, a single, metallic-winged insect, a relic of the original factory ecosystem, might flutter from a shadowed vent, but it is an anomaly rather than a resident.
+
+There is no sense of progress in this landscape. The pipes do not lead to a conclusion; the engines operate at a set frequency that has never fluctuated; the water condenses and drips in a loop that has no beginning. Time has been eroded away along with the sharp edges of the iron. You are standing inside a fully-constructed, industrial relic, an ancient machine that has become a forest, occupying a space that is both infinitesimally small in its purpose and infinitely long in its existence.
+
+It is a world of total fabrication, a masterpiece of engineering that has outlived its masters and its purpose, maintaining its own pulse, its own moisture, and its own eternal, deafening roar, suspended forever in a state of perfect, unchanging work.

@@ -1,0 +1,11 @@
+The place is a hidden landscape, nestled beneath the surface of the planet. Water can be scarce, with only the occasional oasis or underground river dotting the landscape. Despite the lack of water, the vegetation is surprisingly lush, with vibrant green plants and leafy trees thriving in the warm and humid atmosphere. The temperature is warm, but not unbearable, making it a comfortable environment for those who live here.
+
+The elevation is low, with much of the landscape being below the surface. As a result, erosion is minimal but there are still signs of it in the form of sharp features and fresh formations. Despite being hidden, the landscape is still relatively small, confined to a pocket-scale. This gives it a sense of intimacy and a feeling of being protected from the outside world.
+
+The density of the landscape is sparse, with plenty of space between the presences that roam the area. This gives a sense of balance and emptiness, allowing the few structures that have been built to stand out. These structures are scattered throughout the landscape, small and delicate remnants of a once-great civilization.
+
+Despite its primitive technology, the landscape still holds some bizarre and unusual elements. The light is dim, but not completely dark, casting a strange glow over the landscape. The fauna is abundant and diverse, with a myriad of strange and unusual creatures making their home here. Their sounds can be heard echoing through the landscape, creating a loud and dynamic environment.
+
+But what makes this landscape truly strange and unique is the ever-present sense of weirdness that permeates the area. It's as if the landscape itself is alive and constantly changing, with new features and creatures appearing and disappearing at will. And yet, there's a sense of stability and equilibrium that keeps everything in check.
+
+Despite its hidden and isolated nature, this landscape is a thriving and vibrant place, teeming with life and buzzing with strange energies. It's a place unlike any other, and those lucky enough to discover it will find themselves forever changed by its mystique and wonder.

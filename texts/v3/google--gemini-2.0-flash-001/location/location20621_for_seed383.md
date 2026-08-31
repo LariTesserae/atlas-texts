@@ -1,0 +1,19 @@
+The Great Cistern is not silent, but the sounds it makes are those that exist in counterpoint to silence, the way that moss exists in counterpoint to stone. The drip...drip...drip of condensation from the unseen ceiling far, far above. Whispers of water sloshing in the unseen depths, carried up through narrow, unlit channels. The almost-imperceptible scrabbling of claws on slick rock.
+
+Bright, diffuse light leaks in from somewhere – maybe a single entrance far above, or perhaps woven throughout the immense structure itself. It's difficult to tell. The light reflects in a hundred subtle shades from the damp, algae-slicked stone. Green and grey dominate, but there are flashes of metallic ochre and rust-red where the damp has leached minerals from the ancient stonework.
+
+This is a city, built downwards. Imagine a lake drained, and the lakebed then hollowed out, not into clean lines, but into spiraling, organic forms. Terraces cascade down, levels linked by narrow, twisting stairways carved directly into the stone. Entire sections of the walls have been expanded into crude, ad-hoc living spaces, their construction integrated so completely with the original stonework as to be almost indistinguishable. These are not ruins; they are living spaces. The Cistern teems with life.
+
+The fauna is the key to the weirdness. Millipede-like creatures, scaled and armored, crawl along the walls, their countless legs clicking softly. Bioluminescent fungi grow where the moisture is thickest, casting an ethereal glow on segments of their carapaces. These are the scavengers, the engineers, the builders. They excrete some form of cohesive, almost mortar-like substance that they use to maintain the Cistern walls. Generations of work have expanded the tunnels, built new levels, shored up weaknesses and created a complex, interdependent ecosystem.
+
+Larger, centipede-like forms patrol the stairways, their mandibles clicking in a rhythmic, almost musical way. Their function is never clear – are they guards? Are they simply moving resources from one level to another? The overall impression is of a society organized along simple, almost instinctual lines, yet capable of remarkable feats of engineering.
+
+And then there are the *Takers*.
+
+They are the most turbulent aspect of the Cistern, the factor that keeps it from settling into perfect equilibrium. Some say they were once part of the millipede society but now, they are separate and predatory. They are larger, even more heavily armored, and possess a primitive cunning. They patrol the depths in small groups, carrying simple tools crafted from sharpened stone and scavenged metal: picks, prybars, and crude bludgeons.
+
+The *Takers* are obsessed with expanding their territory. They break off sections of fungus-covered walls, pilfer the communal stores of mortar, and occasionally, they engage in brutal territory fights against rival groups. The Cistern is their battleground; they constantly reshape it around their needs.
+
+The dampness creates an eerie atmosphere. The air hangs heavy, thick with the scent of algae, minerals, and something else indefinable - a faint, almost metallic tang that clings to the back of your throat. Light, though bright, casts long, distorted shadows that dance with the movements of the millipedes. Vision is limited to the immediate surroundings because everything beyond it is lost in the gloom.
+
+Beneath all this, unseen and felt only as a barely perceptible vibration, is the true heart of the Cistern: the water. The place is never static. Walls shift. Floors crumble. Entire sections collapse with a low, rumbling sigh, only to be slowly reclaimed by the insects and their relentless labor. The Great Cistern lives and breathes, a teeming ecosystem sustained by unseen water and a constant, chaotic struggle for survival.

@@ -1,0 +1,7 @@
+**The First Clutch**
+
+Beneath a dry outer world, where stone lies close under a thin skin of gravel and cracked earth, there is a hidden pocket no larger than an intimate room. It is below the surface, but not deep: a swelling in the bedrock, a rounded hollow pressed between harder layers, reached only by a fissure so narrow that one must turn sideways and lower the shoulders to enter. Outside is a greater dryness. Inside is a damp, bright, crowded stillness.
+
+The chamber feels less like a cave than like the inside of a seed. The walls curve inward with a closed, womb-like intimacy. There is no long passage, no vista, no branching dark. The space is contained, single-featured, almost clenched around itself. Everything is near. The ceiling is low enough to press against the imagination if not the body. The floor, if it can be called a floor, is a shallow basin of uneven mineral surfaces, little hollows, raised lips, and living bodies packed so closely that no patch of empty stone remains visible for long.
+
+The geology is raw and embryonic. Nothing here has been worn into smooth maturity. The rock looks newly parted, freshly exposed, still holding the sharp memory of fracture. There are angles not yet softened, mineral faces not yet rounded, crusts no thicker than a fingernail, and tiny calcite buds that resemble the first beginnings of stalactites but never lengthen. The walls are pale carbonate streaked with darker unweather

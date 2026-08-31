@@ -1,0 +1,17 @@
+In the dimly lit subterranean chamber, a bewildering scene unfolds. Contrasted against the rough-hewn cavern walls, a gleaming, angular structure rises from the damp earth - an immense contraption of interlocking gears, pipes, pistons, and cages. It is an almost organic-looking thing, yet clearly the work of artifice. Rusted yet still whirring, it exudes an aura of long-abandoned industry.
+
+Scattered around its massive base are shallow pools - not of water, but viscous liquids in muted hues of green and blue. They bubble and emit a pungent admixure of chemical and organic vapors. The sharp stench hangs heavy and brackish in the air above an undergrowth of pallid fungi and atrophied moss - the only vegetation to be found in this cold, dimly lit subterranean pocket.
+
+Occasionally, a distended drop of condensation will detach from the dank cavern ceiling, splattering into one of the bubbling pools with a sullen plop, sending artificial ripples through the noxious surface. Otherwise the only movement in this strange environment is the sporadic, arrhythmic shuddering of the vast machinery itself, occasionally punctuated by an expulsion of pressurized steam from ancient pipes or a rasp of metal against rusted metal as a strut shifts and shakes.
+
+Dusts and fine powders coat every surface in a grimy film that holds the petrified imprints of long-ago industry - drill marks, dents, scuffs, arcane sigils etched into dubious material, signs of welding and soldering. Everywhere, efficiency and productivity has given way to stasis and decay, leaving uncertain the purpose of this deepwarren of tubes and gears. What was it manufacturing? Processing? Its purpose is inscrutable and perturbing.
+
+Bulbous growths sprout from the seams of this mechanical contaminant - fleshy and palpitating, varicolored and pulsing with orange bioluminescence. It's only perceptible movement besides the hypnotic whirring of gears and sibilant hiss of pipes is a slow, tidal pulsing and clenching, almost like breathing.
+
+The air is thick with the reek of what could be called algae or mold, hard to discern from machine ooze. It carries through the claggy, humidity-laden air a payload of oddly moving motes. If one were to peer close upon them, they could swear they see wriggling blips of self-directed motion among the suspended particles. Uncanny.
+
+Dendritic networks of capillaries are etched into the fuzzy boundary between organic and mechanical growths - no way to say if the metal is growing fibers of tissue or if alien vines are attempting to insinuate themselves into the joins of seal and bolt. It's as if some process was attempting to achieve a decaying synergy between creature and device, already well advanced in the work.
+
+A hiss of steam. A tick and boom of settling metal. The chamber holds a patient, expectant stillness as if it awaited something or someone. Staleakovskian Ostalgie pervades the scene - that impossible city springing to fruition along the banks of enslaved river, all industrial chimneys and scavenged scrap.
+
+Verbose molding. Heaped hunks of unclassifiable machining - maybe unfinished, maybe abandoned, maybe half-digested. Micro-niche biota suspended in the air and the fluids. Rust and corrosion in remission. Patina of octopus-growth on every surface. Turpitude. Left alone to run itself down. Waiting in the gloaming.

@@ -1,0 +1,41 @@
+# The Glass Hearth
+
+You descend not by stairs, but by a gradual, damp slope of polished black stone that seems to absorb the weak, sourceless light. The air is thick and warm, a constant 40°C (104°F) of wet heat that clings to the skin and beads on the brow, yet the illumination is a perpetual twilight. This is the core paradox: a furnace hidden in a cave.
+
+**Terrain & Materials:**  
+You are in a single, vaulted chamber—what the scale suggests is a cathedral-sized grove. The ceiling is lost in gloom, but the floor is a complex mosaic of materials, all worn smooth by the *established erosion*. There are broad, flat plates of fused black glass, like cooled lava flows, interlaced with veins of a pale, porous yellow stone that sweats condensation. In other places, the floor is a trampled carpet of a rubbery, violet moss that gives slightly underfoot. The boundaries are not walls, but a gradual thickening of the environment: the dense clusters of vegetation become impenetrable, the industrial fixtures become more frequent and massive, until passage is impossible.
+
+The dominant material is **glass**, but not human-made. It is a natural, fibrous glass that grows in stalactites and sheets, often fused with metal. Struts of corroded, teal-painted iron are encased in translucent green glass that pulses with a faint internal light. Pipes of a dull, lead-free alloy snake along the ground and up into the vegetation, humming.
+
+**Vegetation (Lush, 1.6/3):**  
+The "forest" is not made of wood. It is a **hyper-dense, layered biome** of silicaceous and fungal life. Towering, trunk-like forms are actually hollow glass tubes lined with a spongy, golden lichen that filters minerals from the dripping air. Great, fan-shaped leaves of a stiff, translucent parchment hang heavy with condensation, overlapping so completely that they form a secondary canopy just above head height. Below this, a jungle of wiry, red vines that conduct a slow, visible current of electricity (the *industrial* thread made biological) coils around everything. The *density* is overwhelming—to move, you must push aside leaves that feel like wet velvet over ceramic, and step over root-systems that are more tangled than any thicket. There is no soil; everything grows from the mineral surfaces, fed by the constant damp.
+
+**Water (Damp, 0.8/3):**  
+There are no rivers. Water is a **precipitation event in constant micro-state**. It weeps from the ceiling in a slow, uneven drizzle, collects in the depressions of the glass plates, and evaporates almost instantly in the heat, only to condense again on cooler surfaces. You are never dry, but you are never standing in a pool. The sound is a million separate *plinks* and *drips*, a statistical shimmer rather than a rhythm.
+
+**Atmosphere & Sensory Overload:**  
+The **temperature is a physical weight**. It is the heat of a boiler room, but without the dryness; it is the humid heat of a tropical swamp, but without the sun. The **light is dim (1.1/3)**, a general phosphorescent glow that seems to emanate from the glass itself and the lichen, casting everything in a flat, green-tinged shadowless light. Shadows are absent; you see by a uniform, sourceless luminance.
+
+The **sound (1.9/3) is the defining feature**. It is a **deep, subsonic thrum** that you feel in your bones before you hear it. It is the sound of the world’s slow heart. Layered over it are: the high, tinny *pings* of contracting glass, the steady **hiss and clank of steam** from unseen vents, the electric crackle of the vines, and the constant, low roar of air moving through vast, hidden ducts—the *industrial* breath of the place. It is not chaotic; it is a **complex, sustained chord** of mechanical and geological noise.
+
+**Built & Industrial (Scattered, 1.2/3 & Industrial, 1.5/3):**  
+The human (or post-human) mark is not in ruins, but in **symbiosis**. Scattered throughout the forest are **engine cores**—massive, bell-shaped structures of riveted copper and ceramic, humming at the heart of the thrum. They are not abandoned; they are *integrated*. Roots of the glass-trees have split their casings and grown through their works. Wires made of braided fungus connect their terminals to the living vines. They are not powered; they *are* the power source, and the forest is their cooling system and their fuel. There are no control rooms, just occasional **consoles**—slabs of a strange, self-healing polymer set into the glass, covered in unreadable symbols that glow with the same green as the lichen. They are active. They are monitoring something.
+
+**Fauna (None, 0.2/3):**  
+There is absolutely no animal life. No birds, no insects, no rodents. The silence of creatures is absolute. This emptiness is what makes the place so profoundly eerie. The forest feels un-consumed, un-trodden, un-breathed-in by any animal breath. The only "life" is the vegetation and the machines, and the boundary between them is porous.
+
+**Weirdness (2.3/3):**  
+This is the place’s true nature. The **physical rules are suggestions**. 
+- The heat has no source you can locate; it is just *there*.
+- The glass sometimes shows you reflections of things that aren’t there—brief, ghostly images of the chamber empty, or filled with different plants, or of the engines pristine and new. Time is not linear here; the erosion is a result of *all* ages acting at once.
+- The density plays tricks. You can see clear paths between glass trunks, but when you try to walk them, you find yourself turned around, the vegetation having subtly reconfigures. The chamber feels larger than its physical boundaries (*scale* of a grove but *feeling* of a world).
+- The water, when collected, is not H₂O. It is a slightly conductive, faintly sweet gel that lingers on the skin.
+- The slow dynamic (1.3/3) is not just about plant growth. It is about **continental-scale patience**. The engines creak as they turn a single degree over a century. The glass trees grow a millimeter per decade. The air currents shift over millennia. Your own movements feel like violent, frantic bursts in a world of glacial process.
+
+**Ecology & Rules:**  
+The system is a **perfect, closed loop**. The engines generate heat and a specific frequency of vibration. The glass flora is tuned to resonate with it, converting the vibrational energy into growth and bioluminescence. The condensation provides the medium. The vines conduct the excess energy back to the engines in a slow, perpetual current. It is a **self-sustaining industrial ecosystem**. There is no waste. There is no outside. The only "rule" is balance. Disrupt one element—break a pipe, crush a lichen patch—and the thrum falters, the heat drops in a localized shiver, and for centuries, a section of the forest will wither and die in a slow, silent protest.
+
+**The Unfolding Place:**  
+As you stand in the sourceless, humming dimness, the first thing you notice is the **oppressive, lush silence of fauna**. Then the **all-encompassing sound** washes over you, vibrating your ribs. Then the **heat and wet** claim your body. Then your eyes adjust to the **green gloom** and you see the **layered density**—the moss underfoot, the vines at knee-height, the leaves at eye-level, the glass trunks rising into nothing, the engines half-swallowed by it all. A **drop of the sweet gel** falls onto your neck. A **console** a few meters away suddenly emits a soft pulse of light, though you did not touch it. The air **shimmers**, and for a second, you see a ghostly image of the same spot, but with a different, more angular engine design. Then it’s gone.
+
+You are not in a forest. You are not in a factory. You are in the **stomach of a world that learned to digest its own industry**, where the machines grew roots and the roots grew gears, and the only law is the slow, inexorable hum of a process so deep and patient it has forgotten it was ever meant to make anything. The weirdness is not an add-on; it is the operating system. The place is not strange *despite* its lushness and industry—it is strange *because* they are one and the same, breathing in a rhythm too slow for a human heart to follow.

@@ -1,0 +1,23 @@
+The dark is heavy but not empty: it is packed.  
+
+You are in a pocket beneath the world, a vaulted room the size of a cathedral nave carved not by water but by patient subtraction, then refilled with fabrication. The floor is a continuous skin of vitrified slag, glass-smooth in places, puckered into stalagmite-like bosses elsewhere, each boss pierced by hairline vents that exhale a warm, mineral breath. Walls rise not as stone but as layered masonry of oxidized pipe-coils, stamped alloy plates, and ceramic tiles the color of dried blood. The ceiling is lost above a canopy of conduits—braided, braided, braided—so dense their crossings make a second, lower ceiling you can reach up and touch with the flat of your hand.  
+
+Everything is built; nothing here is substrate. Even the damp is manufactured. Condensation beads on cold-facing surfaces where thermal gradients have been tuned like clockwork. Rivulets trace glyphs in the glass floor, gather in shallow basins that are themselves components—catchment eyes that feed return lines. The water is a visitor, not a resident: occasional, deliberate, kept on a leash of temperature and tilt.  
+
+Heat pools at ankle level and climbs in gradients toward the overhead thicket of machinery. Somewhere out of sight, a furnace bank sighs, expanding metal with a sound like a held breath released. The air smells of hot oil, iron rust, and the faint sweet-salt of old sweat leached into walls. Light is surrendered; the space relies on phosphor-lined edges, gauges with radium-dial patience, and the occasional dull bloom of a pilot lamp. Vision shrinks to what the surfaces consent to give back.  
+
+Vegetation is a rumor. A few sealed biopods set into the masonry hold pale filaments that twitch when humidity spikes—engineered moss, kept as much for memory as for filtration. They do not grow so much as persist, their slow pulses marking time in days rather than hours.  
+
+Fauna is rarer still: maintenance drones the size of beetles, their casings scarred by decades of passage, following magnetic seams in the floor. Sometimes a lone worker in a climate suit appears, a silhouette that speaks little, oils things, moves on. Their voices, when they come, are swallowed by density.  
+
+The sound is mostly quiet, but quiet here is textured. There is the low arithmetic of pumps, the skitter of particulate settling, the groan of a flange cooling after a cycle, the almost musical ping of droplets hitting hot metal far above. These sounds accumulate in layers rather than competing, forming a hum that feels less like noise than like the room’s inner speech.  
+
+Erosion has had time to find its balance. Surfaces wear where sleeves of air move, polishing channels into alloy, rounding corners into soft concave curves. Nothing collapses; the place has learned which parts to sacrifice. Patinas bloom in slow frescoes—sulfur yellows, oxide blacks, salt-crust whites—mapmaking without cartographers.  
+
+Weirdness is subtle and structural. A corridor may curve slightly more than necessary to accommodate a machine whose purpose was forgotten but whose rhythm remains vital. Certain conduits thrum in sympathy when the heat climbs above a threshold, producing chords that are not musical but *correct*, as if the place tunes itself. Gravity feels fractionally local, as though mass has learned to defer to density.  
+
+Rules of this world: keep the gradients shallow, the cycles long. Change only by consent of the material. Water is a loan, not a right. Heat is a currency, spent deliberately. Maintenance is not repair but conversation. To stand still too long is to become part of the pattern; the floor remembers pressure and will, over months, cast your shape in a film of dust and oil.  
+
+Boundaries are clear but porous. Arches lead to other chambers, smaller rooms where density ratchets higher still—storerooms, sub-basements, reliquaries for decommissioned parts. Each room holds its own microclimate, its own slow argument with heat and damp. Together they compose a hamlet-scale territory that feels vast because of closeness rather than distance.  
+
+In the deepest quiet, when all the pilot lamps dim in sequence for reasons no logbook confesses, the place exhales. The condensates run together, tracing new maps on the glass. The heat sags, gently, like a curtain settling. And for a moment the distinction between machine and habitat disappears, leaving only a dense, hot, living dark that knows it will not be empty for long.

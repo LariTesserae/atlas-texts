@@ -1,0 +1,25 @@
+The place has no true ground.
+
+Instead it has a living roof that has become the floor, and then another living roof far above that, and then another. The world is a vast, hollowed cathedral of interwoven vegetation, grown so ancient and so enormous that it has achieved its own geology. You walk—if “walk” is the word—upon the upper surface of a single leaf the size of a mountain range. Its veins are ridged like basalt dikes; its surface is a soft, damp felt that exhales mist with every footfall. Water is everywhere and nowhere: it beads on every surface, runs in hair-thin gutters along leaf-scales, drips from the undersides of colossal fronds hanging hundreds of meters overhead like green chandeliers. The air itself is wet enough to drink. Condensation gathers on your skin faster than it can evaporate.
+
+Everything is constructed.
+
+There is no mineral substrate left. Stone, if it ever existed here, was devoured or encased so long ago that its memory has been edited out of the biome. Every surface, every wall, every column, every floating island is living plant matter—yet it has been shaped with obsessive, patient craft. The primitive inhabitants (who are almost never seen) have spent uncountable generations guiding, pruning, grafting, and hollowing. They do not build atop the vegetation; they negotiate with it until the vegetation itself becomes architecture. Great helical staircases have been grown from braided lianas. Cathedrals of folded palm hearts stand with ribs and buttresses that still flower once every few centuries. Bridges of living root span the abyssal gaps between leaf-continents. Every shape is both intentional and inevitable, the way a bonsai is both sculpture and tree.
+
+The scale is continental, yet the density is almost nothing. You can stand at the edge of one titanic leaf and look across kilometers of warm, dim, dripping emptiness to the next living landmass. Between them hang curtains of aerial roots like silent waterfalls that never reach bottom. Strange, slow clouds—actually colonies of floating moss and epiphytic lichen—drift through the voids, lit from within by colonies of bioluminescent fungi that give off the color of old ivory. The atmosphere itself seems to condense into these drifting masses, as if the air is trying to become solid.
+
+Light is perpetual dusk. A weak, diffuse amber glow filters from some unimaginable source far above the highest canopy layer. It feels less like sunlight and more like the memory of sunlight that the plants have agreed to remember. In the deeper vaults below the leaf you stand on, the light is the color of weak tea and almost gone; only the occasional pulse of foxfire or the soft internal glow of translucent succulent walls gives any orientation.
+
+The silence is not empty. It is listening.
+
+You hear your own blood. You hear the wet click of water droplets detaching from leaf-edges kilometers away. Occasionally a vast, vegetable groan travels through the structure as some continent-sized stem slowly shifts its weight. Sometimes there is a sound like distant, mournful woodwinds—wind moving through hollowed petioles the size of cathedral pipes. The fauna is abundant but discreet. Things that are mostly wing and almost no body skate between the hanging roots. Herds of translucent, many-legged browsers the color of wet jade move across the felted plains in total silence, their mouths full of symbiotic molds. Predators exist that resemble bundles of animated moss until they move. Everything hunts and is hunted with vegetal patience; nothing is in a hurry. Life here has learned the tempo of stone.
+
+Reality is tired.
+
+In certain places the rules have worn thin. You will cross a seam where gravity gently forgets which way it is supposed to work and you find yourself walking sideways along the underside of a leaf the size of Ireland while water falls *upward* into the sky-roof. In other zones time seems to pool; a single drop of condensation can take an hour to fall a meter. There are hollows where color drains away completely, leaving only greens so deep they become black, and places where the plants grow in the shape of memories that do not belong to any mind currently alive. The longer you stay, the more you begin to suspect the entire structure is one continuous organism that has learned to dream it is many, and that the “builders” were simply earlier expressions of its own will to architecture.
+
+Everything is in balance, yet everything is moving. Leaves the size of cities slowly rise or fall over decades as internal pressure and water weight shift. New vaults are grown, old ones are deliberately collapsed and recycled. The ecosystem is a slow, deliberate, planetary-scale metabolism exchanging mist for flesh for architecture for mist again.
+
+You are inside an ancient, warm, dripping, living cathedral that has achieved continental scale and has not finished praying. The prayer is the building. The building is the prayer. There is no outside.
+
+Only deeper in.

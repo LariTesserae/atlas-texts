@@ -1,0 +1,21 @@
+# Dockside District in the Twilight Hours
+
+The light fails early in this low-lying district, where the city stretches out across a series of shallow, interconnected lagoons. Clouds hang perpetually low, their bellies grazing the highest of the weathered brick smokestacks. The air is cool and heavy with moisture that never quite commits to being rain—instead it beads on every surface, runs in rivulets down tarnished copper gutters, and collects in pools atop canvas awnings stretched between buildings.
+
+Buildings rise from the shallow waters on stilts of time-smoothed stone and barnacle-crusted pilings. They crowd together in clusters of slate-roofed tenements and warehouses, their facades muted in grays and moss-tinged greens. Between these islands of construction run canals of varying widths—some mere alleyways where two small boats must negotiate passage, others broad enough for the coal barges that lumber through with metronomic regularity.
+
+The water itself is neither clean nor particularly foul—a working water, industrial and practical. Its surface ripples constantly with the movement beneath: currents shifting, the wake of boats, and occasionally the bubbles of the gas that sometimes rises from the silt-heavy bottom. The canals breathe like living things, sometimes withdrawing to expose mudflats littered with the detritus of urban life, sometimes swelling to lap at doorsteps.
+
+Despite the sprawling nature of this district, there is a peculiar emptiness to it. People exist here, certainly—you can see their lights in windows, hear the occasional muffled conversation, glimpse their silhouettes as they cross between buildings on arched footbridges—but they seem to move with purpose and disappear quickly. The broad plazas that occasionally open up between buildings stand largely vacant, their cobblestones slick with moisture.
+
+The dominant sound is water: dripping, flowing, lapping, occasionally churning as one of the mechanical paddle-wheels turns at a canal junction. Beneath this liquid symphony runs the more mechanical rhythm of the district—the distant hum of generators, the muted clanking from the factory quarter, the hiss of steam escaping through valves. These sounds never rise to cacophony but maintain a constant presence, like the city's pulse.
+
+What fauna exists keeps largely to itself. Gulls wheel occasionally overhead but rarely call. Sleek rats move purposefully along ledges. Fish are present but unseen beneath the murky surface. Sometimes at dusk, bats emerge from under the eaves of older buildings to dart among the wires strung between structures.
+
+The district's life is in its constant motion—not the motion of people but of systems. The network of pneumatic tubes that run along buildings, carrying messages and small parcels. The mechanical locks that periodically open and close, regulating water levels with a precision that seems to follow some complex algorithm. The small automatons that scuttle along the sides of buildings, maintaining cables and clearing gutters.
+
+Most dramatic is the tidal system—not natural but engineered generations ago and now running with the settled perfection of long-established technology. Several times daily, sluice gates open somewhere beyond the district's perimeter, and water surges through the canals with startling force. Buildings that appeared to sit comfortably above the waterline suddenly become islands in a much deeper channel. Floating platforms rise on their moorings. Bridges that seemed unnecessarily high suddenly make sense.
+
+Then, hours later, the process reverses. Water drains away with equal vigor, exposing mudflats and the lower portions of buildings stained with watermarks that tell the story of this endless cycle. As the water recedes, trap doors in building foundations open, and workers emerge briefly to collect whatever the tide has brought in before retreating back inside.
+
+This is not a place of dramatic weather or catastrophic change, but rather of relentless, organized turbulence—a city that has made peace with water not by resisting it but by incorporating its restlessness into the very fabric of daily life.

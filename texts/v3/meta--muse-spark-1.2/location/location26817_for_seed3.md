@@ -1,0 +1,47 @@
+The city was not built on the mountain. The city was built *with* the mountain, while the mountain was still being born.
+
+You come to it from below, and for a long time there is nothing to see at all. The air is cool enough to make your breath come short and white, thin at this height. The light never gets brighter than a deep blue dusk, even at noon. A sun exists somewhere above the cloud deck but it comes through diffuse and directionless, like light through frosted glass. No shadows are cast. Everything is lit from everywhere and nowhere at once, and the switch to night is not a darkening so much as a deepening of the blue to violet, to black.
+
+Then the peaks resolve.
+
+They are wrong. That's the first thing.
+
+This range should not exist. It is too young, too raw. These are not mountains worn smooth by time. They are embryonic, pre-erosion — a sudden upthrust of the planet's interior shoved into the sky all at once. Black basalt and pale, unoxidized granite rise in sheer, knife-edged plates and columns, splintered and glassy, without talus fans, without river valleys, without any of the softening that water does. The stone still has the conchoidal fracture pattern of fresh breakage. Edges so sharp they look like they would cut the clouds that snag on them. Between the plates are deep, rectilinear chasms where the rock simply separated, centimeter by centimeter, still separating — you can hear it if you stand still, a low groan of tectonics, too slow to be an event, too constant to be silence.
+
+And clinging to and between and across that impossible fresh geology is the town.
+
+It is undeniably urban. Not an outpost. Not a mine. A city scaled for hundreds of thousands, but distributed sparsely across a huge vertical geography — a valley and three interlocking ridges, perhaps twenty kilometers across in total. The density is startlingly low for how much has been built. There are blocks of six-story brick tenements and riveted iron manufactories dense enough to be Manchester, then a quarter-mile of absolutely nothing but bare new rock and wind, then another dense knot of streets, a cathedral of scaffolding, a market lit with hanging bulbs. The empty space is not parkland. It's just emptiness incorporated into the plan. The city leaves room.
+
+Because it has to. Because the ground it is built on is not done moving.
+
+The construction is layered and ceaseless but slow. Everything here operates on a patient, glacial gradient. Tower cranes swing a few degrees per hour. Concrete is poured and takes days to steam-cure in the cold. Factories run — that is the sound of the place — a low, loud, omnipresent industrial thrum: pistons, forges, stamping presses, turbines turning without hurry. Black smoke trickles, not billows, from a hundred stacks and hangs in the still, cold air, mixing with the cloud that is always half-present. Gears turn at walking speed. Conveyor belts carry ore at the pace of a funeral procession. You get the sense the entire city was designed to function at 0.25x speed, so that it does not tear itself apart as the mountain grows beneath it.
+
+Light is industrial here. Since the sun is dim, the city provides its own: amber sodium lamps along every gantry, white-hot arc lamps over foundry yards, greenish fluorescents in workshop windows, strings of bare bulbs marking pedestrian paths that traverse open air on suspension bridges. The light pools and does not carry far in the damp, particulate air. Beyond each pool is that blue gloom.
+
+It is a damp place, but not a wet one. There is no lake, no sea, no great river — there hasn't been time for rivers to carve. Water exists as intermittent gift. At dawn, condensation forms on every cold surface — on every girder, every basalt face, every leaf — and drips. For an hour the whole city ticks and drips with it, thousands of gallons condensing out of the cloud and falling. Pockets of water collect in the chasms, black and still, perfectly reflecting the lamps, holding for a few days until the rock shifts and they drain away through a new crack. Occasionally a true rain comes, vertical and cold, hammering for twenty minutes and then gone, leaving steam rising off the forges. The hydrology is temporary, pocketed, perched.
+
+Wherever that moisture lands, things grow with startling insistence. This should be alpine desert — too high, too cold, too dark, too new. Instead the vegetation is lush, almost tropical in its opportunism. Not a forest — there is no soil deep enough for that, and the city's sparsity breaks any continuity — but a furious vertical jungle of mosses, lichens, ferns, and something like ivy with leaves as broad as hands. It carpets every surface that is not actively hot or oiled. It hangs in curtains from the undersides of bridges. It has colonized the fresh basalt within months of exposure, softening the knife-edges with a thick, spongy green that drips constantly. In the emptiness between the dense urban knots, the green is the main occupant — meadows of frost-tolerant grass and bowing stands of black-barked pine that shouldn't be able to root but do, their roots finding purchase in hairline cracks and prying them wider.
+
+And the animals came with the green, or before it. They are abundant to the point of being the true population of the city.
+
+The sky between the peaks, in the dim, is full of them — flocks of birds like swifts but the size of hawks, with translucent skin through which you can see the glow of their organs, moving in perfectly synchronized spirals that never collide with the cranes despite the cranes' slow sweep. On the rock faces, herds of six-legged, shaggy grazers pick their way across vertical walls as if gravity were a suggestion, their wide, padded feet finding grip on the glassy stone, grazing on the moss. In the girders of the factories, something like raccoons but with compound eyes nests by the hundreds, chittering. The foundry workers leave out scraps for the cat-sized beetles whose carapaces clink against the catwalks, who have learned to eat coal dust. At night — in the deeper blue — you hear the fauna over the industry: calls, howls, trills, clicks, a dense biological chorus that does not seem to mind the hammering or the smoke at all. The city is sparse for people, but crowded for everything else. You can walk a street and see no other person for ten minutes, but you will have passed a thousand eyes.
+
+The weirdness is not a flavor. It is the rule.
+
+Here, reality is thin and has not learned to be consistent yet, or is being rewritten by the newness of the geology, or by the sheer weight of industry built on a place that hasn't decided what physics it prefers.
+
+Some instances:
+
+Distance is unreliable. You can see a tenement block two ridges over, perhaps a kilometer away, with its windows lit. You walk toward it across a bridge and it takes four hours. You walk back and it takes ten minutes. The chasms between the plates sometimes show, at their bottoms, not rock but the sky of another time of day, or the underside of another part of the city.
+
+Gravity has a wobble. On certain streets, dust falls sideways. Water drips up for a few seconds before correcting. The six-legged grazers are not defying gravity — they are using the local patches where gravity points into the cliff face.
+
+Sound arrives before it is made. You will hear the clang of a hammer, then a second later see the hammer fall. In the deepest chasms, your own breathing echoes back before you exhale.
+
+Structures duplicate when not observed directly. A particular water tower on the second ridge — riveted iron, rust-streaked — you will count three of them if you look at them in your peripheral vision while walking, but only one if you stare. Workers have learned not to stare at load-bearing joints.
+
+Despite this, people live here with a practiced, industrial normalcy. They wear heavy wool and canvas overalls, respirators when the forges are running. They maintain the slow machines. They scrape moss off the tracks each morning where it has regrown overnight, a foot thick. They trade in markets that are lit all day and night because the distinction hardly matters. They know not to build too rigidly — all architecture is jointed, flexing, on pistons and springs, ready for the next centimeter of uplift. Balconies are hung on chains. Doorframes are slightly trapezoidal to accommodate shear. A church near the center has been intentionally built with its steeple leaning, so that when the rock tilts it will become straight for a few years.
+
+No one seems to remember why the city was built here, on a range that did not exist a generation ago and is still emerging. Or perhaps the question doesn't occur to them. The mountain is coming into being, the city is coming into being with it, the moss and the herds and the flocks are coming into being with both. The process is slow, loud, damp, cold, dim, and terribly, abundantly alive. You can stand on a half-finished gantry in the blue light, with condensation dripping down your collar, with the thrum of a piston the size of a house shaking your ribs, with a flock of lit birds screaming overhead and a beetle the size of a dog watching you from a girder, and watch the rock itself, inch by inch, year by year, push up into a sky that sometimes isn't there.
+
+And you understand that erosion has not started here yet. Nothing has been taken away. Everything is still arriving.

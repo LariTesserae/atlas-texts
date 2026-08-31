@@ -1,0 +1,31 @@
+This is a hollow.
+
+Not a valley, exactly - it's too small and too contained for that word. A low place, set down a few meters from the surrounding plain. You don't see it until you are near its edge, because the land around it is flat and the lip of it is softened. Long weather has done that. The rim is not a cliff or a cut, but a rounded brow of earth where the grass thins and the soil shows through, compacted and pale.
+
+Inside, the hollow holds its own air.
+
+The floor is perhaps thirty paces across, an imperfect oval. The scale is comprehensible all at once - you can stand on one side and take in the whole of it without turning your head very far, like a room without a roof. The walls slope inward gently, not steep enough to cast a hard shadow, but enough to shelter. They are made of a warm, weathered material: a sandy loam over a softer sandstone that has been smoothed by a very long time of rain and wind. There's no fresh break anywhere. Every edge is rounded, every channel where water has run is shallow and settled, as if the earth here finished becoming this shape a long time ago and has been resting in it ever since.
+
+It is warm here. Not hot. The kind of warmth that collects in low places in late summer, held by the stone. The air doesn't move much. Above, the light is dim - not night-dim, but filtered. A high, thin overcast that has been there all day and will be there tomorrow, turning the sun into a broad, white diffusion. There are no sharp shadows in the hollow. Colors are softened. The stone is a bleached tan, the earth a dusty brown-red, the few plants a muted green, all seen as if through a very light haze.
+
+Water exists here as dampness, not as flow.
+
+There is no stream, no pond. But everything holds a little moisture. The stone at the base of the slopes is darker where it sweats. In the coolest corner, where the slope faces away from the strongest light, condensation gathers on the rock face in the early hours and never quite evaporates - it beads and slips, a few drops an hour, down to a shallow impression in the floor where the earth is dark and stays soft to the touch. After rain - which comes occasionally, not often, a brief warm shower that patters for ten minutes and then stops - the whole hollow glistens for a while, and small temporary sheets of water collect in the lowest concavity, no deeper than the width of your hand, reflecting the white sky. Then over the next day or two they sink in and vanish, leaving only that damp dark patch and a faint mineral ring.
+
+Because of that dampness, there is life, but sparsely.
+
+A few clumps of stiff grass grow along the upper rim where the soil is driest, spaced far apart, each one a separate island with bare earth between. Lower down, where the moisture lingers, there is moss - not a carpet, but patches the size of a palm or a plate, dark green and close to the stone. A single stunted shrub has taken hold against the eastern slope, its trunk twisted and low, no higher than your knee, its leaves small and waxy to keep what water it gets. Lichens crust the most exposed stones, pale gray-green rosettes. Between these presences there is a lot of emptiness. The ground is mostly bare, pebbled, quiet. Nothing crowds anything else.
+
+And there is no animal life to disturb it. No birds cross overhead to rest here. No insects hum in the grass. No tracks mark the soft patch except where a drop has fallen. It is not dead - the plants live - but it is empty of motion in that particular way. If you stay still long enough, you notice the absence as a kind of pressure: the place is listening without anything to hear.
+
+The quiet is almost complete. On the plain above, wind might move, but down in the hollow the air is still. What sound there is is infrequent and small: the tick of a single drop falling from stone to damp earth, minutes apart. The faint rustle of the shrub's leaves when a breath of air does make it down the slope. Your own breathing, if you are there. Otherwise, equilibrium holds. Nothing is in the process of changing.
+
+This place has been like this for a very long time, and the signs are all of an old, settled balance. The runnels in the slope are not cutting deeper. The moss patches are not spreading or receding. The dark damp patch at the bottom does not grow larger in wet season or smaller in dry, because there is effectively no season here - only this same warm, dim, damp stasis, day after day. Erosion has done its work and stopped arguing with the shape. The hollow is weathered into itself.
+
+There are faint marks that people were here once, but not many and not recently, and not with anything you would call technology.
+
+Near the southern slope, three stones have been set to make a low, straight line, no higher than an ankle - a foundation or a property marker, now half-sunk and softened by soil. One has toppled. A few meters away, a shallow, rectangular depression where earth was once leveled and packed, now barely discernible under a thin skin of dust and scattered pebbles. No metal, no glass, no plastic. No tool left behind. Perhaps a post hole, filled in. Perhaps the remains of a shelter so slight it was more intention than building. Whatever was there has been taken back almost entirely, leaving only these scatters - geometry just regular enough to read as made, but so worn they feel like they belong to the geology now.
+
+The rules here are simple and do not change: water will condense and evaporate in the same small cycle. Light will remain diffuse and low. Warmth will linger in the stone. Plants will persist without thriving. The hollow will remain a hollow, not deepening, not filling. It does not invite or repel. It does not progress.
+
+You can sit on the rim with your feet in the warmer air below and feel the whole small world at once - its damp smell of stone and soil, its dimness, its profound sparseness and stillness - and understand that you have not discovered a place that is becoming something, but one that has already become itself, and is content to stay.

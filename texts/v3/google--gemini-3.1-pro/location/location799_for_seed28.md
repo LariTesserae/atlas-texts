@@ -1,0 +1,27 @@
+This place cannot be seen from afar. It exists entirely within a single, utterly hidden puncture wound in the surface of a baked, blindingly white mineral expanse near sea level. To find it, you must walk across the salt-hardened desert until the heat radiating from the ground makes the horizon shimmer and break, and look for a narrow, ragged fissure. 
+
+Step to the edge. Look down. 
+
+The earth opens into a flawless, colossal vertical cylinder, perhaps four hundred feet across and plunging deep into the planetary crust. The moment you peer over the lip, you are hit by a vertical blast of furnace-hot air—and the noise. 
+
+The sound is absolute. It is a physical entity, a deafening, chest-crushing polyphony of shrieks, low resonant hums, whistling drones, and shattering roars. It completely annihilates thought. At 130 decibels, the air within the shaft feels thick, almost liquid with vibration, vibrating the fluid in your eyes so that your vision blurs and strobes. Yet, the vast central column of this hidden geode is totally empty. It is a sheer, dizzying void of rushing air and plunging light.
+
+Savage, shadowless brightness floods the interior. The smooth, pale walls of the cylinder act as parabolic mirrors, catching the harsh desert sun and bouncing it inward and downward until the air itself seems to glow incandescent white. The temperature inside is a baking, dry convection cycle. There is not a drop of water here. Not a wisp of vapor, not a glint of dew. It is an entirely desiccated, non-aqueous crucible.
+
+Clinging to the walls, however, is a lush, sprawling metropolis. 
+
+Every inch of the cylinder’s inner surface has been woven, carved, and structured into a continuous, densely layered vertical city. Thousands upon thousands of alcoves, archways, and terraces have been chewed out of the chalky stone by hand over millennia. The architecture is gloriously primitive and unimaginably vast—a sheer drop of urbanism. Cantilevered balconies are lashed together with braided silica-stalks. Precarious suspension bridges made of spun glass-fiber stretch like spiderwebs across the void, bowing deeply in the updraft. The erosion of deep time has softened every edge. The lintels bow downward, smoothed to a pearl-like finish by centuries of wind and blowing sand. The city exists in a state of perfect, petrified balance, completely wrapping the periphery while fiercely protecting the sanctity of the empty sky at its center.
+
+And growing out of every balcony, choking the carved window-frames, and draped in massive, overhanging canopies across the scaffolding, is the waterless jungle.
+
+Driven by the dry heat and the blinding light, a bizarre ecosystem thrives. The vegetation is entirely composed of brittle silicates, thin metallic foils, and spun glass. There are towering clusters of translucent, tubular reeds, broad leaves like taut paper drumheads, and pale golden vines that spiral fiercely into the pale stone. They drink sunlight and kinetic energy. 
+
+Together, the city and the jungle form a titanic, living pipe organ. The thermal wind, racing up from the superheated depths toward the cooler desert crust, blows through the hollow stems and taut membranes of the plants. The vegetation responds by inflating, shivering, and screaming. The dense beds of acoustic flora are tuned by the ancient architecture. Whole city blocks are shaped to funnel the rushing air into groves of silver horn-plants, producing a blaring, monumental chord that shakes dust from the masonry. Other terraces baffle the wind, forcing it through fields of dry, crystalline grass that emit a piercing, hissing static.
+
+Because the sun’s angle governs the temperature of the walls, the city is fiercely dynamic. As the day progresses, shadows shift and the heat differential across the cylinder changes. The updrafts move. A terrace that was producing a low, earth-shaking bass rumble in the morning will suddenly be struck by the noon sun. Within seconds, the glass-jungle upon it will superheat, the convection will violently accelerate, and the sector will erupt into a deafening, high-pitched scream. 
+
+When the heat reaches its peak, the plants bloom. They do not open softly; their pressurized, waterless stems snap and explode with the sharp crack of breaking glass. It sounds like artillery fire over the roar of the wind. With every pop, clouds of hard, chime-like spores are ejected into the empty center of the shaft. Caught in the vertical hurricane, the glittering seeds swirl in a blinding, chaotic vortex, pinging and clattering furiously against the ancient stone architecture as they are lofted toward the surface.
+
+To survive in this crucible of pure light and apocalyptic noise, the builders of this city remain hidden. The immense sprawl of dwellings feels ghost-like, but behind the thick, woven dust-silk baffles that cover the thousands of doorways, shadows occasionally move. A rare glimpse of a figure wrapped in heavy, vibration-damped padding, scurrying along a glass-rope bridge. They communicate only through the tactile vibrations of the stone, deaf to the howling air, living a deeply intimate, hand-carved existence on the very edge of the void. 
+
+To stand in their hidden world is to be scrubbed clean of yourself—scoured by blazing light, baked in parched wind, and drowned entirely in the lush, roaring song of a dry, beautiful, screaming wilderness.

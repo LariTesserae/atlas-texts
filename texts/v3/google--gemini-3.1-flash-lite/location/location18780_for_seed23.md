@@ -1,0 +1,15 @@
+High on a jagged, wind-scoured plateau, there exists a place the locals call the *Basin of Constant Tears*. It is not a city of wood or stone, but a nested architecture of translucent, calcified salt-ribs and hollow, porous bone-struts, clustered together with the claustrophobic density of a hive.
+
+The air here is a blinding, piercing white—the sky is a glare of perpetual, thin sunlight that reflects off the wet surfaces of the basin with a nauseating, crystalline brilliance. Despite the brightness, it is bone-chillingly cold; the temperature holds firm at a level where liquid water behaves like a living, hungry thing. 
+
+Water is everywhere—not as a lake or a stream, but as a relentless, weeping phenomenon. Every surface is slick. The salt-ribs are constantly weeping thin, gelid beads of brine that roll down the architecture, merging into shallow, sluggish runnels that pool at the base of your boots. Because of this, the ground is an impossible maze of slick, rounded edges. The erosion here is absolute; the entire settlement has been worn down by centuries of this weeping, smoothing every sharp corner into a curve that feels like a polished molar.
+
+There is almost no plant life. Only a few patches of pale, translucent moss, thin as skin, cling to the deep crevices where the brine pools longest.
+
+Yet, despite the silence—a heavy, muffled quiet broken only by the rhythmic *drip-clink-drip* of the weeping walls—the place is hyper-active. There is a frantic, turbulent energy here. The inhabitants, small, spindly creatures with pale, translucent exoskeletons, move in a blur of motion. They are constantly repairing the infrastructure with primitive bone-scrapers and brushes made of stiff fiber. They build, they erode, they mend. It is an anthill of high-strung, wordless industry. 
+
+The architecture is layered in a dizzying array of bridges and cramped, low-ceilinged chambers. You cannot stand fully upright in most places; you must fold yourself into the geometry of the basin. The density is overwhelming—there is always a cold, wet touch of a wall, a ceiling, or the hurried, vibration-heavy brushing of an inhabitant passing by.
+
+Every few moments, the "weather" changes internally. A pocket of super-cooled mist will erupt from a porous vent in the floor, flash-freezing the moisture on the walls into thin, delicate needles of ice, only for the constant, searing sunlight to melt it into a miniature, chaotic deluge within seconds. This creation and destruction happen with such speed it feels like the landscape is breathing in staccato gasps.
+
+It is a place of profound disorientation. You are constantly wet, perpetually squinting against the glare, and crowded by the hum of the small, busy, and entirely alien things that own this place. It is a cathedral of transition, a place where geography doesn't just sit—it dissolves, reforms, and weeps for its own fleeting existence.

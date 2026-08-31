@@ -1,0 +1,19 @@
+You stand at the threshold of a place that should not be.
+
+It is a grotto, but not of stone. The walls curve around you in a rough sphere, perhaps thirty paces across, their substance a dull, matte grey that absorbs light and sound. This is the **scaled-down** world: a pocket universe, a blister on the side of something vast. The air is **hot**, not with the dry crackle of a desert, but with a deep, pervasive warmth that radiates from every surface, as if you stand inside a cooling engine. Light—a flat, **normal** illumination—has no visible source. It simply *is*, casting faint, directionless shadows.
+
+And yet, there is **vegetation**.
+
+It grows from fissures in the grey floor and walls, defying the **absence of water** and the mineral harshness. The flora is **lush**, but its form is alien. Think of thick, fleshy stalks of opaque, milky quartz, their surfaces faceted and cool to the touch. They pulse with a slow, internal light, a sickly chartreuse that waxes and wanes over minutes. Broad, crystalline leaves, sharp-edged and translucent, unfurl with glacial slowness. There are no flowers, no softness. It is a garden of glass and semi-precious stone, photosynthesizing not sunlight, but the ambient heat and the strange energies leaking from the walls. The **density** is low; each crystal bush is an isolated monument, separated by stretches of bare, warm grey floor. The silence between them is thick, a **mostly quiet** broken only by a faint, sub-audible hum.
+
+This is a place of **emerging erosion**. The grey material—some ceramic-metal composite, not rock—is unweathered, raw. The fissures from which the crystal-life grows are not channels carved by water, but fracture lines, as if the grotto itself is a cooling bubble in a greater casting, still settling. The shapes are primal, embryonic. Nothing is smooth, nothing is worn. It feels **under construction**, yet abandoned.
+
+The **industrial** parameter asserts itself not in visible machinery, but in the *quality* of the reality. The air has a metallic taste. The hum vibrates in your teeth. The very geometry feels engineered, the curvature of the walls precise yet impossibly ancient. This grotto is a component, a forgotten chamber in a machine the size of a world. The **tech** is in the walls, in the heat, in the silent light. It is a factory that has long since stopped producing, its internal ecosystem now running on residual energy, a slow, patient **dynamic** decay.
+
+But the core truth of this place, the reason your skin prickles and your mind rejects what it sees, is the **weality breakdown**.
+
+Look at the base of the largest crystal spire. Its shadow does not lie flat. It bends *up* the wall behind it, clinging to the surface like oil. Gaze at the midpoint of the grotto. The air there is slightly thicker, refracting the sourceless light into a permanent, oily shimmer—a knot in the fabric of the space. The silence isn't empty; it is *pressured*, as if sound is being actively suppressed or consumed.
+
+Time is wrong here. The crystal growth is **slow**, imperceptible to the eye, yet you sense that to look away and look back would reveal change. A leaf might be inches longer. A stalk might have shifted its internal glow. The grotto operates on a patient, geological clock, yet it is embedded in the carcass of a frantic, industrial one.
+
+There is no **fauna**. Nothing scurries, nothing flies. But you are not alone. The grotto itself is aware, in a passive, systemic way. The shifting shadows, the consuming silence, the heat that seems to thicken when you stand still—these are its only movements. It is a sealed environment, a dry terrarium for a life that never knew water, powered by dying engines and eating light that shouldn't exist. It is a hidden, hot, and quietly screaming flaw in the world, lush with a cold, geometric life, patiently eroding into a shape that no longer follows the rules.

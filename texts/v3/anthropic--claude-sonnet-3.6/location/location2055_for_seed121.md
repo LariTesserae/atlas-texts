@@ -1,0 +1,17 @@
+In the perpetual cool twilight, the Living City breathes. Not metaphorically - its "buildings" are vast botanical growths, translucent green-grey organs of plant matter that process air through membranous surfaces. The city-forest stretches beyond horizon, beyond comprehension, a continental expanse of engineered ecology.
+
+The structures rise like mountain ranges, some nearly transparent, others dense with chlorophyll-dark tissue. Their surfaces are alive with movement - millions of small creatures that have evolved to navigate this vertical world, scaling the semi-permeable walls, nesting in follicle-forests, drinking from the weeping pores that dot the living architecture. The fauna is endless, omnipresent: iridescent insects in impossible numbers, colonies of climbing mammals that have never touched ground, floating gasbag organisms that drift between the towers harvesting airborne nutrients.
+
+Water here is precious and precisely managed. The living city captures morning condensation in vast catchment organs, processes it through kilometers of vascular tissue, and releases it in careful measures. When rain comes, the entire ecosystem shudders into heightened activity, every surface optimized to capture and channel the moisture through the urban organism.
+
+The soundscape is overwhelming - a constant symphony of animal calls, the deep subsonic groaning of the plant-structures as they grow and shift, the whisper-roar of air moving through respiratory chambers, the pattering of countless feet on living walls. At times, the entire city seems to vibrate with biological industry.
+
+Between the massive structures, transportation occurs through a network of tendril-bridges that grow and retract as needed. Human inhabitants (if they are still human) have integrated themselves into this ecosystem, their dwellings and workspaces carved from specialized plant-tissue, their technology merged with the biological processes of their environment. Industrial processes are carried out through engineered symbiosis - factories that are actually vast digestive organs, power plants that are photosynthetic hearts.
+
+The city is young, still establishing itself. New growth is constant - you can watch specialized cells divide and multiply, creating new structures in real-time. The engineering is visible in the regular patterns of growth, the deliberate arrangement of species, but there's an organic chaos to it as well. Evolution happens at an accelerated pace here; new species emerge weekly, finding niches in this artificial ecology.
+
+In the dim light, bioluminescent markers pulse along the surfaces of the structures - navigation aids, communication systems, warnings of dangerous areas. The light is living information, a constant conversation between the city's systems and its inhabitants.
+
+The air moves strangely here, channeled by the massive structures into rivers of wind that carry seeds, spores, and small gliding creatures. Weather patterns form inside the larger chambers - micro-climates that support specialized ecosystems. Sometimes, in the largest cavities, it rains upward, defying gravity through some interaction of biology and physics that even the city's engineers don't fully understand.
+
+This is a place of perpetual becoming, never finished, never static. The boundary between natural and artificial, between city and wilderness, between technology and biology, has long since dissolved into something entirely new.

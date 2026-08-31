@@ -1,0 +1,37 @@
+The place is a small basin on a high mountain shelf, no wider than a village green, though no village has ever stood there. It is enclosed on three sides by dark, rounded stone and open on the fourth to a tremendous drop. From the rim, the land falls away in overlapping blue ridges, warm haze lying in the valleys below. The basin itself feels less like a summit than a room cut into the mountain: a shallow, green-floored chamber with one narrow entrance and a sky directly overhead.
+
+The rock is old volcanic stone, charcoal-gray where exposed and brown-black where it remains wet. It has been worn smooth rather than broken down. Water has worked at it for so long that the basin’s edges have become soft, almost anatomical: shelves like shoulders, hollows like cupped hands, seams that resemble closed eyelids. There are no sharp scree slopes, no fresh scars, no signs of recent violence. Every surface seems to have arrived at its final shape a long time ago and accepted it.
+
+Water is near the surface everywhere. It does not flow in a single stream, but gathers in a number of narrow, patient channels between the stones. Some are no wider than a finger. Others open into dark pools under low ledges, their bottoms hidden by tannin-colored water and drifting green threads. The basin is often wet without rain. Mist condenses on the upper rock during the cool hours and beads there, then slips downward in clear lines. The walls weep. Leaves hold droplets in their cupped undersides. At midday, when the air warms, the whole place exhales a faint vapor that hangs a handspan above the ground.
+
+The vegetation is lush, but not crowded. It grows in deliberate islands separated by bare stone and shallow water. Tall, broad-leaved plants occupy the deepest soils, their leaves a deep waxy green and their stems pale as old bone. Ferns spread along the damp walls, though they grow in sparse fans rather than thickets. Low mosses cover the stones in rounded patches, leaving broad black intervals between them. There are flowering plants too, but each keeps its distance from the next: solitary red cups, blue starbursts, pale yellow bells that close when clouds pass overhead.
+
+Nothing here fights for every inch. The plants appear to recognize boundaries that are invisible to the eye. One patch of moss will stop precisely at a dry seam in the stone, even when moisture lies on the other side. A stand of reedlike grass occupies one pool’s margin and never crosses into its neighbor. Their roots may meet underground, but above ground the basin remains spacious, composed of separate living territories.
+
+The air is warm for such an elevation. Sunlight comes cleanly, with the brightness of ordinary day, but the warmth has a damp, enveloping quality. It gathers in the basin and lingers there. The stone radiates heat after sunset. At night, the high sky becomes intensely clear, and the pools reflect stars long after the last light has left the walls. By morning, the plants are heavy with condensation, and the stones shine as though polished.
+
+The basin is loud.
+
+Not with animals. The fauna is scarce: perhaps a few small, dark insects moving beneath leaves, a solitary mountain bird that visits once every few days, and something pale and many-legged that lives in the wet cracks and vanishes when approached. There are no persistent calls, no rustling herds, no hidden abundance announcing itself.
+
+The sound comes from the mountain.
+
+Water ticks and taps through the stone, amplified by the hollow ledges. A trickle under one shelf booms with the resonance of a distant river. Wind enters through the narrow mouth of the basin and is forced upward along the walls, producing a continuous low note that rises and falls with the weather. When gusts cross the rim, the entire chamber gives a muted, throatlike roar. Leaves slap against one another in sudden bursts. Drops striking the pools sound like thrown pebbles.
+
+At times the basin seems to be speaking in several voices at once: the thin hiss of seepage, the deep breathing of the wind, the hard percussion of falling beads. A person standing there would need to raise their voice to be heard, yet the sound would not feel violent. It is the loudness of a confined natural process, like surf inside a cave or rain beneath a roof.
+
+There are no paths, cut stones, tools, fires, or abandoned objects. Even the marks that resemble human work are only the consequences of water and time. A flat shelf near the center looks like a floor, but its surface is formed from one uninterrupted piece of stone. Three upright slabs at the back resemble pillars, though they lean at different angles and are fused to the wall. In the wet season, a narrow cascade descends between them, and the water’s fall makes the arrangement feel briefly ceremonial.
+
+This resemblance is one of the basin’s mild strangenesses. Natural forms often suggest rooms, seats, thresholds, or sleeping places, but never quite become them. If someone rests on the flat stone, they may notice that the basin’s wind changes direction to pass over them. If they step into one of the dark pools, the water is warmer than the surrounding air. If they return later, the pool may be cold again, with no visible cause.
+
+The rules here are slow and exact.
+
+Water does not rush unless the basin is disturbed by a rare storm. It accumulates, crosses a certain line, and then disappears into the stone. Plants open and close according to the brightness of the sky rather than the hour. Mist gathers in the same hollows each morning, even after clear nights. The moss advances by barely visible increments, perhaps a few grains of stone each year. The edges of the pools alter so gradually that a lifetime would not be enough to witness their change.
+
+Nothing dies dramatically. Leaves yellow, loosen, and settle into the water. Stems bow beneath their own weight. Insects vanish into cracks. The basin absorbs its dead and remains green. Its apparent stillness is not emptiness but deep continuity: a place in which every process has been happening for so long that motion has become difficult to distinguish from form.
+
+The high outer rim is bare, but not barren. Small mats of tough grass cling to the windward side, each separated from the next by several feet of stone. Beyond them the mountain falls away, and the world opens into distance—ridges, cloud shadows, pale heat rising from lower forests. Yet the basin keeps its own scale. It is a bounded place, complete enough to cross in minutes and intricate enough to occupy the mind for years.
+
+In the center, where several shallow channels meet, there is a single pool no larger than a doorway. Its water is perfectly clear. Beneath the surface lies a scatter of black stones, each one rounded and glossy, though no current strong enough to polish them can be found. When the wind falls silent, the pool sometimes trembles from below. The ripples spread outward, touch the stone edge, and return to the center.
+
+Then the basin becomes quiet for the briefest moment—not silent, but quiet enough to reveal that all the water, leaves, insects, and wind have been moving in response to something deeper. Afterward the mountain resumes its ordinary voice.

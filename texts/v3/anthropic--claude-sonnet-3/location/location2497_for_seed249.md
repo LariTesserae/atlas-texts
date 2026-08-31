@@ -1,0 +1,13 @@
+This is a world of vast, molten expanses, where scorching winds whip across viscous, glowing plains. The surface is not solid ground, but a semi-liquefied expanse of heat and slow, inexorable motion. Immense fields of incandescent ooze ebb and flow like some primordial ocean of magma, constantly reshaping the terrain in a never-ending cycle of fiery genesis and dissolution.
+
+Scattered across these fiery seas are islands – immense rocky extrusions thrust up from the molten depths. Their jagged, craggy forms are testament to the violent, chaotic forces that shaped them. Perpetually baked in the searing radiance, these rocky outcrops provide sparse refuges of solid ground in an otherwise fluidic realm.
+
+Lush with verdant life eking out an existence amid the inferno, these islands bristle with dense, hardy vegetation uniquely adapted to the extreme conditions. Gnarled, heat-resistant trees and thick mats of fibrous undergrowth somehow thrive in the intense thermal environment, their hardy foliage providing both sustenance and shelter to the scattered life forms inhabiting this hellish domain.
+
+For this is no dead world, but instead a seething crucible of ceaseless creation and destruction. Among the hardy flora, strange reptilian creatures prowl the islands, their leathery hides impervious to the searing temperatures. Others take to the air on membranous wings, soaring over rivers of glowing magma in a perpetual hunt. Existence is precarious, demanding constant adaptation to shifts in the ever-churning, restless terrain.
+
+Against this backdrop of primal forces, mute testimony to visitation can be seen in the scattered clusters of buildings and machinery. Bulky industrial complexes and hulking refineries squat amid the fiery chaos, seeming like invaders from some civilized realm thrust into this molten purgatory. Long abandoned to the unrelenting onslaught of heat and geologic fury, these artifacts of technology stand as defiant monuments amid the tumult.
+
+A heavy silence hangs over everything, the roaring of the ever-shifting magma fields and the occasional deep rumble of the planet's guts providing the only soundscape. No birdsong or rustling breeze, only the muted crackle and hiss of molten rock in its ceaseless flux.
+
+This is a world of fire and brimstone, upheaval and renewal, a place where the usual laws scarcely seem to apply. A bizarre, alien dimension of searing extremes where life has stubbornly gained a foothold amid the infernal maelstrom. An untamed, primordial crucible where the ancient cosmic forces of creation and destruction play out their eternal dance in an endless cycle of blazing transformation.

@@ -1,0 +1,29 @@
+**The Sounding Basin**
+
+High on the shoulder of the mountain, where the slopes break their climb and pause, there is a hollow no larger than a room in a great house. You come to it through a notch in pale, weathered stone — a gap worn smooth as a worn tooth — and then you are inside, and the world outside is gone.
+
+The basin is shaped like a cupped palm. Its walls are old volcanic rock, gone soft-edged over an age of rain, the color of bone steeped in tea. There is nothing sharp here. Every ridge has been rounded, every crack widened into a gentle groove, and the stone weeps — not dramatically, not in falls, but in a slow seep that darkens the rock in long vertical streaks, like the walls themselves are perpetually just-rained-on, though the sky above the basin is open and the light comes down clear and warm. The warmth is constant, rising it seems from the stone itself as much as the sun; the air is thick with held moisture, the kind that beads on your forearms within minutes, the kind a fern could drink directly.
+
+And the ferns do. Vegetation fills the basin the way fur fills a pelt — not crowded, but total. Moss in three or four greens lies over everything in deep, undisturbed pile: emerald in the wet streaks, gold-green where the sun lingers, nearly black in the seams. From this carpet rise the basin's few large presences, and there are only a handful of them, spaced as if by deliberation:
+
+A single tree, immense and slow, growing from a split in the western wall. Its trunk has flowed around the rock over centuries until tree and stone are one argument with two materials. Its canopy roofs perhaps a third of the basin, and its bark is sleeved entirely in epiphytes — orchids, filmy ferns, beard-lichen heavy as wet wool.
+
+Two boulders, far apart on the basin floor, each crowned in its own miniature garden, each surrounded by a clear apron of short moss, as if the smaller plants keep a respectful distance.
+
+A pool, off-center, no wider than an outstretched body, fed by the weeping walls. Its water is the color of dark glass and it is much deeper than it has any right to be.
+
+Between these things: space. Open moss, open air, the long warm light. The basin is generous with emptiness. It feels less like a wilderness than like a chamber that has been kept.
+
+Then there is the sound.
+
+The basin is loud, and it takes a moment to understand why, because nothing here moves quickly. The walls drip — thousands of slow drops a minute, from overhangs, from fern-tips, from the great tree's mossy limbs — and the basin's shape gathers every drop-strike and folds it back on itself. The hollow is a resonating bowl. Drops landing in the pool ring with a deep, plucked note; drops on stone tick and knock; drops on moss make a fat, soft percussion. None of it is loud alone. Together, reflected and re-reflected by the curved walls, it becomes a continuous wall of sound — a rain-roar without rain, a chorus with no singers, swelling and thinning with the breeze through the canopy but never, ever stopping. Stand at the basin's center and you can feel it faintly in your chest. Speak, and your voice comes back to you a half-beat late, slightly deepened, as if the basin were repeating you to itself, considering.
+
+This is the strangeness of the place, or the first layer of it: the basin listens. Or it behaves as a thing that listens behaves. Make a sharp noise — a clap, a dropped stone — and the drip-chorus falters for a breath, the whole hollow seeming to hold still, before resuming. No one can say whether this is acoustics or attention, and the basin offers no help in deciding.
+
+The second layer is in the pool. Its dark water lies dead calm despite the constant feeding seeps, and the reflections in it run slow. Lean over it and your mirrored face takes a moment to arrive, and lingers a moment after you pull away — only a moment, easy to disbelieve. Clouds crossing the sky overhead cross the pool's surface a little later, drifting through the dark water like thoughts the basin is still finishing.
+
+Animals are nearly absent, and their absence has texture. No birds nest in the great tree, though birds pass over the basin's rim, high up, without descending. The moss is unmarked by any track. Once in a long while something small and pale — a salamander, perhaps, or something shaped like one — can be seen at the pool's edge, motionless, gone the next time you look. The basin does not seem hostile to creatures. It seems, rather, like a room most things know not to enter casually.
+
+Yet something came here once, and more than once. On the flat crown of the larger boulder, half-hidden under moss, are a dozen small round hollows ground into the stone — cupules, made by hand, by patient turning of a harder pebble against the rock, work that would have taken days. Beside them, a shallow groove polished smooth, the kind left by sharpening or grinding. That is all. No shelter, no hearth-scar, no shard of anything made. Whoever did this brought nothing and built nothing; they only sat at the heart of the sound, for however long it took, and wore these small marks, and left. The moss is slowly closing over them now, at moss's pace, which is the pace of everything here.
+
+Change comes to the basin the way water comes through stone. The seeps shift their courses across decades. The great tree adds a hand's width of girth in a generation. The pool, the old stains on the rock suggest, has been very slightly fuller before, and very slightly lower, and is in no hurry toward either. Day moves the warm light across the floor like a slow finger; night cools nothing much; the dripping never stops, and the basin goes on saying what it says — a single long, layered, ringing syllable, repeated past all counting, settled so deeply into itself that it is hard, standing there with the sound in your ribs, to believe the place was ever any other way, or ever will be.

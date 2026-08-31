@@ -1,0 +1,23 @@
+The air here tastes like ozone and old iron. It is cool enough to raise gooseflesh on a human arm, a crisp, dry chill that doesn't so much bite as it preserves.
+
+This place is a Pocket—a volume of space defined not by horizons, but by boundaries. It is an interior world, a vast, enclosed cavity perhaps the size of a cathedral, or perhaps the size of a planet's hollowed-out core; the perspective shifts, but the sensation of being *inside* something remains constant. The ceiling is low, heavy, and dark, a smooth, eroded dome of volcanic basalt that has been polished by eons of friction until it gleams like a wet stone.
+
+There is no water here. The humidity is absolute zero, a desiccating void. Nothing rusts, nothing rots in the traditional sense; things only grind down. The ground is a flat, ancient plain of compacted silicate dust and gray ash, marked by the fossilized ripples of wind that blew millennia ago before the air settled into stagnation. Here and there, the floor buckles upward into low, stony ridges, worn smooth as river pebbles, testament to the 2.8/3 erosion—this is a landscape in its final, stable form. It has finished happening; now it only endures.
+
+Vegetation is absent. There is no green, no chlorophyll, no soft organic pulp to hold moisture. Instead, the "flora" of this realm is mineral. Crystalline structures sprout from the cracks in the floor—jagged, twisting formations of quartz and feldspar that mimic the shape of thorny brambles. They do not grow quickly; they precipitate. The air is thick with microscopic supersaturated vapors that deposit themselves onto these crystal lattices, slowly building them upward like invisible coral. It is a silent, geological agriculture.
+
+The sense of density is crushing. The space is cluttered. Scattered across the dusty floor are the built elements: the industrial remnants of a forgotten epoch. They are not cities, but rather the components of a vast machine that has since died or been repurposed. Huge, toothed gears half-buried in the ash; rusted pistons the size of tree trunks frozen in mid-stroke; skeletal conveyor belts that now serve as ridges for the creatures to travel along. The tech level is industrial—heavy, electrified in its prime, but now the power is dim, reduced to a faint, ambient hum that vibrates in the teeth.
+
+And then, there is the life.
+
+The fauna is overwhelming, a density of presence that defies the lack of water. The floor is not solid; it is a moving carpet of carapace. Millions of creatures—silicon-based arthropods, things like isopods and trilobites but made of polished chitin and metallic exoskeletons—swarm over every surface. They cling to the ceiling, a writhing mosaic of gray and ochre. They carpet the crystal bushes, adding a layer of jittering animation to the mineral stillness. They are detritivores and chemovores, feeding on the trace minerals in the dust and the slow oxidation of the ancient machinery.
+
+The sound is a roar. It is not the roar of wind or water, but the roar of biology. It is the ceaseless clicking of a million legs, the grinding of mandibles against ash, the dry, skittering friction of hard shells against stone and metal. It is a loud, chaotic white noise of movement, punctuated by the sharp *crack* of a predator snatching prey, or the hollow *clatter* of a dislodged rock falling into the seething mass below.
+
+Because the scale is hidden, the intimacy of the room amplifies the horror and wonder of the swarm. You feel as though you are standing in a sealed jar, watching a miniature apocalypse that has been going on for a million years.
+
+Despite the noise, the rules here are strict. It is a closed loop. The machinery is ancient, and the creatures have evolved to maintain it. Some of the arthropods are large, flat-bodied beasts that act as living capacitors, latching onto the old, rusted power conduits to drain the residual electricity, their abdomens glowing with a faint, sickly yellow light. This provides the only illumination in the place—a normal-light level, but sourced from the biology itself, casting long, dancing shadows as the creatures move.
+
+The atmosphere is thick with the dust they kick up, a dry fog that reduces visibility. The ecology is a frenzy of recycling. Nothing is wasted. When a creature dies, its shell is stripped within minutes, ground down into powder that adds to the silicate floor, feeding the crystal "plants," which are eventually eaten by the next generation.
+
+It is a cool, dry, mechanical hell, teeming with a beautiful, terrible excess of life. It is a room that has been digesting itself for ages, turning the bones of industry into the fuel for a swarm that knows no thirst.

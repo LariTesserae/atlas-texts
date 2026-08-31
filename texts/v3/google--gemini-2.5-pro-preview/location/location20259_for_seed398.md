@@ -1,0 +1,25 @@
+The world thins to nothing at this altitude. You climb through shattered, razor-edged rock that seems to have only just cooled, its black surfaces still sharp enough to cut. The air is a meager gasp, but paradoxically, it is hot. The heat does not come from a sun, which is only a weak, violet smear in a sky the color of a day-old bruise. The heat rises from the mountain itself, a deep, geologic fever.
+
+This is the Spire, one of seven that needle the upper atmosphere. There is no plateau here, no gentle summit. There is only a point. And on that point, or rather *within* it, is the city.
+
+It is not entered through a gate. The entrance is a subtle discontinuity in the obsidian-like rock, a place where the mountain’s sheer face seems to fold inward on itself for a fraction of a second, a heat-haze shimmer that you can, with intention, step through. The feeling is of passing through a warm, membranous film.
+
+You do not emerge onto a street. You emerge into a chamber.
+
+The scale is immediately wrong. Outside, the world is a dizzying, infinite drop. Inside, you are in a room the size of a grand cathedral’s nave, hollowed from the mountain’s peak. The walls are the same black, uneroded rock, but here they are polished to a mirror sheen, laced with veins of something that looks like static electricity frozen into solid form. The space is vast, yet feels intimate, contained. A pocket of impossible architecture scooped from a mountaintop.
+
+This is the settlement known only as the Inverted Ward.
+
+The air is thick, wet, and hot, like the inside of a lung. It clings to your skin. A constant, near-invisible condensation forms on every surface, a perpetual sweat born from the conflict between the mountain’s internal heat and the absolute zero of the void pressing just beyond the thin shell of rock. Droplets of hot, distilled water gather and course down the walls in slow, silent rivulets, tracing paths over the frozen lightning. The floor is slick with it. This is the only water here. There are no pools, no rivers. Just this omnipresent, feverish dampness.
+
+Nine spires rise from the floor of the chamber, though to call them buildings feels incorrect. They are filaments of a darker-than-black ceramic material, impossibly thin for their height, reaching up to nearly touch the concave ceiling. They do not seem to have been built, so much as extruded. There are no doors, no windows, no floors. They are solid, featureless, and spaced so far apart that the chamber feels almost empty. They are the city, yet they offer no shelter. They are urbanism reduced to a set of stark, vertical statements.
+
+The light is a uniform, sourceless dimness, a gray twilight that seems to emanate from the air itself. It casts no distinct shadows, only a soft ambiguity at the base of the nine filaments.
+
+There is no life. No plant, no fungus, no microbe that stains the rock. It is a world of pure mineral and advanced, silent artifice. Yet, it is not static. Look closely at the surfaces of the filaments. Nanoscale geometries shift and reconfigure in slow, tidal patterns. You cannot see the components, only the result: a faint, oily iridescence that crawls across the black ceramic like a heat map, patterns flowing upward, converging at the tips, and then vanishing. The city is processing something. It is thinking, or calculating, or remembering. This constant, silent activity is the only dynamic process here, besides the slow drip of condensing water.
+
+The silence is profound. The thin atmosphere outside carries no wind to this sealed chamber. The lack of life means no calls, no rustling. The only sound is a barely-there, somatic hum that you feel in your teeth and bones, the operating frequency of the filaments. Every few minutes, this low hum is punctuated by the crisp *tink* of a water droplet falling from a high point on the ceiling and striking the slick floor, an event as startling as a gunshot in the near-total quiet.
+
+The rules of this world are simple and absolute. It is not for biological beings. The heat is enervating, the moisture is sterile and without nutrient, and the purpose of the place has nothing to do with inhabitation. It is a machine, a monument, or an antenna, anchored at the highest, sharpest point of the world. Perhaps it is a self-repairing data cache from a civilization that engineered its way out of physicality. Perhaps it is a listening post, its function to wait for a signal that may have already arrived billions of years ago.
+
+You can walk the empty spaces between the humming, sweating spires for what feels like an eternity. The perspective is hypnotic. The polished floor reflects the dim light and the nine black needles, creating the illusion that you are walking on a membrane between this chamber and its identical, inverted twin below. Up is down, solid is void, and the only certainty is the oppressive heat, the constant dampness on your skin, and the low, resonant question that the city sings to itself in the dark.

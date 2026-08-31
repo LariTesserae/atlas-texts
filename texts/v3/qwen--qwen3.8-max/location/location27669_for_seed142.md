@@ -1,0 +1,13 @@
+This is a high, warm, waterless plateau that has reached its final shape: a dark, open, mineral landscape with an urban presence spread thinly across it, like a machine that has learned to exist without needing anything.
+
+It could be called a tableland, though no one here would think of it as a place for arrival. The ground rises into broad, worn swells of basalt, blackish stone, pale salt, gypsum dust, and oxidized mineral crusts. There are no rivers, no lakes, no damp hollows, no ice, no memory of green. The old shapes of erosion remain — low ridges, shallow basins, rounded terraces — but erosion itself seems to have stopped. Everything has been worn down to its oldest, most patient form. Sharp edges are gone. Cliffs have become shoulders. Slopes have become long, gentle inclines. The land looks as though it has already survived whatever it was supposed to survive.
+
+The elevation is high enough that the air is thin, but it is not cold. A steady warmth rises from below, through fractured rock, through buried conduits, through the deep industrial bones of the place. The ground is warm underfoot. The stone holds heat. The darkness above is not cool; it is dry and warm, like the inside of a kiln long after the fire has been removed. There is no moisture to carry chill. There is no breath of evaporation. The heat is even, almost too even, as if temperature has been smoothed into equilibrium.
+
+There is no water.
+
+That absence is not merely a lack; it is a law of the place. The world here is built on dry chemistry: salt, oxide, mineral dust, charged particles, metallic veins, ceramic, compressed ash, crystalline films, and static. Where another world might use liquid to move, dissolve, grow, or decay, this one uses heat, charge, pressure, and slow mineral migration. If something seems to flow here, it is powder, current, or vibration, not fluid.
+
+The darkness is absolute enough to become a material.
+
+It is not simply night. The sky overhead is a black mineral haze, a sealed-looking canopy of fine dark particles suspended without falling. There is no sun, no moon, no stars, no visible horizon glow. The darkness presses down with a soft, dry weight. It fills the basins and collects in the wide spaces between structures. Light exists, but only as sparse, controlled intrusions: hooded lamps on iron posts, dull red indicators on machinery, the faint amber seam of a furnace door, the pale luminescence of certain salt crusts when disturbed. Most

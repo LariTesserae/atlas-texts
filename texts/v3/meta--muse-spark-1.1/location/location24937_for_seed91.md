@@ -1,0 +1,29 @@
+It is called a cut, but it is too big for that word.
+
+A long time ago — not geologically long, ten, fifteen winters ago — they opened the ground here. Not with a blast, with machines. You can still see the tooth-marks. The walls are stepped, terraced, forty, fifty feet down from the lip to the floor, though snow has rounded the rim and makes it hard to tell where the tundra ends and the excavation begins. The rock is young in the way a wound is young: sharp, black columnar basalt still unsoftened, scraped bright where the teeth chattered. No river made this. No glacier. It is a straight, industrial valley a mile long and half as wide, sunk into the permafrost plain like a quarry, or a barge that never left its dry-dock.
+
+It is very cold. Not wind-cold; the cut is too deep for wind. It is a settled, basement cold that sits. Your breath does not plume and vanish, it hangs and goes opaque and sinks. The air at the bottom is ten degrees colder than at the rim. It smells like wet concrete and old iron and green.
+
+Because it is entirely alive.
+
+This is not overgrown. Overgrown implies a thing first, and then plants on the thing. Here the plants *are* the thing. The floor of the cut, the terraces, the vertical walls, the abandoned rebar and cable and chain-link, all of it has been taken by a single, continuous, opportunistic mat. Not trees — too cold and too dim for trees. Moss, primarily, but moss like you have never seen it when it's allowed to be architecture. Sphagnum and sheet moss and cold-hair moss stacked a foot, two feet thick, hanging in wet beards off every lip, upholstering every flat. Where water finds a line, there is fern, black-stemmed, stunted, its fronds furled tight against frost. Liverworts varnished dark green over the basalt. Lichen as pale plates. In the deeper corners where condensation is constant, the moss becomes something like a wall of sod, dripping.
+
+It survives on almost nothing. The light.
+
+There is almost no light. In midday in winter there is no light at all. Now, in late winter, the sky is a flat white-grey plate far above the rim and the sun never quite clears it. What light reaches the bottom is reflected, bounced down off snow and rock. The cut runs its own lights — strings of caged, yellow industrial work lamps bolted to the terraces every twenty yards, humming, many burned out, some flickering. They were meant for men to work under. Now they are for the moss. Under each light there is a perfect circle of more vigorous green, and beyond it, dim.
+
+Damp, but not wet. There is no lake down here. The permafrost does not allow it. Instead there is intermittent water, everywhere and nowhere. The moss sweats. The cold concrete sweats. At any given time half the surfaces are beaded with condensation that never quite becomes a drip. Every few hours the air pressure shifts and the whole cut weeps at once, and you hear it as a faint ticking against leaves. In the lowest trench, where they laid a drainage channel in corrugated steel, a shallow, black runnel of melt moves very slowly, maybe an inch deep, not flowing so much as creeping from one moss dam to the next.
+
+The sound is why you can't stay long.
+
+You would think, looking down from the rim, in its sparse, scattered stillness, that it would be silent. It is almost empty. A few small built things are left, far apart from each other with much moss between them: a generator shed with its doors gone, a pump house on stilts, a rusted-out flatbed truck that someone left with its bed full of now-frozen peat, a single watchman's cabin tipped two degrees off true. No people. One or two ravens, too cold to call. Maybe a fox track.
+
+But the cut is still on.
+
+Along the north wall runs the ventilation, or the heating, or whatever it was — a trunk line of sheet-steel duct, two meters across, on pylons, running the entire length of the cut and then disappearing into the hillside through a blast door. Inside it, fans the size of houses still turn. No one has come to shut them off. They are on grid power from somewhere else and they are turning slowly, implacably, moving an enormous volume of air so cold it hurts the teeth. The roar is deep and structural. It does not come from one place; it comes from the air itself and the rock conducting it. A low, deafening, patient thunder that vibrates up through the soles of your boots and makes the water beads on the moss shiver. When you are at the bottom of the cut you have to shout right into someone's ear.
+
+You understand after ten minutes that the roar is the only thing actually changing. Everything else is slow. The moss grows a millimeter a month. The frost heaves a centimeter a year, cracking the concrete stairs a little more. The black water inches along. The fans turn. The yellow lights burn. The cold gets slightly less cold toward what will eventually be spring.
+
+If you climb down the iron ladders — careful, they are furred an inch thick in moss and slick — and walk the floor, you find the ground is not ground but a trampoline of roots and rhizoids over trapped air. It gives under your weight and sighs. It is warm, comparatively, where you stand. Life, even in this quantity, makes a little heat as it decays under itself.
+
+There is nothing strange here. It is just what happens when you scrape a clean, sharp, young hole in the world, run machines in it just long enough to declare it profitable or not profitable, leave the machines running, and walk away. The cold does not kill everything. The dim does not kill everything. If you provide a damp place out of the wind, the green will come and it will not hurry.

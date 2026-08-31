@@ -1,0 +1,11 @@
+The world is a vast, low-lying city, stretching further than the eye can see in every direction. It’s built of a dark, porous stone that seems to drink in the dim light, leaving everything in perpetual twilight. The air hangs thick and warm, heavy with the scent of damp earth and something else—a faint, metallic tang that tickles the back of the throat.
+
+Water seeps from the stone everywhere, in a constant, weeping drizzle. The architecture of the city seems to embrace this moisture. Buildings are fused together, less like individual structures and more like a single, colossal organism. Water flows over every surface, creating a network of translucent sheets and reflective pools. The stone itself seems to writhe slightly, as though constantly being re-sculpted by the water.
+
+This is a city *emerging*. It’s a place still in the process of becoming. There is no evidence of active construction, but the formations suggest a slow, relentless reshaping of the landscape. Sections of the city appear unfinished, raw and exposed. Others are eroded and softened, bearing the marks of time and the constant flow of water.
+
+Despite the near-absence of vegetation, life abounds. A deafening chorus fills the air – a cacophony of chirps, clicks, and a high-pitched hum. The fauna are many, and impossible to see clearly because of the dimness and density of the place. The only thing certain is their numbers. They scuttle and crawl and fly and burrow throughout the city. Some are unseen, but are implied by the sounds. They occupy every nook and cranny. The city is a hive, and the buzzing noise is constant.
+
+The technology of this place is simple, but integrated into the environment. Crude metal tools and implements are scattered about — perhaps tools used generations ago. But the city itself is the technology. Buildings shape water, control light, and perhaps even regulate the fauna. It is a slow, self-regulating mechanism, a city that breathes and weeps.
+
+The sounds and the abundance of fauna are what break the sense of stillness. While the city itself seems unyielding, the life within it is not. The insects, the sounds, the dampness — these are the pulses that keep the place from freezing into permanence. But this is a place that stays always similar, a place of slow transformation, in balance. A place of endless being.

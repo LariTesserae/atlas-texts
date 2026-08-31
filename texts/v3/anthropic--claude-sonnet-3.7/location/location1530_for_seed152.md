@@ -1,0 +1,25 @@
+# The Mersong Grove
+
+Beneath the crushing weight of the deep sea, where light is but a memory from the world above, there exists a place that should not be—a pocket of improbable existence, a chamber of botanical impossibility. The locals call it the Mersong Grove.
+
+The Grove is a spherical cavity, perhaps fifty paces across, somehow carved from the oceanic depths. The water here doesn't behave like water elsewhere; it remains perfectly contained within this submarine sphere, pressing inward from all sides yet never collapsing the space. The boundary between the Grove and the surrounding ocean is not a physical membrane but rather an inexplicable threshold where physics bends to accommodate the impossible.
+
+Inside this spherical chamber, plant life has conquered every available surface. The Grove's interior is lined wall-to-wall with a dense carpet of luminescent moss that clings to the water's inner boundary. This strange vegetation grows inward rather than outward, creating a negatively convex forest of translucent filaments that hang toward the center like the interior of some vast sea urchin. The plants pulse with a weak, rhythmic bioluminescence—teal, indigo, and violet—providing the only illumination in this lightless realm.
+
+The cold is pervasive. A bone-deep chill emanates from the water walls, turning breath to mist and coating the sparser regions of plant growth with delicate crystals of frost. Yet despite the cold, the Grove is alive—teeming with life that should not, could not, exist in such conditions.
+
+Scattered throughout this inverted forest are primitive dwellings—crude hollows carved into the thicker portions of plant matter where the vegetation has compacted into something resembling wood. These simple shelters house a small community of pale, blind humanoids, their skin translucent and veined with the same bioluminescence as the plants. They move with practiced precision through their botanical world, harvesting the glowing filaments to craft tools, garments, and simple machines.
+
+Their technology is primitive yet ingenious—water wheels that turn not from flowing water but from the steady pressure of the ocean beyond; cutting tools fashioned from crystallized plant resin; nets woven from living fibers that continue to grow even after harvesting, mending themselves when torn. Everything here is alive, processed but never truly dead.
+
+The most striking feature of the Grove, however, is its sound. The constant pressure of the deep ocean creates a perpetual, resonant hum that vibrates through the plant matter. The inhabitants have learned to manipulate this natural phenomenon, carving precise chambers and channels in the denser vegetation to create instruments that amplify and modulate the oceanic pressure. The result is a continuous, otherworldly chorus—part whale song, part wind through ancient pipes—that fills the Grove day and night, if such concepts even exist in this timeless place.
+
+Fauna thrives in curious harmony with the humanoids. Translucent crustaceans scuttle along the plant filaments, keeping them clear of parasites. Eyeless fish with elongated, sensitive whiskers navigate the space between hanging vines. Most bizarre are the "vessels"—symbiotic creatures resembling jellyfish that the humanoids cultivate and use to travel beyond the Grove, into the crushing ocean. When worn like living suits, these creatures protect their pilots from the pressure while filtering oxygen directly into their bloodstream.
+
+The Grove exists in perfect equilibrium. It neither grows nor shrinks. The inhabitants neither increase nor decrease in number. Time seems irrelevant here—there is no day or night, no seasons, no weather, just the eternal cold and the unending song of the deep. How long it has existed, none can say. The inhabitants have no creation myth, no concept of a world beyond their aquatic sphere.
+
+Most perplexing of all is the water wall itself—a boundary that appears to be simultaneously forming and containing the Grove. It gives the unsettling impression that the Grove is perpetually being born, forever on the cusp of creation, neither fully manifested nor merely potential. The threshold between water and Grove exhibits properties that defy explanation—solid enough to resist the crushing pressure of the deep ocean, yet permeable to those wearing the living vessels.
+
+In the center of the Grove hangs a single, massive filament, thicker than all the others, pulsing with a deeper, more resonant light. The inhabitants never approach it directly, but often leave offerings of crystallized plant matter at its base. They call it the Root, and though they won't explain its significance to outsiders, their entire society appears organized around its care and worship.
+
+This is the Mersong Grove—an impossible pocket of life in the lightless deep, where plant and animal and humanoid exist in cold, harmonious equilibrium, forever singing the strange music of their creation into the endless night of the ocean floor.

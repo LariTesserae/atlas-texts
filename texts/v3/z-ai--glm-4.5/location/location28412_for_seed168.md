@@ -1,0 +1,19 @@
+The sky here is not so much an expanse as it is a pressure—a hard, pale vault of unblemished blue that presses down on the tops of the spires. This is a high country, an altitude where the air is thin and desperately dry, tasting of ozone and ancient dust. There are no clouds, only the terrifying clarity of the light, normal and bright, illuminating a world that feels as though it was created only moments ago and then instantly frozen in time.
+
+The terrain is raw, violent in its newness. Erosion has not yet had the time to soften the edges of the world. The ground is a fractured chaos of jagged basalt and obsidian shards, rising in sudden, jagged fists that form plateaus and mesas with perfectly vertical faces. It looks less like a landscape and more like a breakage, a wound in the crust of the planet that has yet to heal over. There is no soil here, no dust of decay, only the bedrock split open to the sun.
+
+And yet, it is lush.
+
+This is the great paradox of the place. The water parameter is effectively zero; there is no dew on the rocks, no mist in the air, no liquidity to the silence. But the "vegetation" thrives in a density that rivals the deepest jungle, defying the need for moisture. These are not plants as we understand them. They are mineral growths, industrial crystallizations that erupt from the raw stone.
+
+Great forests of copper and iron rise from the fractures. They are "trees" of braided, conductive filaments, standing thirty feet tall, their foliage made of vast, shimmering heat-sinks and wafer-thin crystalline solar panels. They do not sway; there is no wind here to move them. They stand in rigid, geometric perfection, absorbing the fierce warmth of the day and transmuting it into a slow, visible hum of energy that vibrates in the soles of your feet.
+
+The landscape is vast and open, stretching for hundreds of miles without a single curve to soften the horizon. Despite this scale, the "density" of the metallic flora makes the space feel intimate, crowded with intricate, silent machinery. But it is empty of life. There are no birds, no insects, no grazing beasts. The silence is absolute (0.2/3), broken only by the occasional, musical "tink" of thermal expansion—a soft, percussive sound as a brass-twig cools in the setting sun.
+
+This place is industrial (1.7/3) not because it was built, but because it *grows* that way. The geology here mimics manufacturing. Along the ridge lines, natural vents exhale steady streams of noble gases, and hanging gardens of translucent tubing dangle down, condensing silicates into glass-like bulbs that drip upward, defying gravity, feeding the metallic root systems below. It is an ecosystem of production, a biological assembly line that requires no water, only heat and light and the raw minerals of the earth.
+
+The temperature is warm, a dry, baking heat that radiates from the rocks long after the light has faded. It is the warmth of an engine running at equilibrium.
+
+There is a profound stillness here, a "dynamic" quality of zero change. Nothing moves quickly. The growth of the copper trees is measurable only in geologic epochs; the shifting of the tectonic plates is slower still. It is a world caught in a state of perfect, high-functioning stasis. You feel that if you were to turn your back on a valley and return in a thousand years, it would look exactly the same: the same towering crystal-ferns, the same jagged cliffs, the same silent, empty processing of the planet's energy.
+
+It is a haunting, beautiful alienation. A garden of statues made of circuitry and stone, silent and warm, stretching out forever under the empty, watching sky.

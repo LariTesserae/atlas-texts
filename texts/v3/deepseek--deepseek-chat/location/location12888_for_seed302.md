@@ -1,0 +1,9 @@
+**The Shining Fens of the Silent Peaks**  
+
+A high plateau, windswept and vast, stretches under a sky so bright it bleaches the edges of vision. The air is cool and thick with moisture—not the damp of lowland marshes, but the sharp, thin wetness of altitude, where water clings to everything in a perpetual sheen. The rock here is dark, almost black, but glazed with a slick patina of condensation, as if the stone itself weeps. Pools form in hollows, not deep but countless, their surfaces trembling under the ceaseless wind.  
+
+No plants grow here. No roots, no leaves, no green—only the mineral world, sculpted by time into a labyrinth of shallow channels and smooth, rounded hummocks. The ground is dense with formations, packed so tightly that there is no bare earth, only the interlocking shapes of water-worn stone and glassy mineral deposits. Some surfaces catch the light and throw it back in jagged reflections, fractured by the rippling water that coats them.  
+
+The sound is overwhelming. Wind howls across the plateau, funneled and amplified by the maze of stone, a roar that drowns all other noise. Sometimes, when the gusts strike just right, the water shivers into harmonics, a chorus of high, keening vibrations that hum through the bones. Rarely, something moves—a sleek, quick shadow slipping between pools, more ripple than flesh, gone before the eye can fix on it.  
+
+Time does not change this place. The wind has always blown. The water has always seeped. The stone has always been wet, always gleaming, always singing its wordless song. It is a world of mineral patience, where even the rare flicker of life is just another momentary refraction in the endless brightness.

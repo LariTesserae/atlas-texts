@@ -1,0 +1,15 @@
+The world exists within the interior of a singular, fist-sized geode suspended in the void of a high-altitude mountain peak. It is a city of impossible precision, no larger than what one might cover with a cupped hand, carved into the cooling, jagged interior of a hyper-dense mineral cavity.
+
+This is a place of crystalline urbanism. 
+
+The architecture is not built; it is precipitated. Towers of translucent, hexagonal glass rise in jagged spires from the dark, basaltic floor of the geode. Because the scale is micro, the eye catches the shimmer of the city as if it were a drop of dew caught in a spider’s web. The temperature here is biting—the environment is perpetually on the cusp of freezing—which keeps the atmosphere heavy and thin. Moisture does not pool; it breathes. A light, constant condensation films the surfaces of the spires, creating a slick, weeping landscape where water beads and runs along capillary channels etched into the very foundations of the buildings.
+
+There is no organic life. Biology is a concept that has never taken root here. Instead, the city hosts a swarm of nanoscopic automatons—the *weavers*. They are not sentient in any way recognizable to human consciousness, but they are driven by a singular, persistent cycle of fabrication and repair. They resemble fine, floating filaments of silver wire, drifting through the gaps between the spires. When they strike a surface, they vibrate, emitting a faint, high-pitched *ping* that hums against the silence of the high-altitude air. 
+
+These weavers constantly dismantle parts of the city that have aged by a fraction of a millimeter and reconstruct them in slightly different configurations. The city is never finished; it is a permanent work-in-progress, a kinetic sculpture of logic and geometry. 
+
+The light here is sharp and white, filtered through the thick, frosty shell of the exterior geode. It casts long, distorted shadows across the interior plazas, which appear as dark, volcanic cracks in the terrain. 
+
+Deep within the center of the city, there is a rhythmic, fluid pulse. A clear, viscous liquid—the byproduct of the atmospheric condensation—drips from the overhead stone ceiling, striking a central plaza. The sound is an intermittent, hollow *tock*. Each drop sends ripples through the nanoscopic swarm, momentarily disrupting the geometric patterns of the air. The weavers react instantly, flowing like mercury toward the point of impact, reshaping the architecture to channel the moisture into a closed-loop system that snakes through the entire city.
+
+It is a lonely, cold, and beautiful mechanism. High above the clouds, hidden at the scale of a pebble, the city continues its endless, silent labor. It waits for nothing, hopes for nothing, and requires no observer. It is a crystalline heart encased in volcanic glass, governed by the cold, wet laws of its own creation, eternally rearranging its glass bones as the mountain wind whistles over the surface of its shell, oblivious to the civilization inside.

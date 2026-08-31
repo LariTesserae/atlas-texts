@@ -1,0 +1,9 @@
+In the depths of an ancient, liquid world, vast sheets of water press against layered membrane-structures—not quite buildings, not quite living tissue. These are the remnants of a civilization that long ago surrendered to complete submersion, constructing entire urban ecosystems within liquid boundaries.
+
+The water here is not ocean as we know it, but a dense, almost gelatinous medium, heated to near-boiling by unseen thermal currents. Translucent industrial scaffolds rise and bend through this heated fluid, their industrial frameworks thick with photosynthetic growths—dense, luminescent vegetation that has evolved to thrive in perpetual semi-darkness and constant thermal flux.
+
+These scaffolds are not random, but meticulously engineered: each strut and membrane a calculated response to constant environmental pressure. They undulate with slow, generational movements, adapting incrementally over centuries. The structures are so densely packed that individual elements blur together—a continuous, breathing mechanism of survival.
+
+Dim light filters through the liquid layers, casting everything in muted blue-green tones. No animals traverse this environment; instead, the scaffolds themselves seem animate, pulsing with slow metabolic rhythms. Mechanical sounds—low hums of ancient pumps, the occasional metallic shift of a stress-bearing membrane—whisper through the fluid space.
+
+This is a world of total adaptation: no surface is truly natural, every element constructed and re-constructed across unimaginable timescales. The boundary between machine and organism has long since dissolved, leaving behind this complex, breathing infrastructure.

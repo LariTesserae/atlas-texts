@@ -1,0 +1,23 @@
+There is no horizon here, for there is no line where the earth meets the sky; there is only the gradient of density.
+
+At a scale that beggars comprehension, the world is a single, contiguous entity. It is not a forest that grows upon the land, but a structure *of* living matter that has replaced the land itself. This is the Green Deep, a planetary stratum of vegetation so total that geology and biology have become indistinguishable. The crust of the planet is not rock, but a calcified, interwoven mat of root-masses centuries deep, compressed into something harder than granite.
+
+You stand upon a vast, living plateau.
+
+Because the light value is near zero, vision is useless here. The darkness is absolute, a heavy velvet that presses against the skin. If one could see, the scale would induce vertigo: stalks as thick as city towers rise endlessly upward, disappearing into a gloom so high it might as well be space. But lacking eyes, the mind constructs the world through touch and smell and the acoustic hum of the place.
+
+The atmosphere is thick with humidity—a 1.6 on the scale, but it feels heavier. The air is warm (1.5), a stifling, tropical heat that holds the scent of wet ozone, bruised chlorophyll, and the sweet, cloying perfume of accelerating decay. Water does not fall here; it condenses. The vast, breathing lungs of the mega-flora exhale moisture that hangs in the air until it becomes too heavy, weeping down the massive columns in constant, silent rivers. Every surface is slick, coated in a viscous slime of nutrient-rich runoff. The ground squelches underfoot—a sponge of peat and water held in a lattice of tough, fibrous mats.
+
+The terrain is sharp and young (0.6). There are no eroded hills, no worn smoothness. The landscape feels recently erupted, as if a biological volcano exploded outward and then froze in mid-act. Jagged ridges of bark cut like knives; buttress roots jut out like the jagged teeth of a saw blade. This is a landscape of edges and angles, a chaotic industrial sprawl of organic matter that hasn't had the time to soften. It feels raw, like a wound that has just scarred over into tough keloid.
+
+This brings the "tech" of the place into focus. There is no metal, no glass, no smelted ore (Built: 0.1), yet the environment is undeniably industrial (2.1). It is a factory of pure flesh.
+
+The vegetation operates with the ruthless efficiency of an engine. The giant stalks are not merely plants; they are pipes and pistons. You can hear the occasional, deep *groan* of turgor pressure adjusting—a hydraulic sound, massive and slow. Vines as thick as locomotives coil around the great pillars, contracting in rhythmic peristalsis, pumping sap thousands of feet vertically with the force of water hammers. The air vibrates with the sub-audible thrum of billions of xylem tubes under high pressure. It is a factory that manufactures volume and mass, consuming the wet air and the darkness to build more of itself.
+
+And yet, despite this furious industry, the silence is profound (0.2).
+
+The machinery of this world operates on timescales that render it motionless to the human perception. A branch may shift its tonnage over the course of a day; a flower the size of a house may open its petals over the course of a week. There is no chitter of insects, no call of birds, no rustle of small animals in the undergrowth. The fauna parameter is absolute (0.1). There are no consumers here, only producers. It is a silent, haunting monopoly of life. The only sound is the "drip-drip-drip" of condensation falling from the canopy high above, plinking into the warm, shallow pools that collect in the vast, interlocking root systems.
+
+The "weirdness" (2.2) lies in the stillness. The dynamic parameter is frozen (0.2). This is a landscape in perfect, terrifying equilibrium. It is not dead; it is merely *static*. Every ounce of energy produced is immediately reinvested into structure. There is no chaos, no predation, no birth, and no death—only a continuous, pulsing state of *being*. The ecosystem is a closed loop of perfect efficiency. Nothing is wasted. Nothing moves unless it is part of the Great Growth.
+
+To walk here is to walk through the guts of a dormant god. The air is wet and hot. The darkness is total. The ground is uneven, a treacherous maze of slick, hard roots and deep, hidden pockets of water. You feel tiny, an intruder of carbon and soft flesh in a world of high-pressure cellulose and hydraulic sap. It is a place where the concept of "nature" has been obliterated, replaced by a cold, biological super-structure that labors forever in the dark, building a mountain of itself that never gets any higher, never gets any smaller, and never stops working.

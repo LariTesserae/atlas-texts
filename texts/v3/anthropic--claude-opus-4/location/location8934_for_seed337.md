@@ -1,0 +1,25 @@
+The Breathing Caverns of Soltice Minor
+
+You descend through a crack in the permafrost into a world that shouldn't exist. The air hits you first—warmer than the surface by precious degrees, though still cold enough to sting your lungs. It carries the mineral tang of ancient water and something else, something organic and faintly sweet.
+
+The space opens into a low-ceilinged chamber no larger than a village square, its boundaries lost in the persistent twilight. What light exists filters through ice-filmed gaps above, refracting into pale blues and grays that shift with the movement of clouds you cannot see. The walls glisten with condensation that never quite freezes, perpetually weeping in slow rivulets that have carved delicate channels over millennia.
+
+But it's the floor that stops you. What appeared from above to be rough stone reveals itself as a living carpet of machinery—or perhaps machinery that has learned to live. Countless thumbnail-sized mechanisms pulse and click in the semi-darkness, their brass and copper surfaces green with verdigris, gears meshing with the patient rhythm of prayer wheels. They cluster so densely that you must step carefully, feeling for the narrow paths of actual stone between their congregations.
+
+Each mechanism is unique yet eerily similar—some spin lazily on pin-thin axles, others pump minute pistons in and out of holes worn smooth by endless repetition. Steam wisps from their workings in barely visible threads, and you realize the warmth comes from them, from their collective mechanical breathing. The condensation on the walls is their exhalation meeting the cold stone.
+
+Scattered among the mechanisms, thin stalks of something plant-like push up through gaps in the machinery. Not quite fungus, not quite moss—they're translucent and fibrous, like cave-adapted ferns made of spun glass. They grow only where the mechanisms are sparsest, as if in negotiation with them for space. Some stalks bear tiny copper fruiting bodies that tick and whir with their own internal gears.
+
+The sound is what unsettles most. It should be cacophonous—thousands of tiny engines running without synchronization—but instead it's barely a whisper. The mechanisms run almost silently, their collective noise no louder than falling snow. Only when you kneel close can you hear individual tick-tick-ticks and the faint hiss of escaping steam. The acoustic dampening seems intentional, as if the machines have evolved to muffle themselves.
+
+Water collects in natural basins where the stone dips, each pool no bigger than a washbasin. The mechanisms cluster thickly around these, some extending hair-thin copper proboscis to sip, others positioned to catch the drops that fall from saturated moss above. In one pool, you spot movement—a creature like a clockwork salamander, its segments clicking as it navigates between submerged gears. It's the only animal you've seen, and when it notices your attention, it freezes, then slowly backs into a crevice with mechanical precision.
+
+The ecosystem pulses with subtle activity. Mechanisms birth new mechanisms—you watch one split like a cell, brass plates folding apart to reveal a tiny duplicate that immediately begins its own patient spinning. Others rust and fail, their neighbors quickly scavenging the useful metals, leaving only iron oxide stains on the stone. The glass-ferns seem to feed on these stains, growing fractionally taller where the mechanical death is thickest.
+
+Sometimes a wave of activity passes through sections of the mechanical carpet—gears spinning faster, steam production increasing, creating a brief fog that obscures the already dim space. These waves follow no pattern you can discern, but they seem to affect the condensation rate on the walls, which in turn influences where water drops fall, which in turn determines where new mechanisms establish themselves.
+
+The boundaries of the space aren't walls so much as zones where the conditions no longer support the strange mechanical ecology. Where the ceiling drops too low, where the cold intensifies, where the stone becomes too solid to permit the tiny boring holes the mechanisms seem to require. You could explore the entire space in an hour, but understanding it would take lifetimes.
+
+This is old magic, or old technology, or perhaps something that predates the distinction. The mechanisms have been here so long they've worn their own evolutionary grooves into the world. They've achieved a balance with the sparse vegetation, the rare fauna, the exact temperature that lets water exist in all its phases within the same small space. It's dense with presence yet empty of purpose—at least, any purpose legible to outside eyes.
+
+The Breathing Caverns wait, patient as rust, while their mechanical ecology dreams its small, dense dreams in the dim light of a world that has forgotten they exist.

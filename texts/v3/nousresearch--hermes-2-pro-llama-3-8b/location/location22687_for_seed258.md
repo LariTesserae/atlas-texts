@@ -1,0 +1,13 @@
+Perched above a vast, untamed expanse is a land of jagged, green mountains—cliffs cutting through the sky. Here, it's as though the world is still being invented. Unseen hands shape the Earth; the land boasts a terrain yet to reach its final form, still finding its way between the footprints of unknown feet. 
+
+It's a high place, with peaks reaching past the clouds. The slopes are steep, challenging and saturated with life. Soaring pines and grand oaks cling to the rocks, their branches reaching towards the heavens as if grasping for the divine. Mosses and ferns find footholds amongst the crags, while torrents of a spectral, watery substance thread their way through the landscape. This advance life dwells not upon a solid Earth but upon each other, forming a shared, living architecture.
+
+There's a raw, uneasy beauty to be found here: not yet smoothed, but with a rough sensibility that suggests the land is still hard at work on itself. It's an odd blend of the finite and timeless, with fragmented pieces of ancient earth and demolished mountains jutting from the landscape in what appears to be an irregular mosaic. Perhaps time has slowed, or perhaps time has ceased to exist—one can't say for sure. 
+
+Of note is the presence of an ephemeral water—no river, no lake, but a steady dribble, like the work of nature itself: a thin and verdant line divided by thin rivulets that crisscross each other. The veil of this ethereal water—silver and shimmering—hovers over the mountain shoulders and cascades down,frothing like cosmic surf before vanishing into the soil. 
+
+Throughout the mountains, strange and scarce fauna roam: humped herons that paddle through the trickling water and silent reptiles with wings like torn lace. But perhaps the most peculiar of all are the plant-made structures—as if the flora itself has taken shape into living architecture, reaching for the sunshine. 
+
+In this land, all built structures have succumbed to the might of nature, leaving behind only warm, rough outcrops, as if the natural world has snatched victory from the architects of yore. The landscape thrums in a storm of activity: a chorus of hollow-voiced plants, a vicuous parade of oddly shaped flora, an orchestra of the strange and few, all singing the same song, a testament to nature's latent power. Every day is met with the same light, the same temperature, and the same harmony of species, creating a world that never dwindles, never sharpens, but remains constant. 
+
+Despite all these, the landscape always rings with a loud, constant sound, as if a great, unseen force is hammering at the earth. With time refusing to move, this symphony of life forms and the ever-present pounding is the closest thing to a rhythm available in this land of perpetual now.

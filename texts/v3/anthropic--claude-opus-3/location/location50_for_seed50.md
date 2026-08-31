@@ -1,0 +1,9 @@
+In the heart of a turbulent ocean, a tiny island emerges from the churning depths—a newborn speck of land fighting to exist amidst the ceaseless pounding of waves. This is a place in the throes of creation, a microcosm of primordial forces at work.
+
+The island is little more than a craggy mound of raw volcanic rock, still steaming from its violent birth. Tendrils of steam hiss from fissures, merging with the spray whipped up by the crashing breakers. Geysers spurt scalding water and dissolved minerals high into the air at erratic intervals, adding their voice to the cacophonous roar of the sea. The scent of brimstone and salt hangs heavy.
+
+Scattered across the scoria and pumice are bits of bright detritus—fragments of coral, shells, driftwood, and stranger things polished smooth. Haunting the nooks and crannies are a few hardy creatures—limpets, anemones in sheltered pools, and darting silver-finned fish adapting to this new world. In the heart of the islet, a cluster of stubby, determined stems have sprouted—the pioneers of a new ecosystem gaining a fragile foothold.
+
+The light filters down in shimmering curtains through the clear, turbulent water, setting the shallows aglow in viridian and azure. But the depths surrounding this little island are mysterious and vast, hinting at stranger origins. The seabed drops away sharply into yawning underwater canyons and trenches. Thermal vents belch shimmering columns of superheated mineral-rich water that vanish into the frigid gloom above.
+
+Time behaves strangely here. The island expands and contracts, features rising and subsiding over days, hours, or minutes as though in a time-lapse dance. A sense pervades that this place doesn't quite belong—a lost pocket of creation that has bubbled up from some deeper reality, fighting to survive in this hostile environment. The island is a beautiful, deadly, dreamlike apparition, an impossible oasis of life and land in the midst of a raging, roiling ocean.

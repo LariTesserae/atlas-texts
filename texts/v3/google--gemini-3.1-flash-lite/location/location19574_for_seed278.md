@@ -1,0 +1,17 @@
+The world does not have a horizon; it has a slow, rhythmic curvature that swallows the distance in a haze of bruised violet and slate-gray. Here, at this immense altitude, the air is thin and holds a bite that never dulls—a permanent, bone-deep cold that turns every exhaled breath into a ghost that lingers far longer than it should.
+
+This is a landscape of vast, weathered geometry. The terrain is composed of expansive plateaus formed from iron-rich basalt and deep, sediment-caked ravines. Erosion has had millions of years to work here. The result is a series of rolling, dulled ridges that look less like mountains and more like the skeletal remains of something once colossal. Everything feels settled, etched by a slow, patient entropy.
+
+Water exists as a hesitant, begrudging presence. There are no rivers, only networks of weeping stone. Because the temperature is so hostile, moisture does not flow; it clings. Massive, jagged shards of rock are perpetually slick with thick, translucent condensation. In the depressions of the plateau, small, stagnant pools of black, viscous liquid gather, rimmed with delicate, white-frosted rime that cracks like glass under the weight of a footfall.
+
+Though the land appears desolate, it is suffocatingly crowded with life. This is the paradox of the zone: a biological density that defies the sparsity of resources. Thousands of species of moss-like, fibrous organisms cling to any shaded vertical surface. They are not green, but a spectrum of ochre, rust, and burnt orange—low-slung, creeping lifeforms that pulse with an almost imperceptible bioluminescence. 
+
+And then, there are the machines.
+
+They are not built by hands. They appear to be an autogenous industrial sprawl, a planetary-scale process of calcification and engineering that has integrated itself into the geology. Great, rhythmic piston-cylinders of seamless dark metal emerge from the earth, rising hundreds of feet like strange, rusted monoliths. There is no noise—only the sound of movement. They operate in a state of impossible silence. One might watch a massive armature, the size of a cathedral, pivot a fraction of a degree over the course of a week. 
+
+They do not serve a purpose that is visible. They do not manufacture, they do not burn, there is no smoke. They seem to be straining, pulling against the very tectonic plates of the world, maintaining a calibration that is both archaic and incomprehensibly complex. They are the engines of the cold, regulating the slow, rhythmic cycles of this environment.
+
+Scattered across the plateaus are the fauna: spindly, multi-jointed entities, their carapaces translucent and reinforced with the same metal found in the pistons. They move with agonizing slowness, limbs folding and unfolding in a precise, mathematical dance. They interact with the machinery, cleaning the weeping seams of the rocks, or perhaps merely standing in wait, their sensory stalks twitching in the dim, perpetual twilight.
+
+There is no wind. There is no conversation. The interaction between the metallic monoliths, the frost-slicked rock, and the teeming, silent organisms is a dialogue of profound, heavy patience. Everything here has already happened, will continue to happen, and is currently happening in the exact same way. It is a world that has reached its equilibrium, a vast factory of silence that needs no overseer to continue its endless, freezing work.

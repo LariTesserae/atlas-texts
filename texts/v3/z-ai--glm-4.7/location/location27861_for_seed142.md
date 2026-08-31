@@ -1,0 +1,19 @@
+The darkness here is not the absence of light, but a substance—heavy, velvet-thick, and thermally warm. It presses against the skin with the viscosity of warm oil. There are no stars above, and no horizon below; the world is a void punctuated only by the vast, blind silhouettes of the city.
+
+This is the High Mesh.
+
+You are standing on an elevation that feels less like a mountain and more like the surface of a resting titan. The air is thin and incredibly dry (0.2), breathing it in feels like inhaling the dust from a vacuum cleaner bag heated to a tepid, uncomfortable warmth (1.5). It carries the scent of ancient, oxidized iron and desiccated lubricants. There is no humidity to carry sound, so the silence (0.6) is absolute, a vacuum that swallows the smallest whisper.
+
+The ground beneath your feet is not stone, but metal that has been eroded (2.7) to the texture of pumice. Millions of years of thermal cycling and friction have worn the sharp edges of this industrial metropolis (2.0) down into smooth, rounded curves. The city is vast and open (2.4), a sprawling archipelago of machine-structures separated by kilometers of flat, graded plateaus.
+
+Because there is no vegetation (0.0), there is no green to break the monochrome, no rustle of leaves, no soft organic decay. Biology here is a failed experiment. The only "ecology" is mineral. Strange, crystalline formations have erupted from the seams of the great factories, growing where oil once flowed, faceted and sharp, consuming the iron slowly. The fauna (0.8) is equally rare; occasionally, something skitters in the dark—a thing of jointed chitin and metal, scavenging the static energy that leaks from the grid—but it is gone before you can turn your head, leaving only the clicking of hard claws on hollow deck-plate.
+
+The architecture is industrial (1.9) but alien in its antiquity. These are not the factories of a burgeoning civilization, but the cathedrals of a finished one. Massive pistons the size of skyscrapers are frozen in mid-stroke, locked in a rust-red equilibrium. Conveyor belts stretch out into the gloom, wide enough to drive a tank across, sitting motionless under the weight of nothing. The structures are sparse (1.2), placed with mathematical precision across the landscape, connected by pipelines that have long since drained or crystallized solid.
+
+The technological level is high, but it is a dead technology. The machines do not run; they exist. They have achieved a state of perfect dynamic stasis (0.4). The rule of this world is entropy maximized. Everything that could happen has happened; the potential energy of the system has been spent. The heat you feel is not the fire of engines, but the residual waste warmth of a billion years of friction, slowly bleeding out into the void.
+
+Light (0.1) is the rarest commodity here. There is no sun, no moon. The only illumination comes from the "breathing" of the ore itself—faint, phosphorescent decay that outlines the ridges of the mountains in ghostly violet. It is a light that reveals nothing, only defining the edges of the darkness. You cannot see the distance; you can only feel the vast, open space stretching out around you.
+
+The weirdness (2.0) lies in the perception of time. In this frozen equilibrium, past and future have collapsed. Looking at a gear the size of a city gate, you realize it hasn't moved in eons, yet it hasn't rusted away; it is preserved in a moment of tension that feels like it could release at any second, yet never will. The geometry of the place feels wrong—straight lines seem to curve when you look directly at them, and the spatial relationship between two distant towers shifts when you blink, suggesting a landscape that is merely a projection of some immense, sleeping mind.
+
+To walk here is to walk through the cooling carcass of a god that built itself. It is warm, dark, dry, and utterly, terrifyingly still.

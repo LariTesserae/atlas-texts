@@ -1,0 +1,15 @@
+This place is a sprawling, vertical city built into the sides of an immense, slow-moving glacier. Slick glass and reinforced steel blend into the ice so seamlessly it's often hard to tell where one ends and the other begins. Infrastructure extends far beyond the urban core, with pipelines, railways, and roads cutting through the ice like scars. Water is rare but present, oozing in rivulets through the glacier's surface, pooling in hollows, and sometimes bursting forth in brief, violent torrents.
+
+Vegetation clings in unlikely places, green tendrils tracing the city's walls, and trees sprouting improbably from the ice itself. The air is cool and damp, filled with the roar of machinery and the constant groan of glacier creep. The sky above is a deep grey, and the light has a peculiar quality, as if it is filtered through some unseen substance, casting long, distorted shadows.
+
+Elevation varies dramatically as the city sprawls across different levels of the glacier. Some districts are built directly into the ice, others sit on a series of stepped plateaus, and the highest tiers reach up towards the sky like shards of glass. It's this extreme change in elevation that makes the built environment feel so stunning - bridge walkways swoop between buildings, and elevators run both vertically and horizontally to connect different parts of the city.
+
+Despite the dense construction, the city feels sparse, with wide expanses of open ice between the sprawling structures. The atmosphere is heavy with dampness and the smell of electric power. Water ignites in countless small fountains and water features, some inside grand architectural spaces, others might as well be staging points for ice climbers.
+
+Tech here is everywhere - from the high-voltage lines that crackle in the air to the frequent burping sounds from the factory chimneys that seem to push the mists away from the city streets. Industry pervades - massive cylindrical smelters glow with molten fire at the city's edge, and computer-driven cranes like giant spiders circulate the city's edges.
+
+Bestiary here is lush - short-furred leviathans take form in the city streets before briefly losing their crystalline protectives and being scarred straight back into the mists off the central plazas. While native birds roost in gaps beneath turned-inwards machinery clusters. Traffic is managed by great moths, as big as bulkcases or bigger, of strange silk patterns.
+
+Overtones weak enough in the mornings get strong by sundowns. With several city towers pumping filtered subconscious excitations into the clouds, not the strongest waves tho. After certain land shifts, yellow matter steeps the thick borders.
+
+That's what it feels like to be here, in this unique and varied space. The totality is a potent integration of contrasting elements into a singular, coherent whole.

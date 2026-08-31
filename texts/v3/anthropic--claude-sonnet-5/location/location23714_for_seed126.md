@@ -1,0 +1,33 @@
+# The Plain of Standing Light
+
+It is called, in the few tongues that still name it, the Plain of Standing Light, though no one living named it and the structures that compose it were not built by hands anyone remembers. What remains is this: a built world so old that it has stopped looking built and started looking *geological* — as if construction itself were a mineral process, something that happened to matter the way crystallization happens to brine.
+
+## Terrain
+
+There is no ground in the old sense. What spreads to every horizon — and the horizon here is genuinely far, curved faintly at its edges by the scale of the place, a flatness so vast it generates its own sky-pressure — is a continuous worked surface: fused ceramic-metal alloys, pale gold and bone-white, laid down in slabs that may once have been distinct units but have long since crept and welded into one another at their seams. Ten thousand years, a hundred thousand, of thermal cycling and settling have planed everything toward flatness. The elevation is low and getting lower; whatever towers once existed here have eroded — not by wind or rain, there being neither — but by their own slow structural creep, a kind of metal fatigue stretched across geological time, until most of what stood now lies as long low ridges, the fossil-spines of collapsed architecture, barely rising from the plain like the keels of buried ships.
+
+Where structures do still stand — and many do, because some of this engineering was built to outlast erosion itself — they stand as worn-smooth monoliths, their original function illegible, their corners rounded the way river stones round, except no river ever touched them. Time alone did this. Time and the slow flexing of materials that were never meant to be permanent, only to last longer than anything else.
+
+## Materials and Light
+
+Everything is made. There is no soil, no native rock, no organic substrate anywhere beneath the surface — dig anywhere and you find more construction, layer under layer, foundations beneath foundations beneath foundations, the built history of the place going down further than anyone has excavated. The materials are not quite metal, not quite ceramic, not quite glass — they shift category depending on temperature and the angle of light, which suggests engineering that operated on principles current science has only partial words for. Photovoltaic skins that still, after all this time, drink the bright sun and breathe faint light back out at dusk. Surfaces that self-heal hairline fractures, slowly, visibly, if you wait an hour and watch.
+
+The light is bright — fierce, even, a high warm sun in a sky that may not be entirely natural either, scattering off every pale surface so the whole plain seems to glow from within, a shadowless or nearly-shadowless brilliance. At midday the heat-shimmer above the slabs makes the far ridgelines waver like reflections in still water, though there is no water here, only the appearance borrowed from a process the air still remembers how to perform.
+
+## Vegetation, Fauna, Sound
+
+Plant life is sparse and strange: not soil-rooted growth but mineral-flora — lichen-analogs that metabolize the slow electrical bleed-off still leaking from buried systems, growing in thin rust-colored veins along seams and cracks, pulsing faintly brighter when the buried current surges, a heartbeat visible in vegetation that may not be vegetation at all in the way we'd mean it. Sparse, but not absent — every few hundred meters, a patch, a stain, a thread of it tracing the line of some dead conduit like a vein under skin.
+
+Fauna are rare, glimpsed more than seen: small jointed things, more machine than animal or perhaps no longer distinguishable as either, that move along the seams in the structure feeding on the same bleed-current the lichen feeds on. Something like a bird, sometimes, very high, riding a thermal that shouldn't exist over a place this flat — except the plain generates its own weather, vast as it is, vast enough to have fronts and pressure systems and a climate of its own devising, heat rising off ten thousand kilometers of pale alloy and pulling thin clouds into shapes no mountain made.
+
+Sound is almost entirely absent. The quiet here has a quality, a depth, that feels less like silence-by-default and more like silence-as-design — as though the original engineers built dampening into the bones of the place, or as though ten hundred millennia have simply worn every resonant frequency down to nothing. What sound exists is small and precise: the click of a lichen-vein discharging; the long low structural groan, once or twice a day, of some kilometers-distant ridge settling another fraction of a millimeter into its final shape; wind that isn't quite wind, more a slow exhalation of the plain's own engineered respiration, moving warm air across the slabs at dusk.
+
+## Density and Strangeness
+
+Despite the flatness, despite the silence, the place feels dense — saturated — because everything, everywhere, is structure. There is no negative space the way there would be in a natural landscape; even the gaps between standing ridges are paved, channeled, threaded with buried conduit, layered with the ruins of ruins. You are never standing on "nothing." You are always standing on the fortieth floor of something, just one that has been pressed flat and smoothed over by time until it reads as terrain.
+
+The strangeness accumulates slowly rather than announcing itself. A slab that is warm to the touch on a cold morning for no traceable reason. A ridge that, viewed from exactly the right angle at exactly the right hour, resolves into something almost like a face, vast and worn, before dissolving back into abstraction as you walk past it. Lights that surface in the depths of the material at dusk — not reflected light, generated light, something still running far below, on a schedule no one set and no one has cancelled.
+
+## Rules of the Place
+
+Nothing here was made to be a landscape; landscape is simply what happens to engineering once everyone who understood it is gone and only the engineering's patience remains. The place is not hostile. It has no intentions at all anymore, if it ever did. It simply continues — self-repairing in small ways, slowly failing in larger ones, generating its own thin weather, feeding its own thin lichen, glowing faintly under its own pale bright sun — a vast, warm, nearly silent machine in the final, longest stage of becoming a ruin so complete it has started to look, again, like ground.

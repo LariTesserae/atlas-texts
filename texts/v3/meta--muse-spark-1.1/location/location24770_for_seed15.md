@@ -1,0 +1,23 @@
+It is a single room below the ground that is full of water.
+
+Not a ruin. Not a cave that someone built in. A room where every surface you can touch was put there by a hand. Floor, walls, ceiling — all made.
+
+You are looking at it from inside the water, because there is no way to be in this place and not be in the water. The water is the place.
+
+From the outside, above you, there would be only flat, sun-hammered earth, cracked clay and white dust. But here there is a square cut straight down, maybe ten feet on a side, no more. The shaft goes up. The walls are huge, rough-cut limestone blocks, still sharp at their edges. You can see the chisel chatter in them, the places where a flake didn't break clean and they left it. This is young work. Fresh work. No softening yet from years of water. The mortar between the blocks is new, still pale, still a little crumbly at the lip, lime-white. It was plastered once, a thin coat over everything, and in places the plaster has already been pitted by the water, but not worn smooth.
+
+This is a cistern, or a settling tank, or a bath - the word doesn't exist yet for what it is. It is a pocket made to hold the rain.
+
+And it is holding it now, completely. From rim to floor, it is submerged. The water is warm. Not cool like a well should be, but body-warm, sun-warm, storm-warm. It has been sitting under a bright sky and then poured down all at once, and now it holds that heat. When you move in it your skin doesn't prickle. It accepts you.
+
+The light is what makes it impossible. It is blindingly bright. Direct vertical noon light falls down the open mouth of the shaft three meters above and hits the water and does not stop. The water is not clear - it is heavy with fine suspended lime, with dust that fell in with the rain - so the light scatters and turns the whole chamber into a lantern. The water itself glows. Every block, every tool mark, every grain in the plaster is visible, lit from all sides. There are no shadows in here except the rippling, moving shadows made by the surface itself. If you look up, the square of sky at the top is white, almost too white to look at. You can see the heat coming off it.
+
+And it is loud.
+
+Water is still entering. Over the low lip on the eastern side there is a shute, a simple trough made from a hollowed palm log, lashed with wet hide and propped up on two stacked stones. From it, a solid, heavy, unbroken tongue of brownish rainwater pours, as thick as your thigh, falling the entire height of the room. It hits the surface of the water already in the tank and punches through it and drums on the flagged floor. The sound in this small stone box is enormous - rolling, echoing, amplified. You feel it in your chest. It is not a trickle or a flow. It is a pouring, and because the tank is already full, the excess has to go somewhere - and it does. On the opposite wall, just below the ceiling line, there are three overflow holes knocked through the stone with an iron spike, neat and round and sharp as fresh punched holes. The excess water forces itself out through them in pressurized jets, hissing, spitting. So the level never drops and never rises. The system is breathing. In one side, out the other. The roar never stops.
+
+There is nothing soft in here. The floor is flagstone, every slab set by hand, still uneven where it was leveled with a wooden mallet. You can feel the seams with your feet. A coiled rope, thick, hemp, floats near the overflow, bumping dumbly against the wall - a tool, left behind. A wooden bucket half-sunk and turning slowly. A wooden ladder, notched log rungs, leans against the south wall, stretching from floor to beyond the waterline, but useless now since everything is underwater.
+
+Life is sparse as it should be. No fish. No insects. The lime in the water and the newness of the stone have not allowed anything to establish. Only in the joints where shadow would be, if there were shadow, there is a faint green — hair-thin algae, a first try. A few threads of it wave in the current created by the inlet and outlet. Near the rope, a single wind-blown seed, some kind of dryland grass, bobs on the churning surface, unable to root.
+
+The rule of this place is simple and total: it was made to be filled. It was not made for people to live in. People come down a ladder, check the level, clear the trough, leave. When it is working perfectly, as it is now, there is nowhere for a person to be except submerged inside its function, treading warm, roaring, brilliant water in a perfectly made stone cup, listening to the loud, ceaseless work of early, effective engineering doing exactly what it was built to do.

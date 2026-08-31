@@ -1,0 +1,5 @@
+An oblong tract, lying along a valley-bottom between tawny hills, with a stream running down the middle, meadows on either side, and woods beyond. Green pastures flecked with white, shine in the sun; and dark tracks of shadow slant upwards from the water. Here and there, hamlets appear; and the church tower rises among them. In the far distance, a line of hills closes the prospect. All is peaceful and quiet. The lands are under cultivation, and the harvest is being reaped. Now and then, a reaper pauses to rest, and children come forth to play. The birds sing in the fields; and the busy summer insects hum about the flowers.Cattle graze happily, beneath the shadow of the trees. Far off, the sounds of life are faintly heard, but hither all is still. The shadows lengthen; evening approaches; and the heights grow purple in the sunset. At last, the day fades quite away, and twilight melts into night.
+
+
+
+Robert Browning

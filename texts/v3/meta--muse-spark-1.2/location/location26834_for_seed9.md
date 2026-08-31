@@ -1,0 +1,43 @@
+It is high.
+
+You realize that first, before you see it properly, because the air tells you. The air is warm — not hot, not thin-cold the way high places are supposed to be — but warm and heavy, a wet warmth that sits on the skin and in the lungs. It should be cooler up here. Instead the heat holds. When you breathe it, it tastes of wet iron and green.
+
+Then you see the bowl.
+
+The whole place is a bowl. Not a valley, not a natural basin — a made thing, perfectly legible, small enough that you can stand at one rim and see the other side without straining. Maybe three hundred meters across, maybe less. A hamlet could fit inside it and leave room for its fields. You can see the entire world of it at once, rim to rim, and beyond the rim there is nothing but air and falling.
+
+Because beyond the rim, the world drops.
+
+The bowl sits on top of something sheer. A tepui, a mesa, a tower of rock that was poured more than raised. The clouds are *below* you here, not above — a white sea breaking on the cliffs twenty meters down from the lip, then reforming. Above, the sky is close and normal-bright, a high overcast that throws even light with no hard shadow. Light gets in everywhere, diffuse and white, and makes the colors of the bowl — green, rust, wet grey — look saturated.
+
+Everything inside the bowl is built. There is no ground that wasn't placed. 
+
+That is the strangest thing at first, before the other strangeness settles in. There is no exposed rock, no soil horizon, no natural slope. Even what looks like earth is imported, contained. The bowl is a construct of raw, still-curing concrete and steel, stepped in concentric terraces that descend toward a center. The terraces are not finished. They are *emerging*. The formwork has only just been struck in places — you can see the grain of the timber left in the concrete, the dark lines where plywood pressed against the slurry, the tie-holes still weeping rust-water. Rebar ends poke out of unfinished walls like stiff whiskers. Scaffolding still clings to the eastern quadrant, bamboo and pipe-steel lashed together, with buckets and trowels left where the workers stepped away. Corner-edges are still sharp enough to cut. Nothing here has been softened or worn. No lichen. No pitting. Water has not yet learned where to go.
+
+And yet water is everywhere, because water is the point of the bowl.
+
+It weeps.
+
+The upper rim is a lip of concrete three meters thick, and water sweats out of it continuously along its whole circumference — not from pipes, but from the concrete itself. Beading, condensing, running in sheets. The atmosphere up here is warm and saturated; vapor condenses on every cool surface and collects, and the bowl collects it. It runs down the stepped faces in a thousand engineered rills, too small to be called streams, too deliberate to be accidental — shallow grooves, V-cut into each terrace tread, all leading inward and down. Every surface glistens. The lower terraces have standing water, one or two inches deep, warm as bathwater, completely clear until you stir it and see the fine concrete silt bloom.
+
+You hear it before you hear anything else, because the place is mostly quiet. The industrial things here do not clang or shriek. For all there are engines — and there are — they are far away or muffled by the wet.
+
+The sound of the bowl is drip and trickle and settle. Water finding a level. Water ticking from the tip of a rebar. Water sighing over a weir. Under that, a low, constant hum, the kind you feel in your molars rather than hear: pumps, dynamo, the transformer house behind the western wall breathing electricity through its vents. A distant chain clinks as a counterweight shifts. Otherwise, quiet enough that you can hear a dragonfly's wings.
+
+The vegetation is impossibly lush for a place that is all concrete.
+
+It is not growing *on* the structure. It is growing *as* the structure. Every terrace is a planter, and every planter is dense — not planted in rows but stuffed, layered, thatched with life until you cannot see the substrate. Broad-leafed taro and elephant ear with leaves as big as doors, dripping. Ferns that unfurl the length of your arm. Vines that do not climb so much as pour over the edges of the terraces, their aerial roots hanging in curtains into the humid air, drinking directly from it. Moss makes a carpet over the places where water runs thinnest, a violent emerald so thick it looks like upholstery. Bananas, or something like bananas with black stems. Flowers you don't know, waxy and heavy, nodding under their own water weight.
+
+The engineers clearly planted it, but not in an ornamental way. This is production — industrial horticulture. Growth as function. The troughs are fed by that warm, mineral-rich seep. Copper pipes run along the back of each terrace, sweating condensation, bleeding warm water through perforations on a timer. You can see where the pipes disappear directly into root masses; the roots have found them and choked them, grown *into* the joints. The plants are plumbed in. Or the plumbing has become plant.
+
+In places the integration is stranger. On the second terrace down, a set of cast-iron gears — big, slow, clearly part of a water gate — has a fig sprouting from its central axle, and the gear still turns, a tooth at a time, creaking the bark as it goes. The fig does not seem to mind. A little further, a bank of glass louvers meant to vent steam is furred over with a living mat of what looks like duckweed and liverwort, so that the steam has to exhale through green.
+
+Nothing is separate. That is the density of it. Layer upon layer until there is no negative space. Leaf over pipe over concrete over root over water. Even the air is layered: cool breath off the condensation sheets under warm still air, then the hotter wet breath rising from the central pool.
+
+At the bottom of the bowl, all the rills meet. There is a round cistern, maybe ten meters across, not deep, lined in pale new concrete that has not yet stained. It is the sump and the heart. It is full to its brim and constantly overflowing in a perfect, glassy lip all the way around, feeding the lowest moss. The water in it is warm and alive with growth — not algae, but something hair-fine and bright green that waves in the faint circulation, and floating leaves that slowly spin as the pumps underneath draw and return. From its center rises a single structure: a factory core, small and blocky, two stories, flat-roofed, with a rust-streaked smokestack that is not smoking but steaming — white, odorless, warm. Its windows are open and golden with lightbulbs inside, even at midday. You can hear inside it the soft thump of a piston and the tick of a sorting belt, though you cannot see what it sorts. Seeds? Cuttings? The whole bowl breathes with it.
+
+It is all in motion, but not in a violent way. No predator, no prey. The motion is water cycle and growth cycle and machine cycle braided together. The gates open and close, the water rises and falls a finger's width, the leaves track the bright sky, grow, droop, are cut back by hands you do not see right now, and regrow. The concrete is still so new that water is just beginning to etch it. On the third terrace you can see where a channel that was square-cut a month ago has already been worried into a shallow U by the constant flow, exposing aggregate like teeth. The bowl is making its own erosion from scratch, learning how to be a watershed. Another year and there will be grooves, potholes, deltas of silt in the cistern. For now, it is embryonic, raw.
+
+Fauna is rare. That is conspicuous in a place so green. No birdsong chorus. No frogs. Perhaps the workers keep it that way, or the altitude does. Once in a while a single white heron stands in the central pool, absolutely still, a statue until it moves. Cloud-midges rise in a column above the warmest water at dusk and then vanish. In the transformer house, a gecko clicks. Otherwise, the bowl is plant and water and machine, waiting for animals to find it.
+
+At the rim, where the last terrace meets the wall, you can put a hand on the concrete. It is warm from the sun and damp, and it vibrates faintly with the pumps below. Beyond it the cloud sea shifts, and for a moment a gap opens and you see how utterly alone this made bowl is — a wet, green, steaming cup held up above the world on a stalk of stone, unfinished, humming quietly to itself as it grows its own jungle inside its own factory, water weeping from its walls without end.

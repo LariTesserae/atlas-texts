@@ -1,0 +1,19 @@
+In the subterranean world of Thalasar, a dimmed sun's invisible fingers reach downwards through the unfathomable miles of earth and rock, alighting upon an otherworldly marshland. A place where water wets the palate of a parched underworld, every surface subtly glistening as it dribbles down a webwork of ashen stones or pools serenely into unmeasured, still basins. Hues of obsidian-dark and ever-so-bright cloud the vision, woven into the tapestry of this cavernous netherworld.
+
+Concealed well below the world’s surface, Thalasar's life echoes a post-biotic world, where rusty lichen and primeval, anaerobic fungal structures colonize the landscape. Gnarled tentacles of seemingly hewn hematite curl upward, towards the ceiling’s unseen apex. Ethereal, they seem more mineral than biology, crystallized from eons of resolute patience. They are scarce, and in between, the vast caverns drown in emptiness.
+
+An abnormal heat redefines the experience of this land. Soft, humid, and relentless, it wraps around each stalactite, every stale pool of water, each crystalline fungal frond. No sun blazes hotly above; instead, this incandescent heat emerges from the womb of the Earth herself, her volcanic heartbeat echoing around Thalasar's labyrinthine labyrinth of marbled caverns.
+
+The land whispers of her youth, her stone fresh and raw-cut. The stalactites and stalagmites reach out in fumbling attempts to touch, their pointed mouths agape, caught in their first sip of the wispy, dew-laden air. Exploratory rivulets of water etch raw sigils into the land, the language of a place yearning to be.
+
+There is no built structure, no mark of a tool or a hand in this underworld. Time alone is the sculptor here, with the occasional contribution of flowing water and the slow creep of fungal life. The untouched beauty remains pristine yet almost desolate, an antithesis to the chaotically structured realms above the surface.
+
+In defiance of its hidden nature, the realm shimmers bright — not with the reflected glory of a sun, but with a bioluminescent glow that pulses from the innocence of virgin fungal tendrils. It dances upon the waters, illuminates the crystal-fringed cavern walls and splays previews of itself upon the roof’s unseen heights. As though a millennia-old secret whispered in light, the marshland illuminates itself.
+
+The living presence of fauna is a rarity in Thalasar. Endemic creatures survive here and there—blind, amphibious entities, who navigate their way through the labyrinthine water bodies. Silent swimmers and slow creepers, who have learned to thrive in the quiet, alien ecosystem beneath. Their life cycles, fluid and healthy, shape the biodynamic of the land.
+
+Technological interactions twine with the natural fabric in ways almost indescribable. A reclusive river flow is suddenly suspended mid-fall, floating in an unnatural stasis. A hidden field, or a quirk of the rock below, only hinted upon. The technology, if such a raw, natural essence of the Earth can be named thus, is a deep mystery, advanced far beyond the confines of human knowledge, driven by forces not yet comprehended by man.
+
+As if whispering secrets, the reverb of drips and drops and the rhythmic, heavy breathing of the Earth contribute to Thalasar's quiet symphony. The occasional plop of a distant swimmer or the subtle rustle of a fungus bloom pricking the silence, the landscape murmurs and sighs in the silence, nurturing its own distinctive melody.
+
+Though appearing as staleness conceiving life, Thalasar is a dynamic realm, an active palette of nature’s most peculiar art forms. It is a young world in constant flux, growing and transforming under the watchful guard of an invisible sun, granting it a subtle, luminous beauty unique in the cosmos. It is Thalasar, The Light Below.

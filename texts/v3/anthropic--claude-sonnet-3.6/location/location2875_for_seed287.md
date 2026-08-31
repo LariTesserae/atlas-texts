@@ -1,0 +1,13 @@
+This is a place of restless minerals. Across rolling hills that stretch to distant purple horizons, crystalline formations grow and collapse in endless cycles. The process isn't biological - it's a complex interplay of electromagnetic fields, heat differentials, and engineered nanostructures embedded in the very geology.
+
+The air is thin and hot, wavering with thermals that rise from the dark, heat-absorbing surface. What little light filters through the perpetual high haze takes on an amber cast, creating subtle gradients of shadow across the undulating terrain. The ground itself is a dense matrix of self-organizing materials - mostly carbon allotropes and synthetic minerals that respond to the fierce thermal and electromagnetic gradients that pulse through the region.
+
+The landscape never truly settles. Spires of black crystal push upward in slow motion, fracturing and branching like time-lapsed frost, before destabilizing and collapsing into glittering dust. This dust, far from inert, begins new growth cycles within hours or days. The process creates a constant subtle crackling sound, like very distant ice breaking, or the white noise of a faraway stream - though no water has touched this place for eons, if ever.
+
+Patches of what appears to be vegetation dot the hills - not biological plants, but complex crystalline structures that harvest energy from the heat differentials between ground and air. They sway without wind, responding to invisible electromagnetic currents. Their coloring ranges from deep purple to a bronzed green, shifting as the angle of light changes.
+
+The whole landscape exists in a state of dynamic equilibrium - while individual formations are ephemeral, the overall patterns of growth and decay remain consistent across vast stretches of territory. Valleys that were once smooth become studded with crystal forests over decades, then collapse back to smooth plains over centuries, in a geological cycle accelerated by the engineered materials that make up this world.
+
+The air carries the tang of ozone and a metallic taste. Occasional electromagnetic storms send visible ripples across the crystal forests, causing cascading collapses and accelerated regrowth in their wake. These storms paint temporary auroras in the hazy sky, brief ribbons of purple and green that fade like memories.
+
+It's a place that feels both ancient and perpetually new - every formation has grown and collapsed countless times before, yet each cycle creates unique patterns, like endless variations on a theme. The whole landscape hums with barely-contained energy, an endless dance of matter responding to forces that blur the line between natural and artificial.

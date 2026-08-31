@@ -1,0 +1,16 @@
+The city exhales. Not breath, exactly; more like a sigh that’s been building for aeons. It’s a sound like grinding stone, the creak of enormous tectonic plates, the rumble of a dying star. It’s loud, a constant, oppressive presence, felt as much as heard, vibrating through the dark.
+
+The architecture is impossible. It’s **urban**, a dense, layered construction that stretches across the high plateaus, clinging to the rising slopes and spilling into the valleys below like viscous, obsidian tar. The buildings themselves defy all earthly principles. They don’t seem *built* so much as *grown*, as if the ancient rock of the mountains had somehow been coaxed, or perhaps coerced, into crystalline forms, a vast and intricate network of towers, arches, and impossible geometries. They are colossal, **open** in their scale, lost in the **darkness**.
+
+There is no sunlight, only a perpetual twilight, a dim luminescence that emanates from within the structures themselves. The **tech** is incomprehensible, beyond any known physics. It is a fundamental rearrangement of reality, a mastery of forces that our current understanding can’t even begin to grasp. The structures hum with a barely perceptible energy, a deep thrumming that permeates everything, acting as both skeleton and skin.
+
+There’s the **water**. It's not visible, not in the way we understand it. Yet, it's everywhere; the air **wet** and heavy, as if saturated with a constant drizzle. Some of the stone weeps with what might be condensation, or something else entirely—a viscous, phosphorescent fluid that slowly, almost imperceptibly, coats the surfaces. It’s a **dynamic** process, slow and patient, barely noticeable to a casual observer, but relentless. The air carries its metallic tang, a clinging scent of ozone and something older, deeper, vaguely metallic.
+
+Then there is the **vegetation**: nothing as we know it. No trees, no grasses, no fungi. But, there is a pulse, a slow, deep thrumming of life, unseen but felt. Everywhere, this pulse. 
+
+There is the **fauna**, though. Overwhelming. They scuttle and slither. They are composed by unknown principles of construction, a weird, organic-looking substance that moves in an unnatural and unpleasant way. The creatures are far beyond modern biology. There are things that seem to be made of solidified shadows, others of pure, living crystals, and still others that appear to be nothing more than intelligent swarms of shimmering, iridescent dust. They are everywhere, moving through the impossible architecture, their movements swift and silent, apart from their own unsettling sounds, and the grinding of the city itself. They are a constant, barely glimpsed presence, just on the edge of perception.
+
+The **elevation** is significant. This is a high-altitude city, clinging to the peaks of an ancient mountain range. The terrain is a raw, jagged landscape in a state of perpetual transformation. The **erosion** is ongoing, the structures themselves slowly shifting and changing, their forms being sculpted by unseen forces, or by the inhabitants themselves.
+
+The **density** of presences is overwhelming – the architecture, the technology, the unseen waters, the unimaginable life.
+A place of impossible geometries, of subtle sounds, of unimaginable creatures: the exhaling city.

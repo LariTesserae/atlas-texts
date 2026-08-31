@@ -1,0 +1,53 @@
+# The Thermostratum
+
+The first thing you notice is the heat. Not radiant, not solar — *metabolic*. It rises from below like a fever, from the collective respiration of a living mass so vast it has become geological. There is no sun here. There has not been a sun for a very long time. The dark is total, resinous, the kind that presses against the eyes until the eyes give up and begin inventing their own signals — dim phosphene trails, false edges, the ghost-orange of heat perceived as light.
+
+You are standing on wood. Not dead wood. Not lumber. Living tissue, warm to the touch, slightly giving, fibrous and ridged like the palm of an enormous hand. It extends in every direction — floor, walls, ceiling where ceiling exists, and where it doesn't, the trunks and braided stems close overhead into a canopy so dense it functions as a roof. This is the substrate. There is no soil beneath it. No rock. No mineral ground. Just more plant, layer upon layer, compressed by its own weight into something like peat, like coal, like living coal that has not yet decided to die.
+
+---
+
+The landscape rolls. Not smoothly — it heaves and stutters across ridges and hollows the size of town squares, the size of city blocks. From any elevated point (and elevation here means climbing a buttress-root the width of a house, or scrambling up a slope of interwoven stolons that grip your boots with small contractile fronds), you can see the extent of it: a vegetative plain stretching to every horizon, dark on dark, textured only by variation in the surface growth — brachiated mounds, flattened processing flats, vertical chimneys of bundled stems rising sixty, eighty feet and bending at their tips to meet one another in arches.
+
+It is all built. That is the critical fact. None of this grew wild. Every surface has been *made* — engineered by the organism itself, or by organisms, plural, over a span of time that staggers comprehension. The root-floor you walk on is a constructed foundation, layered in patterns too regular to be natural: hexagonal joints, load-bearing columns spaced at intervals, channels cut for the routing of fluids that are not water. Whatever designed this place understood architecture, understood load distribution, understood the principle of the factory.
+
+Because it *is* a factory.
+
+---
+
+The vascular bundles that run through every surface are not merely feeding the plant. They are *processing*. Along the main thoroughfares — and there are thoroughfares, corridors three meters wide where the growth has been deliberately held back to form passages — you can see the infrastructure clearly, or rather, you can feel it. The walls pulse. Slow, rhythmic compressions every eight to ten seconds, moving thick sap through tubes the diameter of your arm. The sap is dark, almost black, and hot enough to scald. It carries dissolved minerals stripped from deep layers of the substrate itself — the plant consuming its own dead lower strata, mining downward through its own ancient mass, pulling calcium and silicon and iron from compressed generations of ancestors and feeding them upward to the productive surfaces.
+
+The productive surfaces are the closest thing to light in this place. Not light exactly. Bioluminescence — faint, deep red, almost infrared, visible only as a slight brightening of certain patches of wall, certain nodes where the sap enters processing chambers. These chambers are swollen growths, blister-like, the size of rooms, and inside them (you can tell by pressing your hand to the wall and feeling the vibrations) something is being fabricated. Gears? No. Tools? Perhaps. Structures — components — parts of larger assemblies. The plant extrudes them from specialized growth tissues the way a 3D printer extrudes plastic, layer by microscopic layer, in materials ranging from dense lignin to a flexible chitin-analog to something that feels, when you find fragments of it on the floor, disturbingly like machined aluminum.
+
+It is not aluminum. It is a biomineral — the plant's own secretion, crystallized and shaped. But the tolerances are industrial. The edges are sharp.
+
+---
+
+The turbulence is constant but quiet. That is the disorienting thing. In every direction, something is happening — surfaces expanding, chambers contracting, new growth erupting from old surfaces in pale tendrils that harden and darken within minutes, old structures softening and collapsing and being absorbed. Nothing here is still. The entire landscape is in continuous restructuring, tearing itself down and rebuilding simultaneously, the way a coral reef is always both growing and eroding. But it does this *silently*. No crashes. No rending. The plant tissue fails by softening, by dissolution, by being chemically disassembled at the molecular level and reabsorbed. New growth emerges not by breaking through but by *expanding from within*, cells inflating, pushing neighbors aside with a gentleness that is somehow more unsettling than violence.
+
+The only sounds are wet ones. The creak of vascular bundles under pressure. A faint gurgling from deep within the substrate, where the sap-channels branch into capillaries too small to see. Occasionally — very occasionally — a percussive thud as a processing chamber completes a cycle and seals its output, the vibration traveling through the floor like a single heartbeat.
+
+You hear one now. Then silence. Then another, from a different direction, off-rhythm. The factory has no central clock. Each node operates on its own cycle, coordinated not by signal but by *chemistry* — hormone-analog compounds in the sap triggering cascades of activity in waves that propagate at the speed of diffusion. It is inefficient by design. Or rather, it is efficient by a different design — a design that does not prioritize speed or synchronization but *persistence*. This system has been running, by every indication, for an almost incomprehensible length of time. The erosion parameter is not wrong — this is a landscape in its oldest stable state. But "stable" here means something particular. It means the rate of construction has finally, after epochs, matched the rate of decay. For every chamber that softens and fails, another is built. For every meter of corridor that collapses, another is grown. The whole system has reached equilibrium — not stillness, but a *dynamic* equilibrium, a churning steady state, a flame that maintains its shape while its substance is entirely replaced.
+
+---
+
+There are no animals. None. No insects, no grazers, no decomposers, no pollinators. The plant does everything itself. It builds, it processes, it mines, it recycles, it reproduces — though reproduction, here, may be a misnomer. There is no outside. This is a sealed system. The atmosphere, such as it is, is contained within the canopy: humid with metabolic gases, rich in carbon compounds, breathable but thick, carrying a taste of tannin and iron and something sweetly chemical that sits on the back of the tongue. The air moves, but only because the plant moves it — bellows-like chambers in the upper canopy contracting and expanding, circulating the atmosphere through the corridors and processing flats. Wind, here, is a product of respiration.
+
+You walk for what might be an hour. The landscape does not change in kind, only in detail. The corridors widen into chambers and narrow again. The floor texture shifts — here ridged for grip, here smooth and slightly concave, a channel for drainage. The walls develop features: brackets holding bulbous storage organs, racks of thin drying filaments, rows of perforations venting warm air. You pass through a chamber where the ceiling is only a meter high and the walls are lined with flat dark plates, thin as paper, dense as stone, each one covered in a pattern of ridges too fine to read by touch. Records? Instructions? Blueprints? The plant has encoded something here, in a medium it has manufactured, using a language it has invented. You cannot read it. You cannot even be sure it *is* a language. But the regularity of the patterns, the variation within the regularity, the way certain sequences repeat and others appear only once — it has the *shape* of information.
+
+---
+
+In the deepest section you reach — and depth here is measured not by descent but by age, by the density of the growth, by the darkness of the tissue, by the accumulation of small structural choices that add up to something ancient — the factory changes character. The processing chambers are smaller here. The vascular bundles are thinner, more numerous, branching into networks so fine they form a kind of felt. The sap moves slower. The pulsing is barely perceptible. And the chambers, instead of fabricating components, seem to be *maintaining* — repairing micro-fractures in the substrate, replacing individual cells, reinforcing joints that have been under load for centuries.
+
+This is the old city. The deep tissue. The part of the factory that keeps the factory alive, that has been performing the same quiet maintenance since before the surface structures were built, since before the corridors were cut, since before whatever initiated this system — whatever seed, whatever spore, whatever designed organism was placed here or evolved here or fell here from somewhere else — began its work.
+
+You press your hand to the wall. It is warm. It pulses. Very faintly, very slowly, it pulses.
+
+Something, somewhere in this living mass, is still making decisions.
+
+---
+
+You leave the way you came. The corridors rearrange behind you — not dramatically, not dangerously, but a passage that was straight is now slightly curved, a chamber entrance has narrowed by a few centimeters, a wall has developed a new bracket where there was none before. The factory has noticed you. Not consciously — it has no consciousness as you understand it — but chemically, mechanically, with the same blind responsiveness that causes it to reinforce stressed structures and route around damaged ones. You are a stress. You are a load. You are a presence in a system that has no other presences, that has been alone with its own processes for so long that your weight on its floor, your breath in its air, the heat of your body against its walls, are *data* — novel, significant, requiring response.
+
+New growth follows your path. Pale tendrils, barely visible in the dark, reaching into the spaces you occupied, tasting the residue of your passage, incorporating it into the chemistry.
+
+The factory does not know what you are. But it will. It has time. It has nothing but time.

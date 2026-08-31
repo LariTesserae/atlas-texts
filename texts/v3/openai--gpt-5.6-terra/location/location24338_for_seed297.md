@@ -1,0 +1,33 @@
+The plain has no horizon in the ordinary sense. It does not end so much as lose its agreement with distance.
+
+At first it looks low and warm: a broad basin under a pale gold sky, its floor almost level except for ranks of fresh mineral ridges rising from it like the backs of buried creatures. Nothing has worn them down. Their edges are too clean, their facets too exact. They are made of a black-green stone that catches daylight without reflecting it, as if light enters the material and is quietly considered there.
+
+Between the ridges grows an extravagant abundance of vegetation.
+
+There is no water anywhere. No river seam, no dampness in a hollow, no dew caught on a blade. The ground is dry enough to powder beneath a hand, composed of fine copper-colored grains and pale salts that do not taste like salt. Yet the plants are lush. Dense thickets of broad, flexible fronds crowd every depression; padded vines loop from mineral spur to mineral spur; translucent trunks rise in groves, full of slow-moving opaline light rather than sap. Some leaves are nearly black, velvety and warm. Others resemble sheets of green glass, veined with faint geometric currents. A person can stand among them and see, under the translucent skin of a leaf, tiny lattices assembling and disassembling without any visible motion.
+
+The plants do not drink. Their roots do not search for moisture. They spread along the dry ground in bright threadlike mats, entering cracks in the young stone, touching one another, and becoming briefly indistinguishable. They appear to feed on the sky, or on the unspoken machinery of the land.
+
+Nothing here has been built. There are no walls, roads, ruins, tools, tracks, or signs of habitation. The place has the untouched feeling of a newly opened world. But beneath the untouchedness is an intelligence of arrangement. The ridges stand at intervals too regular to be geological. The roots form branching networks with efficiencies beyond any known organism. At noon, the stems tilt—not toward the sun, but toward points in empty air where no instrument would initially detect anything. There, thin columns of distortion rise from the plain, clear as heat haze and perfectly still.
+
+They may be fields. They may be engines. They may be the local weather, although there is no weather.
+
+The air is warm, dry, and remarkably clean. Breathing it leaves a faint mineral sweetness on the tongue, like crushed stone mixed with citrus rind. There is almost no wind. Fronds remain in the positions they have always occupied, except when observed directly for too long; then one may notice that their arrangement has changed by a fraction, each leaf now overlapping its neighbor in a more efficient pattern. No breeze accompanies this. No sound marks it.
+
+The sky holds ordinary daylight, bright enough to make shadows, blue in some directions and milk-white near the sun. Yet it is wrong in small, persistent ways. Clouds pass above the basin without moving. Their undersides retain the same soft gray contours hour after hour. Birds would have nowhere to go, perhaps, and there are almost none. Once in a while a small animal can be seen crossing a bare strip of ground: a six-legged thing, low and glossy, with a body like folded seed husks. It moves without disturbing dust. It stops beside a root cluster, presses its head into the soil, and remains there. Later it is gone, though there is no visible path of departure.
+
+The silence is not empty. It is occupied.
+
+A low sound sometimes exists at the edge of hearing: not a hum exactly, but the sensation that a hum would make if it had been translated into pressure behind the eyes. The dense vegetation gives off minute clicks when darkness comes, though darkness itself arrives with suspicious gentleness. The sun lowers. Shadows lengthen. Then, at a certain angle, the whole basin seems to preserve the same illumination by another means. Leaves brighten from within. Mineral ridges reveal fine seams of white radiance. The sky becomes dark, but the landscape does not fully consent to night.
+
+This is a young place. Its stone has sharpness. Its valleys have not yet accumulated dust. Several ridges appear to have emerged only recently, their bases surrounded by rings of lifted ground, roots already climbing their new surfaces. But it is also an unchanging place. Nothing erodes. No frond decays. Fallen leaves, if they fall, rest exactly where they land and gradually become transparent, then vanish without shrinking, as though their material has been recalled somewhere else.
+
+The basin extends for many kilometers through this dense, impossible growth. In the far distance, one can see bands of color: orchid forests, blue-black fields of fan-shaped leaves, a low white expanse of vegetation with the texture of coral. Beyond those, the plain folds up almost imperceptibly into a wall of shining mineral that could be a mountain range, or could be the edge of the world’s active surface.
+
+There are places where the ground opens in thin, straight seams. Looking into them reveals neither darkness nor depth, but moving diagrams: lines of colored light passing through one another in vast calm architectures. The vegetation crowds these seams most thickly. Roots descend into the diagrams and emerge elsewhere, perhaps kilometers away, perhaps in another version of the basin. A vine may be followed from one ridge across a field, into a crack, and then found continuing overhead in the sky, its leaves hanging downward from no visible support.
+
+The world does not react to visitors with hostility. It may not recognize visitors as separate things. A footprint remains in the copper dust for several minutes, beautifully defined, then its edges sharpen instead of softening. The print becomes a small, precise depression, a new feature of the terrain. Grasslike filaments gather around it. In time, a low ring of glossy leaves will grow there, preserving the shape of a passing foot with the fidelity of a monument—though nobody made it, and nobody remembers why it is there.
+
+Everything is alive, perhaps. Or everything is being maintained in the shape of life.
+
+Under the stable warm light, among the dense green growth and unweathered stone, the land seems to wait without anticipation. Its systems are complete. Its silence is not the silence of abandonment, but of a process so advanced that it has no need to announce itself.

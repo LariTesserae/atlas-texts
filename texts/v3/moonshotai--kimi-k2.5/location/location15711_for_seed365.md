@@ -1,0 +1,27 @@
+The place is called the **Hush**, and it should not exist yet.
+
+Geologically, it is a newborn—a tooth of limestone and flint that punched through the cloud layer only centuries ago, its edges still shedding sharp flakes that chime like bells when they fall (though the chime dies immediately, swallowed by the air). It sits at an altitude where breathing requires deliberation, a single elevated bowl no larger than a cathedral nave, surrounded by sheer walls that have not yet learned the softness of erosion. The stone is naked, pale, virginal, carved by no river but by the sudden violence of its own becoming.
+
+Yet here, in this fresh wound of rock, stands a city. Or the suggestion of one. The construction is primitive but relentless: towers of unmortared obsidian and whalebone stacked in gravitational impossibilities, platforms cantilevered over the void by means of counterweight stones the size of carts. It is urban in layout—there are streets, or rather channels, between the structures—but sparse; the buildings stand solitary, separated by expanses of bare rock, as if the builders feared crowding. They worked without metal. Rope marks score the stone. Everything suggests a people who arrived here just after the mountain emerged, who built quickly, then left, or were taken.
+
+The atmosphere clings. The Hush exists in a permanent state of condensation. Cool, heavy air rolls over the rim and cannot escape, trapping moisture against the fresh stone. Water does not flow here—it *accumulates*. Every surface sweats. Droplets bead on the obsidian walls, fatten, and fall into pools that never quite form streams. The dampness is intermittent yet eternal: sometimes a mist rises waist-high, sometimes the air merely glistens, but nothing ever dries.
+
+And in this damp, the vegetation has gone feral with abundance. But vegetation, here, is not a carpet—it is architecture. Individual organisms dominate the sparse spaces between the ruins. There are fungi the size of oak trees, their caps fleshy and varnished, dripping amber resin that hardens into acoustic baffles. There are mosses that have grown into cascading curtains, thick as tapestries, pulsing with bioluminescence in the dimness. Flowers with petals like waxy plates open and close with metronomic slowness, releasing spores rather than scent. The green is overwhelming in its intensity—chrome, emerald, sickly chartreuse—but it is not crowded. Each growth claims its territory, surrounded by stone, respecting a boundary of emptiness. The place feels like a museum of living sculptures, each displayed in isolation.
+
+But the true occupants are the fauna. They are *overwhelming*. 
+
+They are small. Pale. Numerous beyond counting.
+
+They have no name because they make no sound to announce themselves by. The silence of the Hush is absolute, a physical pressure against the eardrums. In the dimness—where the light is filtered through perpetual cloud cover into a twilight the color of bruised plums—things move. Thousands of them. Millions. 
+
+They resemble salamanders crossed with silk handkerchiefs. Translucent, bone-white, eyeless. They pour from the fungal caps in silent waterfalls. They carpet the stone channels in rippling sheets, flowing around the bases of the bone-towers like viscous liquid. They climb the walls in spiraling gyres, their limbs adhering to vertical stone without claws, leaving trails of phosphorescent slime that fade after seconds. They are constantly in motion—feeding on the condensation, on the spores, on each other—creating a biological tide that never ceases, never rests. 
+
+Every surface crawls. The air itself seems to shimmer with their passage. They have no voices. No chittering, no wings, no footfalls. They communicate, if they communicate, through touch and chemical sigils, or perhaps through the strange physics of this place that has not yet decided on its natural laws.
+
+Because the Hush is *wrong*. 
+
+Time moves differently in the shadows. A dropped stone might fall faster than it should, or hover for a heartbeat before continuing. The water droplets sometimes flow upward, reclaimed by the caps of the fungi before they can splash. The fauna occasionally phase—there is no other word for it—shifting between positions without traversing the space between, leaving afterimages that linger like burnt retinas. The primitive builders knew this. Their towers are positioned to catch these temporal eddies; certain doorways open onto yesterday, others onto a version of the mountain that has not yet finished rising. The city was not built for habitation, but for *observation*. A monitoring station for a landscape still knitting itself together.
+
+The dynamism is relentless. The fungal caps breathe—inhaling, exhaling, changing the air pressure in rhythmic cycles that make the ears pop. The salamander-things molt in synchronized waves, shedding skins that the wind (which makes no sound) carries to the rim and dissipates into vapor. The condensation drips, drips, drips, but the sound is stolen by the mosses, by the angles of the fresh stone, by the very density of the strange air.
+
+It is a place of biological and geological adolescence. Everything is potential, sharp, unrounded by time. The lushness is aggressive, the emptiness between deliberate, the silence a predator waiting to see what noise will finally break it. The city stands as a warning or a welcome, depending on whether the mountain decides to grow more teeth, or to finally settle, and sleep.

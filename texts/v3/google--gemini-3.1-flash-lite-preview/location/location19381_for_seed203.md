@@ -1,0 +1,19 @@
+Deep beneath the crust, in a light-drenched, sub-surface expansion that defies the dark expectations of the deep, lies the *Verdant Void*.
+
+It is not a cave in the geological sense. It is a biological cathedral vaulted with living architecture—a continental expanse where the air itself seems to be exhaled by the colossal, translucent filaments that bridge the gap between the ceiling and the floor thousands of meters below.
+
+The light is the first thing that strikes you. It is a crystalline, sterile brilliance, emanating from the ceiling’s calcified spores that act like miniature, internal suns. They pulse with a turbulent, rhythmic intensity, casting shadows that shift and stretch with the frenetic growth of the ecosystem. It is relentlessly bright, a sharp, white glare that bleaches the color out of shadows and makes the air shimmer with heat-less energy.
+
+Because the scale is so vast—a hollow planet-core capacity—the moisture is scarce but systemic. Water does not flow here; it *migrates*. Great, gelatinous spheres of condensation, some the size of houses, drift lazily through the thin, cold air, tethered by surface tension to the massive, moss-like vines that wrap around the vertical support columns of the world. Occasionally, one of these spheres ruptures against a ledge, sending a cascading mist down into the abyss, only for it to be wicked back up by the capillary-rich foliage that carpet-bombs every surface.
+
+This is a pure-plant biome. There is no stone here, or if there is, it has been entirely colonized, digested, and replaced by calcified timber and fibrous, chitinous leaves. The terrain is made of interlocking, spiraling stalks thick as sequoias, forming uneven, platform-like plateaus that dangle over the void. The ground—the "substrate"—is perpetually moving. It is not static; it is a rapid-turnover garden. Stalks grow, knit together, and wither within days, creating a chaotic, shifting topography of fresh, sharp-edged sprouts and decaying, gummy detritus.
+
+It is hauntingly quiet, yet alive with a low-frequency hum, the vibration of rapid photosynthesis occurring at a scale that defies terrestrial physics. When you walk—or leap—across the bridge-vines, the sound of your movement is muffled by layers of velvet-like moss. 
+
+Signs of the "built" exist, but they are ghostly. Scattered sparsely across the vast vertical distance are isolated, woven platforms of cured reed and brittle, dark-stained sap. They look like the nests of gargantuan birds, yet they are lined with primitive obsidian scrapers and woven fiber nets. A traveler here might find a single, abandoned stone needle or a pile of dried, fibrous husks, but never the presence of another living soul. The density is so low that you could wander for months without seeing the silhouette of another inhabitant.
+
+The environment is cold—a biting, sharp chill that makes the moisture slick on the leaves turn to rime. Yet, this cold is countered by the light. You feel the brightness on your skin, a phantom warmth that never penetrates the freezing air. 
+
+It feels like the inside of a blooming lung. There is a sense of "early formation" everywhere—every surface looks like it was created five minutes ago, raw and aggressive in its vitality. The entire space is caught in a state of hyperactive becoming. A bridge of leaves might dissolve into mulch in the time it takes to cross it, forcing the traveler to leap toward a newer, fresher growth. 
+
+To exist here is to balance on the edge of a botanical storm. You are a microscopic speck in a vast, cold, bright nursery, watching a planet attempt to grow itself into existence, one fiber at a time, indifferent to the empty space it consumes.

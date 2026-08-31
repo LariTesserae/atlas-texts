@@ -1,0 +1,23 @@
+The place is called the Cauldron of Vey.
+
+It is a high, wide basin cupped inside the weathered shoulder of an ancient volcanic range. The air is warm and heavy, almost wet enough to drink. Every surface sweats. Moisture condenses on black iron pipes, on rusted railings, on the flanks of brick smokestacks that have stood so long they have begun to resemble the geology they replaced. Water is never far: it beads on skin, drips from overhangs, seeps up through cracks in concrete, and trickles in thin silver threads down the flanks of every structure. The rocks themselves seem to weep. Long, slow tears of mineral-rich water slide over basalt and travertine, leaving orange and emerald stains that have painted the same paths for centuries.
+
+The city is not built on the land so much as it has grown into the land, like a slow coral. Factories, refineries, and terraced worker-houses climb the gentle slopes in concentric rings. Everything is old enough to have settled into balance with the water and the heat. Pipes that once carried steam now carry moss and condensation. Conveyor belts have rusted into graceful, motionless arcs that resemble the strata they cut through. Nothing is new. Nothing is abandoned. The entire metropolis feels like a single organism that has reached a mature, enormous equilibrium.
+
+Sound is the first thing a stranger notices, and the last thing they forget. The Cauldron never stops roaring. It is not the sharp clang of active industry; it is a deep, geological drone—an accumulated thunder of turbines, distant bellows, pressure valves sighing like dying gods, and the constant low-frequency heartbeat of pumps that have run without pause for nine hundred years. The noise is so dense it becomes architectural. People speak in it the way fish swim in water; after a few weeks the silence of the outer world feels unbearable.
+
+Vegetation is sparse and strange. What grows does so in isolated, stubborn pockets: tall, pale reeds that drink from the constant seepage, mats of liverwort the color of dried blood, and a peculiar woody shrub whose leaves are black and metallic. These plants appear only where the ground has been left alone for decades, usually in the narrow corridors between rail yards and settling ponds. They look less like life and more like the land experimenting with new textures.
+
+Fauna is rare. A few species of pale, heat-tolerant moths drift between the weeping walls at twilight. Small colonies of blind, long-legged lizards live inside the abandoned cooling towers, moving so slowly they seem part of the rust. Once every few years someone reports seeing a white heron standing motionless in the steam above a geothermal vent, but the sightings are considered closer to religious experience than ornithology.
+
+The light is ordinary daylight filtered through perpetual haze. The sky is the color of tarnished brass. When the sun is directly overhead it turns the condensation on every surface into thousands of tiny burning mirrors, so the whole city glitters wetly like a thing freshly pulled from the forge.
+
+Scale is difficult to grasp. The basin is wide enough that the opposite rim is only a blue-brown smudge on the horizon. From the central ridge one can see layered neighborhoods stacked like sediment: the Ironworks District, the Old Condensers, the Terraced Foundries, the Reservoir Gardens (which contain no gardens, only vast cisterns whose surfaces are covered in slow-moving skin of algae). Everything is connected by raised iron walkways, funiculars that move at the speed of glaciers, and a lattice of canals so old their banks have grown lips of travertine.
+
+There is something wrong with perspective here. Distances breathe. A smokestack that seems ten minutes’ walk away can take an hour to reach, while a nearby water tower sometimes appears to recede if stared at too long. The locals call this “the Cauldron’s patience.” They say the place is still deciding what shape it wants to be, even after a thousand years of industry.
+
+At night the sound changes register but never lessens. The dripping grows louder as human activity slows. Steam vents glow dull orange. The city exhales. Condensate falls in slow, warm rain that never quite reaches the ground before evaporating again. The weeping rocks keep weeping. The pumps keep pumping. The Cauldron keeps cooking itself, very slowly, in its own brine and fire and time.
+
+It is not dying.  
+It is not growing.  
+It is simmering.

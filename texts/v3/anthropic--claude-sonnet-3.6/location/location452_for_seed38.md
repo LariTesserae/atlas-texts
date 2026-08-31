@@ -1,0 +1,19 @@
+At first it seems like an endless canopy - a sea of leaves that extends to every horizon, green fading to blue-grey in the vast distance. But this is no forest as we know them. The "trees" here are ancient beyond reckoning, each one a metropolis of life that has grown and evolved together over eons.
+
+The canopy itself is nearly continuous, occurring at a remarkably consistent height some thousand meters above what was once the ground. That ground no longer exists in any meaningful way - it has been transformed into a complex lacework of living matter, layers upon interwoven layers of roots, fungal networks, and plant tissue that has long since transcended the usual categories of stem, leaf, or fruit.
+
+The air is thick, warm, and heavy with moisture. Water doesn't so much fall as it condenses and flows - gathering in the countless folds and channels of the living architecture, moving in slow rivers that have carved their paths through the vegetable matter over millions of years. These waterways are dark, tinted deep amber by tannins and organic compounds, but they catch what little light makes it through the canopy and gleam like molten copper.
+
+Massive structures rise through the layers - not trees exactly, but ancient colonnade-like formations, some dozens of meters in diameter, that serve as the primary vertical transport for water and nutrients throughout the system. Their surfaces are deeply textured with millennia of growth patterns, spiraling ridges and furrows that harbor countless smaller species. Many have split and fused over time, creating vast archways and galleries in the dim middle layers.
+
+The light that does penetrate creates a perpetual twilight below the canopy. It shifts and changes as the upper leaves move in high-altitude winds that never reach the lower levels. This changing light is one of the few quick movements in a landscape that operates primarily in slow time - most changes occur over days, seasons, or centuries.
+
+The air is surprisingly still at the human scale, though there is constant movement of gases and moisture at larger scales - the whole system breathes like a living thing, which in many ways it is. The sound is minimal - mostly the soft patter of condensation and the occasional rustle of small animals moving through the vegetation. The fauna here has evolved to move carefully, deliberately, treating the living substrate with what almost seems like reverence.
+
+There are traces of what might be artificial structures - geometric patterns that seem too regular to be natural, suggestions of worked materials - but they're so deeply integrated into the living matter that it's impossible to tell their original purpose. The ecosystem has absorbed them, transformed them, made them part of itself.
+
+Small bioluminescent organisms create patches of soft light in the darker regions, their patterns shifting gradually over hours and days in response to chemical signals that spread through the living network. These light patterns seem to follow some logic, some system of communication that operates on a timescale too slow for human perception to grasp.
+
+The air carries complex scents - not the sharp, green smell of new growth, but deeper, more complex organic compounds that speak of age and slow transformation. It's not decay exactly - nothing here ever fully dies, it just changes form, is reabsorbed and reconstructed by the system.
+
+This is a place that has reached an equilibrium so complex and stable that it appears unchanging, though it's in constant, careful motion. It's as if an entire continent has evolved into a single organism, operating on principles that blur the line between biology and geology. The scope is difficult for the human mind to grasp - this isn't just an ecosystem, it's a complete world-system that has been refining itself since before our species existed.

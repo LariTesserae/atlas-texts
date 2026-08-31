@@ -1,0 +1,15 @@
+A nascent factory grows itself in the gloom. Not built - growing. The walls are a dense mat of translucent filaments that pulse with dim bioluminescence, weaving themselves into load-bearing structures through some alien engineering. The space is cathedral-sized but feels smaller, crowded with half-formed machinery that emerges from the walls like organs budding from tissue.
+
+The air is cool and damp, heavy with the condensation that beads and runs down every surface. These droplets don't fall randomly - they trace precise patterns, carrying dissolved minerals and proteins that feed the factory's growth. In places the drops flow upward, defying gravity, following invisible electromagnetic currents that suffuse the space.
+
+The floor is particularly active - a churning layer of what looks like wet clay but behaves like a colony of microorganisms, continuously forming and reforming into temporary structures. Small platforms rise and collapse like bubbles in thick soup. Channels appear and vanish, carrying silvery fluids to where they're needed. The whole surface ripples with purpose.
+
+What little natural light filters through the membranous ceiling reveals only scattered signs of conventional technology - a few standard power coupling ports emerging from the walls, half-integrated control panels, places where the organic growth has engulfed and incorporated more traditional industrial equipment. These seem like concessions to compatibility rather than core features.
+
+The sound is mainly subsonic - more felt than heard - a deep throbbing that suggests massive hidden processes. Occasionally there's a wet tearing noise as new structures separate from the walls, or a crystalline tinkling as temporary scaffolds dissolve back into the system. The acoustic profile keeps changing as the space reforms itself.
+
+There are few living things here besides the factory itself, if indeed it counts as alive. The occasional patch of pale fungus takes hold in the damper corners but is quickly absorbed or rejected by the main growth. Once in a while, a small mechanical creature - something between insect and robot - skitters across a wall on some inscrutable maintenance task, only to be reabsorbed into the matrix.
+
+The whole place feels like an industrial process turned inside out - as if someone found a way to evolve a factory instead of building it, and it's still in its larval stage. Nothing is quite finished, nothing is quite stable, and yet there's an undeniable logic to its endless transformation. It's unsettling how organic it feels, yet its purpose is clearly mechanical production, even if the product isn't yet apparent.
+
+The boundaries between living and manufactured, between growing and built, between deliberate and emergent, all blur in this strange pocket of accelerated evolution. The factory continues its patient self-assembly, indifferent to observation, following its own obscure blueprint.

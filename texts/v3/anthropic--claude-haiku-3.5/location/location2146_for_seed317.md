@@ -1,0 +1,9 @@
+The Loom Plateau rises like a partially-articulated skeleton, a high cold plain where industrial structures emerge from sparse, verdant vegetation. Its geology is still forming—not quite settled, more like a preliminary sketch of landmass, with raw mineral ridges and nascent geological structures barely emerging from primordial stone.
+
+Massive urban frameworks—not quite cities, more like interconnected industrial complexes—spread across the plateau in geometric networks. These are not human structures, but something engineered by the abundant fauna: intricate hive-like assemblies of metallic scaffolding and organic-technological hybrid constructions. Massive insectoid creatures move slowly through these frameworks, their segmented bodies part biological, part mechanical, weaving infrastructures that are simultaneously habitat, factory, and transportation system.
+
+The plateau is blindingly bright, sunlight reflecting off metallic surfaces and pale green vegetation. Cool winds move slowly across the landscape, carrying minimal sound—just a low mechanical hum from distant industrial processes and the occasional clicking communication of the fauna-engineering collectives.
+
+Vegetation grows in controlled, almost algorithmic patterns—not wild, but engineered. Pale green plants with crystalline structures interweave with the mechanical frameworks, creating a landscape that feels more like a living circuit board than a traditional ecosystem. Water is rare, stored in sealed reservoirs and carefully distributed through the industrial networks.
+
+Everything here moves with patient, geological time—changes happening across decades or centuries, structures slowly reconfiguring, technologies gradually evolving. The entire plateau feels like a massive, slow-breathing organism, not quite alive in any traditional sense, but definitely possessed of an intricate, deliberate metabolism.

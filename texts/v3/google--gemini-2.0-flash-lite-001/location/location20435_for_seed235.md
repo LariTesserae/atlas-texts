@@ -1,0 +1,15 @@
+The world is a vast, echoing canyon, a wound in the earth that stretches further than the eye can see. Its walls, impossibly steep, are carved from obsidian, their surfaces weeping with a constant, oily sheen of condensation. Water is everywhere, not as distinct pools or rivers, but as an integral part of the rock itself. It seeps, it drips, it hangs in the air, a humid, heavy blanket that clings to your skin.
+
+The heat is oppressive. It radiates from the black stone, a tangible force that makes breathing difficult. The air is thick with the scent of something unknown – a cloying sweetness that borders on the metallic. Despite the sun – or whatever source of light illuminates this place – being a constant presence, the light is *normal*. The canyon is bathed in a perpetual twilight, neither day nor night, but something in between.
+
+Lush vegetation somehow thrives in this harsh environment. Strange, pulsating fungi cling to the canyon walls, their caps a kaleidoscope of colors that shift and swirl in the humid air. Giant, fern-like plants with leaves as black as the stone sprout from seemingly bare rock, their fronds reaching for the sky in a desperate, silent dance. Dense, almost suffocating, the vegetation is in constant motion, both visible and not, as if an immense creature were breathing.
+
+The canyon is a city. Carved into its walls are structures unlike anything built by human hands. They’re organic, melding seamlessly with the obsidian, as if they've grown alongside the canyon itself. Buildings rise and fall, twisting and curving, connected by bridges that arc over the dizzying depths. There are no straight lines, no right angles, just a chaotic, yet somehow ordered, geometry. The structures seem alive, their surfaces rippling and shifting, as if the very rock is breathing.
+
+But there is no sound here. At least, not one that the ear can register. Instead, the canyon resonates with a deafening, internal vibration. It’s a pressure, a force that permeates everything, a deep thrumming that vibrates through bone and sinew. This is not the sound of wind or water, but a sound from the bedrock itself.
+
+The canyon is a perfect stasis. Erosion has long since reached its equilibrium. The weirdness that saturates the place manifests in an eerie stillness: the constant flow of internal energy, of condensation-in-motion, with no gradients anywhere.
+
+Here, in this impossible place, is nothing but the silence, the heat, and the slow, relentless, life. There are no creatures here – animals, insects, or birds, nothing but *the rock itself*, living and breathing and shifting, a testament to an alien logic.
+
+The place is a paradox. It should be impossible, built from contradictions. But here it is: a city carved into a wound, a symphony of silence, a sunlit twilight of eternal motion, a place where reality itself is breaking down. It is a place of unending secrets.

@@ -1,0 +1,33 @@
+It is a single room.
+
+Not a cave, exactly, though it has a ceiling. Not a pond, though it is never dry. A low place — a sunk place — about as wide across as a hamlet's threshing yard would be if you put all the houses shoulder to shoulder and then took the houses away. You can stand on the lip and see the whole of it at once, which is part of why it feels held, finished.
+
+The land fell here a long time ago. A shallow doline, a saucer in the limestone plain. The sides are low, no more than three or four meters at the highest cut, weathered back to a soft slope. They weep. That is the word for it. The rock is not porous so much as tired. It has been wet for so long it has learned how. Water beads on it continuously, gathers, runs in dark fingers. The air is too full to carry it away. Warm, dim, lime-scented air that sits on your skin and stays there.
+
+The bottom is what makes it.
+
+There is no ground as you understand ground. From wall to wall, edge to perfect edge, the basin is packed with stone. Not scree, not rubble left by a fall. Rounded stones, each the size of a loaf, a head, a doubled fist, fitted together with such completeness that you cannot see what they rest on. They are not stacked. They have settled. Over unthinkable time, water has turned them and turned them until every projection is gone, and then gravity and water together have snugged them into each other like teeth. You could walk across them and your foot would never find depth between them, only a faint give of water squeezing up around the sole.
+
+And the water — it never stops.
+
+It doesn't rain there any more than it rains elsewhere on the plain, but this low place collects. Or it exhales. The stones are dark, always, from wetness. In every shallow between them a meniscus holds. In every low spot a palm-deep pool that reflects nothing because the light is too low. If you are still, you see the movement: a shiver coming up between two stones that should be sealed tight, a clear bulge that becomes a thread of water that becomes a pool that becomes a thread somewhere else. Warm water. Not hot. Bath-warm, blood-warm, 34 or 35 Celsius, so that when you put your hand in it you feel it first as softness and only then as temperature. The whole grotto breathes it. Condensation runs down your forearms. The stone sides are black-green and glittering with it.
+
+That's why nothing grows. 
+
+In any other warm wet pocket in these latitudes you would expect flags, mosses, a riot of green trying to seal the light. Here, there is nothing. The water carries something — lime, sulfur at a low, low dose, a mineral slickness — that makes plant life abort. If you pick up a stone, its underside is not pale and wormy but perfectly clean, or marked only with a faint rust-colored biofilm, a velvet that is not plant, that wipes off under the thumb and smells faintly of metal. No roots could get purchase between those packed stones anyway. The place is too full. There is no room for soil. No room for anything that needs an interval.
+
+Light comes from one place. The ceiling is not solid. At the north end, the plain overhangs in a single slab, maybe a former cave roof that did not fully collapse, and below that slab there is a crack perhaps a meter wide and six long, like a half-closed eye. The day comes through there, diffused by deep air and steam. It is never bright. In early afternoon it is the light of deep evening elsewhere. It lays a gray-yellow bar across the wet stones and the water on them shines without glittering. In that bar you can see the vapor rising, not in plumes but as a uniform thickening. The rest of the basin holds a permanent dusk that your eyes adjust to and then think of as normal.
+
+It is in equilibrium. This is its oldest quality and the one you feel last. 
+
+There should be change here. The water should be carving, cutting runnels, deepening the saucer. But it isn't. Or it did, and finished. The stone edges are rounded, the fitting of the cobbles is final. The water level never rises; there is no outlet you can see, but it never overflows the lowest lip either. It simply is, as full as it can be. The temperature never shifts. The damp never lessens. The stones have nowhere else to settle.
+
+Of animals, almost none. At first you think none. Then a pale, almost transparent isopod, long as a fingernail, works its way along the seam between two stones and vanishes again in a second. Once in a long while a cave salamander lives here — blind, pink-white, with external gills like ferns — and it sits in the warmest pool completely motionless for hours, because there is no need to move. No insects call.
+
+People have been here, but not to live. Too wet, too small, too occupied.
+
+On the drier stones, just above the constant wet line, there are small makings. Cairns, but not waymarkers. Three stones balanced one on top of another, then another three stones nearby. All over the basin, maybe thirty of them, spaced as if each needed its own quiet. They are at the edge of collapse but never do. Some have fallen and been left. Some are arcs only, a half-circle of pebbles set upright in the film between larger cobbles, too deliberate to be accident. One, near the light-bar, is a low, flat platform: two tabular pieces of limestone chocked level with smaller bits, just big enough to sit on if you wanted to sit with your feet in warm water and think. No tools left. No carvings you can name, except where someone has worked a stone with another stone to make a shallow, bowl-like depression that now holds its own water. Early work. Hand work. Simple weight and patience, the same forces that made the place.
+
+The rules are very simple here: stone, warm water, dim air, no space left over. Everything enters and has to fit. If you come here you will crouch automatically, because the ceiling of mist and rock presses close, because the place is already packed to its limit and you are an additional thing. You will listen without intending to and hear what mostly-quiet really is — not silence, but the sound of water finding level, sigh to sigh, stone to stone, a wet ticking that is not dripping exactly, a susurrus of meniscus moving. You will not want to move the stones. It would be like undoing a joint.
+
+You can stay until the light fails, which it does early and without color, and the water will still be warm, and the stones will still be exactly where they were, and the air will still be so wet it is almost drinkable, and the place will not have changed at all by your having been there.

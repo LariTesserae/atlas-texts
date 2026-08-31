@@ -1,0 +1,59 @@
+## The Kilnweald
+
+From a long way off, it is the only thing to see: a plateau glowing into the dark like a coal that has forgotten how to burn out. The sky above it is black and star-flecked and gives nothing. The lowlands around it give nothing — cold, thin-aired, empty plains where the dark is total and the dust does not even blow. But the plateau stands high above all that, and it is warm, and it is faintly, stubbornly lit from within, and it has been both of those things for longer than anything can remember.
+
+Those who map the dark call it the Kilnweald. It takes days to cross. All of it is grown. All of it is made. There is no point where one of those facts stops and the other begins.
+
+You come to it up the talus of the rim, and the talus is the first lesson: there is no stone here. The slopes below the plateau's edge are sediment of artifacts — dunes of screws sorted by wind into size-grades, drifts of wire, berms of ceramic sherds, fans of flaked enamel. The cliff face above is a cross-section of the massif itself, and it reads like geology but isn't: strata of machinery, layer on layer, pipes and plates and grown trusses compressed and oxidized into something like rock. Dig anywhere in the Kilnweald and you will dig through older versions of it. No one has ever reached the bottom. There may be no bottom. There may never have been ground at all — only the thing, building on itself, since before the memory of building.
+
+The air thins as you climb. It is hot anyway — hot the way the air over a banked forge is hot, heat arriving from surfaces rather than from sun. This is the first rule of the place, and everything else follows from it: **here, the sun is underfoot.** Heat wells up from deep inside the massif, from the buried hearts, and the whole plateau is organized around drinking it and shedding it, a heat engine the size of a valley, breathing into the void.
+
+At the rim you pass under the eave of the canopy, and the last starlight goes out.
+
+---
+
+Inside, the Kilnweald is a world with a ceiling. The crowns of the vane-trees interlock overhead into a continuous false sky — black alloy leaves broad as doors, layered like scales, every one of them a radiator fin. They are not for gathering light. There is no light to gather. They are for giving off heat, and they open and close on long cycles like flowers blooming in reverse, and they tick as they flex — a soft, dry, plate-on-plate ticking, the sound of a million cooling engines that never finish cooling.
+
+Beneath that ceiling there is no empty space. This is the defining sensation of the interior: **crowdedness without light.** Trunk against trunk, grown around old girders or grown as girders — the distinction is archaeological. Bark like slag, like clinker, like old weld-seam. Between the trunks, the artery vines run in bundles, thumb-thick to house-thick, and in their translucent stretches you can see the sap moving: a slow amber current, faintly luminous, the most common light in the world. It is not water. Nothing here is water. The Kilnweald's fluids are oils, resins, plasticizers, vapors of metal that condense and drip. If it rains in the Kilnweald, it rains upward, as heat — and it drips downward, as warm oil from the canopy, slow as honey, ticking on the leaves below.
+
+The ground is not ground. It is the Scale: a duff of shed parts, spore-flake, resin husk and slag, meters deep, hot underfoot, smoldering in the low places. It crackles when you walk. Nothing in it rots. Rot requires water and microbes and the Kilnweald has neither; instead, things here are *unmade* — re-dissolved, re-smelted, drawn back down by the roots as feedstock. Decomposition is a manufacturing process. Everything that falls is reclaimed on a schedule.
+
+---
+
+The flora runs on heat and metal and old instructions. The vane-trees are the frame of the world, but the world's work is done lower down:
+
+**Crucible-blooms** sit at the junctions of the great root-mats — flowers the size of houses, their petals fused into furnace shells, glowing dull red through the seams. This is where the Kilnweald smelts. They pulse on long cycles, brightening, dimming, breathing out slag in slow black ribbons, and they are the brightest steady lights in the landscape, red hearts in the dark, each one audible as a deep hum felt in the sternum more than heard.
+
+**Cache-pods** hang from the artery vines and ripen like fruit. Inside each: parts. Gears, bearings, spools of drawn wire, lenses, wound springs, fasteners by the thousand, nested in resin like seeds in a pod. When a pod falls and splits, its contents root. Germination and assembly are the same act — a bearing seats itself, a strut extrudes, a new machine-plant stands up out of the Scale over the course of days and begins, immediately, to work.
+
+And the work moves. Nothing in the Kilnweald is an animal — there has never been an animal here, nothing with a mouth or a mind of its own — but the flora has borrowed every animal trick. Crawler-pods detach from their parent stalks and walk the vine-highways on cilia, carrying seed and stock; they are organs in transit, not creatures, but they herd. Strangling roots hunt, slow as seasons, wrapping a rival's trunk and crushing it into feed. Tendrils graze the talus at the rim, strip-mining the old strata. The place is full of motion and entirely without wildlife, and that gives the motion a particular quality: purposeful and ownerless, like watching a factory after the workers have gone but the shifts keep changing.
+
+---
+
+There are lineages. Down in the Scale, at root level, the whole plateau is grafted together, but above the grafts the growth sorts itself into great houses, each descended from some ancient seed-design: the black iron groves, dense and load-bearing; the bronze reaches, older, given to vast hollow colonnades; the pale ceramic stands, brittle, brilliant at insulation, growing where the heat runs fiercest. Where the houses meet, they war — a war of overgrowth and strangulation measured in decades. And where they war, they also trade: the borders are the busiest places in the world, tangles of graft-bridges where stock and sap and parts cross between lineages, crawlers in two directions at once, hybrid growth knotting the gap. The border zones have an energy the deep groves lack — an anthill busyness, a bazaar density, everything in motion and everything packed against everything else, barter conducted in chemistry at the speed of plants.
+
+Fire is the gardener here. In the smoldering lows of the Scale, slow burns creep for months, blackening a hectare at a time, and behind the burn-front comes the regrowth — furious, dense, the fastest motion in the landscape, new stalks rising visibly, extruding like fountains of black syrup that harden into structure. No one lights these fires. The system lights them, prunes itself, schedules its own burning the way an orchard is scheduled, and the smell of the place is that schedule: hot metal, creosote, ozone, scorched resin, the sweet chemical reek of warm plastic, never any smoke of wood because there is no wood, there never was wood.
+
+The turbulence is constant and mostly quiet. That is the strangest thing about the Kilnweald's energy: it happens in a hush. The density eats sound. A grove collapses — a tower of fused stalks, a century of growth, going down into the Scale — and it arrives as a muffled, rolling rumble, felt in the feet, and then the tick and creak resume. A cache-pod bursts somewhere near with a crack like a rifle shot, flat in the thin air, and the silence closes over it. The silence is not empty. It is a held-breath silence, a crowded silence, the quiet of a room full of machinery that is all, at this moment, between operations.
+
+---
+
+On a long cycle — the closest thing this place has to a day — the plateau breathes.
+
+First the Draw: the vane-leaves close overhead, and cold thin air slides down off the void through the gaps at the rim, and the whole interior stills, the hums dropping half a tone, the crawlers slowing on their vines. Then the Vent: the hearts surge, the leaves open all at once with a sound like a vast soft applause, and hot air rises off the plateau's back in columns, and the spores go up — metallic glinting dust by the ton, riding the updraft, settling later over everything as the next layer of the Scale. During the Vent, in certain old groves, the lamp-trees fire: sudden stands of harsh white glare, arc-light bright, blazing for minutes and dying back. They are the descendants of lighting infrastructure, or of something that remembered lighting, and they still keep the old schedules. Travelers — on the rare occasions there are travelers — navigate by the flares the way sailors once navigated by lighthouses.
+
+---
+
+Dig in the Scale and you dig through time, and the time is all manufactured. Recent layers: wire, spore-flake, pod husk. Deeper: a stratum of ash from some ancient burn that covered the whole plateau at once. Deeper still, plates with writing on them, the language dead, the roots having grown against the engraving and copied the letterforms into their bark — so that now, in certain groves, the trunks bear fragments of text as texture, a message propagated as ornament, a library reprinted as wallpaper until only the look of language remains. Deeper than that, pipes. Water pipes, corroded shut, mineral-choked, from an age when the Kilnweald ran on water — before the world dried, or before the redesign. The flora does not drink anymore. It has forgotten drinking the way the lamp-trees have forgotten what they were supposed to light.
+
+And in one hollow in the bronze reaches there is a lineage that fruits nothing but hinges. It grows them, polishes them in resin baths, piles them in drifts, gates that open on nothing, a production line performing an order placed so long ago that the customer, the purpose, and the door are all equally lost. The Kilnweald is full of such pockets — an orchard that fruits doorknobs, a mile of groves extruding coiled springs into the Scale. No one cancels anything here. The whole plateau may be exactly that: a work order the size of a landscape, still being filled.
+
+---
+
+This is how the place can be ancient and frantic at once. The outline never changes; every piece of it is replaced constantly. The plateau's silhouette against the void has been the same silhouette for longer than the deepest strata record, while the matter composing it turns over completely, stalk and vine and heart, on the scale of decades. Stable-state chaos. A boiling that has been boiling so long it has become a shape. **The shape is ancient; the matter is young.**
+
+Climb out through a gap in the canopy — there are a few, over fresh collapse-scars, where the regrowth hasn't yet sealed the sky — and you stand on the Back: a rolling black plain of radiator fins stretching to every horizon, ticking softly into the dark, heat shimmering up out of it into the cold of space. The stars here are hard and many. The air is too thin to carry sound well, so the ticking seems to arrive from very far away even under your feet. And far off, at the edges of the world, the dark horizon holds a few other faint ember-glows — sibling plateaus, other Kilnwealds, each one warm and working and self-sufficient in the night, none of them touching.
+
+Nothing here was ever alive the way a forest is alive, and nothing here was ever dead the way a factory is dead. It is a third thing, settled into its final form, which happens to be a form that never stops moving: hot, dark, packed, patient, building itself over its own bones forever, in near-silence, by ember-light —
+
+an order never cancelled, still being filled.

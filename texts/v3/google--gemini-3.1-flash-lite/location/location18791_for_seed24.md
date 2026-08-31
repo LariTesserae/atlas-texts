@@ -1,0 +1,15 @@
+The basin is a shallow depression, perhaps no larger than a cathedral nave, carved into the bedrock of a world that forgot the concept of moisture eons ago. It is a place of mineral stasis, a geological pocket held in a deep, perpetual exhale.
+
+There is no sky here, or at least nothing that reflects light; there is only the absolute, suffocating proximity of a low, jagged ceiling of unyielding obsidian—the roof of a vast, subterranean hollow. The warmth here is not the heat of a sun, but the steady, subterranean pulse of a core that has never known a breeze. It is a dry, radiating heat, like the interior of a brick kiln long after the fire has been banked.
+
+The floor is a mosaic of pulverized basalt and silica, crusted over with a thin, shimmering rime of deposited salts. It is entirely featureless, save for the occasional "drifts"—long, low mounds of fine, gray detritus that look like frozen ripples on a tide-less shore. They have not moved in millennia; the air is too thick and heavy to stir them, and there is no wind to challenge their posture.
+
+Vegetation exists here, if only in the most stubborn, mineral sense. Scattered across the floor are clusters of *calc-spires*—brittle, translucent stalks that rise ten or twelve inches from the dust. They are not biological in the terrestrial sense, nor are they truly alive. They are slow-growing mineral accretions, feeding on the infinitesimal thermal gradients of the rock floor. They possess no color, appearing only as faint, ghost-like geometries in the near-total darkness. They do not sway; they do not grow in any observable rhythm. They simply wait.
+
+Sound does not travel here; it is smothered as soon as it is born. If a calc-spire were to shatter, the noise would not echo. It would fall dead against the grit, swallowed by the immense, leaden silence of the basin. 
+
+There is no fauna, no movement, no cycle of day or night. The "time" of this place is measured only by the imperceptible thickening of the salt-crust. Because there is no water—not even a vaporous trace—there is no decay, and therefore, no smell. The air is merely dry, heavy, and sterile, tasting faintly of iron and dry stone.
+
+In the center of this small, sequestered world, one might find a primitive arrangement: five smooth river stones, untouched by any tool save for the patient friction of a hand, placed in a jagged semi-circle. They are not an altar or a marker of history; they are a sign of a traveler who once passed through this stillness, someone whose presence was as brief and inconsequential as a falling grain of sand. They have remained exactly as they were left, undisturbed by anything at all. 
+
+Everything is in balance. The desert of the bowl is settled, weathered into a state of perfection. It is a closed system, a fragment of reality that has been polished smooth by the absence of interference. The darkness is absolute, the warmth is constant, and the silence is a physical weight, pressing down on the salt-flats with the authority of infinite, unchanging time.

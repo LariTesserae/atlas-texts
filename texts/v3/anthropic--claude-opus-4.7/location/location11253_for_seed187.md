@@ -1,0 +1,27 @@
+# The Engine Hollow
+
+There's a bowl in the old land where the hills have worn down to nothing more than long, low shoulders, the kind of terrain that suggests the planet has been breathing out for a hundred million years and has finally settled. The bowl is maybe two hundred meters across. You could walk its circumference in the time it takes to lose a train of thought.
+
+Inside the bowl: one tree. Or what was once a tree, or what is now thought of as a tree for lack of better words. It fills the hollow entirely. Its trunk has long since failed at the conventional task of being a trunk and has instead become the architecture of the place — a green-black mass of fused boles, root-buttresses thick as small barns, hollows the size of rooms inside it, and a canopy that arches the whole bowl into a kind of cathedral. Light comes through in green-gold shafts. Normal daylight, only filtered.
+
+The leaves are not extraordinary. The bark is bark. There is nothing strange here in the way a stranger looking for strangeness would want. It is only that the tree has had enough time — geological time, the kind that wears mountains into pastures — to become everything in its small territory. There is moss on it that has its own moss. There are ferns rooted in the crooks of its limbs that have been there for centuries. There is no soil in the bowl that is not the tree's slow shed.
+
+And inside the tree, deep in the largest of the hollows where the heartwood gave up being heartwood and became a chamber: the engine.
+
+It is not a metaphor. It is an engine — iron, brass-fitted, a low industrial-revolution kind of thing with a flywheel as tall as a person and pistons that work in a slow four-beat. No one built it here. The tree built it, or grew around it, or perhaps the engine grew the tree, or perhaps the distinction does not apply at this scale of years. It is fed by something — sap, groundwater, the slow exhalation of the tree's roots — and it runs. It has always run. It will always run.
+
+That is the sound. The hollow is **loud**. Not loud like a city; loud like standing inside a working watermill, except the rhythm is too slow, a great iron *thunk—hiss—thunk—hiss* that you feel in your sternum before you hear it in your ears. The leaves shiver with each stroke. Condensation beads on the upper boughs and falls in a fine intermittent rain that has nothing to do with weather — it is the engine's exhaust, cool steam meeting cool wood, making a perpetual damp without ever making the place actually wet. Puddles form in the root-cups and are drunk by the tree and become steam again. A closed loop, running for so long that no one remembers it starting.
+
+The animals are abundant and unbothered. Wrens nest in the engine's housing where it is warm. A family of martens lives in a hollow above the flywheel and have, over many marten generations, developed a tolerance for the noise so complete that they sleep through it and wake only in the silences between strokes — those two seconds of held breath when the piston is at the top of its travel. Beetles work the bark. A slow, fat salamander, the color of wet brass, lives in the drip-line and may be older than anyone would believe. There are no large animals. The bowl is too small. But every cubic foot of bark and leaf and root-tangle is occupied by something with a pulse or something close enough.
+
+The bowl is empty in the way that matters: there is no clutter, no debris of human passage, no path worn in. You could not say anyone has ever been here, though the engine argues otherwise, and the engine refuses to argue further. It just runs.
+
+There are rules, though no one is here to enforce them:
+
+The engine does not stop. Not for storms, not for winters (the bowl barely has winters; it stays cool year-round, the kind of cool that makes your breath visible only at dawn). Not for the deaths of individual leaves or animals or for the slow turnover of moss generations. The stroke rate today is the stroke rate of a thousand years ago. The tree's growth has matched the engine's wear so exactly that neither has changed in any measurable way since whatever event first put them in this equilibrium.
+
+Nothing new arrives. Nothing leaves. Seeds fall and root and become part of the tree or are eaten. Animals are born here and die here. The bowl is its own world and has been long enough that the word *ecosystem* feels too active for it. It is more like a held note.
+
+If you stood at the lip of the bowl and looked down, you would see green, hear the slow industrial heartbeat, feel the cool damp on your face, and understand without being told that you should not go in. Not because anything would stop you. Because the place is finished. It has reached whatever it was going to reach. Your presence would be the first new thing in a very long time, and the bowl has earned its stillness.
+
+Around the bowl, the land goes on being low and dry and old, hill-shoulders rolling out toward a horizon that has forgotten how to be dramatic. You can hear the engine for a long way before you see the trees. People who live in the region — if there are any; the parameters do not say — would have a word for the sound. They would have grown up with it. They would point children toward it and say *that's just the hollow*, and the children would accept this the way children accept the sound of distant trains, and grow up, and grow old, and the hollow would still be there, beating, breathing, holding itself in place against the long pull of time.

@@ -1,0 +1,17 @@
+The air hangs thick and still, heavy with the cloying sweetness of fungal exhalations. Not air, truly, but some concoction of spores and gasses that coats the tongue with a persistent, phantom flavor of overripe melon. The light, a perpetual twilight, barely penetrates the dense canopy of phosphorescent fungi that stretches across the cavern roof.
+
+This is the Sunken Garden, a network of subterranean grottos far below the parched surface world. No water flows here in streams or pools, yet the humidity is stifling. It's all bound up in the life itself -- the pulsing, breathing fungi, the glistening chitin of the countless insects that teem in the gloom, the very soil itself composed of decayed life, forever exhaling moisture. 
+
+The caverns are small, intimate spaces. Each one a separate ecosystem, a closed-off world ringed by walls of dark, iron-streaked rock. Erosion has barely touched them; they feel freshly formed, as if the planet itself had just exhaled them into existence. Sharp, jagged edges define the rock formations, softened only by the encroaching fungal mats.
+
+Despite the dim light, the Sunken Garden is far from silent. A cacophony of chirps, clicks, and rasps fills the air – the ceaseless symphony of insect life. The dominant sound, however, is the rhythmic thrumming emanating from the fungi themselves. A deep, resonant pulse that vibrates in your chest, a constant reminder of the enormous, living presence all around.
+
+The vegetation here is entirely fungal. Giant, bioluminescent mushrooms tower like trees, their caps shedding a soft, ethereal light. Smaller fungi carpet the ground, a riot of color and form – scarlet toadstools that glow with an inner fire, clusters of violet puffballs that release clouds of spores with each gust of (non)wind, and pale, fleshy stalks that writhe like living worms.
+
+The fauna is predominantly insectoid. Beetles with iridescent shells crawl across the fungi, their mandibles clicking as they feed. Giant, moth-like creatures with wings of shimmering scales flit through the air, their antennae twitching. And then there are the strange, crab-like things that scuttle across the cavern floor, their bodies covered in a mosaic of fungal growths.
+
+Scattered throughout the Sunken Garden are the remnants of some long-forgotten civilization. Crude, stone tools lie abandoned in the undergrowth. Simple carvings adorn the walls of some caverns, depicting stylized images of the fungi and the insects that inhabit them. Once, someone lived here, eking out a living in this strange, subterranean world. They built small, circular structures from the black rock of the cave, now mostly crumbled.
+
+The unchanging nature of this place is perhaps its most unsettling feature. There is no day or night, no seasons, no ebb and flow. The Sunken Garden exists in a state of perpetual equilibrium, a frozen snapshot of a world that seems to defy the very concept of time. The fungi pulse, the insects chirp, the spores drift, and nothing ever changes.
+
+The weirdness hangs thick in the air like the fungal spores. There's a sense of isolation, of being utterly cut off from the outside world, trapped in a living, breathing organism. And then there's the undeniable feeling that the Garden itself is aware, that it's watching, listening, waiting.

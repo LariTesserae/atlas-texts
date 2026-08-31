@@ -1,0 +1,23 @@
+The air up here tastes like metal and cold ash. You stand on a flat, circular plateau of compacted grey grit, a natural balcony perched at the summit of a spire that pierces the cloud layer. This is a place of extreme elevation, where the sky is not a dome but a deep, violent indigo void that seems to pull at you with a vacuum’s silence.
+
+The light here is blinding. It reflects off a landscape devoid of color saturation, everything rendered in high-contrast whites, greys, and the blinding sheen of polished mineral. There are no trees, no grass, no moss. The vegetation score is absolute zero; biology has surrendered to geology. Instead, the ground is crowded with a dense forest of stone.
+
+This is the "Cathedral of Spores"—though the name is a misnomer left by travelers who saw life where there is only physics. The area is small, perhaps the size of a village square, bounded by a sheer drop into the mist on three sides and a towering cliff face on the fourth. Within this confined space, the terrain is claustrophobically dense. Hundreds of thin, vertical pillars of rock rise from the floor, ranging in height from ankle height to ten feet tall. They stand shoulder-to-shoulder, like a silent, frozen crowd.
+
+The stone is a type of porous limestone, weathered by ages into smooth, organic curves that resemble coral or bone. The erosion parameter tells a story of endurance; these formations are settled, stable, wearing down at the pace of deep time. Yet, the surface is not dry. The water level is constant but intermittent—a dampness that permeates the air.
+
+Condensation is the engine of this place. The bright, unfiltered sun beats down on the dark stone, heating the rock faces, while the air remains freezing. This thermal warfare causes moisture to constantly seep from the pores of the pillars. It is a landscape that sweats.
+
+Every surface is slick. Water droplets form instantly, run down the curved flanks of the stone pillars, and pool in the tight spaces between them. It is a dynamic, wet environment despite the absence of rain. The sound is a steady, rhythmic plinking—the *drip-drip-drip* of water striking small, crystal-clear basins that have been hollowed out of the rock floor over millennia. Occasionally, a bead of water grows too heavy on an overhang and falls with a sharp, tactile *pat*, breaking the heavy, mostly quiet atmosphere.
+
+There is no animal life. No birds fly at this height; no insects buzz in the thin air. The only movement is the water and the slow, sub-glacial shift of shadows as the sun tracks across the sky.
+
+Scattered amongst the natural pillars are signs of intervention—the "built" parameter, faint and primitive. They are not structures in the traditional sense, but crude modifications. Here, a series of stones have been carefully stacked into a cairn, the rocks flattened by hand-tools to sit flush. There, a shallow channel has been chipped into the floor using simple, percussive flaking, directing the flow of condensation toward a specific depression. It looks like the work of a people trying to manage the water, or perhaps trying to read it.
+
+The technology is Stone Age simple. No metal, no complex fabrication. Just the application of force against mineral. There are a few piles of shattered rock near the cliff edge, suggesting an ancient quarry or a failed attempt to carve shelter from the living stone.
+
+The weirdness of the place is subtle but pervasive. It lies in the water. As the bright sun hits the condensation, the water doesn't just sparkle; it refracts light in a way that creates momentary, false colors. For a second, a droplet running down a grey pillar looks indigo, then the next second, it burns with a sickly violet. It is a visual trick of the high-altitude light and the mineral composition of the stone, but it makes the grove feel alive, as if the stones are bleeding liquid rainbows.
+
+The atmosphere is oppressive in its stillness. The density of the pillars makes navigation difficult; you have to turn sideways to slip between the taller, slick formations. The air is thin and cold, biting at the lungs. It feels like a sealed room, a pocket universe separated from the world below.
+
+You touch a pillar. It is freezing cold, vibrating slightly from the constant drip of water falling elsewhere in the grove. It feels less like a landscape and more like an artifact—a machine made of rock and light, built to catch the sky's tears and turn them into silence. There is a profound sense of balance here. It is wet and cold, bright and dead, crowded and empty. It exists in a state of perfect, arrested motion, waiting for nothing but the next drop of water to fall.

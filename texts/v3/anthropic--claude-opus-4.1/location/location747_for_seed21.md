@@ -1,0 +1,23 @@
+## The Thermocline Gardens
+
+High in the escarpment, where the air thins and thickens in peculiar striations, water pearls from nothing. The rock here is young volcanic glass, black and sharp as fresh obsidian, formed perhaps a decade ago when something tore upward through older stone. The edges still draw blood.
+
+The heat presses strange here—not from above but from within the glass itself, which hums at frequencies that make water behave incorrectly. Droplets form spontaneously at certain altitudes, condensing from air that shouldn't be humid enough, gathering on surfaces that repel and attract moisture in patterns that shift every few hours. The water runs upward sometimes, following thermal gradients that spiral through the air like invisible arquitecture.
+
+Vegetation erupts in pockets where the water collects. Crimson ferns unfurl from cracks in the glass, their fronds thick as tongues, sweating a sweet resin that evaporates before it drips. Air-root trees suspend themselves between the knife-edge ridges, their pale tuberous bases drinking from the traveling moisture bands that wrap around the rocks at precise elevations—never higher, never lower. The plants grow fast here, dying and regrowing in cycles measured in days. Their genetics are chaos, mutating with each generation to match the shifting water patterns.
+
+The scale is intimate—a natural amphitheater no larger than a village square, walls of fresh volcanic glass rising thirty meters on three sides. You can cross it in forty paces, but the thermal layers make distance deceptive. Sometimes a step carries you through three different humidity zones, each with its own cluster of aggressive growth.
+
+Scattered through this space are the remnants of something's presence. Not structures exactly, but *adjustments*—places where the glass has been convinced to grow differently. Hollow spheres of rock with walls one molecule thick. Surfaces that hold water in perfect stillness while everything around them steams. A spiral staircase of floating moisture that maintains its shape despite the wind. These modifications pulse with a faint resonance that suggests they're still active, still computing something in the substrate of the stone itself.
+
+The technology is geological, or perhaps the geology is technological. The boundary dissolved here. The glass processes information in its crystalline structure, running calculations that determine where water will appear next. Sometimes you can see the computation happening—shadows that move through the transparent stone, following pathways that branch and merge like circuit boards or blood vessels.
+
+The fauna is almost absent, but not quite. Occasionally, something flickers in the corner of your vision—a shape that might be a large insect or a small bird, but when you turn it's just a confluence of steam and shadow. Once a day, always at a different time, something cries out—a sound like metal tearing underwater. Nothing visible makes it. The plants react, though, all turning their leaves or fronds in the same direction for exactly twelve seconds.
+
+The air shimmers constantly from the heat differentials. Sound carries oddly, sometimes dying within a meter, sometimes echoing from surfaces that shouldn't reflect it. Mostly, though, it's quiet except for the constant subtle crackling of thermal expansion in the glass and the occasional hiss of spontaneous evaporation.
+
+At the heart of the space, where the glass formations create a natural focus, water pools in a depression that's perfectly circular, too perfect to be natural erosion. The pool is only ankle-deep but appears bottomless, its base lost in optical distortions. The water here is exactly blood temperature, always, regardless of the air. Sometimes things grow from it—not plants but temporary structures of surface tension and mineral precipitation that build themselves into complex geometries before collapsing back into the pool. They might be messages. They might be waste products. They might be dreams.
+
+The storm cycles here last minutes instead of hours. Clouds form from nowhere, rain falls upward, lightning travels through the water suspended in the air rather than jumping to ground. The plants anticipate these micro-storms, opening their structures moments before the pressure changes.
+
+This is a place between states—between solid and liquid, between natural and engineered, between young stone and ancient information. It persists in constant flux, every element moving, growing, computing, dying, reforming. A garden that tends itself according to rules written in molecular fire, witnessed by nothing that admits to having eyes.

@@ -1,0 +1,25 @@
+The darkness here is not an absence but a presence, thick and velvety, broken only by the phosphorescent threads that pulse through the canopy overhead. This is a world of bioluminescent engines—vast fungal networks that have evolved beyond simple decomposition into something approaching industry.
+
+The landscape stretches endlessly, a continental expanse of towering fruiting bodies that rise like cooling towers into the perpetual twilight. Their caps, some kilometers in diameter, form multiple canopy layers that trap moisture and create their own weather systems. Condensation drips constantly from tier to tier, creating a symphony of barely-audible impacts—water on membrane, water on water, water on the spongy ground below.
+
+Between the great stalks, the air is dense with spores and microflora, a living atmosphere that processes and reprocesses itself. The vegetation here defies easy categorization—neither plant nor fungus but something engineered by evolution into organic factories. Mycelia networks as thick as tree trunks snake across the surface, pulsing with chemicals and information. They glow faintly where they breach the surface, creating rivers of dim light that map the industrial metabolism of this living landscape.
+
+The ground is young basalt, recently cooled from some planetary upheaval, its sharp edges already being colonized by the aggressive organic machinery. In the crevices, water collects in perfectly hexagonal pools—a quirk of the local chemistry that makes even puddles appear manufactured. The stone provides minerals that the fungal engines extract and process, their root networks mining with patient efficiency.
+
+The scale is overwhelming. Weather systems form in the spaces between the largest fruiting bodies—gentle rains that fall upward as often as down, pulled by the strange pressures created by billions of breathing pores. Fog banks roll through the twilight spaces, carrying the scent of ozone and sweet decay.
+
+Everything here operates on industrial logic despite the absence of any creator. Certain clearings serve as chemical processing centers where dozens of species work in concert, breaking down the air itself and reassembling it into complex organics. Other zones specialize in mineral extraction, the ground riddled with precisely geometric bore holes created by specialized growth forms.
+
+The sound is a constant whisper—the movement of air through billions of gill slits, the faint crackling of growth, the almost subsonic hum of chemical transformation. Occasionally, a larger fruiting body will release its spores in a barely audible sigh that can last for hours, the sound traveling across the vast space like a slow wave.
+
+In the deeper darkness between the titans, smaller ecosystems thrive. Gardens of finger-high luminescent forms create their own microweathers, their collective exhalations forming tiny storm systems that rain pure ethanol or stranger substances. These chemical gardens expand and contract in daily cycles, breathing together in patterns too complex to track.
+
+The freshness of the geology creates constant tension with the ancient sophistication of the biological systems. Sharp ridges of volcanic glass cut through areas where the organic growth is meters thick, creating boundaries between different processing zones. The fungal networks treat these obstacles as opportunities, using the temperature differentials to drive their chemical engines more efficiently.
+
+At the largest scale, the entire continent operates as a single organism-machine, processing atmospheric gases, fixing nitrogen, cracking complex molecules into simpler forms and assembling them again. The industrial ecology has no purpose beyond its own perpetuation, but it proceeds with the relentless efficiency of a well-tuned factory.
+
+Water moves through this system in precise cycles. The intermittent rains are actually scheduled—triggered by the coordinated release of hygroscopic compounds that pull moisture from the air. The water falls, is absorbed, processed, and released again in careful rhythms that keep the vast machinery running.
+
+In the deepest dark, where even the bioluminescence fails to penetrate, the growth forms become stranger still. Here, the fungal networks abandon photochemistry entirely and operate on pure chemical gradients, creating structures that feel more like crystalline computers than living things. They process information in the form of molecular messages, making decisions about resource allocation across thousand-kilometer distances.
+
+The whole landscape pulses with slow life, a industrial ecosystem that has evolved beyond the need for animals, beyond the need for sunlight, perhaps beyond the need for purpose beyond its own magnificent functioning. It is factory and forest, machine and metabolism, all boundaries dissolved in the humid darkness of this vast organic engine.

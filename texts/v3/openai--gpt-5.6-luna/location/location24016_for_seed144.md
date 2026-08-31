@@ -1,0 +1,43 @@
+The plateau begins above the last trees.
+
+It is not a clean summit, nor a range of sharp peaks, but a country of immense uplifted shelves: a broad, broken table of dark stone standing high enough that the horizon is nearly always visible. The land runs outward in long terraces and shallow basins, then rises again into walls of copper-colored rock. From a distance the cliffs appear smooth, almost deliberate, as if the plateau had been cut into levels by some enormous instrument. Up close, every surface is weathered—pitted, flaked, and webbed with old fractures—but the erosion has long since settled into a pattern. Nothing here seems recently torn apart. The ravines are deep, the gullies permanent, the slopes held in their shapes by centuries of heat and mineral deposition.
+
+The air is hot in the open, hotter than the altitude ought to permit. Sunlight falls with ordinary brightness, hard and white on the upper faces of the rock, but the thin air does little to soften it. Shadows are black and sharply edged. By midday the stone radiates heat through the soles of boots. The breath of anyone climbing is dry and quick, though the body soon becomes clammy beneath its clothing.
+
+Moisture comes in brief, local acts.
+
+There are weeks when no rain crosses the plateau, followed by a night of low cloud that pours itself into every hollow. At dawn, beads of water cling to the undersides of ledges and collect in shallow stone cups. On certain mornings, the basins are filled with a pale fog that has condensed directly out of the cold upper air. It does not last long. The fog burns away from the ridges first, then withdraws down the ravines in long white streams, leaving behind darkened rock and a smell like wet iron.
+
+Water is never evenly distributed. It hides in seams, behind mineral shelves, beneath mats of lichen, in abandoned shafts, and in the shadowed mouths of narrow slot canyons. Some channels are dry for most of the year but have polished their beds smooth over ages of sudden runoff. Others carry a thin, constant thread of water from underground, so narrow that it can be stepped over, yet followed for miles by the greenish stains it leaves on the stone.
+
+The vegetation is sparse only in the large sense. There are no continuous fields and almost no grass. The plateau seems bare when seen from afar. But every crack is occupied.
+
+Low, gray-green shrubs huddle against the wind in the shelter of rocks. Their leaves are thick and waxy, their roots probing deep into seams where moisture lingers. Tufts of rust-colored reed grow around the seep pools, turning black at the tips. Along the shaded faces of the cliffs are dense skins of lichen, blue, yellow, and bruised violet, packed so tightly that the stone appears furred. In the seasonal gullies, plants emerge almost overnight after rain: small, jointed things with translucent stems, flowering for a few days before folding back into the ground as papery husks.
+
+The life of the plateau is concentrated rather than spread. A single damp hollow may contain more living movement than a square mile of exposed ground. Beetles crowd beneath flat stones. Pale centipedes thread through the lichen. Small animals with broad, heat-shedding ears nest in the abandoned ventilation pipes of old works. Their tracks overlap so thoroughly around the water sources that the mud becomes a stamped pattern rather than a surface.
+
+There are many birds, though the sky often seems empty until the eye adjusts. They ride the updrafts along the escarpments in silent spirals, folding their wings to drop suddenly toward the gullies. Some are dark-winged scavengers with bare red throats; others are tiny, bright-backed insects that travel in loose clouds around the seep pools. At dusk, when the rocks are still warm but the air has cooled, thousands of winged things emerge from cracks and drift above the basins. Their movement is nearly soundless. They are taken by larger gliding animals that descend through them like nets.
+
+The predators are not large by lowland standards, but the terrain gives them scale. Long-legged cliff cats move along the upper terraces, their bodies the same mottled color as the weathered stone. They hunt by patience, remaining motionless for so long that dust settles on their backs. In the ravines, blind fish live in underground channels and rise into the temporary pools after rain. They are caught by narrow-snouted reptiles that wait half-submerged in the mud, their skin cool and dark despite the heat.
+
+The plateau is crowded with presence, but not with human presence. The apparent emptiness is deceptive. There are old roads, pumping stations, cables, derricks, settling tanks, rail beds, and the skeletons of processing towers, yet they are scattered across distances too large to make a settlement. A rusting conveyor may cross an entire ravine and end in open air. A concrete building stands alone on a ridge, its windows gone, its roof used by nesting birds. Farther on, a series of black pipes descends in careful switchbacks toward a basin where no town remains.
+
+The machinery was built for water, minerals, or both.
+
+Some of it still works. Deep below the plateau, slow engines draw brackish water upward through ancient wells. Their pumps operate on intermittent cycles, beginning without warning and stopping after several minutes. When they start, the ground gives a muted shudder. A piston beats somewhere beneath the rock, too deep to hear clearly, and a column of water climbs through a transparent inspection tube before vanishing into storage tanks. The exposed pipes are hot enough to burn skin on the sunward side and cold with condensation underneath.
+
+Other installations harvest the air. Tall arrays of corrugated metal and taut mesh stand on ridgelines, catching the night fog. At dawn they drip into narrow gutters. The gutters feed cisterns, and the cisterns feed the scattered stations. This gives the industrial remains a strange continuity: some facilities are clearly decades dead, but the newer condensers have been fitted into their frames, their electric motors ticking steadily in the heat. There is little visible human maintenance. Doors are chained, warning signs have bleached nearly blank, and the systems continue as if the plateau itself were keeping them in service.
+
+The sounds are small and widely separated.
+
+Most of the time there is only wind, and even that is often reduced to a dry pressure moving across the open shelves. It worries at loose sheets of metal. It produces a thin note through abandoned pipes. Far below, water taps occasionally into a tank. A pump begins its buried knocking, works, and falls silent. The sound travels farther than expected in the thin air, but it does not accumulate. Each noise remains isolated in the great distances.
+
+There are no constant cities, no traffic, no broad mechanical hum. A person may hear nothing for several minutes except their own clothing and the clicks of insects underfoot. Then, from another ridge, a flock lifts all at once, or a stone shifts under a hidden animal, or a pressure valve releases a long breath of steam. The silence is not emptiness. It is a surface stretched over many active systems.
+
+At night the temperature falls hard. The rock gives back its heat in waves, and the clear sky becomes crowded with stars. Before dawn, the cold gathers in the basins. Condensation appears on metal, glass, feathers, and the smooth backs of sleeping reptiles. Water beads on the machinery and runs down into channels designed by engineers who may have vanished generations ago. The first light ignites the upper cliffs, then the industrial towers, then the low scrub. For a short time everything seems wet and burnished.
+
+One rule governs the place more strongly than any map: nothing receives water without receiving life.
+
+A fresh seep is found within hours. Birds mark it from above. Insects arrive first, then reptiles, then the small mammals, then the cats. Plants open along its margins. Mold claims damp concrete. Within a season, a new water source is dense with tracks, nests, eggshells, shed skins, and droppings. The old processing sites are similarly occupied. Every warm cavity has a body in it. Every roof edge holds a nest. Every leak supports a miniature ecology.
+
+The land is therefore both open and packed: broad, exposed distances between islands of intense activity. A person can walk all day beneath the enormous sky and encounter no one, yet never be far from something watching, feeding, germinating, condensing, pumping, or waiting for rain. The plateau does not feel abandoned. It feels fully claimed by processes too old, too distributed, and too patient to need inhabitants in the human sense.

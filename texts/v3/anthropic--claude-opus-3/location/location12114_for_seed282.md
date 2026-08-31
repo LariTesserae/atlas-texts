@@ -1,0 +1,9 @@
+Deep beneath the surface, a strange pocket ecosystem churns in the dark. This is a cold, damp place, where condensation beads on every surface and the occasional slow drip echoes through narrow stone passages. The air is still and thick, saturated with a haze of mist and fine mineral dust.
+
+Dim bioluminescent patches cling to the rough hewn walls, casting an eerie blue-green glow. They shift and undulate gently, these colonies of microorganisms, in slow hypnotic patterns. Sparse tufts of translucent lichen-like growths emerge from cracks, pale and ghostly. Thin slimy films of anaerobic bacteria sheath sections of rock in muted iridescent sheens.
+
+A constant low mechanical hum permeates this subterranean enclave - the sound of unseen machines, pumps, and pipes carrying out their enigmatic purposes in the surrounding strata. Amidst the dampness and the dark, corroded metal pipes snake along the walls, gurgling and clanking softly. Ancient ducts exhale stale gusts at long intervals. Broken chunks of unknown equipment and fragments of decayed structures lie strewn about, engulfed by mold and crusts of mineral buildup.
+
+This is a place emerging in geologic time, materials and forces accruing incrementally, unceasingly, in the hid den cracks beneath the world. Moisture seeps in, interacts, transforms. Chemical reactions slowly dissolve and deposit, microbes spread and evolution proceeds at a nearly frozen pace in scattered pockets of dank isolation.  
+
+The scale is modest - a claustrophobic maze of tunnels, crawlways and cramped chambers of dripping stone and rusting metal, twisting into the depths. But every surface teems with microscopic activity as billions of tiny lifeforms quietly multiply, consume, and expire. Tucked away from the surface, they carry out their ancient minute cycles, building this strange ecology drip by drip and generation by microbial generation in the patient darkness far below.

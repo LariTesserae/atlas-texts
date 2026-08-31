@@ -1,0 +1,21 @@
+This is a high-altitude plateau of such immense scale that it creates its own troposphere, a continent of vertical basalt teeth rising miles into the thin, cool air. Here, the world is a saturated suspension. The air is not merely air, but a heavy, liquid mist that clings to the skin like a damp shroud, cooled by the elevation to a temperature that keeps the breath visible but the plants thriving.
+
+The terrain is a jagged, hyper-eroded labyrinth of "weeping columns." Millions of years of relentless condensation have carved the dark, volcanic stone into deep, fluted grooves. Every vertical surface acts as a wick. Water does not just fall as rain here; it breathes out of the air, beading on the stone and running down the billion-fold channels in a silent, synchronised descent. The ground is never visible. It is buried under a layer of sphagnum and clubmoss so thick it feels like walking on a fermented mattress. 
+
+**The Vegetation and Density**
+There is no "empty" space. The density is claustrophobic; the ecology has occupied every cubic centimeter of the available volume. Massive, cold-weather ferns with fronds the size of sails overlap one another, creating a translucent green roof that filters the daylight into a soft, lime-colored glow. Epiphytes—orchids with translucent, ice-blue petals and hanging pitcher plants—choke the gaps between the basalt pillars. The plants do not grow toward the sun so much as they grow toward the moisture, spiraling outward into the mist.
+
+**The Industrial Anomaly**
+Beneath this lush, wet canopy, the landscape possesses a strange, rhythmic heartbeat. There are no buildings, no ruins, and no inhabitants, yet the world functions with the mechanical precision of a massive, biological factory. Immense, organic "pumps"—vast, pulsating fungal cysts the size of houses—are embedded in the rock. These are the "engines" of the plateau. They draw the accumulated water from the moss-covered basins and, through a process of high-pressure transpiration, hiss it back into the atmosphere through chimney-like vents. 
+
+The sound of this is a rhythmic, industrial thrumming, dampened to a whisper by the humidity. It is the sound of a world-scale machine made of cellulose and chitin. The "tech" here is not metal or fire, but a biological industrialization: natural siphons, pressurized sap-lines that run like cables across the ravines, and bio-electric nodes that pulse with a faint, steady light in the deepest shadows, regulating the mineral content of the runoff.
+
+**The Fauna and Sound**
+The animals are silent, evolved for a world where sound is swallowed by the wet. Huge, slow-moving arthropods with iridescent, rain-slicked shells crawl along the basalt fluting, their many legs clicking softly like the cooling of an engine. These are the "maintenance" crew, scraping algae from the pump-vents. In the high canopy, "vapor-whales"—massive, gas-filled bladders with trailing tactile filaments—drift through the mist, grazing on airborne spores. 
+
+The silence is absolute, yet the world is loud with motion. You hear only the drip-drip-drip of a trillion points of contact, the occasional wet thud of a falling seedpod, and the deep, sub-bass vibration of the earth-pumps. 
+
+**The Rules of the Place**
+In this domain, the primary law is the Cycle of the Fluid. Standing still is a risk; the moss grows with such aggressive speed that your boots would be anchored to the basalt within an hour. The light remains constant—a permanent, bright overcast—because the clouds are generated from the ground up. 
+
+There is a profound sense of "equilibrium through exertion." The landscape is not peaceful in its stillness; it is peaceful because it is functioning at peak capacity. It is a factory of oxygen and water, a towering, high-pressure garden that has long since automated its own existence, leaving no room for anything that does not contribute to the great, humid grinding of its gears. It is a cathedral of wet stone and green steam, miles above the rest of the world, staring into the sun through a lens of silver mist.

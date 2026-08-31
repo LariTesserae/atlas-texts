@@ -1,0 +1,23 @@
+This is a world submerged not in ocean, but in memory.
+
+It is cold, yes—so cold that the water never roils, never churns with the heat of life or tectonics. It sits like glass poured over a dream, thick and still, pressing down with the weight of eons. The temperature hovers just above freezing, not enough to form ice, but enough to still all metabolism, all motion that isn’t geological or gravitational. There is no wind here. No storm. Only the faintest of currents, slow as thought, drifting through channels carved not by rivers, but by the settling of time itself.
+
+The water is total. Not a sky above, not a dry patch below. What passes for “ground” is not earth but the compacted residue of an ancient built world—layer upon layer of stone, brick, fused glass, and petrified timber, all fused and flattened by the patient crush of millennia underwater. Erosion has done its final work: edges have softened into undulations, towers have slumped into mounds, streets have become gentle troughs. Nothing juts or pierces; everything has been invited into the horizontal. This is not ruin as decay, but ruin as completion. The city—if it was a city—has not been destroyed. It has been absorbed. It has become landscape.
+
+And yet, it is lush.
+
+Vegetation thrives, though it knows no sunlight. Mosses the color of drowned emeralds cling to every surface, filaments of kelp-like fronds coil through sunken archways, and bulbous, translucent fungi pulse with slow bioluminescence—faint, yes, but enough to cast ghostly halos in the pitch. These are not plants as we know them, but something older, quieter: photosynthesis abandoned long ago for chemosynthesis, drawing energy from mineral seeps and the slow oxidation of buried iron. Their growth is glacial—centuries to unfurl a leaf—but they are everywhere, a velvet skin over stone, a breathing blanket over the corpse of architecture.
+
+The built environment is total. There is no “nature” beneath it. No bedrock untouched by hand. Every ridge, every hollow, every slope was once shaped by intent—by fingers, by chisels, by prayers offered over foundations. Now those intentions are illegible, but their forms remain: amphitheaters filled with silt, aqueducts collapsed into serpentine ridges, staircases spiraling into nothing. The scale is continental. You could walk for weeks and never reach an edge—not because the land is large, but because the water is endless, and the structures repeat in subtle variations like verses of a forgotten epic. Weather forms here: not storms, but slow thermal blooms—vast, cold vortices that drift for decades, stirring nutrient clouds that feed the fungal forests in seasonal waves measured in centuries.
+
+Density is high, but not with life—there are no animals, no fish, no insects. Only presence. The water is thick with particulate memory: suspended dust of limestone, spores, flakes of old paint, fragments of script etched onto ceramic shards. To move through it is to wade through sedimented meaning. Every cubic meter hums with the ghost of use.
+
+Sound is scarce. A rare collapse—a lintel finally surrendering—might echo like a sigh through the liquid. Sometimes, the thermal currents make a low, resonant thrum as they pass through hollow domes, like the world breathing. But mostly: quiet. Profound quiet. The kind that isn’t absence, but fullness held in stasis.
+
+Technology here was never advanced—not in the way we measure. No engines, no wires, no alloys beyond bronze or fired clay. But the craftsmanship was deep, ritualistic. Walls were laid not for function alone, but for resonance, for alignment with vanished stars. Doors were carved with symbols that may have once controlled tides—or dreams. Now, those tools lie encrusted in barnacle-like mineral shells, their purposes lost, their forms still beautiful.
+
+Light is almost gone. What little exists comes from the fungi, from the faint blue shimmer of radiolysis in deep stone fractures, from the occasional gleam off a shard of mirror-glass still holding an image of a sky no one remembers. But even that is dim, diffused, swallowed by the water within meters. Darkness isn’t oppressive here—it’s the natural state, the canvas.
+
+Weirdness is minimal. This place follows rules. Gravity still pulls. Chemistry still binds. Time still flows, albeit slowly. There are no portals, no entities, no paradoxes. Only a world that chose depth over height, stillness over noise, memory over progress.
+
+And so it endures: a cold, vast, submerged archive. Built by hands now dust, grown over by life that feeds on time, held in the gentle fist of water that will outlast even stone. It does not wait for rediscovery. It simply is—settled into its final, silent form.

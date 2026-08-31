@@ -1,0 +1,27 @@
+The place is called the Hollow Hive.
+
+It is not a cavern. It is a single, self-contained pocket of ancient industry folded inside the dry, lightless meat of a dead celestial body — a mineral cyst no larger than a modest cathedral, yet somehow dense enough to feel infinite. The scale is intimate and suffocating at once: every surface is within arm’s reach of another, yet the geometry keeps folding, so that no matter how you turn you are always standing at the center of something that should not fit.
+
+There is almost no water. What little moisture exists is locked inside the slow exhalation of ancient chemical engines — a thin, acrid vapor that beads on cold metal and evaporates before it can fall. The chemistry here is non-aqueous, sulfurous, and selenium-heavy. The air itself tastes of hot solder and old blood.
+
+Temperature clings to the bone like a damp cloth left in a cellar: cool enough to make breath plume, but never cold enough to freeze the constant oily condensates that weep from every joint and bearing.
+
+The terrain is entirely constructed and mineral. Vast banks of black iron engines, turbines the size of houses, and forests of corroded pipework rise in every direction, so densely packed they lean against one another like exhausted giants. Generations of mechanical generations have fused together. Newer engines were simply bolted onto the backs of older ones; those in turn were overgrown by stranger, half-organic mechanisms whose purpose has been forgotten even by the place itself. The result is a single fossilized roar of industry that has been rusting, creaking, and replicating for so long it has achieved a kind of geological patience.
+
+Nothing green has ever lived here. In place of vegetation there are only mineral growths — fractal lattices of bismuth and galena that bloom in slow, patient crystals across every surface — and the constant, living carpet of fauna.
+
+The fauna is overwhelming.
+
+They are not animals in any conventional sense. They are machine-insects, chrome locusts, things with too many joints and too many eyes that glitter like fresh solder. Some are finger-length, others the size of wolves. They pour in glittering sheets over every pipe and girder, their legs clicking in perfect synchrony. When they move in unison the sound is like a million tiny ball bearings rolling down a metal slide. They eat rust. They excrete lubricant. They mate by welding themselves together and birthing new clutches of copper larvae from the seams. Their bodies are simultaneously biological and industrial; translucent chitin reveals tiny pistons and capillary wiring inside. When the light catches them they flare like living jewelry.
+
+And the sound. The sound is constant, loud, and layered. The deep bass throb of engines that have not stopped turning in ten thousand years. The metallic rasp of uncountable legs. The hiss of pressurized gas escaping ancient valves. The high, almost melodic whine of magnetic coils still trying to remember what they were meant to power. Every few minutes the entire pocket resonates with a sub-audible moan as the outermost shell of the dead world flexes, squeezing the Hollow Hive like a fist around a seed.
+
+Light is normal, but it comes from no sun. Industrial lumen-globes the size of wagon wheels hang at irregular intervals, many of them cracked, many of them flickering. Their yellowish glow is old and tired, yet strangely intimate. It catches on the oil-slick wings of the machine-insects and turns every movement into stained-glass shimmer.
+
+The erosion parameter has reached its final form. This place is older than erosion; it has settled into the primordial shape that all industrial decay eventually finds. Every edge has been rounded by the patient tongues of ten million metal mandibles. Every surface is both ruin and maintenance at once. The Hive is not falling apart — it is being constantly, obsessively repaired by its own inhabitants, who themselves are the final product of the machinery they service. It is the oldest stable state of a machine ecosystem that has outlived its makers by geological epochs.
+
+Scattered among the dense forest of engines are the built remnants: a single rusted control pulpit still wearing the faded emblem of a corporation whose name has become prayer; a row of steel coffins that were once maintenance pods; the half-buried skeleton of an enormous drill head now used as a cathedral by a particularly reverent swarm of cobalt beetles.
+
+The weirdness is quiet but persistent. Gravity is not quite right — it pulls slightly toward the densest clusters of active machinery, as though the engines themselves have become low-grade singularities. Time inside the Hollow Hive sometimes forgets its own order; you will notice a particular turbine has rotated exactly one extra turn while you weren’t looking. The insects occasionally arrange themselves into perfect geometric diagrams that hurt to comprehend, only to scatter again when you approach.
+
+This is an active, loud, dense, ancient pocket of the universe that has achieved a kind of terrible, crawling equilibrium. The machines still produce. The insects still consume and repair. The lights still burn. Nothing here has any memory of sky, or rain, or green. There is only the Hive, the throb, the glitter of ten billion chrome wings, and the slow, satisfied creak of metal that has finally, after eons of effort, become its final and perfect form.

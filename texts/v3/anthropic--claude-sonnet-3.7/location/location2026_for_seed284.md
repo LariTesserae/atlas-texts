@@ -1,0 +1,17 @@
+# The Hollow Forge
+
+Beneath the silent world, an embryonic chamber unfolds. Not a cavern formed through eons of water's patient carving, but something... assembling itself. The space feels impossibly vast despite its containment, an inverted cathedral whose boundaries remain uncertain in the diffuse, bluish glow that seems to emanate from nowhere and everywhere.
+
+The air hangs cold and still, occasionally disturbed by the slow migration of moisture that beads along crystalline surfaces. These droplets accumulate with glacial patience until they're heavy enough to surrender to gravity, each landing with a resonant *plink* that echoes for minutes through the emptiness. The intervals between these liquid metronomes stretch into profound silence.
+
+Along the curved walls, machinery grows rather than built—industrial forms emerging directly from the rock like metal fungi. Pistons, gears, and coils of copper wire extrude from the mineral matrix in various stages of formation. Some areas feature only the barest suggestion of mechanical parts, mere impressions in the stone, while others display fully realized mechanical systems that pulse with subtle, autonomous movements. No designer's hand is evident; these mechanisms appear to be extruding themselves from raw geology through some unexplained process.
+
+The floor, such as it is, consists of a glassine surface that sometimes appears solid and sometimes seems to recede into infinite depth. It remains slick with a thin film of condensation that reflects the sparse light in mercurial patterns. Walking across it produces no echo—sound here is swallowed rather than reflected.
+
+In the center of this impossible space stands a structure that defies categorization—neither fully machine nor fully mineral. Resembling an inverted pendulum or perhaps a primitive loom, it moves with exquisite slowness, producing a periodic bass tone so low it registers more as pressure change than sound. The device appears to be processing the very substance of the chamber itself, drawing in particulate matter and energy in imperceptible quantities.
+
+The rare visitors to this place are pale, translucent things that might once have been fish, had they remained in water and followed evolution's conventional path. They drift through the open air as if swimming, their internal organs dimly visible through semi-opaque skin. They take no notice of intruders, intent on some inscrutable purpose involving the machinery. Occasionally one will press itself against a forming mechanism, seeming to merge with it momentarily before continuing its silent patrol.
+
+The entire chamber gives the unmistakable impression of gestation—a technological womb preparing something not yet ready to emerge into existence. The processes occurring here operate on timescales beyond human patience, each minute change representing perhaps years of development. Yet despite this torpid pace, there's an undeniable sense of purpose—this place is not static but profoundly, deliberately dynamic.
+
+What is being created here, and by whom, remains unknowable. But the cold precision with which the chamber conducts its silent industry suggests intelligence of a kind that has never known organic form. This is manufacture at its most fundamental—a factory that constructs itself, operating outside the flow of conventional time, hidden from the world it may one day transform.

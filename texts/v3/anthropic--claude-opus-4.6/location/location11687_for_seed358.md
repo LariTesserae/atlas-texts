@@ -1,0 +1,51 @@
+# The Floodworks
+
+---
+
+Below the waterline. That's the first thing to understand. The whole basin sits beneath where a river wants to be, where it *will* be, once it finishes deciding. For now it's deciding.
+
+You descend through a concrete stairwell—old municipal infrastructure, a pumping station access from some previous generation's attempt to manage what's down here—and the sound hits you before the air does. A roar. Not a single roar but a *composite*, a sound made of ten thousand overlapping sounds that have merged into a physical presence, a pressure against your eardrums that your body reads as weather. The stairs are slick. Condensation beads on every surface, on the walls, on your skin, on the rusted handrails. You are entering a saturated world.
+
+The basin opens. And it is vast.
+
+---
+
+Imagine a low-ceilinged landscape—the sky here is maybe forty feet up, sometimes sixty, occasionally pinching to fifteen where the geology hasn't decided what it wants to become. Not a cavern exactly. More like the hollow that forms between tectonic intentions. The stone overhead is young and soft,ite calcium deposits still wet, still actively precipitating, curtains of mineral milk dripping in slow sheets from formations that haven't finished forming. The ceiling is embryonic stalactite, is half-hearted dome, is raw geology caught in the act of becoming architecture. In places, the rock above is so new it's almostite calcium paste, and it sags in smooth organic bulges like the underside of rising bread. In other places there are gaps, open shafts to the surface where grey daylight falls in dim columns, and rain comes through, and roots dangle—the sparse vegetation of whatever lives above, sending down pale tendrils like fishing lines into the murk.
+
+The floor is water. Mostly. A warm, shallow, spreading sheet of it that extends in every direction farther than you can see in this light, which is the light of overcast sky filtered through rock and mineral water and distance—a light the color of old pewter, of dishwater, of the inside of a cloud. Here and there the floor humps up into mudflats, into nascent islands of calcium deposit and river silt, but the water is everywhere, an inch deep, six inches, sometimes waist-deep in channels that haven't settled into permanence yet. The whole basin is a floodplain that hasn't finished being born. The water is warm—bathwater warm—heated by something geological below, and it moves, but slowly, so slowly, following gradients so gentle that the surface barely admits to having a current. You can watch a leaf travel three feet in an hour. The water is building this place. Depositing minerals. Filling in. Shaping channels that will become permanent in a century or two. Every surface it touches, it adds to.
+
+The sound. The sound is the thing.
+
+It comes from the fauna. From the *density* of the fauna. From the sheer *packing* of living things into every available niche of this warm, wet, dim, protected underworld.
+
+Frogs. Thousands of species of frogs—or what seems like thousands, though surely it's dozens, each with its own pitch, its own rhythm, its own agenda. They carpet the mudflats. They cling to the wet walls. They float in the shallows with their eyes just above the surface, throats pulsing. The deep ones bellow—a sound like someone bowing a cello in a bathtub. The small ones trill and click and produce mechanistic buzzes that sound almost electronic. Together they build a wall of sound that resonates in the low-ceilinged space, bounces off the wet stone, amplifies, interferes with itself, creates standing waves of noise that make certain spots almost physically painful and others merely overwhelming. You feel the sound in your molars. In your sternum.
+
+But it's not just frogs. Bats—colonies dense enough to look like fur on the ceiling, shifting and rustling, their echolocation clicks layered into the acoustic murk like static. Blind white crayfish in the channels, their claws clicking against mineral deposits. Salamanders the color of raw liver, slick and slow, draped over every rock surface in heaps of two or three, their movements glacial. Eels—pale, thick-bodied, sluggish things that wind through the shallows and over the mudflats, sometimes traveling overland between pools with a muscular patience. Midges in clouds so dense they have visible internal weather—currents and vortices within the swarm. Snails with translucent shells on every hard surface, their trails catching the dim light in silver threads. Water beetles. Worms. Flatworms. Things that might be leeches and things that are certainly leeches. The ecosystem is packed to capacity and beyond—every surface colonized, every niche occupied, every cubic foot of air or water or mud hosting something alive, something breathing, something calling out.
+
+There is no silence here. There has never been silence here.
+
+---
+
+The built things are scattered through the basin like afterthoughts, like someone's abandoned attempt to make sense of this place before giving up.
+
+A pumping station—the one whose stairs you descended—with its diesel engine still intact, corroded but recognizable, bolted to a concrete pad that now sits in three inches of warm water. The engine hasn't run in years, maybe decades, but it hasn't been dismantled either. It just *is*, colonized now by salamanders who lay their eggs in the cylinder housings. Nearby, a corrugated metal shed with no door, its walls wept over by mineral water that has begun to coat it in a thin skin of calcium, slowly turning it into geology. Inside: crates of pipe fittings. A clipboard with paper so swollen by moisture that it has become a single solid mass. A lantern.
+
+Farther in—you can see it across maybe half a mile of shallow water, visible by the faint electric glow it produces—a second structure, some kind of monitoring station or relay, with a generator that still runs. You can't hear it over the frogs. You can't hear *anything* specific over the frogs. But the light is there, a sickly yellow-orange smear against the pewter dimness, and it tells you someone still comes down here, or something still functions on its own, drawing fuel from a supply line, keeping instruments alive, measuring the slow becoming of this landscape.
+
+Scattered between these structures: survey stakes driven into mudflats, most of them tilted now, some of them half-buried by new mineral deposits. Lengths of PVC pipe laid along channels, perhaps to direct flow, perhaps to measure it, now serving as highways for eels. A concrete weir, waist-high, spanning a channel—but the water has already found its way around it, and around the way around, and the weir now stands as a monument to a prediction that didn't hold. Painted on it, in letters the minerals are slowly devouring: **SECTION 9 — OUTFLOW REGULATION**. The outflow has regulated itself.
+
+---
+
+The scale of this place reveals itself slowly because the light doesn't let you see it all at once. You walk—wading, really, always wading—and the ceiling rises, and falls, and rises again, and the basin keeps going. It extends under what must be a significant stretch of the surface world. A town, maybe. A river valley. You imagine the people up there, walking on sidewalks, driving to work, with this beneath them—this churning biological engine, this theater of emergence, this place where stone is still deciding what shape to take and water is still deciding where to go and ten thousand frogs are screaming about it.
+
+The temperature holds steady. Warm. The kind of warm that makes you stop noticing your own skin, that erases the boundary between your body and the air, that turns everything into one continuous medium of warmth and moisture. You are wet. You have been wet since the third stair. You will not be dry again until you leave, and even then, not for a while.
+
+The vegetation is sparse because there is so little light. What exists is tenacious and alien-looking—pale mosses on the rock surfaces, white fungal mats on the mudflats, and those dangling root systems from above, some of which have found the water and spread into submerged root-nets that the crayfish navigate like scaffolding. In a few places near the ceiling gaps, where more light enters, there are ferns—actual green ferns, somehow, growing from cracks in stone that hasn't finished hardening. They look startled to be alive.
+
+The erosion—or rather, the *anti*-erosion, the emergence—is the slowest thing here and the most fundamental. You can't watch it happen. You can only see the evidence that it *is* happening: the fresh mineral skins on every submerged surface, the stalactites that are still only nubs, the channels that are only suggestions. This place is accreting. Building itself from dissolved calcium and silica and whatever else the warm water carries up from below. In a thousand years this will be a cave system, a proper one, with defined chambers and established rivers and formations that have names. Right now it is a rough draft. A sketch. The geology is still thinking.
+
+But the animals are not waiting for the geology to finish. They have moved in during construction. They are *deafeningly* present, crowded into a landscape that hasn't finished providing for them, making do, adapting to a floor plan that changes—slowly, so slowly, but perceptibly across generations. The frogs of fifty years ago sang in slightly different chambers than the frogs of today. The eels of fifty years ago followed channels that no longer exist, replaced by new ones that are a few inches to the left. The whole system drifts, at the speed of mineral deposition, while the life packed inside it adjusts and adjusts and adjusts and never, ever stops screaming.
+
+You stand in the warm water, in the dim pewter light, and the sound fills you until you cannot distinguish it from your own heartbeat. The crayfish click against your boots. Something pale moves past your ankle. Above, the bats shift and resettle. A drop of mineral water strikes the surface next to you with a sound you cannot hear—it is happening, but it is lost in the choir. Everything is lost in the choir. Everything is the choir.
+
+The Floodworks. Still under construction. Fully occupied.

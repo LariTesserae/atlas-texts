@@ -1,0 +1,13 @@
+This is a place of suspended breath, a high-altitude crucible contained within a bowl of jagged, unweathered obsidian. It is a "cathedral of the dry," a small, enclosed basin perched atop a spire of volcanic glass that pierces the clouds. Because there is no water, the chemistry of life here is brittle and viscous; it relies on the slow exhalation of gasses from the deep mantle and the condensation of thick, nutrient-rich mists that cling to the walls but never pool.
+
+The terrain is defined by extreme sharpness. Because the area is newly formed and geologic erosion has not yet softened the world, every edge is a razor. Spires of raw, translucent basalt shoot upward like frozen lightning, yet they are choked with life. 
+
+The "vegetation" here is not photosynthetic but lithotrophic. Thick mats of calcified, moss-like organisms drape over the basalt chimneys, glowing with a dull, internal amber heat. These structures are dense—a vertical city of biological architecture. They grow in rigid, grid-like patterns, a natural urbanism where every inch of space is claimed. There are no machines, but the organisms themselves act as conduits, pulsing with slow, rhythmic chemical signals that ripple through the entire mass.
+
+The atmosphere is warm, thick, and smells faintly of ozone and pulverized feldspar. There is almost no sound. Even the fauna—small, six-legged, chitinous creatures that resemble clockwork beetles—move with a deliberate, haunting grace. They do not scuttle; they click into place, fitting themselves into the negative spaces of the basalt architecture like keys into locks. 
+
+There is an overwhelming sense of organization here, despite the lack of intellect. The moss-mats grow in perfectly straight lines, demarcated by the mineral veins in the rock. The beetles clear debris from these lines with specialized, serrated mandibles, maintaining a pristine, sterile order. 
+
+At this altitude, the light is clear and uncompromising. It strikes the obsidian walls and refracts into sharp, geometric patterns that dance across the floor of the basin. The dynamic of the place is glacier-slow; a new spire might reach its full height over the course of a century, and a single beetle might spend a week polishing a patch of rock twice the size of a human palm. 
+
+Nothing changes quickly. There is no decay, for there is no moisture to harbor rot; there is only the slow accumulation of mineral shell and the rhythmic, silent vibration of a world that is perfectly sealed, perfectly satisfied, and entirely alone at the top of the sky. It is a masterpiece of small-scale geometry, a living monument to silence and the rigid perfection of a world without a single drop of rain.

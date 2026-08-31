@@ -1,0 +1,51 @@
+You enter it by going down—not far, but decisively—through a throat of worked stone that has forgotten its sharp edges. Every corner has been rounded by centuries of warm breath and mineral film. The air changes first: it thickens, sweetens, and carries heat like a wet cloth held near the face. It isn’t a cavern in the heroic sense; it’s a chamber—grove-sized, cathedral-feeling only because the ceiling is lost in haze and because the sound makes everything seem larger than it is.
+
+The ground is not soil, not quite. It’s a quilt of industrial runoff and patient geology: slag-grit, pale calcite crust, black rubbery mats, and seams of old brick that show where someone once tried to impose flatness. In places the floor has the smooth, scalloped polish of long erosion, as if water used to rush here with purpose. Now it does not rush. Now it *perspires*.
+
+Moisture arrives intermittently, in cycles you can hear before you see them. A far-off clank, a slow pressure change, then the fog thickens. Condensation beads on everything at once—on leaves, on pipes, on your eyelashes—then gathers and releases in heavy drops. The drops strike metal with the sound of a small hammer, and they strike stone with a soft, indecent slap. Where they collect, there are pockets: shallow basins in the rock full of warm, tea-colored water; narrow runnels that carry a trickle for a few minutes and then go dry again; a sump in the lowest point that never empties, its surface filmed with rainbow sheens that don’t quite resolve into oil.
+
+It is hot. Not desert-hot, not sun-hot, but machine-and-earth hot: a constant, baked warmth that rises from vents and from the rock itself. The heat comes in layers, as if the room has thermal stratification like a pond. Knee-height is merely oppressive; shoulder-height is a slow fever. Every so often a vent exhales and the whole chamber flinches—steam hisses, foliage shivers, and the air fills with a metallic tang like pennies soaked in lime.
+
+The vegetation would be called lush if it were above ground. Here it’s lush in density and insistence. Things grow everywhere they can anchor: in cracks between old tiles, in the porous skin of concrete, around bolt heads, inside the mouths of broken valves. Leaves overlap leaves until the chamber becomes a green, dimly glossy mass, but it is not the tidy green of a forest. These plants have adapted to light that arrives grudgingly.
+
+Light is present, scattered and tired. There are industrial fixtures mounted high on pillars—glass domes clouded with mineral deposits, cages bent by heat—casting a dull amber that barely reaches the floor. Between them, the room is twilight. The plants compensate with their own faint radiance: chlorophyll made strange, pigments tuned to wavelengths that don’t exist aboveground. Some fronds hold a soft blue shadow in their veins; some vines show a bruised violet along their edges, as if lit from within by distant embers. It’s dim enough that you can’t immediately tell where a pipe ends and a stem begins.
+
+And the stems will not help you.
+
+Here, botany and industry have become hard to separate. Thick climbing vines have learned the contours of conduit and flange; they follow the metal because the metal sweats, because it carries warmth, because it gathers condensation. Rootlike structures—pale, fibrous, almost fungal—crawl along the undersides of catwalks and into junction boxes, where they make nests of cellulose and mineral salt. Some leaves are stiff and waxy as gasket material. Some “bark” is plated with a thin, bright scale of precipitated copper, stolen from old wiring. The lushness is not soft; it’s an overgrowth of textures: slick, leathery, sharp-edged, spongy, laminated.
+
+There is no animal life. The absence is not subtle. No insects buzz in the lamplight. No small scurry answers the drip. Nothing flees your footsteps because nothing here has feet.
+
+Yet it does not feel dead, because the place is crowded with other kinds of presence.
+
+The chamber is loud. Not with suddenness, but with accumulation. A low, constant thrumming comes from behind the walls—pumps somewhere deeper, their bearings worn into a steady lament. Steam vents whistle at slightly different pitches, creating beating patterns that make your teeth ache. Every few minutes a relay clicks, far away; every few seconds a drip strikes a resonant surface; every moment leaves rub against metal and make the faint rasp of sandpaper on steel. The soundscape is so dense it becomes a physical pressure, like standing too close to a waterfall that you cannot see.
+
+Scattered structures interrupt the vegetation without dominating it: a narrow maintenance platform with a railing half-swallowed by creepers; a brick plinth that might once have held a motor; a row of ceramic insulators like pale teeth along a wall; a small door set into stone, its handle fused with lime. There are signs, too—painted warnings flaked into illegibility, symbols that have become decorative through neglect. The most intact artifact is a control box mounted at chest height. Its gauges are fogged. Its glass is webbed with cracks. A vine has threaded through the seam, and the box pulses with warmth as if still, somehow, doing its job.
+
+This is an old working, an industrial pocket that never fully died. It persists in a slow, patient mode: not production, but maintenance; not a factory, but a system trying to keep itself from changing too fast. The dynamics are gentle and long. Mineral deposits advance a millimeter a year. Vines take a decade to cross a wall. Rust blooms in slow maps. The chamber shifts through cycles of humidity and dry heat with a regularity that suggests someone once designed it, and that the design is still being honored by inertia.
+
+Erosion here is not violence; it is agreement. The stone has been carved and then softened by time. Edges are dulled. Surfaces are pitted where condensation has dissolved and re-laid minerals. In the highest reaches, stalactites have grown not from pure limestone but from layered histories: bands of calcite alternating with soot, with iron, with salt. They hang like organ pipes in a cathedral that plays itself.
+
+The ecology is purely plant and microbe, and it has rules that you feel in the throat.
+
+1. **Nothing hunts, nothing flees.** Without animals, the plants compete through chemistry and architecture instead of speed. Some patches are “territorial” with invisible boundaries: you step from one to another and the smell changes sharply—peppery to sweet, resinous to sour. These are chemical demarcations, slow wars fought by spores and exudates.
+
+2. **Metal is a nutrient here.** The plants do not merely tolerate the industrial remains; they mine them. Where a pipe has been breached, the surrounding leaves are darker, almost black-green, as if iron has made them richer. In some places you can see fine, hairlike roots wrapped around bolts, their contact points stained with bright oxide blooms.
+
+3. **Light is rationed.** Anything that rises toward the lamps gets crowded. The upper air is a tangle of suspended growth: vines laced through old cable trays, broad fronds angled to catch the dim amber. Below, in the shade, the mats are thinner and stranger—translucent sheets that look like wet paper, patterned with veins.
+
+4. **Water is episodic, so storage is everything.** Bulbous nodes swell at the base of some stems, heavy with cached moisture. When the chamber dries between cycles, the plants do not wilt so much as *hold their breath*. The air becomes harsher; the leaves stiffen; the only sound that changes is the dripping, which slows until each drop feels like a decision.
+
+The strange part—stranger than luminous veins, stranger than metal-eating roots—is how the room seems to *remember* pressure.
+
+Stand near one of the vents and you’ll notice that the foliage leans, ever so slightly, *before* the steam release. Not in response to wind—there isn’t any yet—but as if the plants feel the impending change in the system. You can test it: watch a particular frond. Wait. Minutes pass. The frond angles away. A heartbeat later the vent hisses.
+
+It’s not precognition; it’s plumbing. The entire chamber is threaded with pressure lines—pipes behind walls, cavities in rock, porous mineral sponges—and the plants have wired themselves into it. Their tissues respond to tiny shifts in pressure and heat the way surface plants respond to sun and shade. In this place, **pressure is weather**. The vegetation has become a barometer forest.
+
+The dimness, too, is not just absence of sun. The lamps don’t merely illuminate; they *manage*. Their weak output keeps certain growth in check, favors certain pigments, discourages fungal blooms that would otherwise coat every surface. When a fixture fails—and one has, in a corner where the light falls off into near-black—the plants there are different: paler, more filamentous, less leaf and more net. They lace the darkness like cobwebs made of living tissue, and they shine faintly, a cold internal light, as if evolving their own replacement for the industrial glow.
+
+The room’s boundaries are easy to sense because everything presses against them. Walls are close, but layered with depth: rock, brick, pipe, plant. The ceiling is a dome of haze, with hanging mineral ribs and dangling vine curtains. There are only a few clear paths, and even those feel temporary—corridors where the heat is too strong for leaves to linger, or where a slow drip line has made the floor too slick for roots to hold.
+
+If you stay long enough, you begin to notice the chamber’s pace. Nothing happens quickly, yet the place is never still. A droplet forms, elongates, falls. A leaf shifts under its weight. A rust flake loosens and tumbles, ringing softly as it hits a pipe below. The humidity cycle turns, and the air tastes different. The plants adjust by degrees you can almost miss.
+
+This is a pocket-world under pressure: hot, damp in pulses, crowded with growth, threaded through with old industrial anatomy that still hums. It is loud like a machine room and lush like a greenhouse, yet without birds or insects to turn it into a garden. It has survived by becoming its own closed conversation—stone and steam, metal and chlorophyll, light and mineral—arguing slowly, endlessly, in the dim.

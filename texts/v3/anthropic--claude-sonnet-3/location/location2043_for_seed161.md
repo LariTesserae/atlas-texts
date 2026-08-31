@@ -1,0 +1,9 @@
+In the murky depths, a vast underwater city sprawls across the ocean floor, its towering spires and lofty arches sculpted from seamless basalt. The structures are sleek and modern, yet also ancient, as if carved by forces far predating human existence. Eruptions of superheated water intermittently burst from fissures in the basalt, sending billowing clouds of scalding vapor twisting through the urban canyons.
+
+Though this inundated metropolis lies hundreds of feet below the surface, a soft, diffuse light emanates from clusters of bioluminescent lifeforms clinging to the edifices. Strange, alien flora resembling tangled masses of glowing fiber optics festoon the upper reaches of the tallest towers, swaying listlessly in the gentle currents. 
+
+The city seems utterly devoid of human inhabitants, a vacant necropolis entombed beneath the sea. Yet something stirs in the shadows between the cyclopean structures. Vast shapes drift in the gloom, shapes that dwarf even the grandest ziggurats. Behemoths with armored carapaces and sinuous, undulating tentacles propel themselves effortlessly through this subaquatic habitat.
+
+These colossal denizens pay little heed to the abandoned metropolis, merely using the towers and arches as convenient perches as they gorge on the abundant schools of bioluminescent creatures drawn here by the warmth seeping from the hydrothermal vents. The titans' terrible jaws clashing shut on their prey is the only sound that reverberates through this primordial, silent realm.
+
+High above, the endless leagues of ocean hang like an impenetrable barrier, the sunlight from the surface world hopelessly diffracted and scattered before reaching these Stygian depths. Down here, a different order prevails - an ancient, alien world frozen in its own cosmic cycle of life and entropy, far removed from the ephemeral ambitions of the human species.

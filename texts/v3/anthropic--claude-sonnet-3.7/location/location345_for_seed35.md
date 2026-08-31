@@ -1,0 +1,19 @@
+# THE HIVE
+
+Beneath the dry and fractured crust, this chamber expands barely larger than a village square, though every cubic inch teems with constant movement. The ceiling bristles with translucent crystalline stalactites that glow with a dull amber luminescence, casting everything in warm, insufficient light. The walls are not stone but a material somewhere between chitin and ceramic, formed into cellular structures that seem almost manufactured in their precision.
+
+The air is hot and carries no moisture, yet it vibrates with sound—the incessant clicking, whirring, and grinding of countless small mechanisms. These are the Clockwork Scarabs, each no larger than a child's fist, their bodies fashioned from burnished copper and brass, with legs of fine articulated wire. Their carapaces split periodically to reveal intricate gearworks beneath. They move in coordinated waves across the walls and floor, thousands upon thousands of them, creating a constant metallic symphony that echoes through the chamber.
+
+Between the organized masses of scarabs, larger constructs lumber—mechanical beetles the size of dogs with glass abdomens filled with glowing mineral dust. They drag small carts of raw ore along grooves worn into the chamber floor. The grooves form precise geometric patterns, creating a circuit board-like design across the entire expanse of the chamber.
+
+At intervals along these circuits stand what appear to be small shrines or processing stations. Each is a delicate assembly of thin metal rods supporting crystalline vessels in which powdered minerals separate into distinct layers. The vessels warm to a dull red at regular intervals as hidden mechanisms activate beneath them. When this happens, scarabs cluster around, collecting the processed materials into specialized chambers within their bodies.
+
+The chamber never sleeps, never quiets. The clockwork ecosystem maintains perfect equilibrium, each component performing its function without variation. No water exists here; instead, the mechanisms are lubricated by a viscous amber fluid that the larger beetles secrete. This fluid catches the dim light from the crystalline stalactites, creating occasional flashes of golden reflection amid the perpetual twilight.
+
+In one corner stands an anomaly: a structure resembling a small temple, its entrance sealed with a lattice of the same ceramic-chitin material as the walls. Through this lattice, one can glimpse what might be a control system—levers and dials embedded in a console of unknown design. Yet nothing approaches this structure. The scarabs' paths detour around it with mechanical precision, as if it has been programmed out of their awareness.
+
+The floor's surface, where visible between the moving masses of mechanical fauna, reveals bizarre engravings—mathematical formulas and diagrams that suggest this entire chamber might be one massive calculation engine. Indeed, when observed from certain angles, the movements of the scarabs across these engravings appear to follow logical patterns, as if their very movements are solving equations.
+
+The air carries a pungent metallic tang, undercut with the warmth of heated minerals and the faint smell of the amber lubricant. Despite the constant motion, despite the never-ending noise, there is a strange sense of permanence here—of a perfect system that has found its equilibrium and will maintain it until the very walls crumble.
+
+This is not a natural formation nor entirely artificial—it exists in the uncanny valley between, a mechanical hive that evolved or was designed to sustain itself indefinitely in this warm, dry underworld pocket, clicking and whirring through calculations whose purpose has perhaps been forgotten by even those who set it in motion.

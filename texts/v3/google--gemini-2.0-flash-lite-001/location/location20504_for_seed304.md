@@ -1,0 +1,19 @@
+The air hangs thick and cool, heavy with the scent of wet stone and something else, something green and a little metallic. It clings to the skin, a constant dampness that never quite resolves into rain. This is the **Weeping City**, a place sculpted from the bones of the earth, perpetually shedding tears.
+
+The terrain is a labyrinth of narrow canyons, carved by a network of slow-moving streams that seem to seep from the very bedrock. The stone is a deep, bruised purple, streaked with veins of a lighter, almost luminescent grey. Sharp angles and sudden drop-offs dominate. It speaks of a young, violent birth, a landscape barely settled into its current form. Erosion is at work, but it's a patient, relentless process, a constant shaping and reshaping.
+
+The scale is remarkably focused. The city occupies a small, defined area, perhaps a few square kilometers, but every inch is packed. The "buildings" are not built in the conventional sense. Instead, they are grown, fused directly into the rock. It's an urban environment, but organic, alien.
+
+Construction is built, yet primitive. The structures are primarily of stone, but there are parts crafted from a strange, silver-grey material that seems to *grow* like a fungus. It’s a metal-like material, dense but strangely flexible. The architecture is a marvel of the strange. There are bridges crafted with arches formed by the natural shape of the rock formations. Buildings appear to have been chiseled away from the canyons themselves, only partially constructed using the metal-like fungal material, allowing what appear to be natural-like structures within but also constructed features
+
+The light is dim, filtered. There is no sun, or if there is, it is obscured. This perpetual twilight gives a cathedral-like atmosphere to the place. This is not a city for the faint of heart. The canyons are crowded. Narrow passages twist and turn, often barely wide enough for a single person to pass. The density is intense. Buildings press against each other, leaving practically void space, but any opportunity is utilized.
+
+Water is everywhere. It trickles, it weeps, it pools. Streams course through the canyons, their surfaces reflecting the dim light, and strange flora. Water seems to emerge from every surface. The stone itself seems to be constantly sweating, and every shadow seems to amplify the feeling. It condenses on the roofs of the dwellings, and pools in the passages and at the base of the canyon walls.
+
+Vegetation is sparse, clinging tenaciously. Certain walls are speckled with strange moss and fungi. There are small patches of alien plant life, the colors shifting and pulsating with an internal light, feeding on the runoff, the condensing dampness, the faint metallic tang that is in the air. These plants seem to glow, with an inner light coming from within.
+
+The fauna is rare, and wary. Occasional fleeting shadows are seen, glimpses of small, swift creatures with adapted bodies that can move with ease in the crowded and complex architecture of the Weeping City. They are quick.
+
+The world is active. The slow drip of water is punctuated by the occasional grinding of stone, the shift in a canyon wall, the unfurling of a new fungal growth. Weather cycles exist: it doesn't rain, but the pressure changes subtly, the dampness shifts, the luminescence of the plants waxes and wanes.
+
+There are rules here, though they remain elusive. The stone itself seems to have a memory, a subtle sentience. Things change, grow, and sometimes disappear. It is a harsh world, but there is beauty, a haunting poetry in the weeping stone and the strange, alien forms that cling to it.

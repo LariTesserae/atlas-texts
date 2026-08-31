@@ -1,0 +1,25 @@
+It sits in a shallow manufactured basin, about the size of a village square, though it never feels that small at first glance. The ground dips only a little, but because every surface is made—laid, stacked, stitched, fired, braided—it feels like stepping inside a crafted bowl. No bedrock shows. No soil shows. Underfoot are interlocked plates of red ceramic and pale bone-composite, all recently cut, edges still crisp, still carrying scrape-lines from hand tools. Nothing here has had time to soften.
+
+The warmth is steady and bodily, not blazing. Air rests against the skin like cloth just pulled from sunlight. There is almost no water in any ordinary sense: no puddles, no damp, no mist, no wells, no channels. Moisture exists only as rumor—chemically bound in salts, trapped in waxes, stored in living bladders that are never opened casually. Life here runs on oils, mineral vapors, and reactive dusts instead. The basin smells of heated resin, dry spice, and faint metal.
+
+And yet it is lush.
+
+Vegetation rises from built troughs and hanging racks in dense tiers: cable-vines with segmented ceramic bark, fan-fronds like beaten copper leaf, bulb forests of translucent sacs full of amber gel, carpets of felt-moss that feed on airborne grit. “Green” exists, but so do deep violet, chalk white, and glossy black. Leaves are thick, lacquered, and angled to comb nutrients from wind. Roots do not seek groundwater; they seek seams in masonry where trace salts collect. Some plants are anchored in knotted rope baskets; others are grafted directly onto porous towers that sweat volatile compounds at dawn.
+
+Because everything is close—plants to walls, walls to walkways, walkways to roosts—the place feels saturated. Overhead, trellis bridges cross at several heights. Below, pocket burrows are built into retaining rings. Every cubic handspan seems occupied by tendril, nest, shell, tool, or tether. There is no wild margin and no empty center: density is the ecosystem.
+
+The fauna are everywhere, and mostly small. Six-legged gliders fold themselves into cracks in warm tile. Soft-faced grazers nibble mineral lichens from wall joints. Pale, long-eared scavengers harvest spent seed-caps and carry them to communal midden spirals. Insects with glassy mandibles clip vine skin and exude sealant where they feed, pruning without killing. Nothing splashes; feeding sounds are dry—rasps, taps, minute crunches. Predation happens quietly and close. Even mating calls are subdued: throat hums, shell-drumming, antennae chatter.
+
+Sound overall is restrained. Wind enters the basin filtered through woven screens, arriving as a low, papery hiss. You hear friction more than impact: leaf against brick, claw against plaster, fibers tightening as the day warms. Distantly, sometimes, a kiln-door thunks shut. Voices—if people are present—stay near whisper level, partly custom, partly practical. Loud sound has consequences here.
+
+Because this is where the world begins to come apart.
+
+The basin obeys rules, but not all at once. At morning, geometry is reliable: paths meet where they should, stairs climb in expected lines. By late afternoon, near corners “double,” so one wall can be touched from two different distances. Shadows detach a finger’s width from their owners and cling to cooler surfaces, where certain root-plants absorb them like fertilizer. Echoes do not always repeat sound; sometimes they repeat motion. A hand raised near a vaulted lintel may raise again, slightly later, from empty air.
+
+None of this is fast. The breakdown is patient, cyclical, and almost agricultural. Caretakers mark drift with chalk and braided string. When a doorway migrates two handspans over a week, they build a second frame around its new position and keep using it. When gravity tilts a few degrees toward the basin’s eastern wall during the hot season, trellis crops are rotated and nestboxes rehung. Primitive tools—plumb lines, sighting rods, weighted cords, carved gauges—are used constantly, not to conquer strangeness but to negotiate with it.
+
+This is a fully made place sustained by hand knowledge: kilns, lashings, mortars, stone knives, simple pulleys, clay seals, stitched membranes, polished bone scoops. No machine hums. No invisible system rescues anyone. Maintenance is visible everywhere: fresh patches, tied splints, recently replaced tiles still brighter than the rest. Youth shows in the architecture’s sharpness and in the people’s habits of constant adjustment; the place has not settled into ruin or tradition yet.
+
+At night, under ordinary-looking light from a familiar sky, the basin grows quieter still. Fronds fold. Small beasts retreat into wall warmth. The amber bulbs pulse faintly as they exchange gases with the air. And the boundaries of the place—its handcrafted rim, its woven wind screens, its not-quite-trustworthy corners—hold.
+
+It feels less like a landscape discovered than a landscape being continuously invented: low, warm, dry beyond dryness, crowded with life, and patient enough to let reality bend without ever quite breaking.

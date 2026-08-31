@@ -1,0 +1,25 @@
+The air here tastes of ozone and wet iron.
+
+It is a room, though you might not realize it at first glance. The walls are too distant to see, shrouded in the soft, shifting haze of a perpetual, warm afternoon. The scale is intimate despite the perceived distance—a "pocket" of reality carved out of the chaos, perhaps no larger than a cathedral nave, yet infinite in its feeling of containment.
+
+The ground beneath your feet is the first anomaly. It is not dirt, but stone—ancient, eroded, and impossibly smooth. We are talking about an **erosion score of 2.8**, a landscape that has settled into its final form millennia ago. The bedrock has been worn down by a patience that defies geology, rounded into rolling, whale-back hills of grey and basalt blue. There are no sharp edges here. Every cliff face has been polished into a curve; every boulder is a smooth ovulation of stone, dark with a patina of age.
+
+The moisture is constant but gentle. **Water level 0.8** manifests as a thick, tropical condensation. The air is heavy enough to drink. Water doesn't so much fall from the normal-looking sky above as it precipitates out of the air itself, clinging to the smooth stone in glossy droplets that merge and trickle slowly downward. There are no rivers, only a million tiny, silver veins of water navigating the curves of the rock, vanishing into the moss, collecting in shallow, hidden dish-depressions where the water lies still and black, reflecting the "normal" light with a mirror sheen.
+
+**Vegetation is lush (1.7) but sparse (0.9).** This is not a choking jungle; it is a curated garden of the absurd. Life clings to the stone in isolated, violent bursts of green. Massive, frond-like ferns erupt from cracks in the smoothed bedrock, their leaves broad as shields and waxy with the damp. Between these islands of intense biology, there are wide, empty stretches of polished, wet stone, offering clear lines of sight. It feels like a gallery where the art is placed just so, demanding you admire the emptiness as much as the growth.
+
+This emptiness is necessary. Because when the **fauna (2.6)** moves, you need the space.
+
+The life here is overwhelming in presence, not in number. The density is low, but the biomass is terrifying. This is the domain of the **Glass-Wing Behemoths**. They are insects, roughly the size of a small sedan, with bodies that resemble articulated chitin and wings that are invisible panes of refractive light. They do not swarm; they are solitary monarchs of this small room.
+
+And it is **loud (2.5)**.
+
+The silence of the empty stone is constantly shattered. When a Behemoth takes flight, the air displacement sounds like a ripping canvas. Their wings hum at a frequency that vibrates in your teeth, a low, thrumming bass that you feel in your chest before you hear it. They feed on the giant ferns, their mandibles clicking with the sharp, percussive sound of shears cutting through metal. The soundscape is a dynamic mix of these biological industrial noises—thumps, clicks, resonant hums—and the endless, soft hiss of condensation dripping onto the heated stone.
+
+The **weirdness (1.6)** lies in the mechanics of the place. It is the **tech (2.7)** that hides in plain sight. If you were to watch the water closely, you would see it behaving incorrectly. A droplet hits the stone, flows uphill for three inches, and then vanishes into a pore that wasn't there a moment ago. The stone itself seems to breathe—a subtle expansion and contraction of the rock that goes unnoticed until you try to build something on it.
+
+The "scattered built" elements are here, remnants of those who tried. **Built (1.3)**. They are faint marks: a ring of corroded, silver metal half-buried in the smooth rock; a perfectly geometric cube of obsidian sitting incongruously in a patch of moss, vibrating slightly. These are artifacts of a technology that treats physics as a suggestion. The cube is heavy, heavier than it should be, anchoring the spacetime of this pocket pocket-reality. The silver ring emits no heat, yet the ferns growing around it are three times larger than anywhere else, curled greedily toward a radiation that isn't there.
+
+The **temperature (2.5)** is a balmy, suffocating warmth. It feels like a greenhouse in late July, or the breath of a giant beast. There is no wind, only the turbulence caused by the passing of the giants.
+
+This is a terrarium. A high-elevation shrine built by a civilization that outran entropy, designed to house a snapshot of a biology that shouldn't exist. The **erosion** is artificial; the **stone** was smoothed by gravity-boring tools. The **water** is recycled through the air itself. And you are small, hidden in the sparse vegetation, waiting for the thrumming wings to pass, wondering if the roof—if there is one—is about to close.

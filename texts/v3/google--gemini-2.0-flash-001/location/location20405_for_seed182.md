@@ -1,0 +1,21 @@
+The place exhales. Not with wind – there is none – but with a slow, saturated sigh of steam. It clings to the iron, a living condensation. You can taste it: acid and rust, a faint vegetal sweetness, something else medicinal and sharp. The air itself feels less like air and more like warmed, mineral water.
+
+We are deep. Not impossibly so – perhaps only a few dozen feet beneath the cracked, sun-baked surface – but enough that the world above feels like a half-remembered dream. Here, the light is borrowed, siphoned down shafts and refracted through grimy lenses. It pools in oily puddles on the walkways, barely strong enough to cast a shadow.
+
+The scale is wrong. Intimate, yes, in the sense that the tunnels rarely stretch more than twenty feet across, and the ceilings are low enough to brush with a careless hand. But the *density*… that is what is unsettling. Every available space is occupied. Not by crowds, for this place is mostly deserted, but by *things*. Pipes, rusted and furred with strange mosses. Gears, frozen mid-turn, their teeth choked with a black, viscous grease. Cables, thick as pythons, pulsing faintly with captured, fugitive light.
+
+The city – for that is what it is, or was – is built of ironstone and brick. But it seems metal has somehow grown *into* the stone, veins of it branching through the walls. Perhaps the rock itself is mostly iron, riddled with the rust of countless years. There is a sense that the entire structure is alive, breathing, slowly digesting itself.
+
+The vegetation is startlingly lush, given the dimness. It clings to every surface: luminescent fungi in shades of sickly yellow and bruised purple; ferns that unfurl from cracks in the walls like emerald tongues; and, most disturbingly, a fine, red-velvet moss that carpets the walkways, clinging to the soles of your boots with unsettling tenacity. This moss seems to derive its energy not from light, but from the heat rising from the machinery below. It consumes the city.
+
+The technology is crude, brutal. Engines, or what remain of them, are monumental things of cast iron and steam. They stand silent now, their pistons frozen, their flywheels seized. But you can almost hear the ghosts of their labor: the furious hiss of steam, the clang of metal, the rhythmic throb that once pulsed through the very bones of this place. The air still smells of oil and coal dust, a testament to the industry that birthed and then abandoned this subterranean town.
+
+Rare though they are, some creatures do still dwell here. Pale, blind insects scuttle in the shadows. You might catch a glimpse of a glistening, worm-like thing retreating into a crack in the wall. And in the deepest, darkest tunnels, rumors speak of something larger… something that feeds on the moss, and the rust, and the lingering heat.
+
+The silence is deceptive. It is not the silence of emptiness, but the silence of *waiting*. A low hum pervades the place, an almost inaudible vibration that resonates in your chest. The drip of condensation is constant, echoing in the vastness of the chambers like a mournful melody. There is a faint, rhythmic clicking sound that seems to emanate from the heart of the city: gears turning, perhaps, or something else entirely.
+
+The air is heavy with the weight of time. Slow, relentless time. The cycles here are measured in decades, in centuries. The erosion is imperceptible, a gradual crumbling of stone, a slow creep of rust. Even the moss seems to grow with deliberate slowness, unfurling its spores over generations.
+
+The weirdness… it is pervasive. It is in the geometry of the buildings, which seems subtly wrong; in the way objects appear and disappear in the dim light; in the feeling that you are being watched, even when you are alone. This is a place where the laws of physics seem to bend, where the line between the organic and the mechanical blurs. This city is a dream turned nightmare, a testament to the hubris of a civilization that sought to conquer the dark, and was ultimately consumed by it.
+
+You find yourself wondering what purpose this place served. Was it a mine? A factory? A sanctuary? Or something altogether different? The answers, like the light, are elusive, lost in the layers of rust and decay. All that remains is the slow, saturated sigh of the city, a promise of secrets yet to be unearthed.

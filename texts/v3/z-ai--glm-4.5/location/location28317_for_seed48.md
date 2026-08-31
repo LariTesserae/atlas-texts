@@ -1,0 +1,23 @@
+The air is heavy here, a physical weight that presses against the skin, hot and saturated with moisture. It hangs in the low basin like a held breath, carrying the smell of wet iron, heated stone, and the distinct, mineral tang of standing water. The light is dim, filtered through a perpetual, low-hanging haze of steam and cloud that diffuses the sun into a flat, gray-white luminescence. There are no sharp shadows, only a gradual graying of the air near the ground.
+
+This is a city, or at least, it was built as one. It sprawls across the low-lying valley floor, an industrial labyrinth of scale and complexity. But it is a city without green. The vegetation score is effectively zero; there are no trees cracking the pavement, no vines climbing the walls, no weeds in the gutters. The color palette is strictly mineral: the rust-red of oxidized steel, the oily black of basalt concrete, the dull grey of rain-slicked aluminum. It is a chromatic world of oxidation and erosion.
+
+The "urban" parameter here manifests as a vast, open infrastructure. The structures are colossal—mega-structures intended for a purpose that has either shifted or been lost. Huge silos, the size of mountains, rise from the valley floor, connected by ribbons of elevated roadway and pipework. The "density" is low in terms of obstruction, but high in terms of volume. Between the massive factories and cooling towers lie great, empty expanses of cracked concrete apron, vast plazas that feel like deserts, and wide, slow-moving canals dug deep into the earth.
+
+Water defines the topography. With the elevation sitting near the basin floor, water does not flow away; it accumulates. Every depression is a mirror. The ground is slick, the surfaces weeping a constant, fine condensation that drips rhythmically from the undersides of the metal gantries. It is a landscape of persistent dampness. Puddles never evaporate, only merging into larger, brackish pools. The sound of water is constant but soft—the plink of condensation, the lapping of canal water against concrete banks, the hiss of steam escaping from underground vents—it is a "mostly quiet" soundscape, a background static that absorbs sudden noises.
+
+The heat is pervasive. It isn't the dry blast of a furnace, but a humid, tropical swelter, amplified by the thermal mass of the industrial structures. The metal walls radiate warmth long after the dim sun has set. The air feels thick to breathe, like inhaling hot soup.
+
+Yet, for all this emptiness and industrial decay, the place is not dead. It is teeming.
+
+The fauna parameter is overwhelming. In the absence of plants, the ecosystem has turned toward the mineral and the chemical. The city is a massive, horizontal reef. The walls of the great factories are coated in thick, grey microbial mats—slime molds and bacterial colonies that serve as the base of the food web.
+
+Crawling over these mats are the inhabitants. There is no chirping of birds, no buzzing of flies. Instead, there is the sound of thousands of small, wet bodies moving over stone. The ecology is dominated by gastropods and crustaceans. Giant, rust-colored snails, shells the size of helmets, glide silently over the steel girders, grazing on the oxidation and slime. Fiddler crabs the size of small dogs patrol the edges of the canals, their claws clicking softly against the pavement. The air is filled with translucent moths that do not seem to eat nectar—perhaps they drink the condensation or the sweat from the massive snails.
+
+It is a quiet, creeping abundance. If you stand still on one of the vast, empty plazas, the ground seems to move. The concrete is a living carpet of isopods and beetles, scavenging the detritus of the old machines. They flow like water around obstacles, a shifting mass of chitin and shell.
+
+The "built" environment is in a state of "established" erosion. It isn't crumbling chaotically; it has settled into a new equilibrium. Rust has formed a protective skin over the steel. Concrete has been smoothed by centuries of dripping water and the friction of a million crawling legs. The machinery is silent, the factories still, but they are not ruins. They are the coral reefs of this new world.
+
+The "dynamic" nature of the place is found in the slow, relentless rhythm of the water and the life. The tides of the canals rise and fall with unseen subterranean pressures. The great clouds of steam shift with the wind, alternatingly revealing and hiding the horizon. It is an active, functioning ecosystem, simply one that has adapted to a world of metal and heat.
+
+It is a hot, wet, silent city, hollowed of human intent, filled only with the hum of the atmosphere and the soft, wet sound of a trillion living things consuming the past.

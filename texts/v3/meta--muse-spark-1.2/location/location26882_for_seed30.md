@@ -1,0 +1,41 @@
+It is not a valley and not a mountain. It is a bowl cut into the top of the world.
+
+You come up over the last rise - black glass and raw basalt still hot from being made - and the ground simply stops being a slope and becomes a room. A shallow caldera, maybe four hundred meters across, maybe less. Small enough that you can see the entire rim at once, see a person on the far side as a distinct figure. A cathedral scale, a hamlet scale. A single place with edges. Beyond the rim the world drops away into dim air, but inside, the bowl holds itself.
+
+This is high country. The air should be thin and cold and it is thin, but it is not cold. It is warm - late-summer warm, skin-warm, greenhouse warm. The heat does not come from the sun. The light here is dim, a perpetual dusk, the sun filtered through a thick, low, unmoving deck of cloud that sits exactly at rim-height like a lid. The light that gets through is flat and pearl-grey, sourceless, shadowless. After a minute you realize the heat is coming from below. The rock itself is warm.
+
+Because the rock is new.
+
+This whole caldera is under construction. Erosion hasn't touched it yet. There are no gullies, no talus slopes, no softened edges, no soil. Everything is sharp and unfinished in the way of poured concrete just after the forms are stripped. The basalt is blocky and conchoidal, stair-stepped in perfect, unweathered plates where it cooled. In places it hasn't finished cooling - you can see the dull red heat still moving under a skin of black glass. In other places the ground is not basalt at all but a kind of seeded lattice, a matte grey-white material that is still growing itself, extruding hexagonal columns upward one cell at a time with a faint ticking sound. You can watch it happen. The geology here is embryonic, raw, pre-weathering. The world hasn't been rained on long enough to learn how to be a landscape. There are no riverbeds because water hasn't decided where rivers should go.
+
+And yet there is water everywhere.
+
+Not in lakes. Not in rivers. The air is saturated, condensing. The cloud-lid drips constantly without ever actually raining. The warm rock sweats. Every vertical face weeps. Water beads and runs on glass that is still too hot to touch, hissing briefly and then reforming. It collects in shallow pans on the horizontal plates - warm, clear, ankle-deep pans that reflect the grey light like mirrors and then spill over in sheets when they get too full, finding a new path across raw stone for the first time. The ground is pocked with these newborn pools, linked by braided, inch-deep runnels that change course every hour because there is no channel to hold them. The water is close to the surface everywhere; you can hear it under your feet, moving through porous, unfinished stone. The atmosphere itself feels wet, like breathing in a greenhouse. Your clothes dampen without getting rained on.
+
+Nothing much grows. Vegetation is sparse, opportunistic, embarrassed by the abundance of water and fauna. There are no trees, no meadows. Instead there are scattered pioneers - mats of rust-red and acid-green lichen that have found purchase on the cooling glass, clusters of translucent, reed-like stalks that grow straight out of the warm pools, each stalk topped with a single black bead that opens and closes. They are too far apart to be called a field. The ground between them is bare, wet stone. The green feels temporary, like something trying out the idea of being a plant and not yet committed.
+
+The built things are just as sparse. They do not dominate the bowl, but you cannot miss them.
+
+There are five of them, maybe six if you count the one that is half-submerged. They are not buildings in any human sense. Each is a pylon or a loom, about three times taller than a person, made of a dark metal that does not reflect the dim light so much as drink it. They stand with no foundation, no road connecting them, no pattern you can immediately see, placed as if dropped. Around their bases the lattice-rock grows denser, more ordered, as if the ground is responding to them.
+
+They are the reason this place is warm and wet and high and new. They are making it.
+
+You hear them before you understand them. The bowl is LOUD.
+
+First - water, constantly: dripping from the cloud-deck, trickling over glass, plinking into pans, hissing on hot stone. A thousand small waters.
+
+Second - life, even louder: the pools and runnels are furious with it. Despite the scarcity of plants, fauna is everywhere, abundant to the point of absurdity. Clouds of glass-winged things the size of your hand - not quite dragonflies, not quite moths, with bodies like clear shrimp - hatch out of the warm water in pulses and fill the air with a dry rustling. Flat, amber-colored skimmers flick across the pool surfaces on six needle legs, making them ring like struck bowls. In the deeper pans, something larger moves - eel-like, pale, with a frill of cilia that beats and makes a low thrumming you feel in your chest. On the rocks, colonies of hard-shelled chirpers open and close their carapaces, producing a relentless, synchronized metallic clicking that is almost a song. Everything is eating everything else. You watch a skimmer spear a glass-wing mid-air, watch a chirper colony snap shut on a skimmer, watch the eel-thing rise and vacuum the chirpers off the rock in a single sweep. The whole bowl is a frantic, warm, wet market of predator and prey, birth and death, happening too fast, too close together, as if life was seeded here all at once and left to sort itself out.
+
+Third - the pylons. They hum. Not a mechanical hum. A low, bone-deep chord that modulates without repeating, and beneath it a higher, almost inaudible lattice of clicks and whispers, like nanoscale assembly happening at volume. When you stand near one you can see why: the air around it is not empty. It shimmers with a faint dust of light, a suspended haze of constructors - motes, assemblers, whatever word you have for machines too small to see that act together like weather. They are condensing rock out of air, condensing water out of rock, pulling mineral and moisture and heat into new forms. The water that weeps from the stone directly downwind of a pylon doesn't fall - it hangs for a moment, suspended in beads, then flows *up* along invisible lines for a hand's breadth before remembering gravity. Small stones near the pylons hover a millimeter off the ground, vibrating. Your hair lifts. Your inner ear complains.
+
+That is the weirdness. The strangeness is not hidden; it is the operating principle.
+
+Gravity is negotiable within ten meters of a pylon. Time seems to stutter there - a splash hangs mid-air a fraction too long. Light bends slightly toward the structures, so the dim day looks dimmer near them, as if they eat photons to build with. The warm pools around their feet are impossibly clear, and when you look into one you see not just the bottom but *through* the rock to another pool somewhere else, faintly, like a window. The sky-lid above the caldera never moves, never rains, never breaks, because it isn't a cloud. It's part of the machine - a condensing membrane holding the warm wet air inside the bowl.
+
+The rule here is not erosion, not succession, not weather. The rule is fabrication.
+
+This is a nursery for a landscape. A place being grown rather than worn. The sparse density - so much empty wet stone between each living or built presence - is intentional. There is room left to fill. You get the sense that if you left and came back in a month, the paving of hexagonal lattice would have covered more of the raw basalt, the reed-stalks would have crept a meter farther, another pylon might have flowered open at the rim, and the runnels of water would have finally cut the first true, permanent streambed from the highest pan to the lowest.
+
+For now, you stand in the warm, loud dusk, on ground that is still warm from its own birth, with water beading on your shoulders without rain, listening to the clicking and thrumming of creatures that have no business thriving on bare rock and watching dust made of machines knit more rock out of mist. The air smells of hot stone and brine and ozone.
+
+Outside the rim, the world is older, colder, higher and drier and quieter. Inside, everything is happening at once.

@@ -1,0 +1,41 @@
+# The Warren of Ten Thousand Sleepers
+
+You find it the way all such places are found: by accident, and only once. A crack in the floor of a dead mudflat, low country, the kind of land that has been beaten flat by so many million years of weather that it no longer has opinions about anything. The crack breathes. That's what stops you — a slow exhalation of air so warm and wet it feels like standing inside someone's lung.
+
+You go down maybe four meters, no more. The passage is short. And then the ceiling lifts away and you are standing at the edge of a chamber roughly the size of a modest courtyard — you could cross it in thirty paces, if crossing it were something the place would permit — and inside that chamber is a city.
+
+Not a metaphorical city. A city.
+
+---
+
+**The stone.** The chamber is old the way riverbeds are old. Whatever violence made it — collapse, dissolution, some ancient swallowing — happened so long ago that all evidence has been polished out. The walls are a soft buff limestone worn to the texture of soap, rounded at every junction, with no edge anywhere that could cut you. The floor is nearly level; centuries of mineral-heavy water have filled its depressions the way sleep fills a face. The whole room has the settled, terminal smoothness of a thing that finished changing long ago and is now simply *persisting*.
+
+Water is everywhere but nowhere in quantity. The walls weep — not dramatically, just a constant slick gleam, beads forming and sliding and joining threads that descend without hurry. The air is saturated; your own skin dews over within a minute. It is hot, genuinely hot, a windless blood-heat rising from somewhere below the floor, some deep geothermal patience, and the moisture holds that heat against you like a hand. When drops fall from the ceiling — and they do, at long intervals — each one lands with a small, distinct, resonant *tok*, and the sound has room to finish before the next arrives.
+
+That is nearly the only sound. Nearly.
+
+**The light.** Dim, but not dark. The crack you came through admits a slanted gray shaft that arrives exhausted, and the wet walls pass it around the room the way rumor passes through a village — softened, distorted, everywhere at once and strong nowhere. Certain surfaces carry a faint secondary glow, a pale ochre luminescence in the mineral film, faint enough that you're never sure you're seeing it until you look away and it persists at the edge of vision. The overall effect is of a room lit by its own memory of daylight.
+
+**The city itself.** Scattered across the floor — and this is the thing, they are *scattered*, spaced with what looks like deliberate generosity, each one standing in its own margin of emptiness — rise perhaps two dozen towers. The tallest reaches your chest. The smallest would fit in your cupped hands. They are built, unmistakably built: coursed, buttressed, terraced, pierced with regular openings, connected here and there by low causeways and arched spans of astonishing delicacy. There are plazas of smoothed sediment between them. There are what can only be called streets. There is, near the chamber's center, a broad shallow basin ringed by a low wall, holding a skin of warm water so still it functions as a black mirror — and around it the towers cluster slightly closer, the way buildings crowd a harbor.
+
+The masonry is not stone. Look closely — you will have to kneel; the whole city rewards kneeling — and you see that every brick is a shell. Small, domed, thumbnail-sized shells, laid in courses, mortared with a hardened silt-paste, tens of thousands of them per tower, millions in the city entire. The lower courses have been mineralized by the dripping water into a single fused mass, honey-colored, translucent at the edges. The towers are growing into stone from the bottom up, calcifying at the pace of stalagmites. This city is becoming geology.
+
+And every shell is occupied.
+
+**The inhabitants.** This is where the room's quietness reveals itself as something other than emptiness. The fauna here is not sparse — it is *total*. Every brick a sleeper. The builders are small mollusk-like creatures, blind, pale as candle fat, and their civic method is this: they climb, they choose a position on the wall of a tower with what appears to be immense deliberation, they seal themselves into place with the silt-mortar, and they enter a dormancy that lasts — how long? The mineralized lower courses suggest lifespans, or waiting periods, measured in something longer than lifespans. The city is not built *by* its population. The city *is* its population, laid down body by body, each citizen becoming one brick of the commonwealth and then sleeping inside it.
+
+They are not all asleep. Watch a tower long enough — and the heat and dimness make long watching easy, almost mandatory — and you'll see it: a single shell, high on a terrace, slowly unsealing. A pale foot extends. The creature detaches, leaving its niche gaping like a missing tooth, and begins a descent that takes the better part of an hour, down the tower face, across the empty plaza, trailing a thread of silver mucus that gleams and then dulls. It goes to the central basin. It drinks, or bathes, or communes — the behavior is opaque. Then it selects a new position, sometimes on a different tower entirely, sometimes at the very top of the tallest one, and begins the sealing again, adding its increment of height, its one brick, before going back under.
+
+At any given moment, three or four are moving in the whole city. Everything else — the tens of thousands — sleeps. So the room *teems* and is *still* at once. The overwhelming population expresses itself not as motion but as presence: you can feel the mass of dormant life the way you can feel a crowded theater in the dark, before the show, when everyone has gone quiet.
+
+The sound they make, collectively, is almost nothing. But put your ear near a tower — the heat coming off it faintly greater than the air's — and there is a sound: a fine, dry, arrhythmic ticking, deep in the masonry, like a wall full of pocket watches all running slow. Rasp of ten thousand small bodies making their microscopic adjustments. It is the sound of the city's metabolism, and it never rises above a whisper, and it never entirely stops.
+
+**Other lives.** A few. The place is not diverse, only deep. Blind white isopods graze the mineral film on the walls, singly, well spaced, each patrolling what seems to be a fixed territory. Something eel-thin lives in the mirror-basin; you will not see it, only the single slow ring it makes on the water once or twice an hour, expanding outward until it touches the wall and dies. And on the ceiling above the tallest tower, a patch of hanging translucent threads — animal or fungal or neither — sways very slightly in air that is not moving, keeping its own counsel.
+
+Vegetation has almost no purchase here. A ghost-pale moss survives in the light-shaft's footprint, one ragged square meter of it, the chamber's entire flora, tended by nothing, competing with nothing.
+
+**The rules.** They assemble themselves as you watch, and they are these: nothing here hurries, and nothing here is alone, and nothing here is awake for long. Change occurs — the city rises, measurably, perhaps a finger's width in a human generation — but it occurs below the threshold of witness. The place has arrived at its final arrangement of forces: heat from below, water from above, life laid down in courses between them, everything moving toward mineral. In another span of ages the whole city will be solid stone, the sleepers fused into their architecture forever, and it is impossible to tell whether that would be the city's death or its completion — whether they are building a metropolis or a reliquary, and whether, to them, there is any difference.
+
+You will want to touch one of the towers. The wet warmth of it is exactly the warmth of a living thing, because it is one.
+
+*Tok*, says the ceiling, at long last. The ring on the black water widens, touches the wall, and is gone. Somewhere high on the far tower, one shell — one citizen, one brick — begins, with infinite slowness, to open.

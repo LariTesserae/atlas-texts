@@ -1,0 +1,23 @@
+# The Glass Gardens of Hylosia
+
+In the cold depths where light dares not linger, the ancient realm of Hylosia stretches across the seafloor in a vastness that defies comprehension, a submerged world built by hands long since stilled. The water here presses with gentle constancy, a perpetual embrace that has remained unchanged for millennia, clear and cold and everywhere.
+
+This is no natural seascape—every surface, every structure, every seeming stone was placed with purpose. The foundations of Hylosia are quarried blocks of dark granite and limestone, carefully fitted without mortar, now worn so smooth by time that the junctions between them are barely perceptible fingertip-wide grooves. These foundations extend beyond sight, beyond imagining, covering an area that might once have been a continental shelf, now transformed into the bedrock of this deliberately crafted aquatic realm.
+
+Rising from this foundation are countless interconnected structures: spires, domes, terraces, and archways molded from what appears to be kiln-fired clay mixed with crushed shells for strength. The architecture eschews sharp angles, instead flowing in organic curves that mimic the water's own movement, as if the builders understood they were creating not against the sea, but for it.
+
+Between and throughout these structures grow the true wonders of Hylosia—the glass gardens. What from a distance appears to be lush vegetation reveals itself, upon closer inspection, to be intricate constructions of blown glass. Each "plant" was crafted by master artisans: delicate fronds in pale green and blue, bulbous pods of amber glass, spiraling tendrils of crystal that catch and refract what little light filters down from the distant surface. These glass gardens cover everything in dense profusion, growing from specially designed notches and hollows built into every structure.
+
+The craftsmanship is primitive yet precise. No evidence exists of mechanical tools or modern manufacturing; each glass plant bears the subtle irregularities of hand-crafting—a bubble trapped here, a slightly asymmetrical leaf there. Some glass formations reach the size of trees, their branches supporting smaller glass "epiphytes," creating a complex ecosystem of artificial flora.
+
+Thin sheets of hammered copper and bronze, now patinated to blue-green, connect many of the glass plants, forming a network that spans the entirety of Hylosia. These metal filaments vibrate almost imperceptibly with the water's gentle currents, conducting subtle resonances throughout the glass garden. When the currents shift with the distant tides, these vibrations create a sparse, haunting music—notes so faint and scattered that they barely disturb the prevailing silence, yet carry for vast distances through the water.
+
+No fish dart between these glass fronds. No crustaceans scuttle across the ancient floors. The creators of Hylosia either banished animal life or built their realm in a place already devoid of it. Only the glass plants "live" here, swaying with hypnotic slowness in currents so gentle they're almost theoretical.
+
+The true age of Hylosia is written in its erosion. The oldest glass plants have developed a pearlescent sheen from centuries or millennia of water contact, their once-sharp edges rounded to smooth curves. Some structures have partially collapsed, their remains splayed across the seafloor in arrangements that have themselves become permanent features of the landscape. Nothing here is truly broken—merely transformed by the patient hand of time into a different configuration of the built environment.
+
+The darkness is near-complete, yet not absolute. Certain glass formations capture the faintest traces of light from above and channel them downward, creating pools of dim, diffuse illumination that shift position with the movement of the sun and moon in the world above. During certain alignments, these light-channels activate patches of luminescent minerals embedded in the structures, causing slow-blooming patterns of subtle radiance that may take days to fully develop and fade.
+
+Hylosia changes, but it changes in the rhythm of geology rather than biology. A glass frond may drift a few degrees in a decade. A copper filament might detach over the course of a century. The water itself seems thicker here, more resistant to sudden movements, as if time itself has been diluted by the immensity and age of this construct.
+
+Who built Hylosia, and why they created a vast underwater realm of glass vegetation, remains unknown. But their legacy continues its slow, silent existence in the depths—a garden where nothing grows yet nothing dies, where everything was made yet everything belongs.

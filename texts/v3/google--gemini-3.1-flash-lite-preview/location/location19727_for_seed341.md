@@ -1,0 +1,15 @@
+The air here is thick, a heavy, sweltering blanket of vapor that tastes faintly of copper and ionized ozone. It is a place of perpetual condensation; every surface, from the corrugated iron walkway to the jagged basalt foundation, is slick with a glistening, lukewarm sheen.
+
+This is the Low-Basin District, a compact, industrial crawlspace caught in an endless loop of thermal exertion. The scale is intimate—a tight cluster of interlocking chambers and arched conduits, perhaps no larger than a city block, contained by high, weeping rock walls that ooze a sulfurous, milky fluid. Despite this tightness, the environment feels sparse, even hollow. There is plenty of space between the primary structures—great, hulking brass boilers and rhythmic, piston-driven pressure valves that dominate the floor.
+
+Everything is wet, yet nothing blooms with chlorophyll. The "vegetation" consists of calcified, moss-like lattices that cling to the infrastructure, sucking minerals not from soil, but from the condensation dripping off the cooling pipes. These growths are a dull, bruised purple, pulsing slightly in time with the rhythmic thrum of the underground turbines.
+
+The sound is sensory overload: the *hiss-thump-hiss* of steam-presses, the metallic groan of cooling metal, and the frantic, rhythmic dripping of water onto resonant bronze plates. It is a loud, busy, and entirely mechanical liturgy. 
+
+There is no animal life. Not a bird, nor a bug, nor a stray microbe scuttles across the wet grate. The ecosystem is closed, locked into a dance of heat and hydraulic pressure. The "built" environment is layered and chaotic; pipes wrap around rusted factory hulls like parasitic vines, and walkways are made of heavy, perforated steel plates that vibrate under the pressure of the hidden engines.
+
+Visibility is poor. The dim light, a sickly, jaundice-yellow flickering from exposed filaments, struggles to penetrate the hanging wall of mist. Because of the heat—an oppressive 2.6/3—the water never settles. It is in constant flux: evaporating, rising in shimmering heat-waves, condensing against the cooler basalt ceilings, and falling back down in heavy, erratic dollops. 
+
+To walk here is to experience a strange, lonely industry. You are the only living thing in a place that functions perfectly without you. You step past a massive intake valve, its surface sweating rivers of iron-rich water, and you realize that the city is not meant for people; it is a heat-sink, a processor designed to transmute energy into motion, churning away in the damp dark, indifferent to the fact that it is a cathedral dedicated to nothing but its own exhaust. 
+
+Everything is weathered and settled, smoothed by eons of this same hydraulic rubbing. It is an old, rusted peace—a place that has accepted its role as a machine that processes the humidity of the world, never stopping, never resting, and never needing to be observed.

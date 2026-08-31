@@ -1,0 +1,37 @@
+At a great elevation, where the air is cool enough to sting the teeth, a mineral plateau spreads between ranks of blunt mountains. There is no soil. Nothing green stains the stone, no lichen softens it, no moss gathers in the cracks. The whole region is exposed matter: pale granite, blue-black basalt, beds of slate packed edgewise, and enormous deposits of chalky mineral precipitate left by water that has moved through the same passages for ages.
+
+The plateau is not empty. It is almost unbearably full.
+
+Stone crowds against stone in close formations: ribs, terraces, knobs, pillars, tilted plates, shallow basins, and steep-walled channels. Every surface has already been occupied by another surface. Narrow clefts run between leaning slabs, and those clefts are choked with rounded cobbles. Shelves overlap shelves. Fields of angular rock extend into ravines filled with still more rock, so densely accumulated that from a distance the terrain resembles a single intricately wrinkled mass rather than a collection of separate features. Even the sky is divided by peaks and high escarpments.
+
+Water is everywhere without ever becoming a true lake or river. It lies just beneath the stone and continually emerges under pressure. It beads on vertical faces, collects along seams, and spills over ledges in thin, brilliant sheets. From pores in the basalt come steady threads of clear water, each following an ancient groove polished to the dull shine of bone. The larger cliffs weep from hundreds of openings at once. Their faces seem covered in glass filaments.
+
+In the deep cuts, water runs fast but shallow over beds of fixed gravel. On broad shelves it spreads into films so thin that the rock appears lacquered. Pools occupy every depression, though none are deep. They are cold, nearly transparent, and crowded with mineral shelves beneath the surface—white rims within white rims, fitted together with scarcely a finger’s width between them.
+
+Rain is not visibly falling. The air itself condenses. Moisture forms continually on the cool high stone, as though the plateau were drawing water out of the brightness. Droplets swell along edges, release, and are instantly replaced. The cycle is so regular that it does not feel like weather. There is no sense of a storm arriving or departing, no passing front, no season hidden beyond the horizon. The atmosphere has reached an arrangement it seems able to maintain forever.
+
+Above, the light is immense.
+
+A seamless white sky pours illumination into every fissure. It casts almost no shadow, yet the wet mineral faces glitter so fiercely that looking across the plateau is difficult. Each rivulet becomes a wire of light. Quartz grains flare in the cliff walls; pale deposits shine like salt; black stone reflects the sky in hard silver patches. There is no warmth in this brightness. It is the brilliance of high cloud, ice glare, and exposed altitude—a cold radiance that reveals everything while making distance difficult to judge.
+
+The sound is overwhelming.
+
+Water falls only modest distances, but it falls everywhere. A million small impacts merge into a continuous, mountainous roar. Sheets hiss down slopes. Hidden channels hammer beneath slabs. Droplets strike resonant hollows with a dense, granular drumming. In the narrow ravines, the noise is trapped and multiplied until it seems to come from inside the rock itself.
+
+There are no quiet intervals. No gust rises above it; no silence follows it. The roar has been worn smooth by constancy. It is less like an event than a property of the place, as fundamental as height or hardness. Close to the larger escarpments, the sound presses against the chest and turns thought into brief, physical fragments. Speech would be possible only mouth to ear, and even then more felt through the jaw than heard.
+
+Yet the landscape barely changes. Its waters run through channels perfected by long use. The precipitating minerals rebuild the rims that flow wears down. Cobbles sit wedged in hollows where they have rested beyond any ordinary accounting. Falls descend at an exact, unvarying volume. No cliff visibly collapses, no pool rises, no channel migrates. Erosion and deposition have come into balance: every grain removed from one surface seems to settle immediately upon another. Motion persists without development.
+
+The densest region lies toward the plateau’s center, where countless low stone towers stand shoulder to shoulder. They are natural remnants, each weathered into a rounded vertical form, none tall enough to dominate. Water runs down all their sides. Between them are corridors barely wide enough for a body, floored in clear flow and polished pebbles. Entering this maze means losing the horizon at once. The bright sky remains overhead, but every other direction is wet stone, close and shining. The roar there becomes almost featureless.
+
+Toward the outer margins, the towers loosen into terraces overlooking a vast high valley. The valley floor is a packed mosaic of shallow pools, mineral mounds, exposed bedrock, and braided silver runoff. There are no open meadows, no bare expanses of sediment, no accommodating flatness. Every part is textured, fitted, crowded. Even the water’s surfaces are interrupted by crusts and ridges.
+
+Life, if present, is scarce and inconspicuous. Occasionally, in the lee of a warm-gray slab, a small colorless animal can be found flattened against the rock. It has too many short gripping limbs to be elegant and a translucent shell through which a dark internal knot is visible. It feeds, perhaps, on films too simple or too alien to resemble growth. It does not call. It moves only when submerged, inching along the undersides of flooded ledges where the current cannot lift it. One might cross the entire plateau and see none; one might look into a single pool and find three, each as still as a trapped bubble.
+
+High above, at long intervals, a solitary dark-winged creature passes through the white sky. It never descends. Its outline appears, holds steady against the glare, then vanishes behind the upper ridges. Whether it is native to the plateau or merely crossing it cannot be known.
+
+There are no paths except channels, no shelters except overhangs, no marks of shaping hands. Nothing has been placed here. The occasional arches, stacks, and regular rows of basalt may resemble ruins from afar, but approach reveals uninterrupted fracture, mineral accretion, and water-worn seams. The apparent walls have no interiors. The apparent stairs lead nowhere but into pools. Geometry occurs without intention.
+
+The plateau’s governing rule is persistence. Water must move, but the land must remain. Sound must continue, but nothing may announce a new moment. Brightness reveals the same saturated surfaces again and again. The rare animals cling to their hidden undersides; the stone receives and releases its endless condensation; the innumerable falls maintain their exact white threads.
+
+Seen from the highest rim, the place appears almost motionless despite all its running water. The glare fuses spray, stone, and sky into a single pale field, while the roar rises without variation from the packed valley below. It is a wet world without vegetation, a loud world without disturbance, a landscape still being eroded that has somehow already reached its final form.

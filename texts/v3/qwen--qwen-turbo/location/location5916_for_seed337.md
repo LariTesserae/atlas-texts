@@ -1,0 +1,27 @@
+The place is a vast, subterranean expanse, a city of stone and breath, built into the bones of the earth. It is not a cave, nor a natural formation, but a place of intention—its walls and corridors shaped by hands long gone, now eroded and reformed by the slow, patient work of time. The air is cool, and carries the weight of dampness: there are pools of water, some still, others flowing in thin rivulets that carve their own paths through the stone. The moisture clings to the rock, to the moss that grows in the cracks, to the hair of those who live here.
+
+The terrain is uneven and jagged, a labyrinth of tunnels and chambers, some large enough to hold entire districts, others barely wide enough for a single person to pass. There are no open plains here, only a series of chambers and corridors, each with its own distinct character. Some are vast, like the caverns where the city’s heart once beat; others are narrow, winding passages that echo faintly with the sounds of life.
+
+Materials are stone and wood, the stone rough and raw, the wood dark and gnarled, carved by hands that knew how to shape it. There are no metals here—just the primitive tools of the people who built this place, their tools worn and dull, their craftsmanship rough but efficient. The architecture is not ornate, but it is functional, layered with time, with additions and changes that have built upon one another, making the city feel like a living thing, a creature with a pulse.
+
+The atmosphere is thick with the scent of damp earth, the musk of moss, and the faint tang of water. It is cool, but not cold, and the air moves in slow, deliberate currents, like the breath of the earth itself. There is no sun here, no natural light, but the place is not in total darkness. There are bioluminescent fungi that grow in clusters, their soft glow casting a pale green hue over the walls. There are also small, oil-burning lamps, placed strategically on ledges and in niches, their flames flickering but steady.
+
+Vegetation is sparse, but not absent. There are patches of moss and lichen, creeping up the walls, thriving in the moisture. Some trees have been brought down from the surface, their trunks hollowed and shaped into dwellings. There are no great forests, no lush undergrowth, but there is a quiet, persistent life, a kind of resilience that holds the place together.
+
+The fauna is rare—only the hardiest creatures have adapted to this place. There are small, blind rats that scuttle through the undergrowth, and the occasional bat that flits between the caverns, its wings barely making a sound. There are no large animals, no predators, only the creatures that have learned to survive in the quiet, the dark, and the damp.
+
+The place is built, but not fully formed. It is still in the process of becoming, with new tunnels being dug, new structures being added, and old ones crumbling. The erosion is not from time, but from the work of people and the slow movement of the earth. It is a place in flux, not yet settled, not yet finished.
+
+The scale is vast—this is not a small settlement, but a city that stretches far beneath the surface, with districts that connect in ways not always clear. There are regions that are well-traveled, and others that are unexplored, their depths unknown. It is a place that feels immense, even when it is compact, because it is layered, because it is built upon itself, over and over.
+
+Density is high. There is no empty space. Every inch of the place is claimed, occupied, used. There are homes carved into the walls, markets in the wide chambers, meeting places in the great halls. There is no room to move without passing through someone else’s space, without feeling the presence of others. The city is packed, not with people, but with things—structures, tools, materials, ideas, histories.
+
+The tech is primitive, but effective. There are stone tools, wooden implements, and simple metal tools, all used with care. There is no electricity, no machines, only the labor of hands and the knowledge of generations. The people here have made do with what they have, and they have made a life in this place, building upon the remnants of something older, something forgotten.
+
+Light is normal, in that it is neither too bright nor too dark. The bioluminescence and the lamps provide enough to see by, and the darkness is not all-encompassing. The place is neither night nor day, but a kind of perpetual twilight, a space where the sun has never reached.
+
+Sound is quiet. There are no great storms, no loud cries, no animals calling out. The place is still, but not silent. There is the sound of dripping water, the occasional scuff of a footstep, the soft rustle of a rat moving through the dark. It is a place of quiet, where even the wind is muted, and the only real noise is the sound of life itself.
+
+Dynamic is high. The place is not still. There are processes at work—water carving its path through the stone, roots pushing through the cracks, people moving through the tunnels, building, repairing, living. There is a sense of motion, of change, of something alive and constantly shifting. It is not a place frozen in time, but one that is always becoming, always evolving, always moving forward.
+
+This is a place of underground life, of hidden cities and quiet struggles, of people who have made a home in the dark. It is a place of raw materials, of rough-hewn stone and wooden beams, of damp walls and glowing fungi. It is a place that is not yet fully formed, but that is already very much alive.

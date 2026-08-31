@@ -1,0 +1,21 @@
+The sky is not a sky but an immense dome of dry, heavy shadow, a charcoal ceiling so thick that the stars, if there are any, are choked out entirely. The only light is a faint, terminal twilight of deep indigo and rust, cast not from above, but from the low-frequency radiance of the deep earth. It is warm. The heat does not descend; it leaks upward from the rock in dry, aromatic plumes that smell of sulfur, parched iron, and the sharp, clean scent of friction. 
+
+Here, the earth has no memory of water. There is no mud, no sand rounded by the hand of a river, no soft clay. Every edge is absolute. The scale of the landscape is vertical and terrifying; it is a wilderness of extreme heights, dominated by basalt needles and razor-sheer sheets of volcanic glass that thrust five miles into the dark, thin air. 
+
+Because there is no rain, no ice to freeze in the cracks, and no wind strong enough to carry abrasive sands, the mountains have no softness. Erosion has not yet begun its work. The geology is embryonic, raw, and furious. The peaks are not ancient monuments wearing away; they are babies being born in real-time, emerging screeching from the mantle. 
+
+The silence is vast, but it is not stable. The world is in a constant, slow-motion convulsion. As you watch, a mile-long ridge of black flint tilts, rising three inches in an hour. The pressure is immense and dry. Every few minutes, the silence is punctured by a sound like a pistol shot—the high-pitched, crystalline *tink* of a sheet of obsidian shearing under tectonic stress. Sometimes, a column of basalt, thirty feet wide and sharp as a scalpel, grows upward from the canyon floor like a tooth, rises twenty feet over the course of an afternoon, and then, unable to support its own verticality, shatters with a dry, ringing roar, cascading down the slope in a landslide of mirror-bright shards. The debris does not settle into dust; it lies in heap after heap of pristine, sharp-edged glass.
+
+Between these rising monuments of glass, there is only vacancy. The towers are sparse, separated by wide, flat basins of dark, compacted ash that have never known a footprint. 
+
+Yet, there are marks of something else.
+
+Perched precariously on the slopes of the shifting ridges, or tilted at impossible forty-five-degree angles by the rising of the crust, are massive, dry-stone rings. They are built of heavy, unmortared blocks of dark slate, fitted together with a crude, heavy precision. They resemble open-mouthed wells, fifteen yards across, but there is no water inside them—only the same warm, dry darkness that fills the rest of the world. No tools lie near them; no inscriptions mar their surfaces. They do not seem to have been built for shelter or defense. Instead, they look like ancient, heavy weights dropped onto the landscape before the mountains began their violent upward march. Now, the rising earth is catching them, tilting them, and slowly snapping them in half as the black needles push through their centers.
+
+Of life, there is very little, and what exists is alien to the concept of the leaf or the root. 
+
+Clinging to the vertical surfaces of the glass cliffs are vast, flat crusts of a mineral-mimicking organism. It is grey-white, looking like a dry, powdery scab or a deposit of salt, but it grows. It does not seek sunlight—there is none—but rather feeds directly on the warm, sulfury gases that rise from the fissures. If you touch it, it does not yield; it is dry and brittle as biscuit, crumbling under a finger into a fine, grey powder that smells faintly of vinegar. It does not move, though over days it slowly creeps across the obsidian, tracing the hot veins of the rock like a slow, calcified infection.
+
+There are no animals to hear the snapping of the glass. There are no birds to ride the hot thermal updrafts, only the occasional, ghost-like drift of a sheet of ash, lifted by a sudden burp of heat from a chasm, floating for an hour in the dark before settling on a new, razor-sharp ledge.
+
+It is a world of pure geometry and violent potential, locked in an eternal, warm night. The landscape does not feel dead, but rather un-born, a chaotic workshop where the raw blocks of stone have just been unpacked, still sharp from the chisel, waiting for the first drop of rain that will not come for a million years.

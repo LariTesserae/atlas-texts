@@ -1,0 +1,15 @@
+In the sunken basin of what was once an impact crater, now smoothed by eons into a shallow bowl dozens of miles across, lies the Silent City. Its structures are not buildings as we know them, but rather the calcified remains of vast colonial organisms - part coral, part fungus, part something else entirely - that grew here when the basin was a warm inland sea.
+
+The remaining "architecture" creates a sprawling maze of chambers and passages, most partially submerged in the thin layer of water that still pools in the basin's center. The structures have the organic flowing forms of termite mounds or stromatolites, but scaled up to monumental proportions. Their surfaces are deeply eroded, pitted with holes and channels from millennia of gentle water action.
+
+Through these ancient halls moves an extraordinary abundance of life, though you'd hardly know it from the profound quiet that blankets everything. Massive translucent arthropods, looking like crosses between horseshoe crabs and salamanders, slide silently through the shallow waters. Schools of pale, eyeless fish-analogues drift in perfect synchronization through flooded chambers. The walls themselves pulse with colonies of filter-feeding creatures that might be animals or might be something else entirely.
+
+The water is warm and slightly viscous, with an opalescent sheen. It seeps up from deep underground through a network of channels in the porous rock, maintaining a constant few inches to few feet of depth throughout most of the basin. In places it forms pools deep enough to swallow a house, their bottoms lost in darkness.
+
+The air is thick with moisture and carries an odd, sweet-mineral smell. Bioluminescent organisms carpet many surfaces, creating a dim ambient glow that reflects off the water in shifting patterns. Their light seems to follow slow rhythms, brightening and dimming over hours or days.
+
+Vegetation is abundant but alien - thick mats of something like moss but jointed like bamboo cover many surfaces, and tendril-forests of pale, tube-like growths wave gently in air currents. Most plants seem to be various shades of purple-grey rather than green.
+
+The whole ecosystem moves with glacial slowness - even the abundant animal life seems to operate at a pace just above stillness. The water ripples with their movement but makes no sound. The loudest noise is the occasional soft plink of water droplets falling from the higher chambers.
+
+What appear to be tools and artifacts can be found throughout - objects of carved bone and woven fiber, simple but elegant implements whose purposes are not always clear. They seem to have been made by hands very different from human ones. There's no sign of their makers now, but the living city they cultivated remains, still slowly growing and changing, still harboring its silent multitudes.

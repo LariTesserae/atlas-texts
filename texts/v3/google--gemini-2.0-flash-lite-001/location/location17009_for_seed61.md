@@ -1,0 +1,19 @@
+The city breathes in the dark.
+
+It is a city *within* a city, a hidden thing, born within the hollowed-out corpse of a much larger settlement. The great stone avenues and plazas of the old city are gone, sunk beneath tides of water seeping from the weeping rock that forms the ceiling of this underworld. The stone here is black and oily, and the water is nearly as opaque. It clings to everything, a heavy, cold embrace.
+
+From its hiding place, this buried thing is dense — almost overwhelmingly so. The architecture is a marvel of the impossible, twisting structures of black stone that seem grown, not built. These "buildings" are not individual entities but more like tangled, overlapping strata, an urban warren carved into the earth below the ruins. The air is thick with the smell of wet stone and something else, something metallic and faintly organic.
+
+The light is dim, sourced from strange, self-contained bioluminescent bodies, scattered throughout the city. They pulse with a soft, ethereal glow, like buried stars. The light is enough to navigate, but it fails to pierce the endless shadows of this subterranean realm. Sound is the primary sense here. The place echoes with a constant roar, a symphony of dripping water, the grinding of stone on stone, the slow, rhythmic *thrum* of the city's heart.
+
+This heart is a bizarre thing, a network of pulsating, living conduits that snake through the city's core. These are not pipes, but something akin to veins, carrying a thick, luminescent fluid. They are the arteries of something vast, ancient, and *alien*. They seem to sustain the city and perhaps… provide the weird, muted food that appears to support the city's scattered inhabitants.
+
+These inhabitants are… *rare*. They are things of the dark: creatures of pure shadow, creatures that can shift from near-invisibility to almost too-much-visibility. They are small, quick, and always in motion. Their forms are difficult to pin down — like animated shadows, they flit through the narrow streets and passageways, their presence more felt than seen. They are scavengers, living off the waste and residue of the city’s unseen engine; they possess no apparent technology or craftsmanship, yet they seem intimately connected to the city's functions. These creatures are the only form of fauna.
+
+The technology of this place is… primitive. It is more about manipulation of the raw environment than about elaborate construction. Tools are made of the same black stone as the buildings, and they seem to have the power to draw and move through the very rock that forms the walls. Things are shaped and grown, not built. There is a sense that the city *is* a tool, a complex mechanism, and that its inhabitants are both its users and its lifeblood.
+
+Erosion is a constant companion but doesn't change anything. It is an old city, its forms settled. The buildings don't seem like they are *wearing away*, but instead, becoming *more* themselves as time passes. It may have taken centuries to reach this state. It is a slow, gradual slide into an ideal form, a state of perfect balance. It is also a cold place. The heat of the engine keeps the conduits warm, but the rest of the city and its water are cold, almost freezing, and the water is never-changing. It is trapped in a frozen-equilibrium. The city is a closed system. It has reached a stable state. It persists.
+
+There is no vegetation. The mineral world is the only one here. The water flows over the black stone, and the only changes are the slow, inevitable ones, the reshaping caused by the passage of time and the endless drip, drip of water.
+
+This is a place of deep stillness, of unchanging forms, where the only sign of life is its constant, rhythmic heartbeat. It is a city that never changes, a place where all is constant, and yet, where something *weird* waits in the shadows. A place where the only constant is the slow, unending roar.

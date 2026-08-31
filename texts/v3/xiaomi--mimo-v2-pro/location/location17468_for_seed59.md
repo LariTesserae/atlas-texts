@@ -1,0 +1,20 @@
+You stand at the edge of the Marrow, not so much a forest as a single, breathing organism that has consumed the mountain.
+
+It is a high place, the air thin and cool, tasting of wet stone and chlorophyll. The light is normal—overcast, diffuse, filtering through a canopy so dense it creates a perpetual green twilight below—but it is not still. It is dappled by constant, minute movement.
+
+The scale is intimate, claustrophobic. The Marrow fills a glacial cirque, a natural amphitheater whose stone bones have been entirely subsumed. Walls of living wood, moss, and fungal weaves rise around you, creating a chamber the size of a hamlet. There is no horizon, only the layered, breathing interior of this world.
+
+**The Substrate: Plant-as-Architecture**
+Everything is vegetal. The ground is not soil but a spongy, multi-layered mat of roots, decaying fronds, and a pale, springy moss that holds water like a sponge. It squelches underfoot. Towering structures, which might have been ancient conifers in a previous age, are now mere skeletons overgrown with pulsating, vascular vines thick as your thigh. Their bark has split and peeled away, replaced by shelves of luminous fungus and curtains of hanging moss that drip a constant, cold condensation. Water is everywhere: weeping from every surface, pooling in the cupped leaves of giant rhubarb-like plants, trickling in rivulets down the woven walls. The air is saturated, a mist that clings to your skin and hair.
+
+**The Fauna: Overwhelming Presence**
+And it *moves*. The fauna is not separate from the flora; it is an extension of it. The sound—a constant, wet, rustling hum at 2.1/3—is the sound of a million small lives. Armies of iridescent beetles process fallen matter with a sound like running sand. Flocks of tiny, featherless birds with membranous wings flit between the vascular vines, their chirps lost in the greater chorus. Larger shapes—sleek, six-legged creatures with mossy hides—move with slow purpose in the middle layers, grazing on fungal blooms. Nothing here is apex; it is a frantic, interconnected bazaar of consumption and growth.
+
+**The Settlement: Urban Primitive**
+The "urban" element is not built *upon* this, but *from* it. Platforms and walkways are woven from the living vines, encouraged to grow into bridges and floors. Shelters are not constructed but *cultivated*: hollowed-out growths in the massive, fleshy trunks of the canopy-trees, their entrances screened by bioluminescent lichen. Simple tools—bone, chitin, sharpened stone—lie about, used to tap sap-veins or prune aggressive growths. This is a primitive symbiosis; the inhabitants are gardeners, weavers, and parasites, maintaining their niches in the ever-shifting flesh of the Marrow. They speak in whistles and clicks that mimic the local fauna, their voices another layer in the soundscape.
+
+**Dynamics: Turbulent Symbiosis**
+The turbulence (2.6/3) is the lifeblood of the place. This is not a stable ecosystem; it is a hyperactive one. Growth is visible. A vine can elongate a foot in an hour, swallowing a path. A fungal bloom erupts, swells, and collapses into black slime within a day, feeding a frantic explosion of insect life. Structures shift; a walkway woven last week is now tilted as the supporting tree-trunk expands. The sound is loudest at these points of change—the crack of wood fiber, the wet *shlorp* of a new shoot breaking ground, the chittering frenzy of scavengers arriving at a fresh decay-site. It is a Solaris-like creation and destruction, a constant, wet, vegetative churn.
+
+**The Rule of This World**
+The rule here is **consumption as architecture**. Nothing is inert. The cool, damp air is filled with the smell of growth and rot in equal measure, a green, metallic tang. To be still here is to be claimed. A dropped tool is fuzzy with white mold in an hour. A moment’s rest sees your boot-laces sprouting pale shoots. The Marrow is not hostile; it is merely total. It is a high, wet, cool, and deafeningly alive stomach, digesting the mountain and everything on it, and building something strange and crowded from the meal.

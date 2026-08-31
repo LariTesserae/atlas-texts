@@ -1,0 +1,19 @@
+The Breathing Hollows
+
+Beneath the earth's crust lies a vast network of newly-formed caverns, their walls still sharp with the memory of recent fracturing. The stone here gleams wet and dark, like the inside of an eggshell just after hatching. These chambers opened mere centuries ago—a blink in geological time—when some deep tectonic shudder created this honeycomb of connected voids.
+
+The caves breathe. Every few hours, warm air pushes up through countless fissures from some unimaginable depth, carrying moisture that condenses on the cooler ceiling stones. This creates a peculiar rhythm: first the exhale of humid breath, then a gentle rain as droplets gather and fall, followed by long periods of dripping quiet as the system slowly inhales again.
+
+In this perpetual twilight, fed by filtered sunlight that finds its way through crystal veins and water-filled shafts, an impossible garden thrives. Pale ferns unfurl from every crevice, their fronds translucent and veined like moth wings. Moss carpets spread in reverse waterfalls up the walls, following the paths of rising moisture. Vines twist through the air itself, their roots drinking from pools of condensation, their pale flowers opening and closing with the cave's breathing cycle.
+
+The vegetation grows dense in the middle heights of each chamber, creating hanging gardens that divide the spaces into green-curtained galleries. Some plants have developed carnivorous habits—not from lack of nutrients, but from some strange evolutionary pressure in this enclosed ecosystem. Pitcher plants dangle like paper lanterns, their bowls filled with sweet-scented digestive waters. Flowers with teeth-like stamens snap gently at the abundance of cave moths and beetles that drift through the foliage.
+
+The fauna here moves with peculiar slowness, as if the cave's patient breathing has infected all life within. Salamanders the color of raw quartz climb the walls with methodical precision, pausing for minutes between each step. Blind fish school in the deeper pools, their movements synchronized to some imperceptible current. Most numerous are the various arthropods—centipedes with too many segments, spiders that weave webs from saliva rather than silk, beetles whose shells show map-like patterns that seem to shift when you're not looking directly at them.
+
+Sound barely travels in these spaces. The density of vegetation muffles everything to whispers—the drip of water, the rustle of slowly moving creatures, the occasional crack of expanding stone. Even footfalls would be swallowed by the moss and filtered through hanging gardens.
+
+The strangeness reveals itself gradually. Plants grow in impossible directions, their stems making right angles or perfect spirals. Water sometimes falls upward in certain chambers, collecting in ceiling pools that reflect depths greater than the cave's actual height. Time moves oddly—a falling droplet might hang in the air for seconds, while a fern unfurls its entire frond in the space of a breath. The very geometry of the caves seems unstable, with passages that lead back to themselves by routes that shouldn't exist.
+
+In the deepest accessible chambers, where the breathing is strongest, the walls themselves have begun to develop a kind of skin—a biological film that's neither plant nor fungus, pulsing gently with the cave's rhythm. Here, the boundary between stone and flesh, between geological and biological, becomes uncertain. The cave system isn't just alive with creatures; it's becoming alive itself, cell by cell, breath by breath.
+
+This is a young world still deciding what it wants to become, where the usual rules of ecology bend and merge, where evolution takes shortcuts through impossible spaces, and where the very stones dream slow dreams of transformation.

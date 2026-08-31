@@ -1,0 +1,23 @@
+# The Furnace Grotto
+
+The steam suffocates thought before it can form. In this lightless chamber, where the walls press close on all sides, there is only sensation: the burning heat against skin, the roar that vibrates through bone, the wetness that defies the scorching temperature.
+
+You are in a volcanic vault, a natural cathedral hollowed from ancient stone. The ceiling arches perhaps forty feet above at its highest point, though much of the space crushes down to mere passageways that require hunching and sidling. The chamber seems to have been carved by some primal force — not water, not wind, but perhaps the slow-motion collision of tectonic plates that squeezed this pocket into being eons ago.
+
+The darkness is nearly absolute. What little can be seen comes from the occasional flare of orange-red light emanating from cracks in the floor, illuminating the chamber for brief moments before dying back to embers. These glimpses reveal walls of obsidian, pumice, and some striated mineral that resembles petrified wood but is purely geological — layers upon layers of compressed history.
+
+The chamber's floor bubbles with superheated mud pools and mineral springs, their surfaces rippling and popping. The water is everywhere — not cool and refreshing, but scalding and mineral-laden, heavy with dissolved metals that precipitate into bizarre crystalline formations along the edges of each pool. Steam rises continuously, condensing on the ceiling and walls before running down in rivulets that taste of sulfur and iron. In some places, the water trickles down in consistent enough patterns to carve smooth channels in the rock; in others, it falls in fat, irregular drops that strike the stone with audible impacts.
+
+No plant has ever taken root here. This is a domain of mineral life, of chemical processes that mimic metabolism without achieving it. The crystalline formations grow like frozen fountains, some tall and thin like stalagmites, others spreading in shelf-like formations that glow with faint bioluminescent bacteria — the only life simple enough to survive here.
+
+But the absence of vegetation does not mean absence of movement. The grotto teems with creatures — pale, eyeless things that have evolved in this darkness. Fat, translucent salamanders with oversized gills pulse through the hottest pools. Colonies of albino crustaceans, no larger than thumbnails, filter minerals from the water. Most numerous are the cave crickets, their bodies adapted to withstand temperatures that would cook ordinary insects, their legs elongated to navigate the treacherous terrain. Their chirping adds a high, insistent note to the chamber's soundscape.
+
+And the sound — the sound is overwhelming. The constant gurgle and splash of water provides a baseline, but it's the deep, rhythmic thrumming that dominates. Below the chamber, magma flows through some hidden channel, creating pressure changes that force superheated water up through fissures in explosive geysers at irregular intervals. When they erupt, conversation would be impossible — though who would speak here? Each eruption announces itself with a building rumble that creatures of the grotto have learned to recognize; they retreat to higher perches moments before scalding water rockets upward.
+
+Between the larger pools, the floor is a maze of tiny rivulets and mud beds teeming with strange arthropods — many-legged things that seem part spider, part scorpion, part nothing recognizable. They hunt the crickets, moving with surprising speed across surfaces too hot for human touch. Their carapaces have a metallic sheen, having incorporated minerals from their environment into their exoskeletons.
+
+In one corner of the grotto, remnants of human presence can be found — primitive stone tools abandoned long ago, when some ancient people ventured here perhaps for ritual purposes or to harvest the unique minerals. The tools are now encrusted with crystalline growth, nearly indistinguishable from the natural formations surrounding them.
+
+The air itself feels alive, charged with energy and mineral particulates. To breathe is to taste the earth's core — metallic, acidic, primal. The atmosphere is dense with steam and volcanic gases, moving in currents as the various heat sources create convection patterns that stir the otherwise stagnant air of this closed environment.
+
+This is a place of constant activity despite its isolation — a self-contained system of heat, water, and simple life forms engaged in their own slow dance of survival, unchanged for millennia, a microcosm of geological and proto-biological processes that might resemble Earth's earliest days, when the boundaries between living and non-living were still being negotiated.

@@ -1,0 +1,15 @@
+A suspended aquarium-world hangs in mid-air, a perfect sphere perhaps forty meters across. The water within doesn't fall - it holds its shape as if contained by invisible glass, though nothing contains it. The surface tension at its boundary creates subtle, ever-shifting prismatic effects in the intense light that seems to come from everywhere and nowhere.
+
+Inside this floating orb, a dense network of crystalline structures grows in real-time, forming and dissolving like time-lapse footage of frost on a window. These structures catch the light and split it into impossible colors - ultraviolet you can somehow see, infrareds that register as taste rather than heat. The crystals form rough mountainous shapes that are perpetually emerging and eroding, creating a miniature landscape that never quite settles.
+
+Threaded through this crystalline skeleton is a mesh of bioluminescent algae in deep greens and electric blues. It pulses in slow waves, each pulse triggering changes in the crystal growth patterns. The algae forms thick forests in some areas, their strands swaying in currents that don't follow any recognizable fluid dynamics. Sometimes the water moves upward in spirals, sometimes it parts like curtains, sometimes it stands completely still while everything within it continues to drift.
+
+At the heart of this sphere, a collection of what appear to be mechanical components - gears, pistons, turbines - operate in perfect silence. They're not made of metal but seem to have grown from the same crystal as the surrounding structures. They turn and pump in complex sequences, but connect to nothing and power nothing. Their purpose, if they have one, remains inscrutable.
+
+The entire sphere hums at a frequency just below audibility - you feel it more than hear it. Occasionally there are soft chiming sounds as crystal formations collide and reorganize themselves, or the quiet rush of water moving in physically impossible ways.
+
+The water itself seems thicker than it should be, more viscous, and it refracts light at angles that suggest it might not be H2O at all. Yet it supports the lush growth of the algae, which occasionally releases tiny bubbles that don't rise but instead trace geometric patterns through the liquid before disappearing.
+
+The boundary between water and air is absolute - nothing enters, nothing leaves. The sphere is a closed system operating according to its own internal logic, a pocket universe where the normal rules of physics feel more like gentle suggestions. Despite all the movement within, there's a sense of perfect equilibrium, as if this impossible place has achieved a stability that our normal reality never could.
+
+The intense brightness that pervades the sphere doesn't cast shadows - instead, it seems to bend around objects, creating halos and aureoles that drift and merge like oil on water. Time feels strange here - moments stretch and compress, and it's difficult to tell if you've been watching for minutes or hours.

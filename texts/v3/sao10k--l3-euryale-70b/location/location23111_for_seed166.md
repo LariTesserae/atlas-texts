@@ -1,0 +1,9 @@
+Submerged Desolation
+
+In the cold, dark depths of an endless sea, a barren landscape of bare stones and jagged boulders stretches out as far as the weak moonlight can penetrate from far above. The black water is still, an apparently bottomless abyss of briny silence. Occasional sparks of dim, eerie bioluminescence flicker from deep within the cracks of some of the rocks, offering brief flashes of color in the pervasive blackness. 
+
+Sparse seaweed clings to the rough facades, thin, pallid strands waving slowly in the currentless water. Deeper in the gloom, dark shadows hint at hidden crevices and grottoes where even less light can reach. The complete absence of any larger structure or constructed feature marks this place as primeval and untampered with. Only the seafloor itself has been worn smooth over eons.
+
+In the far distance, the faint thrum of engines and machinery mingles with the underwater reverberation of heavy compressors, but no source can be seen from this desolate spot. The sounds are steady and relentless, echoing with the cold efficiency of factory-scale seafloor machinery beneath the water. Signs of industrial presence hover at the edge of perception, but are not visible here in this black small valley.
+
+Everything holds motionless and changeless, locked in timeless equipoise. No sign or sound of any other life intrudes. The submerged plain extends into a twilit abyss, with no testimony of the world above penetrating to this remote, disused seepage basin. Cold, heavy and dark, this is a place stoney and forsaken, where the works of humans press upon the black edges yet do not intrude — a secret landscape in stony desolation.

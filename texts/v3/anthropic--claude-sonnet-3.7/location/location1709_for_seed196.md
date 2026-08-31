@@ -1,0 +1,19 @@
+# The High Moss Hollows
+
+The ancient canopy looms, not far overhead. Perhaps once these were giants, but after epochs of growth and settling, the ancient boughs have curved downward, sagging with moss until the ceiling hangs just seven or eight feet above the dim floor. Here, among the weathered cores of what must have been titanic trees, is a world of perpetual twilight.
+
+The floor undulates in gentle waves, polished smooth by countless millennia of gentle erosion. What might once have been jagged stone has been worn to organic curves, like the interior of some vast skeletal structure. The ground feels almost ceramic beneath your feet—cool, slick in places with condensation, and marked with shallow depressions where moisture collects in tiny pools.
+
+Water is heard before it's seen. The cathedral-like space resonates with a thunderous, insistent tapping that seems to come from all directions at once. It's the sound of countless droplets falling from the moss-laden ceiling, each strike against the hollow ground creating a tone that joins the overwhelming percussion. The acoustics are peculiar; sound doesn't dampen but rather cycles through the chamber, building upon itself until conversation becomes impossible—even shouting would be swallowed by the relentless aquatic symphony.
+
+Vegetation thrives in this dim, cool space. Moss dominates, hanging in thick curtains from the low ceiling, but it's not the simple green variety known elsewhere. Here it grows in spiraling patterns of blue-green and purple-black, sometimes pulsing with faint bioluminescence that casts dancing shadows across the polished floor. Ferns with translucent fronds emerge from cracks, their structures delicate but oversized, some reaching three feet in height despite their apparent fragility.
+
+The sparse arrangement of features creates a sense of carefully curated space. Between the old tree-columns—now reduced to hollow cylinders of petrified bark—are expanses of open floor where nothing grows except for occasional islands of brilliant fungal bouquets. These mushroom clusters rise like miniature cities, some resembling tiered temples of ivory and amber, others spreading outward in concentric rings of crimson and indigo.
+
+Despite the overwhelming sound and limited visibility, the space teems with life. Small creatures dart between fungal forests—amphibians with too many legs, their skin a reflective mercury-like sheen. Beetles large as your palm navigate the ceiling upside-down, dragging elaborate structures behind them—perhaps homes, perhaps egg sacs, constructed of moss and tiny pebbles. Occasionally, something larger moves at the periphery of vision, displacing hanging moss curtains, but never revealing itself fully.
+
+The only hint of technology comes from what appears to be ancient gathering sites. Smooth depressions in the floor are ringed with simple stone implements—tools for scraping, cutting, and perhaps for catching the falling water. These tools bear no metal, only carefully shaped stone with edges still remarkably sharp. Who left them here is unclear, but the tools seem positioned deliberately, not abandoned, as if their owners simply stepped away momentarily—perhaps thousands of years ago.
+
+Time moves differently in the Hollows. The moisture doesn't flow but rather transfers from ceiling to floor in an endless cycle, the droplets falling with a rhythm that might be keeping time for some greater cosmic process. Occasionally, a section of moss will release a cloud of luminescent spores that float with impossible slowness through the dim air, taking hours to settle.
+
+This place has achieved a final form—not through stagnation, but through perfect balance. The water falls, the moss grows, the creatures move, the sound resonates, yet nothing changes beyond a pace imperceptible to visitors. It is a system that has eroded away all that is unnecessary, leaving only what endures.

@@ -1,0 +1,39 @@
+The city occupies a shallow depression in the land, no larger than a few city blocks, though its edges are difficult to locate. At ground level it seems compact: a ring of dark structures around a central basin, streets crossing and recrossing, towers packed close enough that their upper stories nearly touch. But distance behaves badly here. A building at the end of an alley may remain the same apparent size no matter how long one walks toward it, while a window overhead can show a room several kilometers away.
+
+The ground is unfinished.
+
+It is a pale, cold material, halfway between stone and something still deciding whether to become stone. Underfoot it has the matte skin of wet concrete, but translucent seams run through it, glowing faintly with the submerged geometry of roots, pipes, and old foundations. Rain has begun to work on it, though erosion is young and tentative. There are shallow channels everywhere, little incisions made by intermittent water, each one ending abruptly as if the ground has forgotten how valleys are supposed to continue. In some places the channels fill with gray condensation. In others, they open into narrow black fissures from which a slow fog exhales.
+
+Water is present in fragments. It gathers beneath overhangs, beads on cables, trembles in the concave surfaces of walls. Every few hours a fine rain passes through the district—not falling from the sky exactly, but condensing out of the air at once, as though the atmosphere has reached a local threshold. The droplets hang suspended for several seconds before descending. They make no patter. When enough collect, they slide together in silence and enter the streets as thin, deliberate streams.
+
+The architecture is dense and highly organized, though no human scale governs it consistently. Buildings are stacked in layers: habitation cells, transit galleries, heat exchangers, gardens reduced to sealed drawers, observation rooms, maintenance corridors, and structures whose purpose cannot be inferred from their shapes. Facades are made of black ceramic, frosted glass, brushed metal, and a gray substance resembling compacted ash. Many surfaces are seamless, without doors or joints. Others are crowded with narrow apertures, each one opening and closing at a different rate.
+
+The city appears built by systems that understand matter more intimately than people do. A wall can soften beneath a hand and permit passage, then harden again with no trace of the opening. Bridges grow across gaps in slow translucent folds. Staircases alter their inclination by fractions of a degree, making ascent easy or impossible depending on where one is standing. Pipes carry no visible liquid; instead, their surfaces ripple with moving shadows of water, and the pressure within them seems to be transmitted through the shadows rather than through anything physical.
+
+There are no broad avenues. Movement occurs through compressed routes: narrow streets between leaning structures, corridors beneath the pavement, ladders that become elevators after the third rung, and shallow ramps descending into rooms that should be outdoors. Everything is close. Walls stand near walls. Wires, rails, vents, and suspended walkways occupy the air in layers, leaving only small windows through which the sky can be seen.
+
+The sky is an ordinary winter sky, and this is perhaps the strangest thing about it. It is low, white-gray, without visible stars or dramatic color. The light is diffuse and familiar. Shadows fall in the expected direction until they reach a corner, at which point they may continue around it, or detach from the object that cast them. Reflections are usually accurate, but occasionally lag behind their subjects by several minutes. A person may pass a window and see themselves still standing there, watching.
+
+Cold saturates the place. Metal burns the fingertips. Moisture on the skin does not evaporate; it remains as a thin chill film. Heat exists, but mostly as a controlled infrastructure rather than a natural condition. Warmth rises from vents in the pavement, collects beneath certain bridges, and moves through the settlement in slow bands. These bands are mapped and monitored. Residents arrange their lives around them, opening sleeping chambers when a warm front is due and sealing themselves in when it passes.
+
+Vegetation is scarce and deliberate. A few low mats of black-green growth cling to damp seams in the pavement, their leaves so small they resemble flecks of oxidation. In a recessed courtyard, pale stalks emerge from a basin of mineral water and bend toward no particular source of light. One rooftop supports a thicket of transparent reeds, each containing a thread of moving blue. They do not rustle. Their shadows sway while the reeds themselves remain still.
+
+Most biological life is absent or hidden. Once, a long-legged animal moves beneath a bridge, too thin to cast a complete shadow. Its joints articulate in several directions, and its body seems assembled from wet paper and wire. It pauses beside a drainage channel, lowers its head, and drinks the darkness rather than the water. Then it folds itself into a crack no wider than a finger.
+
+The settlement is not abandoned. Presence is everywhere, though people are rarely seen. Behind translucent walls, silhouettes sit motionless in rooms full of suspended instruments. Small maintenance machines travel along ceilings, carrying droplets from one surface to another. In the lower levels, warm lights come on one by one, marking the progress of some slow process. At intervals, a door opens onto a blank wall, and something on the other side takes measurements of the air.
+
+The quiet is dense. There is the soft electrical hum of the buildings, the faint vibration of distant machinery, the occasional click of a locking mechanism. Rain makes almost no sound. Footsteps are muffled by the porous ground. Voices, when they occur, do not carry; they seem to be absorbed by the nearest surface and released later somewhere else. A sentence spoken in a stairwell may emerge hours afterward from a drain in another district.
+
+Time moves at a reduced scale. Changes are visible only if one remains still long enough. A crack in a wall widens by the breadth of a hair. A suspended platform lowers a few millimeters. The dark channels in the ground subtly deepen. Buildings do not decay so much as continue becoming. New ledges press outward from old walls. A vacant lot develops a foundation. The foundations develop rooms. The rooms acquire windows looking into places that have not yet been constructed.
+
+There are rules here, but they are spatial rather than moral.
+
+Nothing may be moved far from where it was found without first being named. Water remembers the last surface it touched and may return there against gravity. Doors open only for those who have reached the correct degree of uncertainty. Any object placed in the central basin will eventually be reproduced somewhere in the city, though never at the same scale. The city’s maps remain accurate for one day, then begin depicting routes through structures that are still forming.
+
+At the center lies the basin: a shallow oval hollow surrounded by close-set towers. Its floor is covered with a skin of dark water, perfectly still despite the condensation falling into it. Beneath that surface, the ground is visible—not as rock or soil, but as a pale, unfinished interior. Lines spread slowly through it, dividing and redividing, like the first plan of a body or a city being drawn from within.
+
+Nothing dramatic happens there. No explosion, no collapse, no sudden revelation.
+
+The basin simply continues to form.
+
+Around it, the cold settlement waits in its layered silence, packed tightly against itself, while the rain gathers in small places and the world tries, very gradually, to decide what it is.

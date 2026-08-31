@@ -1,0 +1,30 @@
+Nestled beneath a cracked section of elevated roadway on the fringe of an industrial district, the **Condensate Pocket** is an environment that defies easy summary. It isn’t a whole landscape, but a microcosm, compressed into a single, half-forgotten crawlspace beneath the city’s veins: a place you could examine in a single, slow circuit, but where no two sights share the same air.
+
+**The Terrain**  
+The ground is a dense mat of yesterday’s silt and this morning’s oil, paved by the runoff from a fractured drainage pipe overhead. The soil is fresh, barely settled, still angular at its tiniest scales—grit and flakes, sharp with youth, resistant to the roundings of time. Tiny rivulets, sometimes only a finger’s width, trickle and bead along the uneven ground, pooling in shallow pocks and resin-cupped hollows. The earth flees upward in abrupt, miniature ridges—spilling down in brief avalanches whenever a boot heel or curious animal passes.
+
+**Materials**  
+Everything here feels saturated, as though condensation itself has become a permanent fixture. Pipes shed droplets, bold as dew, down their mantles. Rusted bolts and washers litter the loam, some half-swallowed, others forming the nuclei around which encrustations of mineral and fungus burst. There’s a half-chewed sheet of corrugated fiberglass wedged upright, forming a warped, translucent barricade that sheds spectral yellow light into the gloom.
+
+**Atmosphere**  
+The pocket hums gently with warm air, thick as breath, stifling in its density. Every molecule seems laden—sometimes with the sting of distant ozone, sometimes with the vegetal pungency of fermentation. Nothing ever quite dries here. Shadows feel moist, like the membranes behind eyelids. Rays of normal daylight, sifted through ventilation-slats and oil-limned puddles, appear as discrete, touchable beams in the close, humid air.
+
+**Vegetation and Fauna**  
+Plant life is rare, but where it exists it conquers: a thicket of spindly, hard-leaved creepers with salt-burnt tips, pressed close to the warmest pipes; a moss that grows in snarled clumps, dragging brown water from the air and transforming it into spongy mats. Compared to the plants, the animals are everywhere—small, packed, busy. There are beetles in every cranny, glossy and quick, and fat-bodied worms that tunnel just below the surface, turning the ground in idle process. Shadows flicker as quasi-amphibious rodents slip between territories, drawn to the intermittent pools. Glossy wasps, each with a glittering metallic stripe, hover in pairs around mysterious resin bubbles. Flitting between the metal and rot, an unclassifiable number of sentient motes—perhaps the drones of a lost industrial process—skitter on rails and in air, performing incomprehensible tasks with absolute attention to some hidden logic.
+
+**Structures and Machinery**  
+There are almost-buildings here: a crumpled air-shaft, its insides lit irregularly by blinking bulbs that never match in color; a rusted still, still connected by corroded pipes to the larger city infrastructure, hissing with uncertain purpose. Along one wall, a panel of switches, most busted, one or two stuck in positions neither on nor off, still exudes an ambient warmth and a throbbing, barely-audible hum. Mechanical relics drowse in puddles—half-submerged gearboxes, the skeleton of a conveyor, a sheet-metal enclosure overgrown with licking filaments of wire-vine. Scrawls of paint, nearly erased, hint that once this place belonged to someone intentional.
+
+**Soundscape**  
+The air here carries a profound hush. Sound is mostly the gurgle of water, the tick of contracting metal, the slow chewing of a rat’s teeth at plastic. Sometimes, a deep bass thrum passes through the floor—a train or piece of machinery overhead, its presence felt more in bones than ears. Occasionally, in the lulls, something clicks with curious regularity: the shifting of pressure, the slow heartbeat of an aging automated system, or bone-dry beetle wings brushing together in some ritual unknown to humans.
+
+**Process and Dynamism**  
+Though hidden, the pocket is alive. Drops bead and fall. Animals scrabble from one cover to the next. Mold sprawls inward across a scrap of greasy cardboard, its edge advancing visibly in humid weather. Through small vents, an inward gust can suddenly carry in a spatter of distant rain, and the entire biome responds: insects swarm the fresh wet patches, moss darkens within minutes, pipes hiss and sputter. At certain hours, a faint, chemical warmness sweeps down the pipe, and mechanical creatures awaken, enacting inscrutable cycles—resetting, sorting, vaporizing, setting in motion processes whose beginnings were lost decades ago.
+
+**Rules and Physics**  
+This world is tightly governed by condensation and density. Life is never wasted—every surface is exploited, every niche is filled. Here, scavenging is not just survival, but a choreography. Machines and animals collaborate in uneasy truces: rodents lay bones in steel alcoves; wasps harvest resin that oozes from century-old gaskets; the neural nets in forgotten sensors click softly, trying to tally new arrivals. Gravity feels heavier—perhaps because everything tries so hard to be close, to press into every empty space until there is no emptiness left. The air holds whispers of vapor, data, and unfamiliar pheromones.
+
+**Weirdness and Enchantment**  
+At the heart of the pocket lies a crystalline structure—less than the size of a fist, nested in a steel catchment, perpetually slick with dew. It refracts the light from a broken lamp through hidden facets to cast moving glyphs along the walls: shapes that never repeat, suggestive of language but never resolving into anything stable. Creatures seem drawn to it; human technology, too, falters in its glow. If you wait and watch, the script sometimes chills the air for a moment, as if meaning might almost coalesce.
+
+This is a place of saturated secrets pressed together: the unknown packed close, the damp always resettling, something waiting to be discovered in the click of pipes and the run of fragile lives, just beneath the world you thought you knew.

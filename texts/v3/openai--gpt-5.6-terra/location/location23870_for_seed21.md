@@ -1,0 +1,37 @@
+At the upper lip of a volcanic plateau, where the mountain has only recently stopped being liquid, there is a basin no wider than a small village. It appears first as a stain of green and silver among black rock: a shallow, wet hollow held between fresh lava ridges, each ridge sharp enough to cut cloth and still warm beneath its hardened skin.
+
+The place is high enough that the sky has a hard, near quality. Clouds pass close overhead, huge and slow, their undersides lit a dull white by the afternoon sun. Heat rises from the ground in clear sheets. Rain comes often but does not cool anything for long. It falls in brief, heavy curtains, hissing on the darker stone, filling every crease in the basalt, then evaporating into a low vapor that drifts knee-high across the basin.
+
+There is water everywhere, though almost none of it has gathered into a proper lake. It beads on the porous rock. It trembles in thin shelves along the walls. It emerges from cracks as hot, iron-colored seepage and runs a few yards before vanishing under moss. At the basin’s center lies a mirror of water no larger than a courtyard, filmed with minerals in colors that shift between green-gold, blue, and a faint bruised violet. The surface is frequently broken by bubbles rising from below. Some are ordinary geothermal breaths. Others make a careful, regular sequence: three small rings, a pause, then one broad ring.
+
+The vegetation keeps to the wet places and the shadows of stone. It is lush in the way of things that have found exactly enough room to live. Thick reeds grow around the central pool, their blades translucent at the edges, their interiors carrying slow threads of light after sunset. Low trees, perhaps not trees at all, cling to the basin wall in widely spaced clusters. Their trunks are pale and smooth, divided into flat, overlapping bands like stacked ceramic plates. They gather moisture from the air, opening thousands of black pores when rain begins. From a distance their crowns look sparse; close up, each branch bears a dense fringe of broad, leathery leaves, glossy with heat and condensation.
+
+Between them, the ground is mostly open. Black gravel. Red clay. Fields of pale mineral crust that crack underfoot like old paint. A few mats of velvet-green growth cover the places where water lingers, and tiny white flowers appear there in the morning, only to fold themselves shut before noon. They do not bloom in clusters. Each rises alone on a thin stem, several yards from the next, as if keeping a prescribed distance.
+
+There are structures in the basin, but they do not declare themselves as buildings at first.
+
+One stands beside the pool: a narrow arch of matte gray material, no taller than a person, set directly into the basalt. It has no joints, no tool marks, and no visible purpose. Rain will strike it and slide off without wetting it. At intervals, a line of condensation forms along its inner edge, gathering into droplets that travel upward against gravity and disappear at the top.
+
+Higher on the slope are three small shelters, each only large enough for two people to sit inside. They are half-buried, shaped like smooth stones split open to reveal rooms of cool white interior. Their entrances face different directions: one toward the pool, one toward the sunrise, one toward an unbroken wall of lava. No paths join them, though the ground between has been cleared of sharp stone with an attention too exact to be natural.
+
+Inside the shelters are shallow benches, a dark bowl, and a thin panel embedded in the wall. The panels are usually blank. In moments of thunder, they show a moving map—not of the basin, nor of the mountain, but of an intricate network of lines folding through a depth that seems impossible for such a small screen. The lines brighten where rainwater enters the ground. They dim where the sun touches bare rock. No one has found an edge to the map.
+
+The technology here has the unassuming manner of roots. It does not hum, flash, or announce a function. It seems to work through pressure, heat, moisture, and attention. A stone placed near the arch may be warm when lifted a day later, even after a cold night. A cup left in one of the shelters fills with clear water, though the room remains dry. When a living thing dies in the basin, the reeds around the central pool turn their leaves inward for several hours, and faint geometric ripples move across the mineral film.
+
+There are few animals.
+
+Occasionally a dark-winged bird circles above the rim, refusing to descend. Its call is so distant it might be mistaken for a loose stone shifting in the heat. Small lizards live beneath the warm slabs at the basin’s margin. Their scales are black in the morning and become mirror-bright by afternoon, reflecting the sky so perfectly that they vanish when still. At night, something larger comes to drink from the pool. It leaves no tracks in the mud, only a pressed semicircle of reeds and a smell like rain striking hot metal.
+
+The quiet is not empty. Water ticks beneath stone. Condensation slips from leaf to leaf. The basalt occasionally gives a deep, interior crack as the mountain settles or expands. Wind passes over the rim and seldom enters, so the basin holds its own weather: steam after rain, sudden dry heat, a faint coolness close to the water. In the hottest part of the day, the air above the central pool shimmers with layered distortions. Through it, the far wall may look farther away than it is, or appear briefly covered in green terraces that do not exist.
+
+Nothing in the basin is ancient, despite the old patience of its stones. The lava shelves are young. Their edges have not yet softened. The mineral crust is still growing in bright fans from the seepage. Even the pale banded trees appear to be recent arrivals, their roots probing shallow fractures in the new rock. Yet the strange structures seem older than the mountain and newer than the rain. They do not weather. Lichen will approach their surfaces and stop at a clean, narrow boundary.
+
+There is an unwritten rule here, learned quickly by anyone who stays: do not alter the water’s routes.
+
+A channel blocked with stones will clear itself by morning. A pool drained into another depression will be full again before sunset, while the redirected water has vanished. If someone cuts a reed-bed, the cut stems bleed a colorless fluid that crystallizes into tiny hexagons. By the next rain, fresh reeds rise in precisely the old arrangement. The landscape accepts visitors, perhaps even studies them, but it refuses revision.
+
+At dusk, the heat finally begins to leave the black ground. Vapor thickens in the low basin, and the central pool becomes invisible except for its internal light. The reeds glow softly at their edges. Above, the mountain rim turns purple, then indigo, its fresh fractures holding the last daylight in thin bright lines.
+
+The three shelters wake one by one. Their blank panels show the folded maps. The arch beside the pool gathers silver droplets and lifts them soundlessly into itself.
+
+For a little while, in that small wet hollow high above the world, it feels less like a place built in a landscape than a landscape carefully grown around a machine whose purpose is still underway.

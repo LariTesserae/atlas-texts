@@ -1,0 +1,21 @@
+The air here tastes like iron and cold, clean saliva. It is a subterranean vastness, a hollow beneath the skin of the world that feels less like a cave and more like a wound that has just stopped bleeding. The light is flat and shadowless, emanating not from a sun but from the ceiling—a fractured, distant dome of phosphorescent minerals that casts a clinical, normal-day illumination over everything.
+
+This is a landscape of zero grace. Because there has been no erosion, there is no smoothness. The terrain is a chaotic geometry of raw, naked edges. The rock is grey and brittle, breaking into razor-sharp shards that litter the ground like jagged glass. Mountains rise here not in weathered slopes, but as violent, angular thrusts—splinters of the earth’s crust stabbing upward. They look frozen in the very moment of their creation, as if the ground split open seconds ago and the dust has not yet had time to settle.
+
+It is damp, but not wet. A fine, silvery mist clings to the raw edges of the stone, condensing in the crevices and weeping down the sheer, un-eroded cliff faces. There are no rivers, only a network of slick, dripping surfaces. Puddles collect in the natural bowls of the fractured rock, stagnant and reflecting the expressionless glow from above.
+
+Vegetation struggles to hold on. It is sparse, pale, and timid. You do not see trees; the sharp stone offers no purchase for deep roots. Instead, there are clumps of lichen that look like bruises on the grey stone, and occasional, stunted ferns that grow exclusively in the cracks where water pools. They are slick and dark green, clutching the earth with a desperate intensity.
+
+Despite the hostility of the raw geology, the space is packed. It is an urban hive, a vertical shantytown of primitive construction that clings to every available surface. Because the ground is treacherous with broken stone, the people have built up. It is a dense warren of wooden scaffolding, rough-hewn stone platforms, and mud-brick huts jammed into the fissures of the cliffs.
+
+The architecture is crude but vigorous. There are no metal tools here; everything is hewn with hand-axes and chipped flint. The wooden beams are lashed together with wet hide and vines. The structures are stacked precariously, one atop the other, creating a continuous, artificial crust over the jagged landscape. Bridges made of suspended logs stretch across the voids between the stone spikes, swaying slightly in the cool drafts.
+
+The scale of the place is deceptive. The openness of the cavern makes the settlement look like a model village, but as you look closer, you see the truth of its size. It stretches for miles, a regional sprawl of habitation carved into the darkness.
+
+It is strangely quiet. The density of the construction suggests a roar of activity, yet the soundscape is muffled. The dominant sound is a rhythmic, distant *thud-thud-thud* of stone striking wood, the percussive heartbeat of a city under construction. Interspersed with this is the low, murmurous drone of voices, the creak of settling timber, and the hiss of condensation dripping onto hot torch-flames.
+
+Life here is rare and hidden. You see no herds, no birds in the air. The fauna consists of small, skittering things—pale, eyeless lizards that vanish into the cracks when the torchlight hits them, and insects that hum in the damp corners of the huts. The dominant creature is human, or human-like, moving with the industrious focus of an insect colony.
+
+The dynamic of the world is one of aggressive stabilization. The landscape is "emerging," constantly shifting as new fissures open or old ones settle. The city is in a state of perpetual repair and expansion. Scaffolding goes up, a platform is leveled, and then the earth shifts, and the process begins again. It is an active, anxious place where civilization is trying to outrun the raw, unfinished nature of the rock it stands on.
+
+Everything is cool to the touch. The stone sucks the heat from your fingers. The air is still, recycled, and heavy with the smell of unwashed bodies, wet wool, and the sharp, mineral scent of the earth itself. It is a place that feels temporary, embryonic—a civilization squatting in the rubble of the world's birth, waiting for the dust to finally settle.

@@ -1,0 +1,11 @@
+The plateau stretches endlessly beneath a perpetual amber twilight, its surface a vast expanse of oxidized iron powder compressed into gentle, rolling dunes. The dust has settled here for millennia, packed by its own weight into something between sand and stone—soft enough to leave footprints, firm enough to support immense weight.
+
+No wind disturbs this place. The air hangs thick and still, warmed by deep thermal vents that breathe silently through hairline fissures in the ground. These cracks form an intricate network across the plateau, glowing faintly orange-red where the heat escapes. The temperature hovers at the edge of comfort, like standing too close to a dying fire.
+
+The terrain undulates in long, patient waves—hills that take an hour to climb, valleys so gradual you don't notice you're descending until the horizon has shifted. Everything is the same rust color, varying only in how the dim light catches the granulated surface. The sameness becomes hypnotic, each rise revealing another identical vista of iron-dust swells.
+
+Deep beneath the surface, something industrial thrums with barely perceptible vibration. Not machinery exactly, but a natural process that achieved mechanical regularity eons ago. Crystalline formations in the planet's core align and realign in perfect cycles, generating the heat that seeps upward. These deep structures create the plateau's only landmarks—areas where the thermal output is slightly higher, where the dust has sintered into glossy, metallic patches that reflect the twilight like pools of mercury.
+
+The silence here is absolute. No atmosphere to carry sound, no movement to create it. Even footfalls are muffled by the powder. The only sensation is the warmth rising through boot soles and the faint taste of iron that somehow permeates even through sealed breathing apparatus.
+
+Time has no meaning on the plateau. The dim orange light never changes, cast by a brown dwarf sun that neither rises nor sets, locked in perpetual eclipse behind the planet's larger companion world. The dust was here before any observer arrived, and will remain long after. It exists in perfect stasis, a monument to geological patience—neither growing nor diminishing, neither building nor eroding, simply persisting in its warm, silent, endless sameness.

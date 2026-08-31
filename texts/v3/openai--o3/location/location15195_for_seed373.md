@@ -1,0 +1,37 @@
+At first you hear it, long before you manage to see anything through the haze: a rolling, threshing roar so layered that it fills every register of hearing at once—thunder pitched down into a permanent basso rumble, wind screaming in metallic octaves, and in the foreground a ceaseless patter like rain upon a tin roof. It is all of it dust, not water. The Plateau of Singing Ash has no liquid to soften sound; every grain of airborne mineral collides nakedly with its neighbors and with the worn stone of the highland, and the collisions braid together into this deafening, breath-stealing wall of noise.
+
+Terrain and materials  
+You stand on a fragment of mountain top that tectonics flung upward eons ago and erosion has since planed almost level. The rock is pale, streaked with lavender veining—lithium granites polished by ages of scouring grit. Natural arches, some three or four human strides across, span shallow chasms whose bottoms lie hidden beneath constantly shifting curtains of dust. At the plateau’s rim the ground simply ends: a clean break, half a kilometer straight down into cloud and wind. Peering over is like looking into an avalanche frozen mid-fall—billows of grey-white particulate forever tumbling yet never piling up.
+
+Atmosphere and light  
+The air is thin and cool: six degrees above freezing in the noon light, sinking below zero once the three small moons rise. Yet light itself is generous. A creamy sun, no brighter than the one that warms Earth, travels a clear dome, its rays scattering off the fine dust to give the sky a diffuse, nacreous glow. Nothing here is truly in shadow; everything is lit from every direction, as though inside the world’s largest, brightest cathedral.
+
+The non-aqueous living green  
+Despite the austerity, the plateau is lush. All around, anchored in cracks and sheltered under arches, grow the glassleaf vines. They are emerald-dark yet transparent, each frond a flat ribbon of silicate laced with photosensitive cobalt lattices. Instead of sap they circulate pressurized argon and metabolize directly upon the leaf surfaces, extracting trace nutrients from the dust that never stops abrading them. Where wind tears a ribbon free it snaps like thin ice, shards spinning away and chiming as they splinter against stone.
+
+Between the vines rise the lung-trees—hollow trunks of flexible graphite foam, opening and closing like concertinas. They drink noise. Minute pores on their inner surfaces convert acoustic pressure into chemical work, pumping neon and xenon into bladderlike fruits that glow a cold lemon-yellow at night. A swarm of lung-trees murmuring together lowers the local sound level from intolerable to merely painful; stand within a grove and your bones vibrate less.
+
+Fauna in abundance  
+Drawn to the lung-trees come whole flocks of skystitchers: winged arthropods balanced on kite-skeletons of keratin, thirty centimeters across. They ride the turbulence with their wings folded, letting the screaming wind whistle through resonant slots that keep them aloft. When they approach a glow-fruit the wings spread, braking, and soft hook-feet pinch the foam to siphon gas with straw-slender mouths. Their predators, glassstriders, hunt from below: six-legged, long-necked sprites with anti-static pelts that let them climb straight up columns of falling dust as though on invisible stairs.
+
+Toward dusk the most startling creature arrives—the choirwyrm. It is serpentine, one slender kilometer long, body curtain-thin and semi-transparent, ribbed with silver tension lines that ring when plucked by gusts. The wyrm’s own motion through the air bows those ribs into chords, turning the entire animal into a living string instrument. Its song drowns even the plateau’s roar, and the duststorm briefly synchronizes to the rising overtone ladder, sculpting temporary whirlwalls around the animal until it passes.
+
+Ruins, tech, and faint rules  
+Dotting the highland, always at respectful distance from one another, are monolith-cores: knee-high cylinders of a matte ceramic no tool can scratch. Each hums at a specific pitch, and within a dozen steps gravity lightens noticeably. Botanists guess they were planted here by an intelligence deeply interested in keeping this place habitable—habitability here meaning “rarely ripped apart by its own weather.” The cores drift in and out of resonance with the plateau’s natural frequencies; when one slips, a new arch collapses or a fresh crack opens. Nanoscale lettering along their rims blinks in quasicrystal patterns that no modern cipher has parsed.
+
+The few larger structures—a pair of slender hexagonal towers, half a dome clinging to a cliff lip, and the famously unopenable Door That Faces the Wind—share the same material palette: fractureproof ceramics and self-healing alloys. They are scattered far apart, as though even their builders wished to honour the plateau’s vast emptiness.
+
+Dynamics and change  
+Nothing here lasts forever. Storms fall upon storms: micro-cyclones rise, merge into towering helixes, then shear apart in moments. A polished boulder that served you as a seat in the morning may by evening have been sandblasted down to a nub. Biology keeps pace. A glassleaf vine torn free today has already rooted again in an hour, grown three new ribbons by nightfall, and tomorrow will be food for a blooming carpet of razor-moss that germinates only on fresh wounds of stone.
+
+Sometimes, unpredictably, a monolith-core oversaturates and inverts its gravity bubble. Then stone, dust, vines, creatures, the very air in a radius of a dozen strides arches upward in a quick silent blossom before detonating outward as shrapnel of glittering particulate. For minutes afterward a local hush falls, as though the plateau itself pauses to listen for consequences before resuming its delirious industry.
+
+Sound, always the sound  
+No recording equipment has ever captured the full body of it. Visitors learn quickly to tie the issued osmium ear-anchors to the bones behind their jaws; the living metal countervibrates, letting conversation happen at permanent shout level without rupturing eardrums. Still, you feel the place before you comprehend it: in the sternum, in the hinge of jaw, in the knees when a distant thunderclap travels up through the stone. Children of the local caravans play a game in which they hold palms an inch above the ground and try to identify approaching fauna solely by vibration signature.
+
+The strange yet familiar  
+For all its volatility, the plateau feels balanced—entropy here flows in loops, destruction funding creation in real time. What moisture is to an Earthly rainforest, raw acoustic energy is to this ridge in the clouds: the common solvent, the universal medium, the giver of form. Break the roar and everything would starve.
+
+Standing beneath a lung-tree at twilight, skin stung by cold dust, lungs full of resin-sharp air, you become aware of the world’s one unspoken rule: life prospers wherever it can seize a flux and make it oscillate. Water not required; patience not optional.
+
+And when at last you turn to leave, you find the plateau has edged closer to you—arches rewritten, dustbanks translated—proof that observation itself becomes another turbulence for this place to shape, echo, and absorb.

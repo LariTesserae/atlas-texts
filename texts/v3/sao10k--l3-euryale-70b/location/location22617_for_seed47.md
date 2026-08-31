@@ -1,0 +1,15 @@
+A vast and ancient moonscape, pockmarked by eons of asteroid bombardment and radiation. The landscape is a tumble of fractured rock and rimed craters, their jagged edges smoothed only slightly by untold ages of weathering under a thin atmosphere. 
+
+Gravity is weak, and the horizon stretches immensely distant, putting the curve of the world starkly in view. Each boulder and skyline.siphons the eye far out into the distance, drawing an exaggerated perspective that warps the mind's expected scaling. The scale is everywhere suddenly vast, relentlessly vast.
+
+Shattered spires of stone jut up at odd angles, thrust by ancient tectonics and preserved by the absence of water or life to erode them. They cleft the pale sky like spears gouged across a faded war-painted shield. Gusts of wind howl around the blades of bare rock.
+
+Rare wisps of vegetation cling tenuously to cracks and crevices. Microbial mats establish precarious beachheads in the rare niches that shelter from the baking heat and wrecking ultraviolet. Hardy, chitinous lichens etch jade and carmine into the weathered stone.
+
+Scattered across the plain, faint and few, the ruins of long-ago structures lap up against boulders. Crumbling bunkers delved into crevices. Comm arrays, splayed out like silver haystalks, sifting for distant signals across the whale-wracked but empty aether. Landing pods crashed in vast dusts that blow and surface them engines and all.
+
+Atop a worn caldera, a vast star-kaleidoscope holds court. Hexagonal and colossal, a wheel of stone platforms orbit at the negatives of each other, sun-wheels and star-wheels creaking to their occult astrological choreograph. To the eye they appear not quite one nor three spectral-lit platforms, not quite a cable-braced latticework nor a Niven ring, not quite superposed nor one yet to be. They indent the sky with non-Euclidean angles and edges that defy the local physics and peck at the local constants.
+
+Flickering between them, wedged between the towers, a wrack of arcane Forerunner spill. Stuff that doesn't quite exist in the cardinal directions we know. Echoes that sound and catch on the ribs of the real. Craters fill with it and it spits and vibrates like walked-on netting. The spill impregnates and stains the stone and the dust and wages a quiet war for supremacy over the fractures in the material world's rulebook. In its hugeness it tanks and turrets the groundwork for a local soft-flux of physical rules, a dance of ten thousand science-physics we know still shrouded in mist.
+
+This is a place at war with its inheritance, thriving off its own disinheritance, where the local laws of nature are trafficked like a capital fluid. A place that wants only to keep yet another day of loose floridity, keep yet another cell of its cosmosickness bated beyond collapse.

@@ -1,0 +1,36 @@
+It’s a place you don’t find by walking toward it. You find it by being warm enough, deep enough, and unlucky enough to step where a crust has only recently finished pretending it’s solid.
+
+Below the surface—barely below, in the sense that a hard stomp somewhere overhead might change the ceiling—there’s a pocket in the rock the size of a small room, or a cistern, or the hollow behind a tooth. The cavity is young. Not rounded by long patient seepage, not softened into familiar cave shapes. The edges are still deciding what “edge” means: broken planes, razor seams, sudden facets where a fracture ran and stopped. The walls read like a fresh cut through layered confection, except the layers are mineral histories—thin films of pale silica, dark bands of iron, a chalky vein of something that looks like salt but doesn’t behave like table salt when it gets wet.
+
+The first surprise is the brightness.
+
+There’s no sun down here, no opening, no skylight—yet the chamber is lit as if someone has installed a work lamp behind every stone. The light is hard and clean, throwing crisp shadows. It comes from the rock itself: veins that shine with a steady, mineral-white glare, and plates that flare brighter when they are under stress. Where the ceiling’s weight shifts by a fraction—where cooling makes the stone contract, where heat makes it expand—thin seams brighten, then settle, like a slow pulse. It isn’t mystical; it’s the plain consequence of what these crystals are. Their lattice responds to pressure and temperature the way a screen responds to electricity. Here, geology has an optoelectronic vocabulary.
+
+The air is hot, and not politely hot. It has the thickness of a laundry room full of steam, except the steam carries a metallic tang and a faint sharpness that pinches at the back of the throat. Heat rises off the floor in sheets you can see: shimmering distortions that make the bright seams in the wall wobble like lines drawn on water. The temperature isn’t constant either. It cycles in shallow waves—minutes of heavier heat, minutes of slight relief—as vents open and close somewhere in the stone, not by hinges but by the slow breathing of pressure.
+
+Water is everywhere, but you wouldn’t call it a pool. It’s a *presence*.
+
+Moisture beads instantly on any surface that cools even slightly, and vanishes from any surface that warms. The chamber is an argument between condensation and evaporation. On the lower wall, a film of water forms a slick sheen; on the upper wall it breaks into trembling droplets that gather, hesitate, and fall. The floor is a skin of wet mineral mud, thin enough that the ridges of rock show through like knuckles under fabric. In places, the water is trapped in shallow basins—depressions formed by the most recent fractures—and there it simmers, not boiling in a rolling way but trembling, sending up tight strings of bubbles that pop without sound.
+
+Most of what you hear is not *noise* but minute mechanical behavior: the soft tick of cooling rock, a far-off hiss when a steam pocket exhales through a crack, the occasional deliberate plink of a droplet hitting a plate that resonates faintly. Quiet dominates, and then a single drip becomes an event.
+
+The chamber is sparse. There is space between notable things. No stalactite forest, no crowded formations. Instead: one bright vein like a lightning bolt frozen in stone; one shallow basin of warm water; one shelf where the wall steps inward and supports a crust of crystals as thin as ice. The emptiness feels intentional, but it isn’t built. It’s simply early days. Erosion hasn’t had time to decorate.
+
+Vegetation is absent in the way it would be absent on fresh glass: nothing rooted, nothing leafy, no soft green assertion. If there is life at all, it hides at the edge of definition. Along a few waterlines you can see a dull, almost oily iridescence—thin films that could be mineral precipitation, could be microbial mats, could be something that sits between chemistry and biology without needing leaves or sunlight. They don’t wave or grow visibly. They just persist where the water and heat make the right compromise.
+
+Fauna is rarer still. Now and then, something pale and small will traverse the wet wall—a bead-sized creature with too many legs to count easily, moving with the unhurried certainty of something that has never met a predator. It pauses where the rock glows brighter, as if taking warmth or charge from it, then continues. If you watch long enough you might see a larger shadow at the edge of the basin: a slender, translucent wormlike form that spends most of its time half-buried in the warm mud, emerging only when a fresh trickle of mineral-rich water arrives. Nothing here is abundant. Nothing here needs to be.
+
+What makes the place feel “high-tech” is not any sign of construction but the way the materials behave like devices.
+
+Some surfaces are selectively wet: water sheets across one patch of wall and beads off the next as if the stone has been coated—yet no hand has coated it. The mineral lattice itself presents different faces, different affinities, like a naturally grown metamaterial. Thin crystalline plates act as filters: where steam rises, it condenses preferentially along certain edges, delivering droplets into the basin with the reliability of plumbing, except the plumbing is a pattern of microscopic grooves grown during cooling. A crack in the wall does something stranger still: it emits a faint, constant electric field you can sense as a prickling on damp skin, generated by the same piezoelectric stresses that make the walls glow. The chamber “runs” on its own gradients—heat to cool, wet to dry, pressure to release—cycling energy the way a machine would, without ever having been assembled.
+
+The rules of the world here are the rules of gradients made visible:
+
+- **Stress makes light.** The brightest seams are the newest fractures, still carrying tension. If the stone relaxes, they dim.
+- **Heat governs water, and water redraws the chamber.** A trickle can appear, vanish, reappear elsewhere, because the rock’s temperature map shifts constantly.
+- **Surfaces have opinions.** Mineral faces determine whether water spreads, whether films hold, whether ions precipitate. Chemistry is architecture.
+- **Time is short, but busy.** This cavity is actively becoming itself—cracking, sealing, rerouting its moisture—yet it hasn’t existed long enough to grow ornate.
+
+Stand in the center and the chamber feels like a bright, hot lung in the body of the earth: clean-lined, recently formed, breathing in steam and exhaling it into droplets. Every few minutes there’s a subtle change—a seam brightens as the ceiling settles; a new thread of water finds a path; the basin’s surface trembles as gas releases. It’s mostly quiet because nothing is large enough to be loud. The activity is intimate, close-range, the kind you notice only when you stop expecting drama.
+
+And if you stay long enough to learn its rhythm, you begin to see that this pocket isn’t merely a cavity. It’s a small engine of stone and water—newborn, spare, bright—testing what it can do with heat and pressure, and doing it without any help from leaves, sun, or hands.

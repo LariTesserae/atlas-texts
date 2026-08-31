@@ -1,0 +1,15 @@
+The air here is a heavy, silvered velvet, saturated to the point of collapse. This is the Basin of the Wringing Stones, a low-slung, cramped sinkhole of a place that feels less like a geography and more like the inside of a living lung.
+
+Everything is damp. The rock faces—sharp, slate-grey, and freshly cleaved as if by a titan’s chisel—weep constantly. Water does not run here in streams; it beads. It pearls along the undersides of overhanging ledges, swelling into gargantuan, shimmering spheres before detaching with a rhythmic, wet *thwack* against the floor. 
+
+The "city" is a claustrophobic tangle, a testament to efficiency in a land that refuses to grow. There is no soil to speak of, only verticality. The inhabitants—if they can be called that—have built their homes into the fissures of the weeping rocks. These structures are made of lashed reeds and calcified mud, jammed into the narrowest gaps with a density that leaves no public space, no streets, only tunnels and stilted walkways. It is a hamlet of stacked boxes, each one shivering with the vibration of the dripping water.
+
+Because the ground is essentially a thin, shivering membrane of wet silt, nothing grows tall. What vegetation exists is pale and stunted: translucent, moss-like ribbons that cling to the rock faces, drinking the humidity directly from the air. They look like veins mapped onto the basin’s skin, pulse-less and cold.
+
+Life is rare, but hyper-focused. You might see a Pale Crawler—a spindly, translucent crustacean the size of a human hand—scuttling across the wet stone. They follow the beads of water, consuming the minerals left behind in the condensation. They move with a clicking, frantic economy, their motion governed by the sudden, heavy thuds of falling drops.
+
+The technology is of the hands: braided fiber cordage, shards of flint bound to driftwood handles, and clay pots that act as bells. When the atmospheric pressure shifts—a common occurrence here—the inhabitants strike their clay vessels to harmonize with the dripping rhythm of the caves. It is a primitive, functional music meant to warn of rising water levels.
+
+The scale of the basin is jarring. It feels like the interior of a great, jagged bell. The boundaries are absolute; the walls climb steeply, slick and unclimbable, sealing the residents into this saturated pit. To live here is to be part of a constant, mechanical cycle of condensation, collection, and dripping. There is no room to stand straight, no moment of true silence, and no dry place to store a memory. 
+
+In the center of the hamlet, a communal basin has been carved from a single, sharp shard of obsidian. It catches the runoff from the weeping walls. It is the heart of the settlement, a pooling, dark mirror that never stays still, rippled constantly by the downspout of the stones above. If you look into it, you do not see the sky; you only see the reflection of the weeping walls, distorted and swaying, as if the city itself were drowning in its own cool, relentless breath.

@@ -1,0 +1,15 @@
+A hanging terrace of dark glass curves out from the mountainside, its surface beaded with perpetual moisture. The air here is thick and hot, carrying the weight of altitude and the strange chemistry of the place. Water doesn't fall but rather creeps upward, defying gravity in thin ribbons that trace crystalline patterns across the glassy ground before collecting in hovering pools that drift like lazy jellyfish through the humid air.
+
+The space feels like a contained infinity - perhaps only a few hundred meters across, but with boundaries that seem to fold in on themselves in ways that make distance unreliable. Scattered across the terrace, clusters of iridescent vegetation push through fissures in the glass: spiral-stemmed ferns that slowly rotate to track unseen currents, and bulbous purple flowers that occasionally exchange brief pulses of bioluminescence.
+
+The mountain face behind is studded with small structures that might be buildings or might be machines - geometric forms in weathered copper and pearl-white ceramic, connected by threads of light that pulse irregularly. Some leak steam from hairline seams, contributing to the perpetual haze. Their purposes are unclear, but they seem to be maintaining something - perhaps the very physics of this peculiar pocket of space.
+
+The heat is intense but somehow not oppressive, as if the air itself is mediating the temperature, creating micro-zones of relative comfort. Occasionally, a sound like distant wind chimes echoes through the space, though there's no clear source and no wind to speak of. The only consistent sound is the subtle trickle of the ascending water.
+
+Small creatures, like translucent crabs made of living crystal, emerge occasionally from cracks in the glass to tend to the plants or adjust the position of small geometric objects scattered across the terrace. They move with purpose but vanish quickly, as if embarrassed to be seen.
+
+The light here has an odd quality - bright enough to see clearly, but seeming to come from everywhere and nowhere at once. It refracts through the floating pools of water, casting shifting patterns that don't quite match the movement of the water itself. Sometimes these patterns align into what look like complex equations before dissolving again into abstract ripples.
+
+The whole space feels like a garden designed by physicists from another universe, maintaining itself through processes that seem to blur the line between technology and natural law. There's a sense that this is just one small chamber in a vast complex of similar spaces, each perhaps operating under its own unique rules of reality.
+
+Near the edge of the terrace (though "edge" might not be the right word for how the space ends), a single chair made of the same dark glass as the floor sits empty, beaded with upward-flowing moisture, waiting perhaps for an observer who never arrives.

@@ -1,0 +1,15 @@
+The air is thick, a humid warmth pressing in on all sides. It smells of resin and something akin to burnt sugar. There is no horizon, no sky, only the press of a massive, living architecture. Every surface, every volume, is defined by plant. Not just plants, but a singularity of plant-life, a single organism sprawling across unfathomable space.
+
+The ground is a shifting latticework of glowing, fibrous roots, a deep, earthen red. It heaves and pulses, alive with the ceaseless activity of creation. This is not the floor of a cavern, the roof of a tunnel, or even the walls of a valley. These concepts don’t apply. There is only the living, mutable substance, the raw genesis of a world. Below, the red veins give way to an echoing emptiness, a void of unknown depth.
+
+Everywhere, shapes bloom and dissolve. Bulbous pods erupt, bursting open to spill forth flurries of iridescent spores. Tendrils, thick as pythons, writhe and coil, reaching for… something. The forms are unclassifiable, belonging to no earthly genus or familial group. Some resemble colossal, floating flowers, their petals sheets of chitinous material. Others are like vast, inverted fungi, their undersides a riot of pulsating color.
+
+Water, in the conventional sense, is absent. But the life-stuff sweats, exudes, and drips a viscous fluid, a sap that coats every surface in a shimmering, amber glaze. This isn’t a desert. It’s a plant-ocean.
+
+The fauna! It *roars*. The noise is deafening, a cacophony of shrieks, chirps, and guttural groans that blends into a single, overwhelming pulse. Invisible creatures burrow and swarm within the plant, their movements creating echoing booms that shake the very ground. The air itself seems to *hiss* with their presence. These beasts are rarely seen and even less often understood, the product of some improbable alchemy of plant and hunger. They are everything and nowhere, always and never. The most common sight is fleeting glimpses of gleaming chitin, or eyes — enormous, multifaceted, and staring — in the plant-stuff’s interior.
+
+Scattered amidst the writhing biomass, there are… structures. Primitive, fragile things. The hand of something alien, or perhaps the remnants of something *older*. Small, crudely fashioned huts, built from woven plant-fiber and bone, precariously perched on the edges of the shifting landscape. They are crumbling, half-swallowed by the relentless growth, yet they also *influence* it, the life-stuff of the plants contorting itself around the shapes of the structures, as though by necessity.
+
+The light is normal, but the light sources are not. There are no suns or moons. Instead, great shimmering lanterns pulsate within the plant matter, casting an ethereal, shifting glow. The source of the light is unknown, linked to the deeper mysteries of the ecosystem. 
+
+This place is under construction. It feels like the universe itself is still learning how to exist here. The rules are fluid. To touch is to become part of the plant, losing all sense of self. To breathe too deep is to ingest the essence of chaos. To forget, however, is the only real death.

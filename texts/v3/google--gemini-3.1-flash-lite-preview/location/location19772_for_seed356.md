@@ -1,0 +1,15 @@
+This is the Latent Engine, a continent-sized biomass that functions as a factory without a maker, a geological lung perpetually inhaling the dark. 
+
+It is a world of total vegetation, but not of leaves and chlorophyll. Here, the "plants" are basalt-fibered, obsidian-sapped structures that grow not toward the sun, but toward a subterranean thermal hum. The landscape is a sprawling, endless tangle of articulated vascular stalks, thick as skyscrapers, weaving together into a dense, interlocking carpet that serves as both the ground and the industry. There is no soil; the bedrock has been entirely replaced by the calcified roots of previous, archaic iterations of this growth.
+
+Because the scale is continental and the vegetation acts as a substrate, there is no horizon here—only the curve of the moss-black canopy and the gargantuan, dormant trunks that stretch into the lightless void above. 
+
+The environment is perpetually wet. A thick, lukewarm humidity clings to everything, condensing into heavy, iridescent beads of oil-rich moisture that slide down the stalks. It does not rain in the traditional sense; rather, the atmosphere itself occasionally collapses into liquid, coating the forest floor in a thin, shimmering film of dark condensate. Everything is perpetually slick, weeping a viscous, black sap that smells of ozone and oxidized copper.
+
+Despite the "industrial" nature of this place, there is no combustion, no grinding metal, and no frantic movement. The technology is internal and ancient. Within the transparent, vein-like conduits that run through the undergrowth, one can see high-pressure fluids pulsing with a faint, rhythmic, phosphorescent glow—a biological, pressurized hydraulic grid. These conduits serve as the planet’s circulatory system. They do not click or whir; they radiate a low-frequency, subsonic thrum that vibrates through the soles of one's feet, a constant, unchanging pulse that suggests this factory has been producing nothing for a billion years.
+
+There is absolute silence, save for the occasional, inevitable "drip" of condensed liquid hitting a hollow stem, creating a sound like a muted bell. 
+
+The landscape is frozen in a state of perfect, morbid equilibrium. Nothing grows toward an end; there is no senescence, no rot, no predation. There is no animal life—no breath, no heartbeat, no struggle. Evolution has bypassed the stage of the mobile creature entirely, choosing instead to build a continent that functions as a single, static machine. 
+
+The light is a flat, stifling 0.1—an absolute absence of sun. The darkness is so thick it feels textural, broken only by the cold, cyan luminescence of the veins deep beneath the translucent skin of the floor. You are standing on the surface of a biological circuit board that spans millions of square miles, yet not a single toggle has been flipped, and not a single light has turned on. It is a vast, glistening, silent machine of flesh and sap, waiting for an input signal that, in the history of this place, has never been sent.

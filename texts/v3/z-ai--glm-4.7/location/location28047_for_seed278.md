@@ -1,0 +1,23 @@
+The silence here is not an absence; it is a medium. It is a heavy, cold blanket that sits over the landscape, muting the world.
+
+You stand on a vast, high-altitude plateau that stretches until the curvature of the planet becomes visible in the distance. The scale is dizzying—continental, perhaps planetary. There are no borders, no fences, just an endless expanse of grey-brown earth reaching up to meet a low, slate-colored sky. The light is dim, a perpetual twilight that seems to emanate from the rocks themselves rather than a sun, casting long, soft shadows that never quite sharpen.
+
+The air is biting—a cold that seeps through clothing and skin instantly (Temperature: 0.2). It is a sterile, dry chill, but the environment is paradoxically damp (Water: 1.0). Moisture doesn't come from rain; it sweats out of the ground. A fine, slick condensation coats everything, beading on the stone surfaces like cold sweat on metal. In the low hollows and depressions of the terrain, pockets of still, black water gather, reflecting the dim sky with perfect, oily stillness. The ground feels wet, slick, and strangely conductive.
+
+The terrain is ancient and settled (Erosion: 2.5). There are no jagged peaks, no violent ruptures. The world has been worn smooth by unimaginable ages. The stone is rounded, rolling into hills that look like the sleeping bodies of giants. But the stone is strange. It is stratified in perfect, horizontal layers that look uncannily like industrial cladding—vast sheets of rusted iron and basalt stacked with geometric precision. Here and there, the wind has peeled back a layer, revealing a core that hums with a faint, almost imperceptible vibration (Tech: 2.0). It is not technology in the sense of machines or cities; it is a geological industrialization. The earth itself seems to generate a low-voltage current. The air tastes faintly of ozone and static electricity.
+
+Vegetation is nearly nonexistent (Vegetation: 0.9). There are no trees, no grass, no green. The only life that clings to the rock is a sparse, crustose lichen—dull oranges and faded greases—that grows in the fissures of the metal-stone. It looks less like biology and more like rust or corrosion, a slow decay of the mineral world. The density of the landscape is incredibly low (Density: 1.0); there is simply nothing there but the rolling hills and the immense, crushing emptiness between them.
+
+And yet, this emptiness is an illusion.
+
+As your eyes adjust to the dim light, you realize the "rocks" are moving. This is the truth of the ecology (Fauna: 2.6). The landscape is overwhelmingly alive, but the life here follows a different tempo. The fauna are massive, lithovoric creatures that have evolved to look exactly like the boulders and hills they rest upon. They are the dominant feature of the plains, outnumbering the actual stones ten to one.
+
+They are gargantuan, segmented things, silent as the grave. They possess no eyes that you can see, no mouths that move. They graze on the mineral-rich earth, absorbing the trace metals and the faint electromagnetic charge of the planet. Because their metabolism is powered by the planet's cold geology rather than the sun, they move with a glacial, tectonic slowness (Dynamic: 1.4). A movement of a "leg"—a massive, hydraulic pillar of chitin and stone—might take a decade to complete.
+
+To stand here is to witness a process so slow it registers as stillness. You might watch a hill for an hour, thinking it is earth, only to realize the slope is shifting as a massive creature heaves its bulk a fraction of an inch to the north. There are millions of them. The horizon is not lined with mountains, but with the backs of sleeping, grazing titans. The ground trembles, not with earthquakes, but with the collective, sub-audible shifting of this living geology.
+
+The silence (Sound: 0.0) is profound. There is no wind, no chirping, no roar. There is only the feeling of pressure—the weight of their presence. The only sound is the occasional, distant *groan* of expansion and contraction, a sound so deep it vibrates in your teeth rather than your ears. It sounds like the hull of a dying ship settling into the deep.
+
+It is a world of biological machinery (Weirdness: 1.1). It feels haunted, though there are no ghosts—only the ancient, slow-moving forms of life that have stripped away the unnecessary noise of existence. There is no conflict here, no predation, only the endless, quiet consumption of the earth itself.
+
+It is a factory without workers, a machine without an operator, a silent, cold engine of life grinding slowly through the eons. It is beautiful, in the way that a rusted, abandoned cog is beautiful—perfect, purposeless, and entirely still.

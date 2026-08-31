@@ -1,0 +1,39 @@
+# The High Moss
+
+It sits at an altitude where rain forgets the difference between falling and rising, where the air itself has gone semi-solid with moisture, and where something has been growing for so long that growing has become a form of geology.
+
+## Terrain
+
+This is a high plateau, eroded down past the memory of mountains — whatever peaks once stood here were worn to their roots ten thousand thousand years ago, and what remains is a vast rolling swell of land, open to a horizon that goes soft and grey with distance. But the plateau is not bare rock. It is wearing something. Across the whole visible extent — kilometers of it, valley-sized, town-sized, larger — the stone has been overgrown so completely and for so long that the vegetation has become the topography. Hummocks of moss the size of houses. Lichen-crusted swells that read as hills but are, underneath, only knee-deep rubble cradled in centuries of root-felt. You do not walk on ground here. You walk on top of the ground's memory, several meters of living and dead plant matter compressed into something with the give of a mattress and the permanence of bedrock.
+
+Water sits everywhere just beneath this surface — you feel it before you see it, a coldness rising through your boots, a suction at each footstep. Pools appear without warning in the folds of the moss-hills, black-mirrored, bottomless-looking, fed by springs that have never stopped and never will. Genuine streams are rare; instead the whole plateau seeps, sweats, weeps. Walk far enough in any direction and you'll find a place where the ground simply stops holding you and becomes marsh, the moss giving way to standing water stitched with reeds taller than a person, growing in such density that crossing them is like swimming through a green throat.
+
+## Vegetation as substrate
+
+There is no bare ground anywhere. None. This is the central fact of the place. Every rock is a plant pedestal. Every slope is a vertical garden grown horizontal. The mosses come in at least a dozen visible kinds, layered like geological strata — a deep maroon species at the bottom, drinking the standing water; and above it, climbing toward what little light penetrates, paler lichens, then ferns the size of small trees, their fronds unfurling in slow motion you can almost watch, then finally, at the high points, wind-stunted shrub-trees with bark like wet leather, growing sideways, growing in spirals, growing in shapes no calm climate would produce.
+
+Some of the larger hummocks are not hills at all but ancient downed trunks, fallen so long ago — centuries, longer — that they have become entirely reef-like, colonized inside and out, their wood gone soft as bread and supporting whole miniature ecosystems within their hollowed lengths. Cathedral logs. You can walk inside one for forty meters and never see the same fungus twice.
+
+## The wrongness
+
+But something here does not hold to the ordinary rules of growth, and this is what makes the place catch in the throat.
+
+In places the moss pulses — not metaphorically; an actual visible peristalsis moving through a hummock's surface, slow as a held breath let out over a minute, as if the hill beneath is something with a circulatory system and the plant is only its skin. Trees grow in loops, their trunks departing the ground, rising, curving back down to re-root meters away, forming arches that have no reason to exist by any wood's structural logic, as though gravity were a suggestion the tree only sometimes accepted. Light moves wrong through the canopy gaps — comes from the wrong angle relative to where the dim grey sky-glow actually sits, throws shadows that lean toward, not away from, their sources.
+
+And there is sound here that has no clean origin: a low continuous mechanical thrum underlying the organic noise, a bass throb like distant engines or a heartbeat scaled up to geological size, felt in the chest before it's heard in the ear. No one has found its source. There is no built thing on this plateau — no structure, no tool, no wall, nothing made by hand or machine — and yet the air carries this unmistakably industrial undertone, factory-deep, turbine-steady, as if the plateau itself were powered from within, some vast biological engine running beneath the moss with no exhaust, no visible works, only the sound and a faint warmth that rises in patches you can find by touch alone, circles of moss unnaturally warm in the pervasive cold.
+
+## Ecology
+
+Life is abundant here, almost recklessly so, but thinly spread across the enormous space — you might walk twenty minutes between encounters, but the encounters, when they come, come in force. Herds of something deer-shaped but wrong-jointed move through the fern-canopy in total silence despite their bulk, somehow never breaking a frond. Birds — if they're birds — travel in flocks that move with a single coordinated intelligence, banking in unison so fast it reads as a held shape flickering rather than motion, then gone. Insects the size of hands work the moss-flowers in such numbers that whole hummocks seem to shimmer, hum, breathe with their wings — that may, in fact, be the source of part of the throbbing bass sound, though it doesn't explain all of it.
+
+There are things glimpsed only at the edge of attention: a shape in a pool that resolves, briefly, into a face too large to belong to anything, then is only reflection again. Trails in the moss that look walked-down by something heavy and four-legged but terminate at a sheer rock face with no continuation, no cave, no explanation. Patches where the fauna goes silent all at once, for no visible cause, and stays silent for unnervingly long minutes before resuming exactly where it left off, as if the whole ecosystem had been paused and restarted by something outside it.
+
+## Light, weather, mood
+
+The light is dim throughout — not nighttime, but a permanent high-altitude overcast, sun strained through cloud and condensation until it arrives as a directionless grey-gold glow, brightest not at the sky but oddly pooled in certain clearings, as though the plateau hoards its light unevenly, some places stockpiling brightness while others, equally open to the sky, sit in unaccountable gloom.
+
+The weather is never still. This is not a place of seasons but of constant, fast-changing turbulence: fog rolls in across a hummock-field in under a minute and burns or thins away in two; rain starts without clouds visibly gathering and stops just as abruptly; the wind direction reverses three times in an hour, each time bringing a different smell — wet moss, cold mineral water, then suddenly something hot and ozone-sharp, like the air after a lightning strike, though no storm is in sight. The whole landscape feels mid-event, caught permanently in the act of becoming something else, even though by every geological measure it is the most settled, most ancient, most finished terrain imaginable — eroded to its final shape eons ago, and yet behaving as though still being written.
+
+## What it is, if it is anything
+
+No one built this place and no one maintains it, and yet it runs — runs like something engineered, idling at enormous scale, for purposes that have nothing to do with the deer-shaped things or the birds or the moss they all live in. The ancient flatness is real. The engine-thrum is real. The cold is real, the wet is real, the abundance of quiet animal life moving through kilometers of soft, living, listening ground is real. What connects them is not available to whoever walks here — only the strong, mounting suspicion, growing with every hour spent on the moss, every unexplained warm patch, every too-coordinated flock, every backward shadow, that the whole plateau is a single ancient organism's idea of stillness, and that stillness, at this scale and after this much time, looks indistinguishable from a slow, patient, planet-sized machine.

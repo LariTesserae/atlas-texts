@@ -1,0 +1,34 @@
+# The Weeping Catacombs of Khyzul
+
+## The Container
+You are not outside. You are inside a geologic wound—a cavern system so vast its ceiling is a lost twilight. The elevation score of 0.4 is not gentle hills, but the profound sense of being *subterranean*, buried under impossible weight of stone. The scale, however, is small: this is not a continent-sized cavern, but a specific, bounded basin within the network, a "room" perhaps five kilometers across, with a ceiling that climbs into invisible dark. The density of 0.2 makes sense here: the emptiness is the dominant feature. Vast, open floors of crystalline silt and polished stone stretch between the sparse, monumental presences.
+
+The light is dim (0.7), but not from absence. It is a sourceless, uniform grey-blue luminescence, as if the air itself is faintly alight. It bleaches colours to muted blues and greys, and makes shadows soft, perpetual things.
+
+## The Terrain & The Water
+The erosion score of 0.9—*young*—is violently apparent. The cavern is not a smoothed, ancient bubble. It is a fresh fracture. The floor is a jumble of gigantic, razor-edged stone plates, some the size of cathedrals, tilted at impossible angles, their edges still sharp enough to cut. Between them, the water score of 2.0 tells its story.
+
+It is not a river or a lake. It is *weeping*. From the ceiling, from the vertical faces of the stone plates, from every pore in the rock, a slow, constant seepage occurs. Not drops, but a persistent, glistening film that coalesces into silver threads and then falls in a silent, mist-drenched drizzle. The air is perpetually condensing, cold and wet against the skin, despite the warm temperature (1.7). Puddles form in the hollows of the stone plates, perfectly still, reflecting the sourceless light like liquid mercury. Some are deep, others shallow mirrors for the cavern's chaotic ceiling. The sound score of 1.5 is the sound of this: a trillion tiny, continuous *plinks* and *shushes* and the soft roar of unseen falls where water sheets down a plate-face.
+
+## The Built & The Weird
+The built score of 2.2 suggests a settlement, but in this emptiness, what does that mean? It is not a city of streets and crowds. It is an **urban ecology of structures**, each one an isolated, layered island of impossible engineering.
+
+They are not built *on* the stone; they are grown *into* it. One might be a series of concentric, helix-shaped towers spiraling up the side of a tilted stone plate, their surfaces a patchwork of matte black photovoltaic-like panels and translucent, vein-filled polymer. Another is a cluster of floating, geodesic spheres, tethered by glowing filaments to the cavern wall, humming with a sub-audible frequency. A third is a single, monolithic arch of a material that looks like solidified shadow, spanning a hundred meters between two plates, its interior filled with a slow, swirling vortex of silt and water.
+
+This is the tech of 2.8—*beyond modern*. It does not obey our physics. Some structures appear to be slowly *reconfiguring* themselves over hours, shifting by millimetres, their materials flowing like viscous liquid before resolidifying. Others are clearly still, but their purpose is obscure: lattices of glowing wire that hum in sympathetic resonance with the water's drip, or arches that bend light in little halos that dance in the damp air.
+
+The weirdness (0.6) is in the details. The silt on the floor is not all stone dust. In some basins, it is a fine, iridescent powder that shifts colour when still. The water in certain pools is viscous, like thin oil, and bubbles with tiny, silver spheres that rise and pop with a sound like a struck bell. The air tastes faintly of ozone and wet limestone, and sometimes, for a moment, of inexplicable cinnamon.
+
+## The Vegetation & The Silence of Life
+Fauna is 0.1—none. No insects, no fish in the pools, nothing with a heartbeat or a hunger. The lush vegetation (1.6) is therefore alien, passive, and deeply strange.
+
+It is not green. It is a palette of the dim light: pearlescesces of grey, deep indigos, and the violet-black of things that do not need the sun. Growths cling to the wet stone plates like lymphatic veins, pulsing gently with bioluminescence that matches the cavern's ambient glow. Others are delicate, crystalline forests of silica, trembling with the air currents from the weeping. There are great, rubbery planar "leaves" that unfurl from the rock faces overnight, absorbing moisture, only to retract and vanish come the next cycle. The ecology is active (1.5) but non-biological: a cycle of hydration, light-absorption (from the sourceless glow), and mineral accretion. Plants grow, shed, dissolve back into the rock, all in silent, wet synchronicity. The only "predator" might be the slow, patient dissolution of certain acidic mosses on weaker stones.
+
+## The Rules & The Feel
+The world operates on principles both geologic and metaphysical:
+1.  **The Stone Listens:** The young, sharp erosion is maintained. Cracks do not widen naturally; they are *re-cut* by some unseen process, keeping the edges brutally fresh. The cavern is being actively sculpted, albeit at a geological pace.
+2.  **Water is Memory:** The dripping is not random. The patterns of flow and pool formation follow algorithms. The silver spheres in the viscous pools are data-carriers, condensing from the mineral-rich water and then evaporating into the mist, carrying information about the stone's composition.
+3.  **Structures Sleep:** The reconfiguring buildings undergo "metamorphosis" in long, slow cycles. They are not machines, but organisms of a kind, digesting ambient energy (the light, the water, the latent heat) and reshaping themselves to perform… something. Maintenance? Computation? Ritual?
+4.  **The Hollow is Whole:** The emptiness (density 0.2) is not a lack; it is the primary condition. The buildings and plants are not a population but a sparse set of symptoms, manifestations of the cavern's own processes. To stand in the great open silt plain is to be in a cathedral sized for gods who never come. The sound is not of life, but of the planet's slow, wet breath, amplified and echoed by the silent, watching architecture.
+
+The atmosphere is one of profound, humid awe. It is warm but clammy. The air is thick with water vapour and the fine, metallic dust. The only movement is the ceaseless water, the slow pulse of bioluminescence, and the almost imperceptible sigh of a shifting tower. It is a place that is being born and maintained at once—a freshly fractured wound in the world, now being patiently, silently, and with terrifyingly advanced technology, turned into a temple, a machine, or a tomb. It is urban in its deliberate, layered construction, but emptier than any desert, holding its secrets in the dripping dark.

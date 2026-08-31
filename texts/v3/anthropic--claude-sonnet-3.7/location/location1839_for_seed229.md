@@ -1,0 +1,23 @@
+# The Bright Below
+
+You descend through a narrow crack in limestone bedrock, squeezing through passages where the cold air flows upward against your skin. The temperature drops steadily until your breath forms faint clouds that dissipate in the unexpected brightness ahead. 
+
+As the passage widens, you emerge onto a ledge overlooking an immense underground basin—a subterranean world illuminated not by sun but by an intricate system of polished copper mirrors and water-filled quartz channels that capture, split, and redirect the few sunbeams that penetrate through distant ceiling fissures. This ancient light-carrying system spreads daylight throughout the cavern with surprising intensity, creating pools of brightness that dance and shimmer as water droplets continuously disturb their surfaces.
+
+The basin stretches before you, perhaps three miles across—a scattered landscape of raised limestone islands rising from a shallow, crystal-clear lake that covers most of the cavern floor. The water is rarely more than knee-deep, its surface disturbed by countless tiny springs bubbling up from below, creating circular ripples that spread and intersect in complex patterns. The constant sound of water fills the space—dripping from stalactites, gurgling from springs, and occasionally rushing through hidden channels with unexpected force.
+
+The limestone islands rise in weathered, rounded forms, sculpted over millennia by the persistent action of water. Their surfaces show the patient artistry of water's erosion—smooth bowls, sharp ridges, and countless small channels that direct the condensation back toward the lake. Each island seems to have reached its final form, as though the forces that shaped it have achieved perfect balance.
+
+Vegetation thrives despite the depth—pale mosses carpet the islands in emerald velvet, interrupted by stands of translucent fungi that glow faintly with bioluminescence. Delicate ferns with elongated, almost colorless fronds unfurl from cracks in the limestone. In the center of the larger islands, strange plants with broad leaves grow in tight spirals, their surfaces angled to catch the redirected light. These plants bear small, bitter fruits that hang like drops of amber just above the water's surface.
+
+The sound is surprisingly loud for such a still place—water drops strike the lake in a continuous, arrhythmic percussion. The acoustics of the cavern amplify these sounds, creating a complex symphony that echoes from the distant walls. Occasionally, deeper tones emerge as water rushes through submerged passages, creating a bass note that you feel more than hear.
+
+Human settlements are evident but sparse. On some of the larger islands, simple structures of stacked limestone and woven vegetation form low dwellings. Some appear abandoned, reclaimed by moss; others show signs of occasional use. Small reed boats are pulled up on several islands, their hulls worn smooth by generations of hands. Narrow stone bridges connect some islands, their surfaces polished by countless footsteps over centuries.
+
+The technology visible is rudimentary but ingenious—fishing weirs made from woven reeds, water filtration systems of layered sand and charcoal, stone tools for harvesting the cave's resources. Most impressive is the light system itself—the product of generational knowledge rather than advanced technology, requiring constant small adjustments as the sun's position changes seasonally above.
+
+Wildlife is scarce but specialized. Pale, blind fish dart between the islands, sensitive to the slightest movement in the water. Translucent crustaceans cling to underwater limestone formations. Occasionally, a flock of small, white birds with oversized eyes swoops from one side of the cavern to another, their calls sharp and echoing. They nest in the highest reaches where the mirror system creates the brightest pools of light.
+
+The landscape's pace is glacial. Water rises and falls with the seasons above, sometimes exposing more of the islands, sometimes connecting them in new configurations. The plants grow slowly, adding perhaps an inch in a year. Even the sounds, though constant, follow patterns that repeat over days rather than minutes—a slow rhythm that marks time in a place where sunlight arrives but the sun is never seen.
+
+In the distance, at the edge of vision, a lone figure stands on a limestone outcropping, adjusting one of the copper mirrors with a long pole, sending a new beam of light across the cavern to strike a previously shadowed island. The light catches the spray from a spring, creating a momentary rainbow that stretches and fades as the water settles back into its eternal pattern of ripples.

@@ -1,0 +1,9 @@
+Tucked away in a shallow valley, a small abandoned factory complex sits amidst an oppressive wet heat. The pocket of land is wet and boggy, with water pooling on the ground and condensing from the humid air. A few reedy plants and scraggly bushes dot the scene, but vegetation is sparse, unable to gain much purchase in the waterlogged soil.
+
+The factory structures are squat and utilitarian, constructed of weathered concrete and corrugated metal now streaked with rust. Pipes and conduits snake between the buildings, some still dripping or weeping water from past rains. The roofs are flat, collecting shallow pools that shimmer in the harsh sun. A few shattered windows gape like missing teeth.
+
+Inside, old machines sit dormant, their metal surfaces slick with condensation in the sweltering heat. Catwalks cross overhead, thick with peeling paint. The air is thick and still, smelling of mineral-rich water, rust, grease and slow decay. Stagnant puddles on the cracked concrete floor reflect the grimy skylights above.  
+
+Strange mechanical sounds echo through the structures at odd intervals - groaning metal, hissing steam, the whir and click of gears shuddering to life and falling still again. The noises reverberate off the close walls, seeming to come from everywhere and nowhere. No people or animals are present, yet the sounds continue, sourceless and eerie in the absence of visible motion.
+
+Despite the decay, there's a sense that the factory hasn't been abandoned long. The erosion and patina of age is still fresh, more a product of the incessant damp than the passage of years. Odd details hint at unusual past industrial purposes - strange protrusions of piping, asymmetric chambers, remnants of arcane equipment. Questions hang in the humid air, but the buildings keep their secrets behind streaked walls and rusting doors.

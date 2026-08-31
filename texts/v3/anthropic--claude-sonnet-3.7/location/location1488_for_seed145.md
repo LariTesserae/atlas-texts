@@ -1,0 +1,19 @@
+# The Forge-Dark
+
+In the lightless expanse of the Forge-Dark, there is a sensation of immensity without horizon. The ground—if it can be called that—is a dense lattice of obsidian-like mineral that extends in all directions, its surface worn smooth by eons of heat rather than water. No stars pierce the ceiling of this realm; the darkness is absolute save for what illumination comes from below.
+
+The heat is omnipresent and oppressive. Not the dry heat of a desert, but something more fundamental—as if you walk upon the cooling crust of creation itself. The mineral floor radiates temperatures that would scorch flesh, yet maintains a strange equilibrium, never cooling, never increasing. This is a place that reached its thermal zenith long ago and remains locked there, a perfect thermal fossil.
+
+Scattered across the expanse are forests of metallic growths—not quite plants, not quite crystals—that thrust upward from the obsidian substrate. These sparse formations cluster in geometric patterns, their structures reminiscent of circuit boards when viewed from above. They absorb the heat from below, conducting it upward through hollow stems that occasionally release soft, whispering exhalations of superheated gas. These sighs are among the few sounds that break the profound silence of the Forge-Dark.
+
+Between these metallic groves, great machines squat in the darkness. Their forms are difficult to discern completely—massive industrial complexes with no apparent entrances, no windows, no conventional industrial markings. They hum with contained power, their surfaces rippling with what might be heat distortion or something more fundamental to their existence. These are not ruins or abandoned structures, but fully operational systems that appear to have been functioning since time immemorial, requiring no maintenance, no oversight.
+
+The density of these machines increases in certain regions, creating industrial forests where their hulking forms nearly touch, layered in three-dimensional space like a metropolitan skyline rendered in negative space—defined by the heat they generate rather than by light they reflect. The machines extract something from the mineral substrate, process it through incomprehensible mechanisms, and return modified substances to the ground where they are reabsorbed into the lattice.
+
+Occasionally, something moves between the machines. Not animals as we understand them, but autonomous fragments of the same technology that powers the industrial complexes—maintenance drones perhaps, or byproducts of whatever process unfolds eternally in this place. They emit no sound as they pass, leaving only brief thermal imprints in their wake.
+
+The air—if it is air—is dense with suspended particles that neither rise nor fall. They hang in perfect stasis, occasionally glinting with reflected heat-light when passing near one of the few places where the machines' inner workings are momentarily visible through seams or vents. These particles make the atmosphere feel substantial, as if one moves through something more viscous than gas but less tangible than liquid.
+
+This place is defined by its contradictions: industrial yet untouched by human hands, dense with structure yet vast in its reach, dynamic in its processes yet unchanging in its state. The Forge-Dark exists in perfect equilibrium, a system that reached optimization countless ages ago and will continue its inscrutable function long after anything recognizable as life has passed from existence.
+
+In all this darkness and heat and industrial permanence, there is a strange beauty—the beauty of perfect function, of processes so fundamental they might be mistaken for natural law rather than manufacture.

@@ -1,0 +1,57 @@
+The high country begins above the clouds, though no one can say precisely where the ground begins.
+
+From below it appears to be a black continental shelf suspended against the stars: an immense, uneven mass of vegetation lifted on trunks so tall and widely spaced that entire weather systems move beneath the canopy. The shelf is not rock with plants growing upon it. It is plant all the way through—root, pith, frozen sap, bark, and interlocked fibers—an alpine forest that has grown sideways until its crowns fused into a single land.
+
+Its upper surface stretches for thousands of kilometers. It buckles into ridges and steep green-black plateaus, rises in fresh splintered summits, and opens suddenly into chasms where the woven vegetation has torn apart. The country is young. Its edges are still sharp. Broken stems stand like snapped spars along the escarpments, pale wood exposed beneath skins of charcoal bark. New ravines split open in a night. Whole districts tilt as the supporting trunks bend, and the map must be remembered as a living thing rather than drawn as fixed terrain.
+
+There is almost no ordinary soil. What seems underfoot to be earth is compressed leaf felt: centuries of black needles, shed scales, pollen husks, and fibrous dust packed into cold mats over the load-bearing boughs. In places it is only a hand’s breadth deep. Beneath it lies springy wood; beneath that, a hollow depth without visible bottom.
+
+The vegetation fills nearly every surface and constitutes nearly every surface, yet the place feels profoundly empty. Growth is immense but widely separated. A single trunk may be broader than a village and stand fifty kilometers from the next, with nothing between them but freezing air. Their branches meet far overhead, making the upper country, while their root curtains trail down into darkness. Seen from the side, the world resembles a sparse colonnade carrying a roof too large to comprehend.
+
+On the heights, the dominant plants crouch against the cold. There are forests whose “trees” are low ridges of braided stems, each ridge several kilometers long. Their leaves are black, narrow, and glassy, angled to catch the faintest heat. Fields of fur-moss cover north-facing slopes, every filament hollow and silver-tipped. Cushion groves inflate during the brief damp hours, becoming round, tense hummocks, then collapse into leathery plates when the air dries. Along exposed crests grow blade-ferns rigid enough to cut hide. They turn edge-on to the prevailing wind and produce a constant metallic shrilling, though they contain no metal.
+
+Light is scarce. A small, remote sun skirts the horizon for part of the year, giving not daylight but a deep indigo dilution of the dark. Most illumination comes from the vegetation itself. Sap moves through translucent veins with a dim blue-green gleam, so that the main boughs can be traced beneath the surface like rivers under ice. Spore towers pulse dull amber before releasing their clouds. Fresh wounds in the land shine milky white until the exposed tissues seal.
+
+These lights do not reveal the scale of the plateau. They make it harder to judge. A luminous seam that appears close enough to touch may be a day’s walk away; a warm-looking patch may be a grove larger than a mountain range.
+
+Water arrives intermittently and seldom remains where it falls. Moist air rises from the unseen lower world and condenses against the cold underside of the living shelf. Droplets gather there in vast numbers, hanging from root hairs and branch ribs until their combined weight becomes intolerable. Then the underside rains downward into the abyss.
+
+Above, weather is local and abrupt. Thin storms condense around the tallest growths. Needles frost over. Fine snow blows horizontally through passes, but there is rarely enough moisture to bury the land. The plants harvest nearly all of it. Leaves cup mist; bark opens microscopic channels; moss fields darken as they drink. Water runs briefly through grooves in the canopy, filling oval cisterns formed by folded leaves. These ponds may last a week or a season. Around them the ecosystem becomes feverishly crowded.
+
+A traveler can cross a hundred kilometers of dry, creaking plant-stone and then come upon a basin alive with dripping. The water is tea-dark and skin-cold. Pale roots writhe slowly within it, taking turns at the surface. Mats of tiny floating leaves knit themselves across the pond at night and withdraw by morning. At the basin’s edge, thirsty animals gather in such numbers that the whole bank seems to shiver.
+
+There are animals everywhere, although the vastness often hides them.
+
+Most are climbers, gliders, borers, or things light enough to entrust themselves to the wind. Six-legged woolbacks migrate along the great boughs, grazing the fur-moss in broad moving fronts. Their coats are thick with seeds that sprout during migration and are rubbed off at favored resting sites. Long-bodied canopy runners hunt them from within the leaf felt, sensing footfalls through the wood. They seldom show more than a row of pale eyes and the ripple of a submerged spine.
+
+The open chasms belong to gliding fauna. Membrane-finned creatures launch from broken escarpments and may remain aloft for days in the updrafts. Some are no larger than fingers. Others cast shadows like islands when the weak horizon glow catches them. They do not flap often; the air is too thin and their bodies too broad. Instead they alter the tension of their wing membranes, making deep drumbeats that roll beneath the canopy.
+
+Colonies of heat-beetles live in the warm cores of major trunks. At intervals they emerge through vents in the bark in incandescent swarms, mate in the cold air, and fall dead in drifts. Small predators wait for these events. So do the plateau’s people.
+
+The loudness of the country is its most immediate surprise. Darkness suggests silence, but the living shelf is never still enough to be quiet.
+
+Wind roars through the gaps between supporting trunks. Blade-ferns whistle on the ridges. Tightened root cables hum at pitches too low to hear cleanly, felt instead in the ribs and teeth. The land groans as it grows. Sap chambers knock deep below the walking surface. Seedpods burst like distant axes. Herds set the branch-country booming under their migration, and unseen animals call across tens of kilometers because anything softer would be lost.
+
+Several times each day—or what passes for a day—the canopy adjusts its weight. One region contracts while another drinks or warms. This produces a sequence of enormous reports: a crack like close thunder, a descending wooden roar, then long aftershocks traveling through the interlocked boughs. Animals stop when the first crack sounds. Some flatten themselves. Some leap immediately into open air. The experienced traveler does not wait to see which response was correct.
+
+The plateau is still forming. New land grows at its margins, where exploratory branches extend into empty sky. They begin as red, flexible spars covered with heat-producing down. They braid together when they meet, thicken, and gradually carry moss, groves, ponds, and animals outward. At the same time, old districts sometimes detach. A fracture may open as a narrow white line, widen through a season, and finally release a territory the size of a province. It falls slowly at first, trailing root fibers and clouds of spores, then disappears beneath the cloud deck.
+
+This is the nearest thing the place has to erosion. Wind and frost do gnaw at exposed surfaces, but they cannot keep pace with growth and rupture. Features are not rounded by age; they are replaced. Cliffs are torn fibers. Valleys are seams between converging branches. Peaks are growth knots forced upward by internal pressure. Even the oldest-looking terrain may have been born within a few generations.
+
+Scattered across the heights are human shelters, though humanity has made only faint marks here. No settlement is visible from another. A dwelling is usually cut into the dead outer bark of a thick branch or built in the lee of a blade-fern grove from woven stalks, hide, and slabs of naturally shed wood. Stone is nearly unknown. Metal is rare enough to be named and inherited; a small iron hook may be the principal wealth of a lineage.
+
+Most tools are grown, found, or knapped from plant materials. Blade-fern edges become knives. Resin hardened in the cold serves as a brittle glass. Hollow thorns are awls, needles, and arrowheads. Cord is everywhere, but good cord is a craft: root fibers must be taken without provoking the parent growth to tighten or recoil. Fire is dangerous on a world made almost entirely of fuel, so it is kept in sealed claylike nodules formed from chewed pith and mineral-rich dung. More often, people use domesticated heat-beetles, carrying them in perforated bone cages beneath their clothing.
+
+Their paths are not roads but agreements with the land. Small cuts marked with bitter resin indicate a safe branch. Three cords tied around a stem warn that the stem is under tension. A row of white seed shells means that water was found nearby, though the pond may already have closed or migrated. Bridges are woven from living shoots and must be sung or drummed to before crossing, not as ceremony alone: a healthy bridge answers with a clear, taut note. A rotten one answers dully. A frightened one tightens.
+
+Nothing here is entirely passive. Leaves fold away from an unfamiliar touch. Trails heal. Shelter walls thicken if fed waste and warm water. A branch repeatedly burdened in one place may strengthen beneath the load, or it may decide—slowly, chemically, without thought in any familiar sense—to shed the irritation. Thus the central rule of travel is never to become too heavy for too long.
+
+A camp moves. A village migrates around its own branch. Bodies are not buried, because there is no ground deep enough and because decay attracts borers that might enter the supporting wood. The dead are wrapped in seedcloth and hung below the canopy, where gliders and cold-adapted scavengers return them to the open air.
+
+In the longest dark, the plateau becomes most active. The cold hardens its exposed skin, but beneath that skin sugars begin to move toward the growing margins. Blue saplight brightens in the ravines. Herds descend into warmer bark fissures. Predators follow. Spore towers release their clouds, and for a few hours the empty air fills with luminous dust. Each particle flashes when struck by windblown ice, so entire valleys appear crowded with stars.
+
+Then the upper weather turns. The clouds below rise in great slow billows around the supporting trunks. Condensation drums on the underside of the world. Root curtains drink. Somewhere beyond sight a new branch makes contact with another, and the impact passes through the plateau as a deep, rolling concussion.
+
+Ponds tremble. Blade-fern ranges begin to scream in the wind. Tens of thousands of gliders launch together from the dark cliffs, their wings beating once, twice, then opening into silence between the greater sounds.
+
+For a moment the high country seems less like a landscape than a single vast creature: cold-backed, hollow-boned, drinking from clouds beneath itself, continually growing over the void. Then the impression passes. The dark returns to depthless dark, the distant blue veins dim, and the traveler is left standing on a narrow living ridge with frost in their hair, surrounded by more space than matter and more life than land.

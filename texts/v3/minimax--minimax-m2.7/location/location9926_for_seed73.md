@@ -1,0 +1,29 @@
+# The Breathing Peaks of Suth Marang
+
+The mountains here do not behave as mountains should.
+
+At nine thousand meters—or perhaps higher, the altitude markers abandoned centuries ago—the air remains thick with heat, a humidity that should not exist at this height but clings nonetheless to black basalt cliffs and the silver-threaded roots that grip them. Steam rises from fissures in the stone where geothermal systems pulse deep below, carrying sulfur and warmth upward through cracks that have spent millennia widening themselves into caverns large enough to hold entire forests. The heat rises, and the clouds form. The clouds form, and the rain comes—brief, violent, daily, carving fresh channels down faces already carved beyond counting.
+
+This is a landscape that has known itself for a very long time.
+
+The peaks are ancient, their first violence eroded into patience. Water and root and thermal stress have worn them toward equilibrium over epochs; they will stand for epochs more, patient pyramids of stratified stone where each layer tells a different age of emergence. The rock itself has become soft in places—not weak, but *finished* with resistance, crumbling under fingertip pressure into powder that smells of iron and something older. The great peaks of Suth Marang are not being destroyed so much as *dissolved*, slowly, from every direction at once, rain and steam and the chemical patience of centuries slowly returning them to the sea.
+
+And life has come to every edge of that dissolution.
+
+The vegetation is not merely present but *pressed*, so dense in the valleys that a body must turn sideways to pass. Ferns the size of dinner tables crowd the lower terraces, their fronds drinking water from air that never fully dries. Above them, a twisted forest of black-wood trees climbs toward the thin air, their bark so thick with moisture it glistens even at midday. Higher still, only lichens and the occasional stubborn shrub, but these are the roots that anchor everything below: the vast mycorrhizal network that connects the whole massif, stretching across canyons on bridges of root and fungal thread, pulsing with a slow bioluminescence that travelers sometimes mistake for stars when viewed from below at night. The light is natural, or nearly so—it serves no obvious purpose, and the mycorrhizae themselves seem to respond to proximity, brightening near occupied structures, dimming in the presence of the unburied dead.
+
+The fauna has grown strange in the thin air.
+
+Flocks of something between bird and feathered lizard circle the thermal columns, riding rising heat without effort. The air itself seems to move with them, a perpetual rustle that on still evenings becomes a kind of music—层叠, layered, one voice over another, none of them quite coordinated. In the forests below, creatures the size of dogs move in packs through the canopy, their eyes reflective, their calls a low resonant hum that travels farther than it should. The water teems with things that have not yet been named; the steaming pools and slow rivers carry fish that glow faintly, their scales catching light that seems to come from nowhere and everywhere.
+
+The built remnants are scattered like memories of a more deliberate age.
+
+Scattered structures cling to cliff faces, their architecture unmistakable as intentional—arches, thresholds, drainage channels—but their purpose now uncertain. Some are barely more than platforms, stone ledges fitted with mechanisms that still function: counterweights that move in slow cycles, suggesting elevators or gates that once regulated access to the interior. Others are larger, whole buildings carved into living rock, their doorways sealed with sliding panels that respond to touch after centuries of neglect. The machines within are running still. This is the strangest fact of Suth Marang: the tech that persists here does not follow the grammar of any present understanding. The mechanisms are not electronic, not mechanical in any familiar sense. They seem to respond to pressure and heat and proximity, to the weight of water in cisterns, to the rhythms of thermal expansion and contraction. Someone built these systems for a landscape that was already ancient, and the systems have not stopped.
+
+A traveler here sleeps lightly.
+
+The sounds are not threatening but insistent—the constant drip and rush of water moving through channels designed by the same long-dead engineers, the low hum of biological light networks, the wind moving through the dense forest below, carrying the smell of iron and growth. At night, the wind rises, and the peaks sing—a low harmonic resonance that seems to come from the stone itself, a sound that has not changed in centuries and will not change in centuries more. The people who built the structures here are gone, or have changed, or have retreated into the deep caves where the thermal systems are hottest and the air is thickest with breath. The structures remain. The systems continue. The mountains dissolve slowly into the clouds that form from their own heat, and somewhere in the vast networked root systems, in the patient machines, in the slow cycles of erosion and renewal, something is still learning what this place is for.
+
+The weirdness is not an intrusion here. It is the shape of the place.
+
+The traveler wakes at dawn to find water condensing on every surface, a fine mist that beads on stone and drips from canopy, and the mountains seem to breathe in the morning light, steam rising from every fissure, and for a moment—before the day warms and the clouds burn away—Suth Marang seems less like a landscape than a vast organism, something old and patient and still very much alive.

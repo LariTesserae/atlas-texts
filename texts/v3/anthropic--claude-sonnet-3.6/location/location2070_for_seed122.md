@@ -1,0 +1,19 @@
+In the deep places beneath the city, where ancient stone meets newer foundations, there is a chamber known as the Mirror Market. It exists in a network of natural caverns that have been slowly claimed and shaped over centuries, though much of their original karst character remains in the scalloped walls and low archways.
+
+The air here is cool and damp, heavy with mineral scents. Water seeps constantly through the limestone above, collecting in polished stone basins and trickling down walls in carefully channeled rivulets. These waters are precious - each stream and pool has its own character, its own mineral content, its own subtle variations in temperature and taste. The locals call them "flavors."
+
+The Market itself is densely packed with crystalline structures that might at first appear to be natural formations, but reveal themselves as carefully cultivated growths - not mineral, not quite alive, but something in between. These structures are "gardens" of sorts, tended by the silent figures who live here. The crystal-farmers coax their charges into specific shapes and patterns using techniques passed down through generations: careful application of different water flavors, subtle changes in temperature, the positioning of copper wires and iron nails, even the vibrations of certain sounds.
+
+Light is scarce and precious. What illumination exists comes from patches of bioluminescent film that coat some walls (another carefully maintained not-quite-life-form) and from rare "lightning flowers" - crystalline formations that occasionally spark with contained electrical discharges, casting sharp shadows that dance across the curved walls.
+
+The Market's residents move with deliberate care through the narrow paths between crystal gardens. They wear thick felt robes that brush silently against the stone, and communicate mostly through hand gestures and the occasional whispered word. Their movements seem to follow patterns that mirror the growth of their crystal charges - slow, purposeful, accumulative.
+
+The air holds a constant subtle movement: the slow drift of moisture, the barely perceptible currents of air from deeper chambers, the occasional soft ping of water drops hitting stone basins. Sometimes there are deeper sounds - a low harmonic hum from certain crystal formations, or the distant rumble of the city above.
+
+Few animals make their home here, though pale, eyeless fish sometimes appear in the deeper pools, and there are rumors of creatures that live inside the larger crystal formations themselves - though whether these are truly alive in any conventional sense is debated by the crystal-farmers in their silent discussions.
+
+The whole place operates according to rules that seem arcane to outsiders but make perfect sense to its inhabitants: which waters should be mixed with which, how to read the subtle changes in crystal patterns, when to introduce new growth and when to prune back existing formations. It's an ecosystem of sorts, but one that follows laws of chemistry and phase transitions rather than biological imperatives.
+
+Time moves strangely here - growth is measured in decades, changes in centuries. The crystal-farmers mark time by the development of their gardens rather than by any external calendar. Some say the Market has existed since before the city above, that the first foundations were built around it rather than over it.
+
+It's a place that exists in the overlap between natural and artificial, between mineral and living, between growth and construction - a pocket universe with its own laws, its own pace, its own strange beauty.

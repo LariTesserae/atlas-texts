@@ -1,0 +1,21 @@
+You step out onto a narrow structural rib, deep underground, and are instantly enveloped in a cocoon of steamy, tropical warmth. The space acts as a massive acoustic chamber. The air hums with a heavy, overlapping roar of shifting water, underpinned by a rhythmic, sub-bass thrum that vibrates through the soles of your feet. It is dim here, the vast gloom broken only by faint, ambient halos of bruised-purple and cold teal light. 
+
+This is a subterranean void on a cathedral scale—a single, massive vertical cylinder with clearly defined boundaries, where the edges of the room are densely guarded, but the core is a vast, echoing emptiness. 
+
+The cavern walls feel violently, newly born. The rock was not carved by water or slow time; it was excised from the earth’s crust with brutal, surgical precision. The exposed geology consists of sharp, unweathered facets of dark stone, fractured along crystalline planes. Razor-thin ledges and jagged overhangs cut into the dim air. The trauma of the geology is fresh, its fault lines raw and untouched by erosion. 
+
+Clinging seamlessly to these sheer, jagged cliffs is an architecture of staggering density. The walls are an inverted, vertical metropolis. Layers of organized, heavily integrated infrastructure are packed so tightly against the perimeter that the raw stone only peeks through like shattered bone. There are no catwalks, no windows, no spaces scaled for flesh and blood. Instead, ribbed heat-sinks, fractal processing arrays, and sleek obsidian casings form a mechanized reef. 
+
+The engineering visibly ignores modern physics. Massive geometric processors do not touch the walls at all; they hover freely in the dimness, quantum-locked in the humid air over the central drop. Their surfaces possess impossible, folding geometries that swallow the faint ambient light. When they need to cool, their smooth shells boil into intricate, nanoscale fractals, venting heat before snapping back into seamless armor. 
+
+Yet, for all this dense machinery on the walls, the center of the chamber—nearly eighty percent of its volume—is pure, yawning void. And into this vast empty space, the water goes to work.
+
+The chamber is perpetually weeping. Saturated air condenses on every cold blade of metal, and warm water bleeds constantly from the fresh fissures in the stone. But it does not simply fall into the abyss. Active torsion fields strip the moisture from the rock, gathering it into thick, twisting rivers that flow horizontally through the empty air. Wide ribbons of warm liquid glide effortlessly across the hollow center, unsupported by pipes, arcing in graceful mathematics from one floating intake port to another. 
+
+Occasionally, a field cycle shifts. An airborne river loses its cohesion, collapsing into a tremendous, roaring downpour that vanishes into the shadowy, unseen depths far below. It is a wet, pressurized orchestra of splashing cascades, hissing kinetic fields, and the heavy, grinding recalibrations of the machines.
+
+In this hot, drenched incubator, life thrives aggressively. There is absolute stillness in terms of fauna—no insects navigate the heavy mist, no animals nest in the ledges—but there is a silent, explosive riot of vegetation. Abundant engineered flora roots directly into both the raw, young stone and the dark carbon-shells of the machines. Broad, fleshy leaves, heavily beaded with condensation, unfurl from the rock face to drink in the purple luminance of the floating processors. Thick, muscular vines bridge the gaps between severed, sharp fractures, their tendrils designed to actively siphon stray moisture from the edges of the artificial gravity fields. Synthetic, emerald moss creeps over the sharpest edges, softening the harsh glare of the technology.
+
+Everything here is embedded in a rhythmic, active cycle. Heavy mechanical baffles slide open with muffled clanks. Invisible fields realign, redirecting the flying rivers into new, sweeping arcs that cast twisting, watery shadows across the void. In slow response, the thick ferns and vines visibly writhe and stretch, their heavy, wet fronds shifting to trace the new paths of airborne mist. 
+
+It is a world freshly cracked open, a heavily engineered hollow roaring with the clash of sharp stone, flying water, and relentless, automated green.

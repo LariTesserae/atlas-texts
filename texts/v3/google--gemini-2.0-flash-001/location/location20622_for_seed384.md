@@ -1,0 +1,21 @@
+The gloom is a heavy, viscous presence. Not a true dark, for that would imply an absence, an emptiness, but rather a saturation. A thick broth of umber and indigo that clings to every surface and muffles every sound. Visibility extends perhaps a few yards before dissolving into the murk. The water, of course, is everywhere. Not as a surface, or a body, but as the substance of the world. It fills every cavity, coats every surface, and presses in with a weight that feels both physical and psychic.
+
+This is the under-city of Aquaductus. Or what remains of it.
+
+Once, generations ago, it had been a proud metropolis, a center of clockwork ingenuity and submerged industry. The original city perches above, almost visible through the perpetually clouded surface. That place still thrives, even as the supporting pillars, the aqueducts and the submerged factories, have collapsed here into something both stranger and more elemental.
+
+The scale is confusing. Individually, a workshop or a section of causeway might resemble a natural cavern, barely wider than a two-story house. But the sheer density of structures—the way they are stacked and interwoven like the bones of a leviathan, creates a sense of claustrophobic grandeur. The dripping metal, the rust-colored algae that clings to every surface, the occasional glint of ceramic tile beneath the murk—all speak to a scale far beyond human measure.
+
+The water itself is turbid, thick with industrial detritus, organic decay, and the strange, shimmering detritus of the city’s forgotten technologies. It’s frigid, biting at exposed skin, a constant reminder of the encroaching cold. Despite the chill, there is a remarkable level of activity. Subtle currents swirl around submerged machinery. Pipes hiss and groan with barely audible whispers. Faint electrical pulses crackle like ghosts in the water, remnants of the city’s once-thriving power grid.
+
+Vegetation is sparse but tenacious. Patches of bioluminescent fungi cling to the undersides of pipes and girders, casting an eerie, sickly green glow. Thin, vine-like tendrils of algae sway in the currents, forming ephemeral curtains that obscure the architecture. In the deeper recesses of the city, where light is almost nonexistent, strange, pale anemones pulse with a slow, rhythmic beat, filtering the water for sustenance.
+
+There is evidence of fauna as well, though rarely seen. The occasional flash of a pale, eyeless fish. The scuttling of unseen crustaceans along the submerged walkways. Deeper, rumors persist of larger, stranger things—mutated eels the size of carriages, armored cephalopods with wrench-like appendages.
+
+The sounds are minimal, yet unsettling. The constant drip, drip, drip of condensation. The low, resonant hum of decaying machinery. The occasional grinding of gears, protesting against inertia and corrosion. Silence is a rare commodity here; the city breathes around you, a symphony of decay and forgotten ingenuity.
+
+The erosion here is not chaotic, but settled. The city has long since reached an equilibrium with the water, a slow and inevitable process of absorption and dissolution. The metal is pitted and corroded, the concrete crumbling, but the structures hold, held in place by the sheer weight of their own density. This is what distinguishes it from a mere ruin. It is no longer the same city that stands above this submerged place, it has now become something else, something new and even a little bit alive.
+
+The weirdness, however, is the true constant. The strange, half-functional machines that hum with forgotten purpose. The echoing chambers that vibrate with unseen energies. The ghostly afterimages of the city's former inhabitants—the dockworkers, the mechanics, the engineers—who still linger in the city's memories. They are all imbued with a sort of industrial magic. In one place, a conveyor belt still creaks along its tracks, driven by some unknowable automated process. Further on, a assembly line churns out widgets nobody else has known how (or why) to use in generations.
+
+Above all other things, the under-city of Aquaductus is a place of liminality. A space between the lost city above and the primordial ocean beneath. A place where the past and the present, the organic and the mechanical, are blurred and interwoven into something both unsettling and strangely beautiful.

@@ -1,0 +1,17 @@
+The diving bell descends, displacing a cloud of silt as it comes to rest on the seabed. The water here is only a few degrees above freezing, and the reinforced glass of the observation dome quickly fogs with condensation. A thick yellow mist, almost oily in appearance, hangs in the water, diffusing the light from the bell’s exterior lamps into a sickly, all-enveloping glow. Visibility is poor; perhaps twenty meters.
+
+The seabed is not what one expects. It is not sand, nor mud, nor even the expected rocky shelf. Instead, it is something like a vast, petrified forest, sunk beneath the waves. Thick, fluted columns rise from the gloom, some broken and jagged, others reaching almost to the limit of visibility, their tops dissolving into the yellow haze. These are not tree trunks, though the resemblance is uncanny. They are metal.
+
+These metallic pillars are not smooth. They are corrugated, ridged, and scored with patterns that seem almost deliberate, though undeniably the result of erosion. The metal itself is a dull, verdigris-stained bronze, pitted and scarred by centuries of immersion. Patches of something resembling coral, though metallic in hue, cling to the sides of the columns, branching structures in muted coppers and grays.
+
+The silence is broken only by the hum of the diving bell's machinery and the occasional creak of the hull as it settles deeper into the… sediment. It isn't sand; it's a slurry of fine metal particles, flaking and rusting away from the decaying structures that surround the bell. This 'sediment' shifts beneath the bell, a low, groaning sound that is felt more than heard.
+
+There is no vegetation in the traditional sense, though the metallic coral-like growths could be considered a form of it. The oily, yellow mist might be the result of rust, a chemical reaction that is now normal to this landscape: the metal forest dissolving slowly and stably into the water.
+
+Looking closer, one notices more deliberate structures amongst the pillars: rectangular blocks, stacked precariously on top of one another, forming archways and tunnels that disappear into the gloom. These are not natural formations. They were placed here. They appear to be artifacts of a long-lost civilization, one that built not with stone or wood, but with metal.
+
+Here and there, gaps between the metal trees reveal larger geometric structures. Something like a half-sunken ziggurat looms in the distance. It is scaled to the metal trees; it is small but immense.
+
+There's no sign of life, save that of the metallic coral. This forest is dead, utterly still. Yet, the hum of machinery echoes in the water: not from the bell, but reverberating through the columns, an ambient undertone, a low thrum that is constant and unwavering. This ruined city is not entirely dormant.
+
+The rules of this world are dictated by slow, inexorable decay. The water is cool and corrosive, stripping away at the metal structures. The processes of corrosion and sedimentation are in perfect equilibrium. A steady change that, viewed across millennia, might appear frozen in time, eternal. The scale is small, a single forested grove in a much larger space, but saturated with detail. The forest decays with equal measure: a perfect stasis of gradual decline.

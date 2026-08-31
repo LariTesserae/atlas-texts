@@ -1,0 +1,15 @@
+This is not a landscape of geography, but of exhaust. You are standing in the Sump of the Finished World, a low-lying, basin-like expanse that spans as far as the eye can see, huddled under a sky the color of a bruised lung. 
+
+There is no soil here. The ground is a tightly packed, primordial mosaic of crushed carbon, iron filings, and vitrified silica. It feels ancient, as if the planet has already been processed, refined, and set aside to cool. The density is oppressive; every square inch of the landscape is occupied by the detritus of some incomprehensible, titanic industry. There are no plants, no roots to break the flatness, yet the ground is never dry. 
+
+The air is thick, saturated with a cold, greasy mist that clings to your skin. From the "weeping rocks"—monolithic, vein-riddled boulders that jut sporadically from the muck—a viscous, iridescent brine bleeds continuously, pooling in the shallow depressions. This is a wet, frigid world, smelling of ozone, wet soot, and the sharp, metallic tang of industrial slaughter.
+
+The noise is constant and terrifying. It is a cacophony of rhythmic, subterranean thumping, like the heartbeat of a buried leviathan, punctuated by the high-pitched screaming of steam venting from unseen underground conduits. There are no factories in sight, yet the infrastructure is absolute. You are walking on top of the machine, a vast, complex subterranean engine that hums beneath your boots, vibrating the very marrow of your bones.
+
+And then there is the life. 
+
+It is not biological. The "fauna" that scuttle through the brine are rhythmic, autonomous self-assemblies of brass-colored wire and pulsing amber fluid. They operate in a frenzy of predation and repair, weaving themselves together into temporary, gargantuan shapes before shattering back into thousands of smaller, chittering components. They are the scavengers of entropy. They feed on the vibrations, harvesting energy from the ceaseless mechanical thrumming that defines this space.
+
+Reality here is frayed at the edges. When the mist clears for a fleeting second, you might see a "glitch" in the horizon—a jagged tear in the atmosphere where the cold, grey sky reveals a glimpse of something static and burning, or where a creature might simply flicker out of existence for a mile only to reappear instantly at your feet. Gravity feels inconsistent; at times, you feel light enough to float, and seconds later, the air pressure increases until your lungs labor to draw breath. 
+
+There is no stillness. To exist here is to be part of a cold, loud, and infinite production cycle. You are standing on the floor of a factory that has forgotten its architect, but continues to churn out echoes, rust, and phantom movements. Nothing will ever grow here, because nothing ever stops moving; the world is too full of its own history, too packed with the wreckage of its own ancient, industrial purpose to leave room for the softness of life.

@@ -1,0 +1,27 @@
+The place has no name that any tongue still living can pronounce. It is called, by those few who have crossed its threshold and returned, the Wet Hive.
+
+It stretches so far that its own curvature is visible against the sky, a low, planetary shelf of saturated stone and black glass that has forgotten what “horizon” means. Every inch is occupied. There is no open ground, no breathing room, no distance that is not already claimed. The density is absolute.
+
+The land itself is warm—almost feverish—yet it never quite dries. Water is everywhere and nowhere: it sweats from the pores of kilometer-high walls, beads on the undersides of cantilevered bridges that have no visible supports, drips upward in thin silver threads where gravitic seams misfire. Great weeping cliffs of dark basalt and obsidian sweat constantly; the droplets race each other down vertical kilometers only to be caught by invisible fields and flung sideways into aqueducts that fold back into the stone like living veins. The air itself is wet enough to drink. Condensation gathers on your teeth when you open your mouth.
+
+There is no vegetation. Nothing green has been seen here in geological epochs. In its place grows an architecture that has become ecological. The city—if city is still the word—has lived so long that it has begun to evolve. Towers bud from towers. Streets give birth to side-streets that crawl away like roots. Every surface is covered in dense, overlapping layers of construction: black mirror plating, matte white ceramic that drinks light, lattices of something that might once have been carbon fiber but has learned how to pulse. New districts extrude themselves overnight, pushing older neighborhoods aside with the slow, irresistible pressure of continental plates. The oldest quarters have been compressed into glassy strata hundreds of meters thick, their original forms preserved only as faint iridescent memory patterns inside the stone.
+
+The noise is beyond description. It is not merely loud; it is a physical force. A continuous, roaring, singing, grinding, choral thunder that lives inside the bone. It is the sound of ten thousand simultaneous civilizational processes operating at once: the moan of planetary-scale cooling veins, the metallic scream of self-replicating foundries birthing new infrastructure, the subsonic liturgical chanting of prayer-machines older than language, the wet slap and gurgle of water being moved through kilometers of arterial channels, the constant thunderclap of sonic booms from courier drones that never slow down. After twenty minutes most visitors cease to perceive it as sound and begin to feel it as weather.
+
+Fauna exists, but not in the way biology textbooks would recognize. The dominant forms are the Architects—vast, semi-mechanical symbiotes that look like cathedral-sized horseshoe crabs made of wet obsidian and gold circuitry. They move with ponderous grace through the vertical canyons, scraping new streets into being with their underbellies, laying down fresh layers of smart-matter that harden into hab-blocks within minutes. Smaller things skitter between them: chrome beetles with human eyes, flocks of mirrored birds that are actually reconnaissance swarms, translucent jellyfish-like drones that float through the humid air trailing strands of living cable. All of them are loud. All of them are busy. None of them acknowledge you unless you stand directly in their path, at which point they simply reroute the city around you with irritated efficiency.
+
+The light is normal, even gentle—soft gold-white that filters down through a permanent high haze of steam and micro-particulates. Yet nothing here is static. The entire landscape is in turbulent flux. Districts rearrange themselves while you watch. A residential spire you passed an hour ago may have been swallowed and replaced by a rumbling water-treatment cathedral. New bridges bloom across chasms that did not exist yesterday. Whole neighborhoods sink into the warm, wet substrate only to be reborn elsewhere, freshly printed, already ancient.
+
+There is an established balance to the chaos. The city has been destroying and rebuilding itself for so long that the destruction and the building have achieved equilibrium. It is like standing inside the heart of an endless argument that has learned to love its own intensity. The Wet Hive does not want to finish. It wants to keep becoming, forever, at the top of its lungs.
+
+Rules of the world, understood instinctively rather than spoken:
+
+- Nothing may remain empty. Every cubic centimeter must be spoken for.
+- Water is sacred and must be kept moving; still water is considered obscene.
+- Change is mandatory. To remain unchanged for more than a single local day is to invite architectural immune response.
+- Sound is currency. Silence is theft.
+- The deeper you go (there is no true “down,” only deeper layers), the warmer and louder and more densely beautiful it becomes, until the pressure of sheer existence becomes a kind of annihilating transcendence.
+
+Most visitors eventually stop trying to leave. They let the city rewrite their bodies into something more useful—extra limbs for carrying data, wet-stone eyes that can see in sixteen dimensions of infrastructure, mouths that can add their own unique frequency to the eternal, deafening choir.
+
+The Wet Hive accepts them. It always has room. It is, after all, already full.

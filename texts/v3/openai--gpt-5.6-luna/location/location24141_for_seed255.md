@@ -1,0 +1,51 @@
+The landscape is a low, sprawling basin built almost entirely from dark material.
+
+No soil shows anywhere. No root has ever entered it, and nothing green, brown, or leaf-shaped interrupts the ground. The basin floor is made from fitted slabs of black ceramic, gray shell, fired clay, and a pale stone that seems to have been poured rather than quarried. These materials overlap in generations: broad platforms beneath narrow walkways, retaining walls built against older retaining walls, staircases descending into rooms that have not yet been finished. The whole place has the appearance of a world assembled by hand and then abandoned before anyone decided what it was for.
+
+It extends farther than the eye can comfortably follow. In the near distance are crowded terraces and low angular structures, all pressed close together, their walls sharing foundations and sometimes passing directly through one another. Beyond them, the construction thins into long embankments, unfinished causeways, dry channels, and immense fields of aligned stakes. Farther still, the basin closes beneath a low horizon of pale, faceted hills—perhaps natural rock, though every visible slope has been scored, faced, or braced with masonry.
+
+The darkness is not complete. It is a thick, blue-black condition in which surfaces reveal themselves only when they catch reflected light. There are no lamps burning openly. Instead, small remnants of illumination gleam under ledges and inside cracks: damp mineral films with a weak green sheen, bowls of polished metal holding coals, translucent tiles that retain the last of some unknown daylight. Here and there, workers—or things that resemble workers—carry covered flames from one structure to another. Their lights swing through the dark like slow, hooded stars.
+
+Moisture arrives in fits.
+
+Rain falls from a sky that is usually invisible, in sudden hard bursts that hammer every roof and courtyard. The rain does not last long. It runs black over the walls, gathers in the seams between paving stones, and pours through deliberately cut channels. When the clouds pass, the basin exhales. Condensation beads along ceilings and ropes of water collect beneath bridges. Shallow pools appear in the depressions, each one held in place by small clay dams. Some are clear, some opaque with suspended gray dust, and some have a faint metallic skin that trembles without wind.
+
+Everywhere, people have made ways to control the water. There are gutters at ankle height, gutters at shoulder height, gutters above the doors. Thin channels cross the floor in branching patterns, carrying trickles toward cisterns or into shafts too narrow to see down. The water is not allowed to choose its own route. Even the puddles seem assigned.
+
+Yet the construction is unfinished enough that the water frequently escapes.
+
+It undermines the edges of platforms. It slips behind facing stones and swells the packed clay beneath them. It finds the gaps between blocks, freezes there during the coldest hours, and pries whole sections apart. The basin is not being eroded in the old, patient sense. It is coming loose from itself. Corners crumble. Fresh fractures open with blunt reports. A wall may remain standing for a century and then collapse inward during one brief rain, revealing a dense interior of rubble, timber braces, old tools, and rooms sealed behind its first skin.
+
+The ground is loud.
+
+Rain strikes thousands of surfaces at once: tile, drumskin, copper, fired brick, hollow pillars. Water rushes through enclosed channels and roars beneath grates. Loose pieces of masonry click and slide down slopes. Somewhere beyond the visible terraces, a great gate or counterweight rises and falls at regular intervals, producing a deep concussion that travels through the basin floor. Hammering comes from many directions, irregular but constant. Metal is scarce, and most work is done with stone mauls, bone wedges, wooden levers, and toothed tools of baked ceramic. Their impacts make a dry, communal clamor in the dark.
+
+There are voices too, though they rarely sound conversational. Short calls answer one another across the structures. Warnings are shouted when a ceiling begins to shed water. Groups chant while hauling blocks up ramps, the rhythm changing whenever someone slips. From the lower channels comes a repeated hollow knocking, as if something beneath the pavement is striking upward.
+
+The buildings are dense enough to make distance confusing. A path that seems to lead across open ground turns out to pass underneath a bridge, through a walled court, up a ramp, and over the roof of another structure. Doorways are stacked vertically. Ladders lean against walls that have no visible upper limit. Some towers are not towers at all but vertical bundles of rooms, scaffolds, cisterns, and chimneys, each addition fastened to the last with ropes and pegs. Their surfaces are raw and practical. No one has spent effort making them beautiful, but repeated use has given them a kind of pattern: hand-smoothed thresholds, polished corners, dark streaks where bodies pass, pale marks where wet ropes are dragged.
+
+The inhabitants have little technology beyond what they can make, carry, and repair by hand. They use wheeled sledges on the flatter ways, although the wheels are thick, uneven, and reinforced with strips of hide. They suspend loads from wooden frames. They fire clay in communal kilns and work soft metals into clamps, hooks, bowls, and blades. Their tools are often oversized, not because the materials demand it, but because the world seems to resist small gestures. A single stone must be struck many times before it gives up a shape.
+
+They are not numerous in the open spaces, but the built environment is full of presences. Figures appear behind screens, disappear beneath arches, or crouch beside pools with their hands submerged. Many wear layered waterproof coverings made from stitched hide, woven mineral fiber, or thin plates of lacquered barklike material that does not come from any plant. Their faces are obscured against the cold and the wet. At a distance, it is difficult to tell whether a cluster is a work crew, a collection of statues, or a stack of bundled materials waiting for daylight that never arrives.
+
+There is almost no animal life.
+
+Once in a while, something moves along the underside of a bridge: a pale, many-jointed creature with the body of a rope and the deliberate gait of a spider. It pauses at the sound of footsteps, flattening itself against the masonry until it is indistinguishable from a wet crack. In the cisterns, small blind things turn beneath the surface. They have no visible eyes, but their pale bodies flash when they change direction. They are rarely hunted. The inhabitants treat them as signs of water quality, omens, or both.
+
+Larger creatures are spoken of more often than they are seen. Their traces occur in the unfinished districts: deep parallel grooves through the clay, dents in sealed doors, sections of wall polished smooth at a height no human shoulder could reach. When the underground knocking begins to move from one quarter of the basin to another, work stops and the people listen. Sometimes the rhythm fades. Sometimes an entire row of structures shudders, and a new crack appears across the floor.
+
+There are no plants, but some surfaces support simpler growths—if growth is the right word. In the wettest seams, gray translucent membranes gather in thin overlapping sheets. They do not rise or branch. They spread like frost, consuming salts from the mortar and leaving delicate geometric hollows behind. When touched, they contract with a faint ticking sound. Workers scrape them away with flat blades, but they return after the next rain. In certain chambers, the membranes cover whole walls and pulse with dim internal color, making the rooms seem to breathe.
+
+This may be the closest thing the basin has to an ecology: water, mineral films, corrosion, pressure, labor, collapse, and the occasional feeding animal moving between them.
+
+Nothing here is fully natural, yet nothing is fully controlled. The built world has become a kind of weather. Walls swell and split. Channels alter their courses. Platforms settle by degrees. The people respond with new braces, new trenches, new surfaces laid over the old. Construction and ruin are not separate processes. A collapsed hall becomes a quarry. Its stones become a flood barrier. The barrier becomes a road. The road is cut open to reach a buried room. The room’s contents are used to build a furnace.
+
+At the center of the basin lies an immense rectangular depression, wider than a town square and deeper than any nearby foundation. Its sides descend in precise terraces, each one crowded with scaffolds, ladders, sheds, and stacked blocks. No one appears to know whether it is an excavation or a foundation. Workers move along its levels carrying baskets of wet rubble upward. Others descend empty-handed and do not return for hours.
+
+At the bottom, under a roof of interlocking beams, is a black opening filled with water.
+
+The surface lies perfectly still despite the noise around it. Rain reaches the opening through a hundred gutters, but no ripples remain. Occasionally, a low sound rises from below—not the knocking heard elsewhere, but a long resonant note, like a stone vessel being played by pressure deep underground. When it sounds, every small pool in the basin trembles in answer. The membrane growths tighten. The blind creatures turn toward it. People stop where they stand.
+
+Then the note ends, the water settles, and the work resumes.
+
+The place is cool, damp, crowded, and perpetually in progress. It has no wilderness because there is no untouched surface left to call wilderness. Its darkness is not empty; it is occupied by labor, hidden water, unstable foundations, rare animals, and the unfinished intentions of those who built it. The basin does not feel ancient. It feels young in a dangerous way—as though the world has only recently learned how to make walls, and is still discovering what walls can contain.

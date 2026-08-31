@@ -1,0 +1,13 @@
+In the humid warmth, a sprawling urban expanse stretches out, pulsing with an unsettling energy. The ground beneath is not soil, but a shifting, semi-liquid surface that ebbs and flows like a shallow marsh. Buildings emerge from this damp substrate, their foundations half-submerged and weeping moisture.
+
+The structures themselves are a hodgepodge of styles and materials, as if assembled from the remnants of a thousand different civilizations. Rusted metal plates and plastcrete slabs intermingle with intricately carved stonework and delicate latticework of woven branches. Pipes and conduits snake between the buildings, pumping mysterious fluids and carrying clouds of vapor.
+
+Despite the apparent solidity of the structures, nothing here is truly permanent. The very ground they stand upon is in constant flux, reshaping itself in a ceaseless cycle of erosion and accretion. Buildings sink partially into the oozing earth, only to be slowly disgorged again as the terrain flows around them. New structures burst forth from the viscous surface, already half-formed and melting back into the morass from which they emerged.
+
+The sparse vegetation consists of stunted, twisted trees and patches of sickly fungus that sprout from the damp detritus carpeting the ground. Strange, fleshy tubers breach the surface, unfurling bizarre blossoms that quickly wilt and rot away. The air is thick with the reek of decay and the sharp tang of industrial effluent.
+
+Amid this ever-shifting landscape, signs of industry are everywhere. Smokestacks belch plumes of colored smoke, and the cacophony of clanging machinery and grinding gears fills the air. Automated assembly lines extrude baroque constructions from raw materials dredged up from the murky depths, only for those same creations to be broken down and recycled endlessly.
+
+And through it all, life teems in profusion. Rodent-like creatures scurry through the tangled roots and pipes, while luminous insects swarm in blinking clouds. Avian predators with razored beaks swoop down to snatch them from the air. In shadowed alcoves and burrows, shapes shift and slither, displaying bioluminescent markings and pulsating appendages.
+
+The entire panorama seems to throb with a frenzied, almost frantic vitality. A sense of constant transformation pervades every aspect of this place, as if reveling in an endless cycle of growth and decomposition, creation and entropy. It is a living, breathing, festering engine of ceaseless metamorphosis.

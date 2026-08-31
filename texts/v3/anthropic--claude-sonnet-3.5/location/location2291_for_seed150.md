@@ -1,0 +1,15 @@
+In the sweltering heat of the high plateaus, a verdant metropolis sprawls across the horizon, its living architecture reaching towards the sky. This is Chloropolis, a city born of plant and purpose, where humanity and nature have fused into a singular, pulsating entity.
+
+The air is thick with humidity, a constant mist rising from the countless leaves and fronds that form the very substance of the city. Water is everywhere, yet nowhere to be seen directly - it flows through the vascular systems of the megalithic plants that serve as buildings, streets, and bridges. The sound of liquid moving through these vegetable aqueducts creates a constant, soothing background hum that underlies the cacophony of life.
+
+Massive trunks, wider than ancient redwoods, form the foundations of towering structures. Their bark is etched with intricate patterns - not carvings, but carefully cultivated growth, guided by the patient hands of the city's botanist-architects over generations. Bridges of living vines connect these colossal pillars, swaying gently in the warm breeze, strong enough to support the weight of hundreds.
+
+The streets below are a tapestry of moss and lichen, soft underfoot yet surprisingly resilient. They seem to absorb sound, yet the city is far from quiet. The air is filled with the calls of countless birds and insects that make their homes in this vertical jungle. Primates swing from vine to vine, some wild, others clearly domesticated, carrying messages or small goods between the arboreal neighborhoods.
+
+Despite the overwhelming presence of plant life, there are clear signs of intelligent design and urban planning. Spiral ramps of tightly woven bamboo circle the larger trunks, providing access to higher levels. Terrace gardens burst with fruits and vegetables, tended by people using simple tools of wood and stone. Water collection systems of broad leaves and hollow gourds are integrated seamlessly into the living infrastructure.
+
+The inhabitants of Chloropolis move through their city with practiced ease, their bodies adorned with garments woven from plant fibers and decorated with vibrant flowers. They climb and swing as much as they walk, equally at home in the canopy as on the ground. Their tools and utensils are primarily organic - gourds for containers, sharpened bamboo for cutting, vines for binding.
+
+As day turns to night, bioluminescent fungi and insects create a magical display of light, turning the city into a glowing wonderland. The heat barely diminishes, but the increased humidity brings a nightly mist, refreshing the countless leaves and providing drinking water for the city's inhabitants.
+
+Chloropolis is young, its sharp edges and fresh growth speaking to recent emergence, yet it feels ancient, as though it has tapped into some primordial knowledge of symbiosis between human and plant. It is a city that breathes, grows, and evolves, not over centuries, but over seasons - a living testament to the potential of harmony between civilization and nature.

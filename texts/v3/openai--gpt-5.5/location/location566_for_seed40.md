@@ -1,0 +1,55 @@
+At high elevation, above the ordinary weather, there is a manufactured valley laid across the shoulders of several mountains that may or may not still exist underneath it.
+
+No stone is visible. No soil lies open. The whole region has been built: ridges, basins, cliffs, terraces, channels, plains, even the apparent scree slopes are assembled from fitted material. Plates of pale ceramic overlap like scales. Ribs of cast iron run under translucent decking. Vast retaining walls step down into the distance, each one stamped with serial marks, pressure glyphs, old warning bands bleached nearly white. What looks from afar like a natural pass is, up close, a corridor between two ranks of cooling towers. What looks like a glacier is a poured expanse of glass-fiber insulation, buckled and refrozen into waves by slow thermal strain.
+
+The place is open in extent but crowded in substance. You can see far—across a whole basin of platforms, gantries, condensers, suspended conduits, signal masts, and bright decks—but every visible distance is thick with things. There is no empty air, only air threaded with cables, steam traces, fine ladders, rail-lines, pipe-bridges, and slow-moving maintenance frames. The horizon is not a line but a stack: scaffold behind scaffold, towers behind sheds behind vertical reservoirs, all climbing toward a cold white sky.
+
+The light is intense. It comes from everywhere and makes few honest shadows. Some of it is sunlight, thinned by altitude and sharpened by the cool air; some of it is reflected upward from acres of enamel and polished ductwork; much of it is emitted by the place itself. Long panels glow milk-blue beneath walkways. Vents shine from within like open furnaces, though little heat escapes. Along the high ridges, lens-arrays turn in slow unison, catching the day and breaking it into unnecessary brilliance. At noon the whole valley seems overexposed, every edge too clean, every bolt-head visible, every droplet on every rail lit with a hard bead of fire.
+
+Moisture comes and goes without ever becoming abundance. There are no broad rivers, no lakes, no green drenched hollows. Instead the landscape sweats. Condensation gathers under catwalks and along the undersides of pipes. It beads on cold metal skin and runs down in intermittent threads. Mist forms in pockets where warm exhaust meets the mountain air, then thins before it can become weather. Rain arrives as brief, needling showers that tick against aluminum roofs and vanish into gutter-maze intakes. In low basins between factory decks, shallow water collects in rectangular sumps, black and mirror-still except when a valve coughs and sends rings moving across the surface.
+
+The terrain is young. Not young in the sense of living growth, but newly made, recently raised, its sharpness not yet forgiven. Corners have not been worn round. Weld scars are fresh. The edges of service roads still show the crisp geometry of their casting. Artificial gullies cut through slag composite in straight, deliberate lines, not yet softened by use. Where panels have shifted, the breaks are bright and raw. There is erosion, but it is early erosion: first stains, first trickles, first rust halos under bolts, first mineral blooms where condensation has carried dissolved salts from one layer to another.
+
+Everything suggests that the valley was completed only a little while ago, and yet also that it has always been here.
+
+The machines are industrial but quiet. Their scale should make them thunder, but they do not. Power moves beneath the decks in buried pulses. Turbines turn inside insulated housings. Conveyor belts travel under glass. Pumps breathe through mufflers larger than houses. Now and then there is a soft clank, a distant relay closing, the dry slide of a crane on its rail, the sigh of pressure equalizing through a thousand small apertures. Mostly the place holds a disciplined hush, as if the entire region were a machine operating in a hospital ward.
+
+Sound travels strangely. A footstep on a grating may vanish at once, swallowed by acoustic foam set into the retaining walls. A drop of water falling into a metal basin may be heard from three terraces away, clear as a bell. The cries of animals sometimes arrive before the animals themselves. A flock passing overhead may be silent until it has already gone, and then its wingbeats scatter backward along the pipes like delayed applause.
+
+There is sparse vegetation, and all of it looks provisional. Moss grows in dark seams where condensation returns often enough to be trusted. Pale grasses root in trays of accumulated dust along abandoned rails. Lichen maps the shaded sides of cooling fins in gray-green constellations. Here and there, a stunted shrub has found a pocket behind a heat exchanger and grows with its leaves all turned toward a maintenance lamp instead of the sun. None of the plants form meadows or thickets. They are witnesses, not rulers. They occupy errors in the design.
+
+The fauna are more numerous.
+
+Small birds nest in the latticework of antenna frames, weaving wire-filament and dried grass together. Their feathers are dull on top and mirrored underneath, so that when they turn in the bright air they flash like thrown tools. Moths cling by the thousands to warm transformer housings, wings marked with false labels and hazard stripes. Pale crickets live inside cable troughs and sing only when the voltage drops. There are foxlike animals with narrow feet that can cross wet metal without slipping; they hunt along the service gutters at dawn, pausing to listen at drainage grilles. In the sumps live blind fish, probably escaped from some cooling system, now silver and soft, rising to feed on flakes of mineral skin shed by the pipes.
+
+Larger creatures move through the high structures slowly and with care. Long-legged ungulates, or something near enough to ungulates to borrow the word, graze on salt deposits and lichen mats. Their antlers are asymmetrical arrays, branching like broken aerials. They lick condensation from cold plates. When alarmed, they do not run; they fold sideways into spaces that should not fit them and vanish between near-touching walls.
+
+There are also maintenance animals, if animals they are. Soft-bodied things with ceramic carapaces crawl over the undersides of bridges, scraping away corrosion with mouthparts like files. Transparent eels inhabit vertical water columns and rise or sink according to pressure changes, their organs glowing faintly green. Beetles the size of hands carry flecks of insulation and arrange them into nests around warm bolts. Some bear identification numbers embossed into their shells. Some have numbers that change when no one is looking.
+
+The rules of the world are unstable here, but not chaotically so. The breakdown is patient, structural, almost bureaucratic.
+
+Distances revise themselves at low speed. A stairway counted at thirty-two steps in the morning may have thirty-five by evening, each new step as worn and numbered as the others. Two parallel pipes may cross without bending. A reservoir seen from above may contain a reflection of machinery that was dismantled years before, still operating in the water’s surface. Doors open onto rooms too large for the building that houses them, but only after rain. Certain catwalks lead reliably to their destinations except during bright weather, when they lead to the same destinations from the opposite direction.
+
+The valley maintains logs of these events. Brass plaques appear beside anomalies after they have persisted for more than three days. Some are engraved with calm instructions:
+
+DO NOT MEASURE THIS GAP TWICE.
+
+IF THE SHADOW PRECEDES YOU, WAIT FOR IT TO FINISH.
+
+WATER IN THIS CHANNEL FLOWS TOWARD ITS SOURCE BY AGREEMENT.
+
+The moisture seems especially susceptible to unreality. Condensation beads sometimes arrange themselves into maps of places not present in the valley. Rain falls upward beneath certain overhangs, collecting along the ceiling in trembling pools until a bell rings somewhere and it drops all at once. In the deepest sumps, the reflected sky is not the current sky but a brighter one, full of towers still under construction. Workers can be seen there occasionally, tiny and upside down, moving among frames that do not exist above the water.
+
+No human workers are visible in the actual valley, though the place has been made with unmistakably human habits: railings at the height of hands, signs at eye level, benches beside inspection hatches, emergency phones glowing patiently in alcoves. Cups sit beside control panels with dust inside them. A glove lies palm-up on a walkway, filled with rainwater. Elevators arrive when called and open onto lit interiors, but their destination panels list altitudes instead of floors, some of them impossible.
+
+The temperature stays cool. Even where furnace light leaks through vents, the surrounding metal remains cold enough to fog breath. The high air has an alpine thinness, but without the scent of pine, snow, or earth. It smells of wet dust, ozone, enamel, old oil, and mineral water. After rain, a faint clean sharpness rises from the ceramic plates. After long dry intervals, the place smells electrical, like a storm being stored rather than released.
+
+The slow cycles govern everything. Huge shutters on the ridge open over the course of hours, tracking light. Reservoir pistons descend by centimeters per day. The condensation harvesters bloom at night: thousands of articulated fins unfolding silently to drink mist from the air, then folding again at dawn with water trembling along their edges. Rust grows in deliberate orange signatures. Lichen advances across inspection labels one letter per season. Animals learn the schedules of vents and valves and generations of them pass those routes down as if they were migration paths across wild country.
+
+Yet nothing here feels fully old. It is too bright, too sharp, too newly joined. The valley has the uncomfortable freshness of a thing recently revealed from packaging, combined with the depth of a ruin that has already forgotten its builders. It is beginning its weathering. It is beginning its ecology. It is beginning its myths.
+
+From the highest platform, the whole constructed region spreads out below: a damp, gleaming, densely layered industrial plateau suspended in cool air. Sparse green flecks mark seams and sheltered failures. Birds turn in bright silence around signal towers. Mist lingers in basins. Water flashes in gutters and disappears. Far off, a row of cranes stands motionless along a manufactured ridge, each crane holding a piece of sky in its hook.
+
+For long minutes, nothing seems to move.
+
+Then, almost imperceptibly, an entire wall of the valley exhales. Panels flex outward by the width of a hand. A buried engine turns once. The light changes angle. Every droplet on every rail brightens, and the place continues, slowly, to make itself.

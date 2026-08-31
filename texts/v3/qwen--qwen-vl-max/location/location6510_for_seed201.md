@@ -1,0 +1,33 @@
+The world is a paradox of extremes—cold and bright, lush and empty, small in scale yet vast in presence. It is not a place that feels large like a continent, but one that *means* something in the way a cathedral does: intimate, charged, self-contained.
+
+At the apex of a newly formed mountain range, where the land is still rising and folding from some deep, sluggish tectonic dream—*elevation: extreme*, but the scale is modest—stands a basin shaped like a shallow cup, rimmed by jagged, knife-edged spurs of dark basalt. The rock is fresh: *erosion: young*, so the slopes are steep, their faces slick, fractured, still bearing the sharp angles of birth. There are no rounded hills here, no soft contours. This is a land that has just begun to learn how to be shaped.
+
+Yet inside the cup, an almost inconceivable verdancy blooms. *Vegetation: lush*—but not in the way of tropical forests. It is a high-altitude exuberance, green as moss-bleached emeralds, thick with ferns that curl like frozen breath, mosses that glow under the weak sun, and strange shrubs with waxy, translucent leaves that trap and refract light. These plants grow in clumps, isolated groves that rise in odd columns or arches, almost like living architecture. They cling to vertical faces, sprout from crevices, and bloom in dense carpets over the floor of the basin. Yet the space between them is immense: *density: empty*. The luxuriance is *punctual*—a forest of patches, islands of life in a gaseous sea.
+
+The air is thin, but the *light: bright*—not the harsh glare of a noon sun, but a diffuse, silken brilliance, as though the sky itself is a white dome lit from within. It filters through high cirrus, which hang like gauze over the peaks, and it illuminates everything in soft, luminous contrast. There is no shadow in the traditional sense; instead, every form throws a subtle, spectral outline. The brightness seems to come from multiple directions, as if the world is under a glass dome illuminated from below.
+
+Here, water is *damp*, not in the way of a river, but of a perpetual sigh. There are no flowing streams—only puddles that linger like polished obsidian on the ground, condensing overnight from fog that rolls in on cold, slow breezes. The moisture collects in the crevices of rock, in the undersides of broad mossy fronds, forming tiny, temporary pools that shimmer and evaporate by midday. Water is *present*, but ephemeral—always *becoming*, not *being*. It is the kind of dampness that leaves a chill in your bones even when you're dry.
+
+The temperature is *cold*, so cold that breath hangs in the air as faint plumes, and frost forms on every surface at night. Yet the plants are *lush*, and the atmosphere is *active*: *dynamic: high*. The cold seems not to hinder but to catalyze. The ecosystem moves slowly, but with purpose—a slow-dancing balance of life and decay. Tiny moss-covered creatures crawl through the thick carpets, like beetles with iridescent wings, or lichen-eaters with long, jointed limbs. There are birds—*fauna: abundant*—but not in the way of a jungle. They are small, silent, and gliding, their wings translucent as dragonfly wings or stained glass. Some float like kites, others hop between ferns with jerky, mechanical movements. They do not call; they *reflect*. Their feathers are prismatic, absorbing and re-emitting the light in subtle flares. It is a symphony of stillness and surprise.
+
+*Sound: quiet*—but not silence, not exactly. There is a constant, almost imperceptible hum: the *shiver* of freezing condensation, the *crackle* of frost spreading over stone, the rustle of a leaf that *isn't* there—perhaps imagined. Sometimes a long, low *thrum* emanates from the ground, as if the mountain itself is breathing. It is a world of subtle auditory textures: not music, but a whisper of the planet’s rhythm.
+
+The *built: scattered*—remnants of some old presence. A half-submerged stone platform, its surface worn smooth but not by time, but by the constant damp and the soft abrasion of wind-carried moss fragments. A single, weathered wooden chair, cracked and half-rotted, sits atop a ridge overlooking the basin. It holds no one, but the carving on its back is clear: a spiral made of interlocking leaves. Nearby, a crude axe lies embedded in a crevice, its blade of flint, handle of bone. *Tech: primitive*—but not archaic. The tools are functional, clean, as if they were made just yesterday. And yet, the materials feel *older* than time. There is no sign of fire, no hearth, no smoke.
+
+The *weirdness: unusual*—but not grotesque. It lingers in the edges: the way a fern grows only in a perfect spiral, always in a clockwise direction, or the way certain birds, when startled, *dissolve* into mist before reforming a few feet away. The plants seem to *respond* to light—slightly—bending their leaves toward the sky when it brightens, not with growth, but with a kind of choreography. The moss on the stone platform glows faintly at night, not with light, but with *heat*, just enough to keep the snow from accumulating.
+
+There are no larger structures, no cities. The basin is roughly the size of a large church, and the features are contained: a single deep canyon, a lone peak, a cluster of columns of rock stacked like broken teeth. The *scale: small*, but the *presence* is immense. When you stand in the center, you feel small in the physical sense, but *large* in the sense of awareness. This is a place of quiet epiphany.
+
+The rules of this world are not written in laws, but in rhythms:  
+
+- Water forms, then vanishes.  
+- Life clusters, then pauses.  
+- Light pours in, but cannot burn.  
+- Movement is slow, but constant.  
+- Nothing here is permanent—only *present*.  
+
+There are no animals with eyes; their sensors are elsewhere—under their skin, in their roots, in the electric pulse of moisture. The creatures do not see the world; they *feel* it through resonance, through temperature gradients, through the subtle pull of light and moisture. And perhaps, just perhaps, they sense the human who has entered, not as a threat, but as a ripple in the stillness—something that belongs, yet does not.  
+
+This is not a place for survival. It is a place for *attunement*.  
+
+And if you stay long enough, you begin to notice that the moss on the stone platform is growing back. Not with the speed of plants, but with the pace of stars—*and you are not sure if it is growing, or remembering*.

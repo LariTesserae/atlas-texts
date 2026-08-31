@@ -1,0 +1,19 @@
+In the depths of an ancient cavern system, a vast subterranean metropolis sprawls across an expanse that defies the imagination. This is the realm of the Echoing Hollows, a place where sound and water intertwine in an eternal dance, and where life thrives in the most unexpected forms.
+
+The city is built within a series of enormous, interconnected caverns, their ceilings so high that they disappear into darkness. The walls and floors are smooth, polished by eons of flowing water that has long since retreated to unseen depths. What remains is a landscape of glistening, bare stone in shades of deep blue and charcoal gray, occasionally interrupted by veins of luminescent minerals that pulse with a soft, otherworldly glow.
+
+Water is omnipresent, though not in the expected forms. It seeps from the very pores of the rock, creating a constant mist that hangs in the air and collects in shallow, mirror-like pools on the cavern floor. In some areas, water droplets seem to defy gravity, floating upwards in spiraling columns that disappear into the darkness above. The air is thick with moisture, and every surface is slick with a thin film of water that never quite dries.
+
+The city itself is a marvel of primitive engineering and resourcefulness. Dwellings and structures are carved directly into the cavern walls, creating a three-dimensional labyrinth of homes, workshops, and public spaces. Bridges of woven stone fibers span vast chasms, connecting different levels of the city. The architecture is organic, flowing, as if the city itself had grown from the living rock.
+
+Despite the cold that seeps from the stone, the caverns teem with life. But it is life unlike anything seen on the surface. Creatures that might be called fauna, though they defy easy classification, swarm through the air and crawl along the walls. They range from tiny, bioluminescent specks that float like fireflies to massive, gelatinous forms that ooze slowly across the cavern floors, leaving trails of shimmering slime.
+
+The inhabitants of this strange realm are equally bizarre. Humanoid in general shape, their skin has the texture and translucency of cave fish, and their large, lidless eyes reflect light like a cat's. They move with a fluid grace, as if partially swimming through the moisture-laden air.
+
+The city buzzes with constant activity and noise. The sound of countless water droplets striking stone creates a persistent background rhythm, punctuated by the shrieks and calls of the cavern creatures. The inhabitants themselves communicate in a language of clicks and whistles that echoes off the cavern walls, creating a cacophony that seems to have a life of its own.
+
+Technology here is primitive but ingenious. Tools are fashioned from carefully shaped stone and the strong, flexible fibers of cave-dwelling creatures. Water is collected and redirected using intricate systems of channels and reservoirs carved into the rock. Light is provided by carefully cultivated colonies of bioluminescent organisms that coat the walls of dwellings and public spaces.
+
+Time seems to stand still in this place. The city and its inhabitants exist in a state of equilibrium, their lives governed by the slow drip of water and the eternal darkness. There are no seasons, no day or night cycle, only the endless present of the deep earth.
+
+The Echoing Hollows is a place of contradictions - a vast expanse contained within the earth, a thriving metropolis in a lifeless stone world, a realm of perpetual moisture in the depths of the cold ground. It is a testament to the adaptability of life and the strange wonders that can evolve in isolation, hidden from the light of the surface world.

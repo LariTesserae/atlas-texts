@@ -1,0 +1,17 @@
+You step through a low arch and find the space is smaller than it should be—hamlet-scale, yes, but compressed into a single vaulted room with a ceiling that seems to have forgotten how high it wants to be. The elevation is flat; the floor lies barely above some unseen water table, cool and damp, but there is no river here. Only pockets. Condensation beads on every vertical surface—iron, concrete, glass that has gone cloudy with age—hanging in droplets that never quite fall, suspended in a cool equilibrium that has learned not to drip.
+
+The ground is mineral: crushed slate and oxidized steel plate, worn by an erosion that finished its work long ago. Nothing crumbles. Nothing grows back. Vegetation is absent—no green, no moss, no fungal bloom to claim the damp. Only bare material, settled into its own state, weathered smooth as river stone but never moved by water.
+
+The built form is industrial, urban in miniature: scattered engines, pipes like ribs, factories reduced to a cathedral of machinery. But the density is sparse. Vast empty spaces separate each presence. You can walk minutes between one gear-house and the next, and in those gaps the silence—if there were silence—would be enormous. Instead, there is sound. Loud. A constant, layered drone: the low thrum of motors running without purpose, the hiss of vented steam that never disperses, the mechanical scream of belts turning on axes that have worn perfectly circular ruts into their bearings. It never crescendos. It never fades. The sound is part of the architecture, as fixed as the walls.
+
+And the fauna.
+
+They are overwhelming.
+
+Not animals in any recognizable lineage—there is nothing to eat, nothing to breed with, no cycle here. They cover every surface in a living, motionless crust: small, jointed things no larger than a thumb joint, built of wire and chitin and rust-colored enamel. They hang in the air too, suspended in dense clouds that hold shape like smoke that forgot to rise, clustering in the cool damp between machines. Thousands upon thousands, filling the sparse spaces with overwhelming presence, yet they never swarm, never scatter. Each one occupies its coordinate precisely. They are part of the equilibrium. Some cling to the pipes; others float in the condensation, drinking the hanging droplets without lowering them. Their bodies generate a faint, flat bioluminescence—normal light, grey-green, without shadow or warmth—so that the chamber glows evenly, without source.
+
+The rules here are strange and invariant.
+
+The machinery produces nothing, consumes nothing visible. It turns. The creatures exist, not living, not dead. The moisture appears in pockets—on a beam here, a wall there—never enough to pool, never absent enough to dry. The temperature holds at cool, just below comfort, just above freezing. Time does not progress; there is no gradient. The erosion is complete, the forms settled, the sound constant. You could leave and return after an age and find the same droplet hanging, the same creature in the same posture, the same note in the drone.
+
+It is a world of industrial bones kept in perpetual, quiet motion by an ecology that replaced biology with equilibrium. A small, bounded place—low, cool, damp—where construction and creature merged into a single, never-changing state, loud with its own stable heartbeat, and strange with the certainty that nothing here will ever ask to be different.

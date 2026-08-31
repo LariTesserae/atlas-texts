@@ -1,0 +1,47 @@
+# The Undergirding
+
+You are below the surface. You have always been below the surface. That is the first thing you know, because the ceiling is everywhere — not stone but *structure*, a vaulted, ridged canopy of living tissue so massive it reads as geology until you notice it breathing. A slow tidal expansion and contraction, measured in minutes, that shifts the acoustics of the chamber by degrees. The ceiling weeps. Not from rain — rain is a surface word — but from condensation that gathers in the cupped hollows of enormous leaf-like folds, gathers until the weight becomes untenable, and releases in heavy, warm drops that fall intermittently onto the floor below. The drops are not water. They carry dissolved sugars, amino acids, a faint amber color. They smell faintly of fermentation. When they hit the ground, things come to eat them.
+
+The chamber is roughly the size of a city block, though "city block" is a surface concept and imprecise here. Its boundaries are organic — walls of woven root-mass and compressed stem tissue, centuries old, weathered smooth, their surfaces colonized by secondary growth in pale greens and whites. The erosion is deep and settled. Nothing here is young. The walls have the patina of something that has been eroding into equilibrium for longer than any surface city has existed, and they are beautiful in the way that old things are beautiful — every curve and groove earned through time.
+
+The floor is uneven. Not rocky — there is almost no mineral matter anywhere in this space. The ground itself is compacted plant material: dead stalks, shed husks, collapsed fruiting bodies, all compressed under generations of weight into a substrate that behaves like packed earth but smells of green rot and warm sugar. It is dry in most places, but here and there — in depressions, at the bases of the great columns — pockets of standing moisture collect. Stagnant, warm, faintly luminous. Things breed in these pools.
+
+---
+
+The columns are the architecture.
+
+They rise from the floor to the ceiling at irregular intervals — perhaps fifteen or twenty of them in this space, spaced widely, the density sparse, plenty of open ground between them. Each column is a living plant, or rather, a plant-in-itself, a self-contained organism of staggering size. The largest is perhaps four meters across at its base. They are not trees. They do not branch in the way trees branch. Instead, each column is a fused mass of stems, roots, and vascular tissue that has grown into a roughly cylindrical form, its surface textured like braided rope scaled up to the size of a cathedral pillar. Their color is a deep, dark green verging on black in this light, with patches of bioluminescent pale blue-green where secondary organisms — algae, fungi, other plant-kin — have established themselves in the crevices.
+
+Some columns are hollow. You can see entrances at their bases where the root-mass has been opened, carved, *used*. This is where the built environment lives.
+
+---
+
+There is a settlement here. A small one — a hamlet, a cluster — nestled among and within the columns. The construction is old and industrial: corroded iron frameworks bolted into the plant-mass of the columns, forming platforms, walkways, and enclosures. Catwalks of rusted grating span the gaps between columns at various heights. Corrugated metal panels — brought from somewhere, manufactured somewhere, though the origins are unknown — form walls and roofs for the spaces between the roots. Pipes run along the columns' surfaces, some of them carrying fluid upward (the plants' own vascular fluid, siphoned and redirected), some carrying it downward (processed waste, or perhaps fuel). The pipes are industrial-era at minimum — riveted seams, heavy-gauge steel, now furred with plant growth and corrosion in equal measure.
+
+There are engines. You can feel them before you hear them — a deep, subsonic thrumming that lives in the substrate underfoot and in the air pressure against your eardrums. The engines are housed in the larger column-bases, where the root-mass has been hollowed out and the machines installed like organs in a body. What they do is not entirely clear. Some pump moisture upward to be distributed through the canopy-ceiling. Some appear to process the amber fluid into something more concentrated — a syrup, a fuel, a chemical feedstock. One engine, the largest, does nothing visible at all. It simply runs. It has been running for so long that the plant tissue has grown around its housing, partially absorbing it, and the boundary between machine and organism is no longer distinguishable. The engine vibrates at a frequency that certain fauna are attracted to.
+
+---
+
+And the fauna.
+
+There are so many of them.
+
+They fill the open spaces between the columns — not packed, not claustrophobic, but *everywhere*, moving, feeding, calling, dying, reproducing. The sparseness of the architecture makes their presence feel paradoxically more overwhelming: you can see them across the chamber, hundreds of them, and the openness gives you no barrier, no occlusion, no mercy of obstruction.
+
+The largest are dog-sized: six-legged, smooth-skinned, eyeless, with broad flat heads and mandible arrays that click and scrape as they forage on the substrate. They move in groups of eight or twelve, their footfalls creating a constant patter like distant rain. They are herbivores, mostly — they chew on the compacted plant-floor and on the lower surfaces of the columns — but they will eat anything organic, and their mandibles are strong enough to open a pipe.
+
+Above them, in the mid-space, flying things. Not birds — nothing with feathers. Leathery-winged, membrane-winged, some with iridescent chitin that catches the faint light. They range from moth-sized to nearly a meter wingspan. The largest are silent fliers, predators of the smaller aerial fauna. The smaller ones are deafening. They produce sound not through vocal cords but through wing-vibration, and when a swarm passes through the chamber — which happens every few minutes — the noise is extraordinary: a rising and falling whine that interacts with the engine-thrum and the animal calls and the drip of condensation to produce a soundscape that is, frankly, punishing. You feel it in your teeth.
+
+In the pools — the damp pockets — there are writhing masses. Larvae, worms, soft-bodied things with no common name. They are the base of the food chain in this space, and they are prolific. They breed weekly, sometimes faster. The warm temperature and intermittent moisture create ideal conditions, and they have no predators bold enough to wade into the deeper pools where the concentrations are highest.
+
+There are other things. Things that cling to the columns and descend on threads. Things that emerge from the hollow columns at intervals — larger, slower, deliberate, with too many limbs and an apparent intelligence that makes you uneasy. Things that burrow into the substrate and leave trails like furrows. The ecosystem is not merely overwhelming in number; it is overwhelming in *variety*. Every surface is colonized. Every niche is filled. The plant architecture supports the fauna, the fauna supports the decomposition cycle, the decomposition feeds the plants, and the engines — the old, embedded, half-digested engines — keep the moisture moving, keep the temperature regulated, keep the whole machine running.
+
+---
+
+The light is dim. Source: the bioluminescence of secondary growths on the columns, the pale glow of the stagnant pools, and — most significantly — the fermentation drips from the ceiling, which carry enough active microorganisms to produce a faint chemiluminescence as they fall. The cumulative effect is a low, diffuse, blue-green illumination that is sufficient to navigate by but not sufficient to see clearly. Shapes are easy. Details are not. The fauna does not need light, and the settlement — whatever its original inhabitants — appears to have been built for creatures that did, because there are fixtures: metal housings for electric lamps, wired to the engines, but most are dark. A few still function, and they cast warm yellow circles that feel alien in this green-dark space. The moths cluster around them in obsessive masses.
+
+The strangeness here is not in any single element but in the *coherence*. This is a functioning system. The plants, the animals, the machines, the old settlement — they have reached an equilibrium, a balance that has been settling for decades, perhaps centuries. The erosion has done its work. The machines have been absorbed. The settlement has been adapted by its current inhabitants — whoever or whatever they are — into something that serves the ecology rather than the other way around. Nothing here is fighting anything else. The fauna does not attack the columns. The plants do not overgrow the engines. The whole arrangement has found its groove, and it runs, loud and warm and alive, in the dark beneath a surface no one in this space has ever seen.
+
+The air smells of sap, rust, warm protein, and ozone. It is thick. It is sweet in the back of the throat. You breathe it and you feel the place enter you — not hostile, not welcoming, simply *present*, in the way that all mature ecosystems are present, indifferent to observation, complete in themselves.
+
+Something brushes past your leg. Six legs. Clicking mandibles. It ignores you. You are not food. You are not architecture. You are just another shape in the dimness, and this place has no use for you, and no fear.

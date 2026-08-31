@@ -1,0 +1,9 @@
+Across the barren expanse of a rocky, airless world stretches a vast and lush hanging garden, suspended impossibly in the void. Tendrils of hardy vines hundreds of meters long anchor the garden to the jagged peaks of towering mineral spires jutting up from the broken, fractured surface of the nascent planetoid. The garden's dense foliage forms a twisting, billowing canopy layer floating weightless against the starry blackness of space.
+
+Dim ribbons of bioluminescence undulate slowly through the garden's alien flora, pulsing in long, patient cycles. Seed pods the size of asteroids drift by at a glacial pace, gradually released by the fibrous fruit of skyscraper-sized organism at the heart of the otherworldly ecosystem. A deafening, subsonic thrum permeates the air as the megaflora respires and circulates nutrients through its far-flung mycelial networks.
+
+Nestled within the sprawling tangle of the garden's undergrowth are strange structures - not built, but grown. Hollow gourds and gazebo-like pavilions of woven vines form enclosed pods inhabited by floating swarms of fractal microorganisms. These semi-sentient collectives use primitive biotech to slowly reshape the fundamental patterns and physical laws underlying the pocket of space-time containing the garden.
+
+Clouds of spores sparkle as they catch the starlight, rearranging themselves into flickering formulae and geometric incantations. The wizardry of the swarms appears to be gradually decoupling the garden from the normal causality of the universe, folding it into a self-contained paradox where the rules of reality itself can be rewritten.
+
+Peering over the edge, the ragged crust of the planetoid stretches off into the distance, still molten and churning as the world born. But this primordial landscape feels ancillary, a footnote to the improbable and terrifyingly wondrous anomaly of the garden floating above it, an embryonic new cosmos unlike any that have come before.

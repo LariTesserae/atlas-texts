@@ -1,0 +1,28 @@
+Tucked beneath the sagging belly of a moss-clogged canal bridge in the old, low quarters of the city, the place is barely larger than a hearthstone. It is not marked on any map—not even the ones etched on bone or whispered in the litanies of the gutter-scribes—but anyone who’s lost a thimble, wept without witness, or followed the scent of wet lichen into a shadow might stumble upon it.  
+
+This is a **pocket of living breath**: cold, saturated, and hidden.  
+
+The ground is not stone, not soil, but a **living quilt of root-felt**—a dense, fibrous mat woven by creeping liverworts, thread mosses, and the pale, questing rhizomes of star-moss that drink condensation from the air itself. Water doesn’t pool so much as *seep continuously*: not falling, but exhaling. The air is thick with it—**1.9/3 wetness made manifest**—a cold damp that clings to skin like second skin. After every rain (and it rains often in this quarter, the clouds snagging on chimney-stacks like wet wool), the walls of the culvert weep beads that never quite coalesce into streams. Instead, they’re siphoned away instantly by thirsty filaments of fungal hyphae and capillary rootlets, vanishing before they can drip.  
+
+**Vegetation is total (2.8/3)**—not merely present, but **architectural, foundational, and ambient**. The culvert’s brickwork is long gone beneath a carapace of emerald velvet moss thick enough to sleep on. Ferns—tiny, frost-tolerant *rustybacks*—curl from fissures like green question marks. Above, the ceiling is a lattice of woven willow withes and reed stems, lashed together centuries ago by hands long turned to silt, now **grown through** by the very plants they once shaped. It’s unclear where human craft ends and botanical will begins; the structure has become a **symbiotic organism**, breathing slowly, expanding millimeter by millimeter.  
+
+The **cold (0.4/3)** is sharp but not biting—a still, cellar-chill that lingers even in summer, drawn up from the subterranean spring that feeds this micro-zone. Frost sometimes feathers the inner rim at dawn, but melts by mid-morning into vapor that hangs like a ghost.  
+
+**Elevation is low (1.1/3)**—barely above the floodline—and the terrain feels **young (erosion: 0.7/3)** despite its ancient origins. The moss mat is fresh, springy underfoot, untrampled, its edges still advancing. Cracks in the old masonry are raw, not smoothed—new roots pry them open with glacial patience.  
+
+Yet **fauna is overwhelming (3.0/3)**. Not in size, but in **density of presence**. The air thrums with invisible life: springtails leap in silent arcs, mites navigate forests of hair moss, and **glow-worm larvae** cling to the damp ceiling like fallen stars, their bioluminescence the only light in a world where **light is nearly absent (0.1/3)**. Their cold green pulses are faint—just enough to silhouette the slow drift of spores or the tremor of a hunting spider. Bats flit through the outer arch at twilight, but deeper in, it’s the domain of **blind amphipods**, translucent crustaceans that swim through films of water on the walls, and **bone-white millipedes** with too many legs, coiling through root tunnels like living sutures.  
+
+**Sound is mostly quiet (1.0/3)**, but not silent. There’s the **drip-absence**—the sound of water being *taken*, not falling. The rustle-sigh of a fern unfurling. The chitter of a shrew-mole tunneling through root-felt. And beneath it all, a low, resonant **hum**—not mechanical, but **biological**: the collective vibration of thousands of symbiotic fungi communicating through mycelial threads, a subsonic thrum felt in the teeth more than heard.  
+
+**Built elements (1.9/3 urban)** linger as ghosts: a rusted hinge half-swallowed by moss, a shard of blue-glazed tile embedded in the wall like a fossil, the curve of an old sewer pipe now serving as a den for water shrews. This was once part of the city’s underbelly—a service nook, a forgotten overflow. But **technology is primitive (1.1/3)**: no wires, no synthetics. Just willow withes, fired clay, hand-cut stone. The current inhabitants shape their world with mandibles, rhizomes, and slow chemical whispers—not hammers or code.  
+
+**Weirdness (1.6/3)** blooms quietly: some mosses here **glow faintly blue** when stepped on, fading within seconds. The ferns grow in perfect Fibonacci spirals, unnervingly precise. And if you stay long enough in the cold dark, you might feel the root-mat **shift subtly beneath you**, not as collapse, but as **adjustment**—as if the whole chamber is reorienting itself around your presence.  
+
+**Dynamic (2.1/3)**, yes: water cycles through in vapor and thread-thin flows; spores launch hourly; predators stalk in miniature dramas. But it all unfolds at the pace of **geological whispering**. This is not chaos, but **dense, slow choreography**—a ballet of condensation, root-tip expansion, and silent predation.  
+
+And **density is sparse (1.2/3)** in the only way it can be in such a saturated world: presences are **scattered, deliberate**. Each organism has its niche, its thread of space. Emptiness is honored—the negative space between moss clumps, the air gaps in the root-felt, the dark between glow-worm pulses. It is crowded with life, yet never claustrophobic. There is **room to breathe** in the breathing world.  
+
+This is not a ruin. Not a garden. Not a sewer.  
+It is a **living hinge**—where the city exhales its forgotten moisture, and the wild answers with relentless green.  
+Step inside, and the entrance seals behind you—not with stone, but with fronds.  
+You are now part of the substrate.

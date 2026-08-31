@@ -1,0 +1,5 @@
+# The Place of Broken Edges
+
+The altitude is so great that the air itself feels thin and reluctant, as though it arrives here only under protest, in amounts insufficient for warmth or clarity. The light does not behave correctly. It falls in diffuse, gray sheets across the terrain, illuminating without warming, present without being bright—overcast in a way that no clouds could produce, as if the sun itself has grown uncertain and dimmed by some fundamental wavering in the laws that govern this place.
+
+What the light falls upon is mineral. Not desert, exactly—desert implies aridity born from lack, from water that once was or might be. This is mineral in a deeper sense: a landscape of salt andite crust, ofiteiteite surfacesite that crunch underfoot with aite sound likeite walking oniteiteiteiteiteite something bothiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteite

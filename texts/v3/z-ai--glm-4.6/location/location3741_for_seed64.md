@@ -1,0 +1,21 @@
+The air thrums. It is not a sound you hear so much as a sensation that presses against the skin, a vibration that sits in the teeth and rattles the hollows of the bone. It is a physical weight, a constant, deafening roar that exists just past the threshold of hearing, like the feedback loop of a microphone held too close to a speaker, but smoothed out into an eternal, unbroken chord.
+
+This is the Engine-Room, though it is vast as a valley. Or perhaps it is a valley; the distinction is lost here.
+
+The geography is defined by verticality. You stand on a precipice of rusted iron, looking out across a chasm that plunges into a darkness so total it seems to swallow the dim, amber glow of the illumination. The walls of this space are not stone, but tiers of gigantic, interlocking gears and pistons, frozen in a moment of arrested catastrophe. They rise like cliffs, stretching upward into the gloom, their edges weathered and rounded by millennia of microscopic friction. The sense of elevation is extreme; you are perched on a spine of a sleeping leviathan, suspended over a drop that recedes into infinity.
+
+The floor, the ledges, and the vast, sloping surfaces of the machine are not bare metal. They are clothed in a dense, suffocating tapestry of vegetation.
+
+This is the paradox of the place: it is lush, yet utterly dry. There is no water here. The chemistry of life has abandoned the aqueous and embraced the industrial. The flora thrives on the waste of the mechanism—oil, ozone, and the fine, metallic dust that settles like snow. The plants are strange, succulent structures: coils of copper-colored vines that feel warm to the touch, and thick, fleshy fronds that resemble bundles of insulated wire. They grow in tight, geometric spirals, packed so densely that there is no earth visible beneath them, only a matting of gray-green fiber and blackened roots clinging to the steel.
+
+The vegetation is rigid and brittle. When you step, it crunches—a sound that is instantly swallowed by the ambient roar. Here and there, large, bulbous growths pulse with a faint, internal light, drawing energy not from the sun but from the electromagnetic field that permeates the vault. These "lamp-flowers" provide the only light, dim and shifting, casting long, wavering shadows against the intricate walls of the mechanism.
+
+The temperature is cool, a crisp, metallic chill that carries the smell of old grease and static electricity. It is the temperature of a tomb that has been ventilated by fans for a thousand years.
+
+There is a sense of extreme density to the life. Every niche, every crevice between the gigantic teeth of the buried gears, every bolt-hole and rust-pit is occupied. The ecological rule of this place is occupancy; if there is space to exist, something will grow into it. But despite the lushness, there is no movement. There are no birds, no insects, no chittering mammals. The vibration of the machine creates a frequency that biological evolution never breached; no animal can survive the constant shaking of its own cells. It is a silent ecosystem, photosynthesizing vibration.
+
+Human influence is scattered and minimal—a testament to how insignificant the builders were compared to their creation. Occasionally, protruding from the thick mat of wire-vines, you see the skeleton of a catwalk, corroded and buckled, or a sealed hatch marked with fading symbols that nobody alive remembers reading. These are the "built" elements, sparse, isolated, dwarfed by the scale of the botany and the industry that hosts it. They are merely scars on the vast hide of the machine.
+
+The landscape is stuck in a state of perfect equilibrium. The loud thrumming never wavers; the rotation of the great gears, if they still move at all, is too slow to perceive—a geological shifting that takes centuries to complete a single degree. The dust falls at the same rate the plants grow to capture it. The rust oxidizes at the same speed the metal replenishes itself through unknowable subterranean loops. It is a loud, violent stasis.
+
+To look out over the hanging gardens of the Iron Vault is to see a world that is packed, vibrant, and utterly dead. It is a single, frozen instant of mechanical fermentation, a garden of dry, copper things eating the rust of a god that is holding its breath.

@@ -1,0 +1,39 @@
+# The Breathing Plateau
+
+The darkness is not absolute but nearly so—a vast highland that has turned its back on starlight, wrapped in a permanent canopy of low industrial cloud. The clouds themselves are the source: somewhere beyond the horizon, far beyond, machines the size of mountain ranges burn and churn and exhale. Their output drifts here across hundreds of miles, settles into the plateau's weathered basins, and stays. The air tastes of warm metal and old stone and something faintly biological, like the breath of very large sleeping animals.
+
+You cannot see far. Perhaps thirty feet on a clear moment, less when the vapor thickens. But you can feel the vastness—it's in the way sound behaves, in the time it takes for a dropped pebble's echo to return (if it returns at all), in the particular quality of isolation that comes from knowing the nearest edge is days away in any direction. The plateau stretches continent-wide, a high tableland of eroded sandstone and ancient volcanic tuff, its surface worked by epochs of wind and rare rain into a labyrinth of shallow channels, standing pillars, natural bridges that span chasms you cannot see the bottom of.
+
+The stone here has character. Millennia of weathering have revealed strata in ochre and rust and deep charcoal, though in this darkness they read only as textures against your hands—rougher where iron-rich layers resisted, smoother where calcium-pale bands gave way. The erosion is complete in its way, not fresh-cut but arrived, settled into forms that will hold for another thousand years before changing noticeably. Everything balances. The channels direct what little water comes; the pillars stand because they were always going to stand; the bridges span what they span.
+
+---
+
+Water arrives as condensation—the industrial clouds meeting the plateau's residual warmth and surrendering their moisture in slow beads that run down stone faces and collect in shallow pools no bigger than a cupped palm. Sometimes it rains, though rain here is more a general thickening, a transition from damp air to marginally damper air, fat droplets wandering down rather than falling with purpose. The plateau is stippled with these temporary waters, each one catching what little ambient glow filters through the cloud cover and holding it like a coin.
+
+The warmth comes from below. Geothermal vents, old and stable, breathe through fissures in the rock—not hot enough to steam but enough to keep the stone blood-temperature, enough to make the plateau a haven in what would otherwise be a cold altitude. This heat is the plateau's secret, the reason anything lives here at all. It rises and meets the descending industrial murk and creates a zone of perpetual temperate dusk, a greenhouse with no glass, a terrarium with no walls.
+
+---
+
+The vegetation is sparse but specific. Lichen colonies mark the stone in patches you could mistake for mineral staining—pale gray-green rosettes that grow no more than a finger's width in a human lifetime. In the deeper channels where water lingers, moss grows in tight dark cushions, nearly black in the low light, soft as old velvet. Here and there a wiry shrub has found purchase in a crack, its leaves reduced to near-needles, silver-gray and waxy, condensation beading on each one like a string of glass. No trees. The wind that comes, though rare, comes hard when it arrives, and height here is a liability.
+
+But the fauna—the fauna is abundant in ways that take time to perceive.
+
+They are adapted to the dark, these creatures, and to the spaces between things. At first you notice only sounds: the soft click of something's claws on stone, rhythmic as breathing. A whistle from somewhere to your left—brief, interrogative, unanswered. The rustle of what might be wings, very large wings, passing overhead with a compression of air you feel more than hear. Then your eyes begin to adjust (they never fully adjust; there is not enough light for full adjustment) and shapes emerge at the edges of perception.
+
+Low-slung quadrupeds, compact and densely furred, materializing from the murk as they approach pools to drink. They lap water with curled tongues, their eyes reflecting nothing because there is nothing to reflect, their ears—huge, elaborate, mapped with blood vessels that glow faintly warm in the infrared you cannot quite see—swiveling constantly, reading the landscape through sound. They travel alone or in pairs, widely spaced, each one holding territory through calls pitched below human hearing, a constant negotiation you sense only as pressure in your chest.
+
+Smaller things flow through cracks in the stone—something between a salamander and a centipede, pale and leggy, hunting the even smaller invertebrates that feed on lichen. Flying creatures roost in the undersides of natural bridges, emerging to hunt the thermals that rise from vents, their wings membrane-thin and their bodies compact as fists. When they hunt, they hunt by echolocation, and if you are very still you can hear the edges of their calls, chittering static at the top of your range.
+
+And there are larger things. You do not see them but you see evidence: a carcass of one of the furred drinkers, mostly consumed, its bones cracked for marrow. Tracks in condensation-damp stone, tracks that suggest something heavy and patient. Scent-marks on pillar bases, musky and sharp. The ecosystem moves at its own pace, predator and prey, decomposer and producer, all of it adapted to near-darkness, all of it generating its own tiny sounds that weave together into something just shy of silence.
+
+---
+
+The quiet is not true quiet but reduced quiet—a baseline hum that might be the distant machines, might be blood in your ears, might be the plateau itself vibrating at some frequency too low to parse. Against this, every sound stands out. Your footsteps. The drip of condensation. An animal's call. They don't echo so much as disperse, absorbed by the cloud cover above and the labyrinthine stone all around. You learn to move carefully, not because danger is immediate but because the plateau teaches care. The channels can drop suddenly into chasms. The bridges are old and whole but not infinite. Footing matters.
+
+Sometimes the cloud cover thins in one direction or another, and something like light—gray, diffuse, sourceless—washes briefly across a section of the plateau. In these moments you see distance: miles of eroded stone stretching toward a horizon that doesn't exist, columns rising from channels like the remnants of a petrified forest, the suggestion of movement as animals freeze and wait for the darkness to return. Then the murk closes back in, and you are returned to the intimate, the immediate, the thirty-foot circle that is all you can truly know.
+
+---
+
+The machines that feed the clouds are not here—will never be here. Whatever industry burns beyond the horizon has no use for this place. Perhaps it once did; perhaps the plateau was surveyed, assessed, found lacking in whatever resource mattered. Perhaps it was simply too far, too high, too dark to bother with. The result is a place that bears industry's mark without being touched by industry's hand: a second-hand landscape, breathing borrowed air, warm and damp and alive in ways it might not be without the distant engines' influence.
+
+The plateau does not care about origins. It has settled into its current state and found it good. The animals have adapted. The lichen grows. Water condenses, collects, evaporates, condenses again. The warmth rises, the clouds descend, and between them is this zone—vast, mostly quiet, abundantly alive in its sparse and careful way. A plateau of soft sounds and patient erosion, holding its shape against time, making a world out of darkness and breath and stone.

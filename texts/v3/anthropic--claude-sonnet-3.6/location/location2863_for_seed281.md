@@ -1,0 +1,17 @@
+The vast bromeliads cup the morning mist, their spiral pools reflecting fragments of sky between the canopy layers. Each holds its own tiny ecosystem - not just water and drowning insects, but complex communities of specialized creatures that have evolved to live nowhere else. Some of these pool-dwellers have developed translucent bodies, visible only by their shadows on the pale plant flesh below.
+
+The landscape unfolds in terraces of living matter. What appears at first to be geological - cliffs, valleys, rolling hills - reveals itself as pure vegetation, layers upon layers of growth reaching back centuries. The oldest growths have developed woody structures that mimic stone, creating a pseudo-geology that newer life colonizes. The air is cool and damp, heavy with the breath of millions of stomata.
+
+Throughout this vegetable vastness, massive shapes move with deliberate slowness. They might be mistaken for clouds if watched too briefly, but they are herds of floating creatures, like vast jellyfish adapted to air, trailing long tendrils that brush the tops of the canopy. Their translucent bodies catch and bend the sunlight, creating shifting patterns of shadow and iridescence on the green world below.
+
+The constant sound is what strikes you first and never quite fades into background - a layered chorus of life. Vibrating membranes, resonating chambers, stridulating limbs, all combining into a living drone that rises and falls in slow waves. Much of the sound comes from the plants themselves, complex biochemical processes creating audible frequencies, a language of chemical songs.
+
+Scattered throughout this living architecture are structures that seem almost natural - spherical chambers formed from still-living plant matter, woven into existence by the small, many-limbed creatures that inhabit them. These beings, neither purely insect nor purely mammalian, move in coordinated swarms through their territory, tending to the plants with mysterious purpose. Their structures pulse slowly with bioluminescent rhythms, marking territories whose boundaries are written in scent and sound.
+
+Water moves through this world not in streams but in living vessels, captured and channeled through specialized plant structures that have evolved to create hydraulic networks. These channels pulse with slow peristalsis, moving nutrients and organisms through the living landscape like a distributed circulatory system.
+
+In certain areas, the vegetation forms vast spiral patterns visible only from above, created by competing chemical gradients in the soil and air. These patterns shift over seasons, but so slowly that the movement is imperceptible to human time-sense. The creatures of this world move to rhythms far slower than our own, their behaviors choreographed to cycles of months and years rather than minutes and hours.
+
+The boundaries between individual organisms blur - symbiosis is the rule here, not the exception. What appears to be a single plant might be a complex colony of dozens of species, each contributing to the whole in ways that defy traditional categorization. Even the animals seem half-plant at times, their bodies hosting gardens of symbiotic flora that blur the line between passenger and self.
+
+At twilight, bioluminescent spores drift through the air like slow snow, each one a potential new colony, each one carrying the genetic memory of this strange, patient world. They cast enough light to read by, though there is no one here who reads in any way we would recognize.

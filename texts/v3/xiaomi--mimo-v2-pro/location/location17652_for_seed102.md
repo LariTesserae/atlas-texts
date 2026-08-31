@@ -1,0 +1,21 @@
+# The Resonant Grotto of the Lithophyte Pinnacles
+
+You descend through a narrow basalt throat, the passage barely wide enough for your shoulders, the rock still sharp with recent fracture. The air thickens as you go down—not with humidity, but with warmth and a dense, resinous perfume. Then the passage opens, and you step into the grotto.
+
+It is a single, vast chamber, perhaps fifty meters across at its widest, its ceiling lost in a vaulted dimness. There is no sky. The walls are raw, young basalt, pocked with vesicles and streaked with veins of glowing amber resin—the only light source, casting a weak, honeyed luminescence that makes the shadows deep and permanent. This is a world lit by its own geology, a sealed ampoule buried in the planet’s crust.
+
+**The Vegetation and the Absence of Water**
+
+The floor is not soil, but a thick, spongy mat of pale, intertwining rhizoids—like the root system of a forest turned inside out and laid bare. From this mat rise the *lithophytes*. They are not plants in any terrestrial sense. They are towering crystalline-fungal structures, spires of silica and chitin that grow in clustered pinnacles, some as tall as three meters. Their surfaces are etched with fractal patterns, and they glow faintly from within with the same amber resin-light, a slow, metabolic pulse. They draw minerals directly from the basalt through the rhizoid mat, metabolizing sulfur compounds and trace metals. There is no water here. The chemistry is based on slow silicate gels and volatile organics. The air smells of hot stone, ozone, and a sweet, almost caramel-like decay.
+
+**The Sound and the Fauna**
+
+The silence you might expect in such a place does not exist. The grotto *hums*. It is a low, foundational drone, felt in the bones more than heard, produced by the constant, slow growth of the lithophyte crystals grinding against the basalt. But atop this drone is a cacophony of clicks, scrapes, and chitinous rattles. The fauna is abundant but utterly alien. Armored, multi-legged creatures resembling a cross between an isopod and a scorpion scuttle across the rhizoid mat, their carapaces made of the same silicate material as the pinnacles. They rasp at the fungal growths with primitive, obsidian-like mouthparts. Blind, pale things like elongated, furred eels weave through the air, navigating by echolocation, their high-pitched clicks stitching the dimness together. They roost in the upper pinnacles, their guano a slow rain of phosphorescent dust that adds to the grotto’s eerie glow.
+
+**The Built and the Strange**
+
+Scattered across the chamber floor are the remnants of *something*. They are not structures, exactly. They are perfect, geometric cuts in the basalt—hexagons, spirals, and sharp angles—as if a colossal chisel worked with impossible precision. Some hold shallow pools of the amber resin, now solidified into glass. A few small, hand-sized artifacts lie near these cuts: blades of fused basalt and crystal, clearly shaped, but for what purpose is unclear. They are warm to the touch. These marks are old, yet the young erosion of the chamber suggests the space itself is newly opened. The paradox hangs in the air: a recently-breached void containing ancient, silent evidence. It feels like a tomb, a seed vault, or a chamber of forgotten worship. The weirdness is in this dissonance—a vibrant, noisy ecosystem thriving in a frozen, silent architectural riddle.
+
+**The Atmosphere and the Rules**
+
+The equilibrium here is profound, almost oppressive. Nothing changes. The pinnacles grow at a rate measurable in centuries per millimeter. The creatures follow the same paths etched into the rhizoid mat over millennia. The temperature never varies. The light never shifts. It is a snapshot of a process, arrested yet alive. The dynamic is zero. This is a world that found its perfect, strange balance and stopped. To be here is to feel like an intruder in a place that has forgotten time, a loud, bright, living jewel sealed in the dark, warm, and utterly dry heart of the stone.

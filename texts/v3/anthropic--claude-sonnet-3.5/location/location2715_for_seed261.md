@@ -1,0 +1,15 @@
+As you crest the final ridge, a vast plateau unfolds before you, stretching to the horizon in a patchwork of shallow, glimmering pools and rough-hewn stone structures. The air is cool and heavy with moisture, a constant mist hanging just above the waterlogged terrain. This is the City of Nascent Pools, a place where the very ground seems to be in a state of flux, eternally caught between solid and liquid.
+
+The landscape is dominated by countless interconnected basins of various sizes, from small puddles to expansive lagoons. These pools are not still, but rather in a constant state of formation and dissolution. The bedrock beneath is porous and malleable, as if it hasn't fully decided to be stone. Water seeps up from below, creating new depressions and filling existing ones, while others slowly drain away, leaving behind glistening, mineral-rich mud.
+
+Scattered across this watery expanse are the dwellings and structures of the city's inhabitants. These are not buildings in the conventional sense, but rather organic growths of a pale, coral-like stone. They emerge from the bedrock itself, pushed upward by unseen geological forces, their forms rough and unfinished. The people of this place do not build; instead, they shape and nurture these stone growths, coaxing them into habitable forms using primitive tools and patient labor.
+
+The sparseness of conventional vegetation is offset by the abundance of unique, amphibious life forms that thrive in this environment. Massive, salamander-like creatures lumber between pools, their skin a mosaic of bioluminescent patterns. Schools of finger-sized, translucent fish dart through the shallow waters, while colonies of symbiotic fungi and algae create vivid splashes of color on the damp stone surfaces.
+
+The soundscape is a cacophony of natural and sentient origin. The constant gurgle and splash of water is underlaid by the deep, resonant croaks of the giant amphibians. This blends with the rhythmic chipping and scraping of stone workers, the sloshing footsteps of people traversing the wet terrain, and the eerie, wind-like whistle produced by air flowing through the porous rock formations.
+
+As day turns to night, the city transforms. Bioluminescent life forms activate, casting the landscape in an ethereal, blue-green glow. The mist thickens, and tendrils of glowing vapor rise from the warmer pools, creating an otherworldly atmosphere.
+
+The inhabitants of this place have adapted to its unique properties. They move with a fluid grace, as comfortable in water as on land. Their dwellings are open to the elements, and they seem to have an intuitive understanding of the landscape's cycles. They harvest the mineral-rich deposits left behind by evaporating pools, cultivate the symbiotic organisms that grow on the stone, and have developed a complex system of channels and locks to manage the ever-changing water levels.
+
+This is a place of constant change and adaptation, where the line between construction and natural formation is blurred. The City of Nascent Pools exists in a state of perpetual becoming, its future as fluid and unpredictable as the waters that shape it.

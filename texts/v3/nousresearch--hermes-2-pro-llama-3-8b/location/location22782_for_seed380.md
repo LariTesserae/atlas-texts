@@ -1,0 +1,13 @@
+Despite its sparse vegetation, the landscape is far from barren. It is a world born of water and industry - a subterranean city where a unique ecosystem thrives in the resulting darkness. 
+
+Wrought from the earth itself, the buildings rise around you like a verdant, gargantuan fungus. Their organic, irregularity speaks to the slow weirdness of their construction, shaped over thousands of years as city and land grew together in a precarious ecology. Light is scarce beneath the surface, but it is enough. Panels of bioluminescent fungi line the structures, casting a pale, blue-green glow over the streets and marking the hours with a weak pulse. The pulse of the bioluminescent panels echoes through the empty streets, further diluted by the cool temperature and the quiet that shrouds everything.
+
+The air feels damp and heavy, weighted with the musty scent of wet earth and the tang of industry. It thrums with the distant noise of machinery, gears grinding and pipes throbbing. These seem distant in the dark, their hum muted by layers of rock and earth that muffle industrial echoes.
+
+The water that permeates this world is trapped in a delicate balance, ringing your boots as you navigate the dim streets. On the spot where a single droplet may fall, it begins to sprout a seam of mushrooms or a cluster of algae, spanning a rainbow of colors from iridescent greens to burning reds. Mud dissolves into the water, forming intricate patterns in the nooks and crannies of the ancient, weathered rock. This intricate marinade is home to a great teeming of life - a subterranean wonderland where adapted creatures flit and hunt. 
+
+In this world, slow change is the norm. Years weigh heavily upon the land, and great processes - such as the shifting of water and the gnarled, twisting roots of fungal buildings - change the landscape with patience. Buildings grow, plants flourish, and the strange ecosystem continues to shift in its intricate dance with the harsh, industrial world above.
+
+Every so often, something breaks the stillness. The rustling of a strange creature's wings, a splash of water that sets off a chain reaction of ripples, the distant whirr of machinery reveals that beneath the surface, in the perpetual half-darkness, the world is never truly still. It is alive, teeming with life - a testament to the power of strange places in the face of industry.
+
+Thus, the city beneath the earth pulses with life, surviving against the odds in the cool, dark, and damp ambiguity of its existence. It is a testament to the power of a world forged by the confluence of its unique ecology and the strong pulse of industry above. It is a place of perpetual change and equilibrium, the ebb and flow of its strange life and industry in constant dance.

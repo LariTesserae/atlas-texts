@@ -1,0 +1,11 @@
+Welcome to the Sodden Crescents, an ever-shifting, densely-layered urban sprawl perched at the edge of a vast marsh. Here, the boundaries between land and water blur, as buildings seem to sprout organically from the saturated soil, their foundations half-submerged in the shallow, murky waters.
+
+The cool, damp air carries the ever-present sound of trickling streams and dripping condensation, punctuated by the raucous calls of the overwhelming fauna that call this place home. Strange, amphibious creatures slither and hop through the narrow alleyways, their forms adapted to thrive in the perpetually damp environment.
+
+Despite the primitive level of technology, the denizens of the Sodden Crescents have mastered the art of hand-crafting their dwellings from the abundant reeds and mud, weaving them into a labyrinth of interconnected structures that seem to grow and reshape themselves over time. Each building is a dense, layered ecosystem in itself, with moss-covered walls and rooftops sprouting with sparse, hardy vegetation that clings to every available surface.
+
+The landscape itself is in a constant state of emergence, as if the very ground beneath your feet is being slowly sculpted by the patient ebb and flow of the waters. New channels and pools form and disappear, while muddy islets rise and sink, creating a shifting, ever-changing terrain that defies easy mapping or prediction.
+
+Yet, in the midst of this fluid, organic chaos, there is a sense of organization and purpose. The structures align themselves along the meandering waterways, forming a network of canals and walkways that allow for navigation and trade within this watery realm. Primitive boats and rafts ply the deeper channels, carrying goods and people between the various districts of this strange, wet metropolis.
+
+The Sodden Crescents is a place where the boundaries between land and water, natural and built, are blurred and constantly renegotiated. It is a testament to the resilience and ingenuity of its inhabitants, who have learned to not only survive but thrive in this ever-changing, aquatic environment, adapting and shaping their surroundings to suit their needs while respecting the power and unpredictability of the waters that sustain them.

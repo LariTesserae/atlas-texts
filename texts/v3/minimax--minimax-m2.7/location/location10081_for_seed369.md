@@ -1,0 +1,15 @@
+# The Weeping Hollow
+
+This is a highland hollow—small enough to feel like a single room, bounded by steepening slopes that close it in on three sides. The fourth opens onto a view of lower country, but the eye is pulled back into the bowl of the place, its stillness, its wet green depths.
+
+The hollow is old. The stone here has been in its shape for a long time, weathered to softness. Edges are rounded. Surfaces hold hollows and channels where water has worked for centuries, patient and undramatic. The erosion is not dramatic—not crumbling cliffs or sudden slides—but a slow settling into form. The rocks look like they have always been here and will remain, undisturbed in their patience.
+
+Water is the first thing you notice, even when you don't see it. It seeps from the bank along the northern face, where the earth is dark and constantly damp. Small streams don't run here so much as pulse—water pushing through hidden channels, appearing at the surface and vanishing again into cracks. The hollow pools in places, filling small basins rimmed with moss and sedge. The air is thick with moisture, and when the light comes through the canopy, it fractures through the water suspended there, making everything shimmer at the edges.
+
+The vegetation is lush—dense ferns crowd the margins, their fronds heavy with condensation. Thick moss grows on every surface that holds still long enough. Deep green and gray-green, shot through with the occasional pale lichen. Tree forms twist here, shaped by the moisture and the wind that comes through the hollow's mouth. Nothing grows aggressively; it all grows slowly, spreading, thickening, softening the hard edges of the rocks.
+
+The scale is intimate. You can take in the whole hollow in a glance, but its details reward lingering. The sounds are loud in the way that wet places are loud: the irregular drip of water from fern fronds, the soft percussion of drips into pools, the low continuous hum of running water somewhere beneath the stone. Your own footsteps seem too large for the space. A bird calls from the treeline—two notes, three, then silence. The silence doesn't last. Something always resumes.
+
+What makes the place strange is harder to name. Not wrong, exactly. But slightly off in its grain. The water in the largest pool is dark and still, and seems to swallow light rather than reflect it. The ferns nearest the water grow in spirals that aren't quite regular—too many turns, not quite symmetrical. And the air has a quality of suspension, of waiting. Nothing here is in a hurry. The moss grows. The water seeps. The stone weeps. And you have the sense that if you left and returned in a year, nothing would have changed, and yet everything would be different in some minute degree.
+
+There is evidence of presence, though not of making. A cairn of stones near the eastern approach, stacked deliberately, a hand's breadth high. Someone stood here once. Someone stacked these stones and walked away, and the moss has begun to claim them. The place holds this without comment.

@@ -1,0 +1,11 @@
+In a high, cold valley nestled between sheer granite cliffs, a dense and tangled garden city spreads in organic patterns. The air is perpetually cool and moist, a fine mist frequently drifting through the streets and beading on leaves. 
+
+Nearly every surface is covered in lush vegetation — moss, vines, ferns, bromeliads and orchids grow thickly on walls, roofs, and the steep rock faces that enclose the city. The built structures seem almost grown rather than constructed, with curving organic forms woven from living wood and plant fibers. Multi-story buildings rise like strange trees, their rooms and passages formed from intricate lattices of branches. Rope bridges and walkways made from braided vines web between the buildings at various levels.
+
+The streets are narrow, winding, and often tunnel-like, enclosed by the thick plant growth arching overhead. In places, they open into small plazas where clear, icy streams bubble up from stone fountains before flowing away through a maze of channels and pools. Bioluminescent algae and fungi emit a soft bluish-green glow.
+
+There are no sounds of machinery or technology. Human voices are muted, blending with the whisper of wind through leaves, creaking of wood, drip of water, and occasional birdcall. The city feels tightly-packed and insular, but harmonious, the architecture seeming an extension of the cliffs and forest.
+
+The few residents visible move through the city slowly and deliberately. They wear simple loose clothing woven from plant fibers in shades of green and brown, appearing almost camouflaged in the city's living structures. Some tend the gardens that grow up through buildings and over streets, harvesting vegetables and fruits. Others carry baskets of collected rainwater. There is a sense that life here is carefully managed to exist in balance with the dense vegetation and the constraints of the valley's closed ecosystem.
+
+There is a feeling of deep time - that this city has grown over centuries, the dense plant life slowly interweaving with human architecture until the two are inextricable. The sheer rock walls hint at a landscape still being shaped by elemental forces. It is a place slightly otherworldly in its primordial atmosphere and intricate melding of nature and culture.

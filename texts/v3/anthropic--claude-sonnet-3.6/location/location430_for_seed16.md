@@ -1,0 +1,13 @@
+Deep in the heart of an ancient city-hive, there lies a forgotten garden chamber - a perfect sphere hollowed from the surrounding stone and metal, perhaps thirty feet in diameter. The walls are lined with countless small niches and terraces, each hosting dense clusters of peculiar crystalline growths that might be called plants, though they contain no water. These formations spiral and branch in fractal patterns, their translucent forms ranging from deep amber to pale citrine, pulsing with their own dim bioluminescence.
+
+The air is thick and hot, nearly unbreathable by human standards. Waves of heat rise from the oxidizing metal floors, creating shimmering distortions that make the chamber seem larger than it is. The "plants" feed on this heat, using it to grow their mineral lattices in an endless dance of expansion and collapse.
+
+The chamber resonates with a constant drone - the crystalline growths vibrate in harmony with the city's distant machinery, creating overlapping overtones that rise and fall in complex patterns. Sometimes the sound swells to nearly painful levels before subsiding again, like the breathing of some vast organism.
+
+This place was clearly built with purpose - geometric patterns and worn glyphs cover the walls between the growing niches, and ancient copper pipes still carry heat from somewhere far below. But whatever civilization created this chamber is long gone. Now it maintains itself, the crystal-plants slowly consuming and rebuilding the walls in equal measure, maintaining a precarious balance.
+
+There's no true day or night here, only the eternal amber glow of the crystal-plants and the occasional bright flash when new growths suddenly emerge. The air shimmers with suspended metallic dust that catches what little light there is, creating momentary constellations that drift and fade.
+
+Time moves strangely in this space. The crystal formations grow and reshape themselves in sudden bursts followed by long periods of stillness. Sometimes entire sections collapse in a cascade of musical tones, only to begin rebuilding themselves hours or days later in slightly different patterns.
+
+No water has touched this place in millennia, yet it teems with its own kind of life - dry, hot, mineral life that follows rules different from those of the water-based world above. The chamber feels both ancient and alive, a pocket universe following its own cycles of growth and decay, building and unbuilding, song and silence.

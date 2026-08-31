@@ -1,0 +1,51 @@
+# The Caldera Garden
+
+---
+
+The place is not large. You could pace its diameter in forty steps, maybe fifty if you keep close to the walls. It exists inside something — cupped within the throat of a dead secondary vent, a pocket punched into the flank of a much larger massif that rises, invisible above you, into altitudes where nothing grows and the rock becomes philosophical. Down here, inside the vent, you would never know the elevation. The walls are close. The sky is a ragged oval of pewter light, distant and unconvincing, more like a ceiling than an opening. The place has the feeling of a room that assembled itself over a very long time and then stopped.
+
+---
+
+The first thing is the sound.
+
+It arrives before anything visual resolves — a deep, pressurized exhalation, constant and enormous, like the interior note of a pipe organ played by the mountain itself. Not wind. Wind moves, shifts, has arrival and departure. This does not move. This is simply present, the way bedrock is present, the way the past is present. Somewhere beneath the vent floor there are gas channels in the old volcanic plumbing, and they breathe. Not intermittently — always. The tone sits at the low edge of what you'd call sound and the high edge of what you'd call pressure. You feel it in your back teeth. You feel it in the fluid behind your eyes. After a while you stop noticing it the way you stop noticing your own heartbeat, and then it lives in you, and then you can never quite remember what quiet was.
+
+Over this fundamental tone: mechanical sounds. A rhythmic chuffing, slightly arrhythmic but only slightly, like a large engine that has been running so long it has developed something analogous to personality. Somewhere in the packed interior of the vent there is a small compressor, or something that functions as a compressor — a squat iron thing, black with age, its housing patched with riveted plates of different vintages, the oldest ones barnacled with rust-blossoms that have themselves been there long enough to smooth and darken and look almost ornamental. The compressor drives air through a network of copper and iron pipe that runs along the vent walls at roughly chest height, disappearing into and reemerging from the vegetation. The pipes are old. Some of them hiss at their joints. None of this leakage seems to matter.
+
+There are also, occasionally, sounds like something very heavy settling — a low creak from the rock, a shift, a sigh. The mountain is not moving. The mountain will not move. But it has its sounds. It keeps them.
+
+---
+
+The vegetation is the walls, the floor, the ceiling where there is a ceiling, every surface. This is not a place where plants grow in a place. This is a place that is made of plants, the way a coral reef is made of coral — the distinction between container and content has collapsed. The stone of the vent walls is present only in glimpses, gray-black basalt and older stuff, paler, shot through with mineral veins the color of old bone, and even these glimpses are framed by root-masses and hanging growth so thick that the rock appears to be wearing the plants rather than hosting them.
+
+It is cool. Not cold — cool in the way that deep shade is cool, the way spring water is cool, a temperature that sits just below comfortable and makes you feel alert rather than uncomfortable. The gas that breathes from below is not hot. Perhaps it never was, or perhaps it was and the deep time of this place has reached its equilibrium, and now the gas simply is the temperature it is, and the plants have arranged themselves around it, and the arrangement has been the same for longer than there is language to express.
+
+The dominant presences are mosses and ferns — but pressed to the edge of what those words can hold. The mosses form continuous upholstery across every horizontal and near-horizontal surface, a deep, saturated green-black, the color of the shadow inside a conifer forest, and they are thick enough that your foot would sink into them an inch before meeting resistance. They have grown into each other. There are no gaps. Under a hand lens you would see that each individual moss plant is present, living, doing what moss does, but at the scale of the eye there is only the continuous surface, the unbroken pelt. The ferns emerge from this surface in dense colonies, their fronds overlapping so completely that the effect is less like individual plants than like a single distributed organ, a fern-mind thinking its slow thoughts, the individual fronds merely its neurons.
+
+In the compressed air from the pipes, things move. The fern fronds tremble. The motion is constant, not random — the pipe network distributes its pressure in predictable ways, and the plants have grown into those ways, arranging their fronds to catch and direct the flow, so that there are slow visible currents in the vegetation, waves of trembling that move from certain pipe-joints outward through the space in patterns that are, once you see them, obviously not random. The garden is organized by the air. The air has always organized it. The organization is complete.
+
+---
+
+Near the northeastern curve of the wall — the directions are a courtesy; the space is nearly round — there is a structure. It was a small building once, or the beginning of one: four courses of mortared stone forming a low rectangle roughly the size of a single sleeping room, open to the sky, the interior now entirely consumed by vegetation so that it reads as a planter more than a ruin. Above the highest remaining course of stone, iron bolts emerge at intervals, and between them a framework of iron bars once supported something — a roof, an extension, something industrial in intention — but the upper members have been removed or fallen, and the bolts remain, and from the bolts the plants have descended in curtains, and the curtains have thickened over time into walls, so that the original stone structure is now merely the foundation of a living one.
+
+Inside the stone rectangle, barely visible through the curtaining growth, a piece of machinery. It is not the compressor — it is something else, something that has the proportions of a generator but may not be one, a blocky iron presence with a flywheel that does not turn, has not turned in what the plants have overgrown suggests is decades, the flywheel itself now entirely sheathed in moss so that it reads as a green disc, a slow clock stopped at a particular moment and then incorporated. Cables run from it — thick cables, rubber-jacketed, the rubber cracked and in some places absent, the braided copper inside patinated to peacock colors, greens and blues — and these cables disappear into the vegetation along the walls, presumably to the compressor, or to something else, or to nothing; the cables have been there long enough that their destinations are now private.
+
+There are other marks. A ceramic insulator nailed to the basalt, no longer attached to anything, holding its shape with a kind of dignity. A length of pipe capped at both ends and wired to the wall with twisted copper wire, its purpose unrecoverable. On the floor of the vent, in the moss, the ghost of a path — not a path, exactly, but a place where the moss is slightly thinner, slightly more compressed, as though walked for years and then walked no more, the moss growing back over the form of the walking without quite filling it. The path goes from the stone rectangle to the compressor and nowhere else.
+
+---
+
+There are no animals. This is not a circumstance — it feels more like a rule. Not a rule imposed, but a rule that emerged, settled, became fact. The vegetation is packed too tightly, the air-pressure too constant, the sound too large, perhaps. Or perhaps the garden simply does not admit that category of thing. The mosses and ferns do not require pollination. They have their own methods, ancient ones, spores carried in the compressed air through the pipe network and deposited wherever the pressure drops, wherever there is a surface not yet occupied, wherever the green has not yet reached, which is almost nowhere. Almost.
+
+Nothing visits. Nothing passes through. The oval of sky above sometimes changes color — pale gray to darker gray to the washed white of overcast noon — but nothing crosses it. No bird. No insect. The garden seems not to draw attention from above.
+
+---
+
+It is impossible, standing here, not to think about time — or rather, to stop thinking about it in the usual way, where time is something that passes, something with direction. The evidence of time in this place is everywhere: the depth of the moss, the caliber of the roots, the rust-generations of the iron, the cables and their verdigris. Time happened here. A great deal of it. But the result of all that time is not change — the result is this, exactly this, the place in its current form, and the place in its current form is stable in a way that defies the idea of continuation. It does not feel like a place that is currently becoming something else. It feels like a place that finished becoming.
+
+The compressor runs. The gas breathes from below. The fern-fronds tremble in their organized waves. The moss is the temperature it is. The light is the light — dim, sourceless, the gray-green luminosity of a place that has learned to do without direct sun and has arranged itself accordingly, the plants selecting over generations for the particular light-harvesting that works here, in this pocket, at this temperature, in this chemical air.
+
+You could leave. The walls have holds — the root-masses make a rough ladder — and forty feet of climbing would bring you to the outer surface of the vent, and then the scale of the massif would open around you, the true elevation asserting itself, the wind and cold and distance of real altitude. You could leave and the garden would remain. The compressor would run. The fronds would tremble. The flywheel would hold its moss.
+
+Everything would be exactly as it is. Exactly as it has been. Exactly as it will be.
+
+The sound continues. The place breathes itself.

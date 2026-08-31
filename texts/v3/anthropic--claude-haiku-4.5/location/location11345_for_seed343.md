@@ -1,0 +1,49 @@
+# The High Plateau of Lichen Bells
+
+You stand at 4,800 meters, in a place that has been becoming itself for longer than anything down below can properly remember. The air tastes of mineral dust and something green—not fresh, but ancient, the way old copper tastes. Your lungs work harder. Everything here works harder, and has been working harder for epochs.
+
+The terrain itself has surrendered to patience. The mountains that ring this bowl-shaped valley were worn down eons ago; their edges are now soft suggestions against the sky. The rock beneath your feet—exposed in patches between the living layer—is so weathered that it crumbles to rust-colored sand if you press it. This is a place at the end of its geological adolescence, settling into a kind of final state. The slopes that climb the valley walls do so gradually, almost reluctantly, as if the mountain itself has lost interest in being steep.
+
+But the *substrate* is not rock anymore. It is plant.
+
+The vegetation here doesn't grow *in* soil so much as it has *become* the soil. A dense, fibrous mat three to five meters thick covers everything—the valley floor, the slopes, even the rocky outcroppings where they poke through like thoughts breaking the surface of old water. It is not entirely alive in the way you might recognize life. Parts of it are, certainly: the lower layers are skeletal, decomposing, threading through with fungal filaments that glow faintly ochre in dim light. The middle layers are a bewildering tangle of rhizomes, creeping stems, and roots that have ceased to distinguish between earth-anchoring and air-climbing. The upper surface is a chaos of low vegetation—mosses the size of a hand, liverworts, tiny ferns with fronds like lace—punctuated by stunted shrubs no taller than your waist, their leaves so thick and waxy they look laminated.
+
+It squelches under your boots. Always.
+
+The moisture here shouldn't exist at this altitude, yet it does. Morning clouds roll in from the eastern foothills and become trapped in the vegetation's dense structure, condensing into a fine drizzle that lasts hours. Three or four times a week, genuine rain falls—not heavy, but persistent, soaking into the plant-matter slowly. There are no conventional waterways visible, but you can hear them: thin underground streams threading through the organic substrate, moving downslope with a sound like whispered conversations. Occasionally, you encounter pools—small, dark, perfectly still—that form where the mat has compressed into something almost impermeable. They smell of peat and minerals. Things live in them. You've seen them move.
+
+The vegetation is silent only in your imagination. In reality, it roars.
+
+Every inch of this landscape is occupied by life, and that life is in constant, deafening motion. The dominant sound is not a single thing but a composite: a fractious chittering that rises and falls in waves, punctuated by buzzing at a frequency that seems to vibrate your sinuses. Insects. Insects beyond counting. The air flickers with them in the normal light—the sun here is pale and distant, filtered through an atmosphere laden with particulates, but sufficient. Small flies with prismatic wings move in clouds. Beetles the size of thumbnails climb the vegetation with grinding sounds. Something larger—wasps, perhaps, or hunting flies—makes a sound like a tiny chainsaw, distant but omnipresent. And beneath it all: a low thrumming, almost subsonic, that you feel in your chest rather than hear. It might be cicadas. It might be something else.
+
+The fauna here is *overwhelming*.
+
+You realize this slowly. At first, the sound occupies all your attention. Then you begin to see: the insects are only part of it. Small mammals move through the upper vegetation—shrews or rodents, glimpsed as quick brown movements. You've found their tunnels in the plant-mass, highways packed down by generations. The feces here are everywhere, small and dark, evidence of constant feeding. Larger animals move at dusk and dawn: you've heard something quadrupedal, sizeable, slipping through the dense substrate with a wet, brushing sound. There are birds—many birds—though they seem almost invisible despite their calling. You catch glimpses of movement high in the tallest shrubs. The sounds are complex, layered, argumentative. Some are melodic in a harsh way; others are mechanical, like alarms.
+
+And then there are the things you don't see at all.
+
+You feel them. The air carries evidence of larger predators, though whether they've passed through recently or are moving in the landscape now is impossible to say. Droppings the size of your fist appear occasionally in clearings—carnivore, unmistakably. The vegetation in some places is trampled and torn. In other places, there are scattered bones: small, articulate, too clean. Something eats here. Something eats *everything* here.
+
+The ecosystem moves at a pace that is almost visible if you stay still long enough. The insects are harvested by birds. The plants are stripped by mammals. The mammals are hunted. The dead fall into the substrate and become food, become plant, become insect again. It is cyclical and relentless. Nothing here is built to last as an individual. Everything is built to cycle.
+
+The scattered human structures feel almost apologetic. There are three—perhaps four—small buildings that you can identify: simple stone foundations with wooden frames, the wood weathered to a silver-gray that blends with the lichen. They appear abandoned, though not recently. One has a collapsed roof; plants grow through its window frames in the ropy style of things that have found shelter. Near it, a small stone platform, perhaps a silo or grain store, still stands upright. A wooden structure—a shed, or shrine—has begun to dissolve back into plant-matter; vines have wrapped it so thoroughly that you can barely see the original frame. There are no paths between them. There are no signs of maintenance. The buildings are being absorbed the way tissue absorbs a splinter.
+
+The people who lived here—if "lived" is the right word—used simple tools. You find evidence of hand-worked stone, wood-carving, weaving. There are remnants of what might have been terraces on the eastern slope, an effort to manage the vegetation for food or medicine. Primitive irrigation channels, now invisible beneath the plant-mass, still direct water in certain seasons. It is clear that living here was an act of constant negotiation with the ecosystem, not dominion over it. The buildings themselves are small, huddled, as if the people who made them understood that they were always provisional, always about to be reclaimed.
+
+The valley extends roughly four kilometers across, perhaps six in its longest direction, with the rim hills rising steeply but briefly on all sides. The slopes are uniform in their coverage—that green-brown mat, studded with shrubs and the occasional taller plant that might be a small tree. There are no visible horizons; the distant ground simply fades into a haze of particulate matter and mist. The rim of the valley is distinct against the sky, but what lies beyond it is lost in fog and distance.
+
+The air is warm—18 or 19 degrees Celsius, perhaps—but not hot. It feels stable, as if this temperature is a permanent condition rather than a seasonal one. The warmth combined with the moisture and the intense biological density creates a kind of greenhouse effect, though not one you'd call pleasant. It is warm in the way a living thing's body is warm: viable, but not comforting. Humidity clings to you. Breath comes easily enough, but you're aware of the thinness.
+
+And always, always, the sound.
+
+It never stops. Even at night—and you have been here at night—the creatures continue. The high-frequency buzz softens but doesn't cease. New sounds emerge: deeper croaking, something like whalesong in miniature, the rustle of larger animals moving in the dark. The vegetation itself seems to make noise, or perhaps it simply resonates with the noise of everything living in it. There is a rhythm to it, hypnotic and slightly maddening, the sound of a system in perfect motion, consuming and producing in equal measure, with no regard for your presence or comfort.
+
+This place is old. Not in the way mountains are old—with dramatic histories of upheaval and collision. This is the oldness of something that has reached its final form and settled there, perfectly, completely. The rocks have worn down to their essence. The plants and animals have found their balance. The people came, lived briefly, and are being erased. The process is inexorable and entirely natural.
+
+You could stay here forever. The food exists—strange fungi, edible plants, small game if you could catch it. The water is available, though you'd need to filter it. The shelter could be rebuilt from the available materials. The climate is mild enough to survive in.
+
+But something about it—the overwhelming sound, the sense that you are always *watched* by a thousand hidden eyes, the fact that the landscape seems to be thinking, slowly, in a way that has nothing to do with human thought—makes you want to leave. The place is not hostile. It is far worse: it is indifferent. It is alive in a way that doesn't require your witness, doesn't require your survival. You are a temporary variable in a system that was perfected before your kind existed.
+
+The way out is the same as the way in: carefully, because the mat beneath your feet could give way, because anything could be lurking in the dense vegetation, because the sound here doesn't quite let you think straight. But mostly you want to leave because somewhere, under the endless green-brown roil, you can feel the pulse of something vast and patient and entirely self-sufficient.
+
+It doesn't need you. And that, somehow, is the most unsettling thing of all.

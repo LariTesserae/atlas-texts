@@ -1,0 +1,17 @@
+The city is called Ouroboros-on-the-Spire, a jagged, impossibly thin needle of rock thrusting miles into the troposphere. At this altitude, the air is thin, biting, and perpetually mist-heavy, coating the entire vertical metropolis in a slick, dark sheen of condensation. 
+
+The terrain here is not land in the traditional sense; it is a gargantuan, ancient mountain pillar, eroded over aeons by high-altitude winds until its surface has taken on a smooth, basaltic texture, slicked with black algae and weeping mosses. The city does not sit *on* the mountain; it is grafted *into* it. Layer upon layer of brass-riveted piping, oxidized copper plates, and rusted industrial scaffolding cling to the rock face like fungal shelves.
+
+Because of the extreme erosion, there are no loose stones or soil here. Everything is fixed, settled, and ancient. What vegetation exists is vertical: bioluminescent ferns and thick, succulent moss blankets that cling to the shadow-sides of the industrial spires, soaking up the intermittent, icy drizzle that rolls off the cloud banks. These plants are a deep, bruised purple, feeding not on sunlight, but on the heat leakage from the city’s aging, pneumatic steam-nodes.
+
+The scale is sprawling. Looking out from any of the iron-grated balconies, you see a mid-range geography of suspended walkways, dangling cargo lifts, and massive, slow-turning turbines that pulse in the dim, grey half-light. The density is claustrophobic; everything is layered. You walk over the groaning steel roof of a factory that hangs five thousand feet above the abyss. Below that, another layer of piping. Below that, the raw, ancient stone-flesh of the mountain itself.
+
+There is a mechanical, industrial rhythm to this place. Massive pistons, powered by the constant, gravity-fed flow of mountain runoff, drive the city’s internal clocks and filtration systems. The sound is a low-frequency hum—the "heartbeat" of the Spire—punctuated by the metallic *clack-clack* of pneumatic tubes moving goods between the vertical districts. It is remarkably quiet, despite the activity; the mist dampens sound, turning the roar of a vent into a soft, wheezing sigh.
+
+Fauna is sparse, limited to the "Wind-Skimmers"—translucent, jellyfish-like creatures that drift on the updrafts between the industrial platforms, filtering moisture and microorganisms from the fog. They are the only things that seem to move with intention, glowing with a faint, ghostly cyan light that barely cuts through the gloom.
+
+The rules of this world are simple: *Always tether.* The gravity is reliable, but the surfaces are precarious. The moisture is constant, but never enough to pool; it beads on the copper, drips into the intake valves, and evaporates as steam. 
+
+This is a place of final-form industrialism. The civilization here isn’t expanding; it is perpetually maintaining. They are repairing rivets that have held for three hundred years, polishing the algae off the pressure gauges, and breathing the recycled, metallic air. It feels like the end of something long and slow, a final, beautiful stagnation where the geology and the machinery have finally fused into one singular, breathing, weeping monument. 
+
+When you stand on the highest platform, the world ends in a wall of grey clouds. You are in a city that is a ghost, anchored to a pillar that has seen the birth of the world and is now simply waiting for the wind to finish the job of smoothing it into nothing.

@@ -1,0 +1,19 @@
+The cistern breathes.
+
+High in the eroded crown of an ancient mountain, where millennia of rain have carved the stone down to its bones, a natural depression has been worked by countless generations of hands into something between architecture and geology. The pool is no larger than a modest room, perfectly circular now after ages of patient chiseling, its walls rising thirty feet to a jagged opening where the mountain's flesh parts to reveal a coin of dim sky.
+
+Water weeps continuously from the porous volcanic rock, each surface slick with mineral tears that have painted the stone in layers of calcite and copper green. The seepage is eternal—this highland catches every cloud, wrings moisture from warm air that rises and cools against the ancient peaks. The water level never varies, maintained by some perfect equilibrium between the weeping walls and an invisible drainage that must thread through the mountain's heart.
+
+The builders packed this space with purpose. Stone shelves spiral up the walls, each one precisely carved to hold water jars, though most now hold only fragments of terra cotta and accumulated centuries of pale cave pearls formed by the endless drip. Handholds worn smooth as silk climb between the shelves. At the waterline, a ring of stone seats emerges just barely from the surface, carved directly from the bedrock, forcing anyone who sits to do so waist-deep in the warm mineral water.
+
+The density of human intention saturates every surface. Grooves direct the wall-water into collection channels. Symbols—perhaps text, perhaps tally marks—cover the spaces between shelves, carved so long ago that secondary erosion has softened them into suggestions. Niches pock the walls at regular intervals, each one stained with ancient soot from oil lamps. Stone pegs jut from impossible places, their purposes forgotten.
+
+The water itself is blood-warm, heated by the mountain's deep thermal memory and thick with minerals that film the skin. It tastes of iron and salt. Nothing grows in it save a thin bacterial mat that glazes the submerged stone, giving off the faintest luminescence—just enough to turn the water the color of dark honey in the dim light that filters from above.
+
+Sound barely exists here. The weeping walls make no noise; the water arrives as a film, not drops. Occasionally, a small cascade of pebbles rattles down from the opening above, or the water gulps softly as it adjusts to a body entering or leaving. The acoustic properties are peculiar—a whisper carries perfectly from any point to any other, but louder sounds die immediately, swallowed by the water and wet stone.
+
+The only life consists of the occasional cave swallow that nests in the highest reaches, their mud cups glued to the walls just below the opening. Their droppings have added another layer to the patina below. Sometimes a small, pale gecko navigates the walls, hunting the even smaller flies that somehow find their way up from the world below.
+
+This is a place between places—too high for casual access, too small for a settlement, too wet for storage, too warm for preservation. Yet every surface speaks of constant use across geological time. The stone seats are polished to glass. The handholds shine. Fresh scratches cross ancient ones in the symbolic carvings, as if each generation adds their own layer to an endless palimpsest.
+
+The cistern exists at the intersection of the natural and constructed, where human intention and geological process have merged into something singular. It is a room that the mountain grew, a spring that hands perfected, a secret that everyone who ever found it helped to keep.

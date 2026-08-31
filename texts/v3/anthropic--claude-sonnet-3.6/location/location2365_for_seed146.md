@@ -1,0 +1,17 @@
+Deep beneath the surface spreads a vast fungal cavern-world, though to call these spaces "caverns" misses their essential nature. Here, the division between space and living matter has dissolved - every volume is occupied by the dense, intricate architectures of mycelia and fruiting bodies that have, over millennia, developed into something between forest and metropolis.
+
+The dominant colors are pale gold and ivory, with occasional sweeps of amber and coral pink. Bioluminescent patches create a perpetual warm daylight that seems to emanate from everywhere and nowhere. The light has a thick quality, as if the very air is suffused with suspended spores that catch and scatter the glow (though somehow the atmosphere remains clear enough to see great distances through the fungal forests).
+
+The structures themselves defy easy categorization. What at first appear to be columns are revealed as continuous living masses that branch and merge in three dimensions, forming vaults, archways, and chambers that extend for kilometers. The surfaces have an organic geometry - not quite regular enough to be crystalline, not quite random enough to be purely organic. They bear the marks of deep time, with older regions showing a weathered, almost polished quality where countless generations of growth and decay have reached an equilibrium.
+
+There is almost no free water here - the fungal mass maintains its own moisture economy, transferring nutrients and fluids through its living networks with exquisite efficiency. What little water exists appears as occasional beads of condensation that are quickly absorbed back into the living substrate.
+
+The space is predominantly silent, though careful attention reveals subtle sounds: the occasional soft patter of spore releases, the barely-audible crackle of growth, and - in the deepest reaches - low frequency resonances as vast sheets of mycelia respond to distant seismic movements.
+
+Scattered throughout this living labyrinth are the remnants of an ancient culture - simple tools of carved chitin and hardened fungal matter, crude shelters grown into the larger structures, and what might be ritual spaces marked by arrangements of bioluminescent species. These artifacts suggest their makers learned to cultivate and shape the fungal growth rather than impose strictly artificial constructions.
+
+The few animals here are mostly small and specialized - pale, eyeless arthropods that have evolved to navigate by touch and chemical sensing, and colonies of creatures that might once have been termites but have adapted to cultivate specific fungal varieties in protected chambers.
+
+Everything moves with glacial patience. Growth and decay happen so gradually that change is only visible across generations, yet the entire system is in constant flux, maintaining its forms while continuously rebuilding itself. The air is still but not stagnant, circulating through the living matrix in slow convection currents driven by the slight heat of metabolic processes.
+
+This is a mature ecosystem, as stable as it is vast, having found its forms over spans of time that dwarf human comprehension. It gives the impression of being both incredibly ancient and somehow outside of time altogether - a living architecture that simply is, and has always been, and will continue to be long after those who discover it have passed into memory.

@@ -1,0 +1,17 @@
+It is a high-altitude reservoir, or perhaps a gallery within a drowned mountain, where the distinction between "inside" and "outside" has been lost to a deliberate, ancient architecture. You are standing in a flooded cathedral of carved salt and heavy, unpolished stone.
+
+The water is nearly absolute. It is not a thin film but a total medium—warm, viscous, and mineral-heavy. It feels like silk against the skin, holding its heat with a stubborn, geological patience. Because the elevation is high, the air—where it exists in small, trapped pockets against the vaulted ceilings—is thin and sharp, but most of this world exists beneath the meniscus.
+
+There are no plants here. No moss clings to the stones; no algae clouds the water. Instead, the world is a masterpiece of intentional construction. Every surface has been shaped by hands that understood the slow geometry of the deep. The "terrain" consists of endless, interconnected chambers, stacked vertically like a hive. The walls are thick, polished basalt and fired ceramic, worn down by eons of aquatic friction until the corners are soft and mammary.
+
+Despite the height of this place, it feels subterranean because of the darkness. There is no sun. Light exists only as a faint, ghostly byproduct of the fauna—a low-frequency bioluminescence that pulses in the deep violet or bruised red spectrum. It is just enough to reveal that you are not alone.
+
+The density of life here is staggering, yet it is not a chaotic life. Strange, soft-bodied creatures—half-mollusk, half-mechanism—cling to the manufactured ridges of the walls. They move with an excruciating slowness, their shells made of the same fired clay as the architecture, as if they were birthed by the building itself. Schools of pale, sightless fish drift through the archways in tight, silent formations, their scales clicking rhythmically against the stone. 
+
+The technology of this place is tactile and primitive. There are no circuits or humming wires. Instead, there are massive, hand-cranked gear-works made of water-logged timber and bone, used to pivot enormous stone sluices. Ropes of braided hair and sinew hang from the ceilings, used by unseen inhabitants to navigate the vertical shafts. It is a world of pulleys, counterweights, and simple leverage—a civilization that mastered physics without ever discovering fire.
+
+The sound is a heavy, muffled quiet. The water swallows vibration. There is only the low *thrum* of the thermal currents hitting the stone and the occasional, distant *clack* of a ceramic shell closing. 
+
+Erosion has performed its final work here. The statues that once lined the halls are now mere suggestive lumps of pockmarked granite. The stairs lead to nowhere, smoothed into slides. The entire structure feels as though it has reached its terminal state; it is no longer decaying because there is nothing left to strip away. It is a settled, high-altitude womb of stone and brine.
+
+Movement here requires a patient grace. To move too fast is to fight the density of the medium. The inhabitants—if they can be called that—do not swim so much as they drift, letting the weak gradients of the warm water carry them from one carved chamber to the next. It is a state of permanent, architectural suspension. It is a world that has already happened, now resting in the warm, dark bath of its own antiquity.

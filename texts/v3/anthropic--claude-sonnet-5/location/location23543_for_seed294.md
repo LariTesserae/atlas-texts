@@ -1,0 +1,33 @@
+# The Drowned Terraces of Ven-Kor
+
+The water comes first—it always comes first here—in sheets that fall not from any single cloud but from the sky itself, as though the atmosphere had given up the distinction between air and ocean. You stand (if standing is still the word) on a plateau of high ground, one of thousands that comprise this place, and the rain does not fall so much as *arrive*, in pulses, in walls, in moments of total whiteout followed by an eerie clarity where you can see for kilometers across a flooded world of terraces and platforms, all of them built, none of them grown.
+
+## What Was Made
+
+Nothing here occurred naturally—or if it did, that nature is long since paved over, terraced, retained, channeled. The high ground rises in steps, like a vast unfinished amphitheater abandoned at every scale: stairs three meters tall standing beside stairs the height of a fingernail, as though built by hands of wildly different intention, or by one intention across an incomprehensible span of time. The material is uniform regardless of scale—a pale gray-green stone-substance, neither concrete nor granite but something that suggests both, smoothed past the point of memory. There is no ornament. There was probably ornament once. Now there is only the suggestion of pattern in the way certain terraces catch water and others shed it, a logic too old to read, functioning anyway, the way a body keeps a heartbeat after the mind that built it is gone.
+
+The erosion is total but strange—not the erosion of wind on rock, since there is no wind to speak of, no exposed dry stone to scour. This is erosion by water and time and submersion and re-emergence, cycles so long that the terraces have softened the way a face softens in extreme age, the features still present but no longer sharp, every edge a memory of an edge. Some structures have slumped into shapes that suggest their original purpose only as a feeling, an intuition: *this was a wall, this was a vessel, this was a road.* You cannot be sure. No one built this recently enough to ask.
+
+## The Water Itself
+
+It is the dominant fact of this place. Not water as a feature of landscape but water as the medium the landscape is suspended within—lakes that connect to flooded terrace-floors that connect to standing pools the size of countries, all of it linked by sheeting rain and slow subsurface seep, so that the boundary between "body of water" and "atmosphere" stops being meaningful. You wade as often as you walk. Some of the lower terraces are simply gone beneath water you cannot see the bottom of, their stone steps continuing down into a cold blackness that the dim light never penetrates.
+
+The light is the color of a held breath—gray-blue, low, with no clear source, as though the sun is a rumor the sky has not fully committed to. It does not change in any way you'd call daily. It simply *is*, dimly, and the rain interrupts it constantly, and in the moments between downpours the light seems almost to brighten with relief, only to dim again as the next wall of water arrives.
+
+## The Turbulence
+
+This is the part that unsettles: nothing here is stable, despite the ancientness of everything. The erosion is old—primordial-old, end-of-something-old—but the *present moment* is chaos. Terraces collapse without warning, not from age exactly but from some deeper instability in the water table or the bedrock or whatever holds this place together; you'll hear a sound like a building exhaling and turn to see an entire stepped platform fold sideways into a lake that wasn't there an hour before. New pools form. Old ones drain through channels that open suddenly, sucking water down into stone gullets with a sound like the world swallowing.
+
+It's as though the place achieved its final form an immense time ago, settled into the only shape it would ever need—and now, having nothing left to become, it has nothing to do but slowly, continuously, undo and redo itself in small regions, a body too old to die but too restless to lie still. Creation and collapse, indistinguishable from each other, happening always somewhere just out of direct view, glimpsed peripherally as a shudder of falling stone or a sudden new waterfall pouring off an edge that was solid yesterday.
+
+## What Lives Here
+
+There is no vegetation—not a lichen, not a film of algae that you can find, though perhaps it exists in the deep water you can't see into. But there is fauna, abundant and strange, adapted entirely to wet stone and turbulent change. Pale eel-like things move through the flooded lower terraces in long unhurried ropes, visible only as a disturbance in water that's otherwise still. Flocks—if that's the word—of soft-bodied flying or gliding creatures occupy the spaces between terrace-tiers, riding the turbulent downdrafts created by collapsing structures, seeming almost to anticipate the collapses, gathering before a terrace falls as though they can taste the instability coming. Their calls are the only persistent sound here: not loud, not constant, a thin keening that carries oddly far in the wet air and then stops, leaving the place in its more typical quiet—just rain-hiss, water-slap, the distant groan of settling stone.
+
+Things with too many points of articulation cling to the undersides of overhanging terrace-edges, motionless for hours, then gone. You never quite see what they are. The ecology has no green base that you can identify—it must run on something else, mineral chemistry, deep heat, the bodies of things that die in the structural collapses and feed whatever's beneath the water. A closed loop, ancient as the architecture, sustained by nothing you'd call sunlight.
+
+## The Feeling of the Place
+
+It is not violent, despite the instability. The collapses are slow-motion, almost gentle, more like sighing than breaking. The scale is large—you can see for kilometers in clear moments, terrace beyond terrace beyond terrace receding into rain-haze, the whole vista scattered rather than crowded, plenty of space between one structure and the next, plenty of black flooded gap. It has the feel of a place built by something patient beyond imagining, abandoned before completion or after a completion so total it became indistinguishable from ruin, and now left to the rain and the eels and the slow architecture of its own perpetual, quiet, endless falling-apart.
+
+You get the sense, standing on the high ground while the rain walls move across the middle distance like curtains drawn and redrawn, that this is not decay in the way you understand decay. It is simply what this place *does*, now, in its old age—the way a glacier moves, the way a heart keeps beating past any reason: built, flooded, eroded, falling, still here.

@@ -1,0 +1,21 @@
+The Gallery of Perpetual Becoming
+
+Water drips everywhere here, but never pools. Each bead forms perfectly on the underside of translucent petals of glassvines that cascade down walls of living concrete - a bioengineered lattice that grows itself upward at the speed of slow rain. The whole place is mid-breath, mid-gesture, only just deciding what shape it wants to take when it finishes waking up.
+
+You're walking inside an orchid that hasn't finished blooming yet.
+
+The corridor - if corridor is right for something with no straight lines nor fixed dimensions - widens and narrows as you move through it. Every surface breathes faintly, exhaling warm mist that smells of copper and chlorophyll. Light comes from everywhere and nowhere, filtered through membranes of cultured silk that pulse with the rhythm of some distant ocean. They say the walls here were seeded as spores two centuries ago, fed on mineral-rich fog and the sound of human voices. Now they remember every conversation that ever echoed in their growing chambers, reshaping their curves to accommodate the weight of words long dissolved.
+
+The floor beneath your feet - warm, yielding slightly like exercised muscle - is a mycelial mat that remembers footprints only until the next drip of nutrient water washes them away. Every step you take is immediately untaken, though somewhere deep in the place's distributed memory, the shape of your presence shifts it infinitesimally toward some future configuration.
+
+Above you, or perhaps beside you depending on how the space has arranged itself in the last few seconds, suspended gardens rotate slowly on cables spun from spider-silk proteins. Each sphere contains a complete ecology in miniature: a desert whose sand dunes breathe, a miniature rainforest where the trees have replaced leaves with solar panels, a coral reef floating in air that the fish swim through as if it were water.
+
+The air itself is alive with invisible industry. A hundred varieties of engineered pollen drift lazily from bloom to bloom, carrying not genetic material but designers' intentions - blueprints for new branchings, suggestions for color variations, requests for more space from particularly ambitious root systems. Where two pollen-grains touch, they spark briefly with blue light and exchange information in bursts of encoded fragrance.
+
+A quiet place mostly, threaded through with subtle sounds: the soft pop of new buds opening, the sigh of growing fibers stretching, the whisper-drip-whisper of water finding new paths through porous stone. But listen longer and you begin to hear the place's true voice - a vast, slow conversation happening at frequencies below hearing, between the chemical sensors in every root-hair and the decision-making nodes distributed throughout the concrete like dreaming neurons.
+
+Rare things move through this garden of glass and living stone. A maintenance drone shaped like a hummingbird buzzes past, its wings iridescent solar panels drinking light as it checks moisture levels in a plot of experimental moss. Somewhere deeper in the structure, larger shapes stir occasionally - caretaker forms grown rather than built, half-organic shepherd minds whose job is to encourage certain growth patterns and gently discourage others.
+
+The whole place exists in deliberate motion, never quite settling, always flowering toward some impossible ideal of itself that recedes into possibility space as it approaches. They're trying to build paradise here, or perhaps they're breeding a new kind of architecture that dreams its own dreams. It's difficult to tell the difference anymore, if there ever was one.
+
+What you do know, walking these warm, wet corridors that rearrange themselves behind you like polite forgetfulness, is that the Gallery is not quite empty of you when you leave. Somewhere in its growing, somewhere in the chemical conversations happening between leaf and light and stone memory, it has taken your measure and begun, very slowly, to grow a room that remembers the shape of your thoughts, just in case you should ever come back this way again when it's finished becoming whatever it is becoming next.

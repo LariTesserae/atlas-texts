@@ -1,0 +1,25 @@
+The world you’ve described is a **high, cool, submerged city of plants.**
+
+Imagine a plateau high above the ocean’s floor, but there is no air above it—only a crushing, endless column of water. The "sky" is a deep, dark indigo ceiling where light filters down in ragged, shifting pillars. The temperature is cool, stable, and still, the kind of cold that permeates stone and flesh alike, never warming, never freezing, just existing in a state of suspended decay.
+
+**The Terrain and Architecture**
+This is not a landscape of rock and soil, but of living, breathing cellulose. The ground itself is a mat of fibrous roots, woven so densely over millennia that it has petrified into something resembling cork or hard-packed peat. It is springy underfoot, silent, and ancient.
+
+Rising from this substrate are the structures of a city—but not one built by hands. This is a settlement grown, not constructed. Towers of hollow, buoyant reeds, thick as ancient columns, stretch upward toward the dim light. They are spaced wide apart, creating a sparse, cathedral-like emptiness between them. The buildings are not squares or rectangles; they are spirals, branching fronds, and bulbous chambers, all connected by a network of suspended walkways made of braided vines and stiffened kelp.
+
+The erosion here is not the work of wind, but of water and time. Everything is settled, weathered, and in balance. The edges of the leaf-like roofs are frayed and softened by the ceaseless current. The stone-like foundations of the plant-pillars are encrusted with generations of calcified algae, giving them a segmented, fossilized appearance. Nothing is sharp; all is smoothed by the patient, persistent drag of the liquid world.
+
+**The Ecology**
+The vegetation is total. It fills every cubic inch of space, not as a crowd, but as a complete, layered ecosystem. The "sky" is a canopy of floating lily pads the size of rafts, their undersides glowing with a faint, phosphorescent green. Below them, the water is thick with drifting spores and pollen, a visible haze that filters the light into golden shafts. The walls of the structures are living bark, slowly photosynthesizing in the dim light. The air—if you could call it that—is a solution of oxygen bubbled up from the roots below, held in place by the plant's own architecture.
+
+Fauna is abundant, but it moves with the slow, deliberate grace of the deep. Fish with translucent bodies and lidless eyes drift through the open atriums of the plant-towers. They are not frantic predators, but grazers, picking at the algae that coat every surface. In the deeper, darker hollows between structures, blind, eel-like creatures coil in the roots, their lateral lines sensing the minute vibrations of the water. The sound is a constant, low roar—the collective noise of a million tiny movements, the grinding of plant fibers in the current, the distant, muffled pulse of the ocean’s heart. It is loud, but it is a white noise, a blanket of sound that makes silence feel like a vacuum.
+
+**The People and Their World**
+The inhabitants are primitive, yet their technology is perfectly adapted to this world. They do not mine metal; they harvest resins and fibers. Their tools are made of sharpened bone, hardened wood, and shell. They weave nets from spider-silk and kelp, and their blades are obsidian flakes harvested from the rare, glassy nodules that occasionally drift down from the surface.
+
+Their society is layered, but not hierarchical in a vertical sense. It is layered in depth. The youngest live in the upper chambers, closer to the faint light, tending the floating gardens. The elders inhabit the lower, darker roots, where the past is stored in the form of carved stones and preserved seeds. They are a people of memory and patience. Their calendars are marked by the slow bloom of the great flowers that open once a generation, their history written in the rings of the plant-pillars.
+
+**The Rules of This World**
+Here, water is not an obstacle; it is the medium of existence. Sound travels farther, and with more clarity, than in air. A whisper can cross a chamber. Movement is deliberate; haste is wasteful and dangerous. The world is slow, and its inhabitants have adapted to this tempo. Their hearts beat slower, their thoughts are longer, their decisions are measured across seasons, not moments.
+
+The weirdness is subtle, a low hum in the background. The plants sometimes seem to dream. A vine might gently coil around a sleeping person's ankle, not with malice, but with a slow, curious instinct. The phosphorescent light sometimes pulses in rhythm with the breathing of the city itself. It is a place where the boundary between the living and the built is not just blurred—it is nonexistent. The city is alive, and it is breathing, slowly, in the cool, deep, liquid dark.

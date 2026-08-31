@@ -1,0 +1,11 @@
+A vast and ancient plateau stretches endlessly beneath an obsidian sky, its surface pockmarked by shallow depressions that collect moisture from the infrequent rains and heavy condensation that rolls in with the night. The landscape is predominantly barren rock, weathered and eroded over eons into rippling waves and strange, contorted sculptures. 
+
+Sparse vegetation ekes out an existence here - hardy succulents and low, scrubby bushes cluster around the edges of the water-collecting hollows. Pale lichens cling to the shadowed sides of wind-carved boulders. There are no trees to speak of in this harsh environment.
+
+Though the days are warm, even hot when the dark clouds part to let shafts of sunlight beat down upon the plateau, the nights grow cool as heat leeches quickly from the exposed stone. Cyclical extremes of temperature have caused the rocks to fracture in geometric patterns over time.
+
+Peculiarly, the seeming desolation of this place belies an abundance of animal life. Small, furtive creatures scurry between the shadows - rodents, lizards, and insects well-adapted to the arid conditions. Larger beasts prowl the edges of the plateau and roam the strange forests of stone - pack predators that have evolved to ambush prey around the watering holes, and lumbering, thick-hided herbivores that can go weeks between drinks.
+
+Most striking are the machines that dot the landscape, towering constructions of dark metal that hum and churn ceaselessly. These monoliths, though clearly artificial, have become as much a part of the ecosystem as the natural rock formations. Around their bases, unique microclimates form where moisture condensesmore readily and the soil is richer. Vegetation clusters more thickly here, attracting more animals. 
+
+The machines themselves seem engaged in some inscrutable industrial process, perhaps extracting minerals from deep below the plateau or harnessing energy from the atmosphere. Their purpose is a mystery, but they appear to have been operating autonomously for a very long time, perhaps thousands or millions of years, slowly shaping this eerie mechanical ecosystem in the heart of a long-dead world.

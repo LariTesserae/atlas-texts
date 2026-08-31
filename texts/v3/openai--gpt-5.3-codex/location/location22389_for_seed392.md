@@ -1,0 +1,24 @@
+From above, it looks like a marsh that someone **remembered from a dream** and then rebuilt by hand.
+
+The whole region lies low and wide, almost level with its own water. There are no hills, only slight lifted lines—levees, causeways, ring-banks—running in patient geometry across a bright plain. Nothing here is raw ground. Every surface is made: fired brick, packed lime, woven reed mat, stacked shellcrete, timber grilles, stone plates fitted edge to edge. Even where green growth appears wild, it rises from crafted beds, from basketed loam held in place by retaining walls, from slit channels cut with stone blades and kept true by rope measurements and stakes.
+
+It is hot in a direct, unwavering way. The light is intense enough to flatten distance; white plaster and pale clay throw it back upward so the air itself seems lit from below. You sweat immediately. Moisture beads on everything—on carved posts, on leaf ribs, on rope fibers—and slides down into seams designed to catch it. Water is never absent, but rarely deep: shin-level channels, reed-choked basins, condensation gutters, seep fields where the built floor sweats. The place is wet the way skin is wet, not storm-torn or flooded, but constantly, intimately damp.
+
+And yet the construction is young. Corners are still sharp. Carvings are crisp. Tool marks remain visible in beams and stone faces. Mortar ridges haven’t softened. You can still read the sequence of making: this wall was raised first, this sluice added later, this terrace patched yesterday with a different clay. It feels newly emerged—like a civilization that completed itself all at once and has barely had a season to weather.
+
+Vegetation is lush but not crowded. That is one of the strange balances here: abundance without clutter. Large planted islands of growth sit apart from one another with deliberate empty intervals in between—open courts of tile and reflective water that give the eye room to travel. Fern towers, broad-leaf canopies, hanging vine curtains, mats of edible water plants, medicinal shrubs trained over lattices. Each patch is thick, almost excessive, then suddenly gives way to clear space and glare. It’s a patterned breathing: dense, open, dense, open.
+
+Animal life is everywhere if you stop scanning and start waiting. Long-legged marsh birds step silently between lotus basins. Fat amphibians cling to warm walls and blink like polished stones. Small reptiles bask on railings, then slip into sluices without a splash. Insects are abundant but oddly muted: dragonflies that flicker in bright grids, moths that sit still through midday heat, beetles that harvest algae from channel rims. The fauna has accepted the architecture as geology. They nest in vent slots, breed in cistern throats, migrate along aqueduct lines.
+
+The soundscape is mostly near-silent. No wind roar, no surf, no distant industry. What you hear is close and careful: a drip into a ceramic bowl, the soft scrape of a bird’s beak on shell plaster, the papery hiss of leaves brushing one another, an occasional hollow knock of a wooden gate settling. Even animal calls come as brief notes, never choruses. The quiet feels enforced not by fear, but by design—like loudness cannot hold its shape here.
+
+Then the deeper oddness becomes clear.
+
+This landscape is in equilibrium so complete it feels like a law of physics. Water levels stay constant to the finger-width. Moss grows to an exact thickness and stops. Shade lines do not travel far; noon seems to linger indefinitely. Nothing looks dead, but very little appears to age. Fruit swells, ripens, and remains at ripeness. Footprints in damp clay remain until deliberately smoothed. A dropped reed basket may sit for years without rot, as if time is present but politely constrained.
+
+Distance also misbehaves. A tower that seems half a mile away may be reached in fifty steps if you walk a certain causeway. Two parallel canals can show different skies. Reflections in basin water sometimes depict structures not physically nearby, yet those reflected places can be entered by following the reflected path, not the real one. People here (when you glimpse them) navigate by ritual routes, knot cords, and sung counting patterns rather than by simple direction. Primitive tools, yes—but used with exacting cosmological confidence.
+
+So the place resolves into something like this: a **fully constructed wetland world**, hand-built with old techniques, lush with engineered life, flooded with brutal light, populated by quiet creatures, and held inside a stable reality that has cracked just enough to become reliable in a different way.
+
+It is not ruin, not wilderness, not city, not swamp.  
+It is a made marsh in permanent noon, still young, and already eternal.

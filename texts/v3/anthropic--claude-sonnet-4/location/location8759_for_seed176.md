@@ -1,0 +1,19 @@
+**The Resonance Well**
+
+Deep within an ancient mountain's weathered heart lies a hidden amphitheater no larger than a cathedral nave, carved not by tool or time but by sound itself. The curved walls rise in perfect acoustical spirals, their surface a metamorphic stone that weeps perpetually—not from seepage but from some deeper geological grief, each droplet containing minerals that shimmer with an almost-light.
+
+The air thrums. Always, always thrums.
+
+At the chamber's center, a shallow pool of black water reflects nothing, its surface disturbed by vibrations that originate from everywhere and nowhere. The water level rises and falls in slow, hypnotic cycles, revealing and concealing a scattered constellation of what might once have been instruments—crystalline formations that ring and hum without touch, their tones shifting like a conversation in an unknown language. Some are mere fragments, others intact but impossible: hollow geometries that shouldn't resonate yet do, producing sounds that seem to bypass the ears entirely.
+
+The vegetation clings to life in defiant patches. Moss covers the lower walls in velvet swaths, its surface rippling in patterns that follow the sound waves. Strange, broad-leafed plants emerge from cracks in the stone, their fronds trembling constantly, translucent enough that the dim light—sourceless, pearl-gray, emanating from the weeping walls themselves—passes through them like green glass. These plants seem more tuning fork than flora, their cellular structure somehow organized to catch and redirect the chamber's endless acoustic storm.
+
+The soundscape shifts without warning. Sometimes it's a low, organ-deep drone that makes your bones resonate. Then suddenly: crystalline chimes cascading like breaking chandeliers, or whispered percussion that sounds like rain but isn't, or harmonic intervals that create phantom melodies in the spaces between notes. The acoustic violence is not harsh but overwhelming—layers upon layers of sound that create interference patterns in the air itself, visible as faint shimmer-distortions that bend the already uncertain light.
+
+This is no natural formation, yet neither is it built. The stone itself has been trained, educated into these curves through millennia of sound-shaping. The technology is subtle, almost organic—nano-scale manipulators still active in the rock's crystalline matrix, still learning, still adjusting the chamber's resonant frequencies in response to some long-forgotten program or perhaps their own evolved curiosity.
+
+The water tastes of copper and distant storms. When it rises, new sound-objects emerge from its depths—not artifacts but acoustic fossils, hardened reverberations of songs sung ages ago. When it retreats, it leaves behind patterns in the revealed stone: spirals, wave-forms, mathematical relationships carved in mineral deposits that continue the chamber's sonic conversation even when silent.
+
+No creatures disturb this space, though sometimes the sound-patterns themselves seem almost animate, chasing each other around the curved walls, building toward crescendos that reshape the very air, then dissolving into whispers that might be the mountain's dreams made audible. The acoustic environment is too intense, too saturated with organized chaos for biological systems to process—except for the plants, which have found a way to become part of the instrument rather than merely listening to it.
+
+Time moves strangely here. The sound-cycles suggest vast, slow processes—tectonic symphonies playing across geological time—yet within each cycle, micro-variations dance with frantic energy, creation and destruction balanced on the edge of a vibrating string. The chamber breathes with its own turbulent life, ancient beyond reckoning yet eternally restless, a hidden heart in the mountain's chest that beats not with blood but with pure, impossible music.

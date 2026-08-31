@@ -1,0 +1,21 @@
+**The Breathing Chamber**
+
+You discover it through a fissure no wider than your shoulders — a pocket of impossible water that shouldn't exist. The space is perhaps the size of a small chapel, though its boundaries refuse to hold still. This is a drowned hollow where physics has gone soft at the edges, a place that exists mostly underwater yet somehow permits breath.
+
+The water here is wrong. It's dense as mercury in some places, letting you walk across its surface, while in others it's so thin it barely registers as moisture against your skin. These zones shift without pattern — what supported your weight a moment ago might swallow you whole on your next step. The water maintains a constant coolness that pulls heat from your body in slow, patient draws.
+
+Every surface sprouts with vegetation that has never known air. Kelp forests grow in miniature, their fronds no longer than your hand but packed so densely they form walls of green-black tissue. Between them, something like moss but gelatinous carpets every surface in layers upon layers, each generation growing atop the last in soft terraces. Bioluminescent threads web through it all — not enough to see by, just enough to suggest depth where depth shouldn't be. In the near-darkness, these pale traces are like stars drowning in syrup.
+
+The architecture of the place defies reason. Water clings to the ceiling in some areas, forming inverted pools where lily-pad analogues grow downward, their roots reaching toward your head. Columns of liquid stand unsupported, twisting slowly, densely packed with plant matter that grows in helical patterns following currents that don't exist. You can push your hand through these columns and feel different temperatures, different viscosities, as if each is a window to distant seas.
+
+Scattered throughout are remnants of human presence — or something's presence. A stone cairn sits perfectly dry in a sphere of air that won't admit water. Carved symbols cover a boulder, but they rearrange themselves when you're not looking directly at them. A wooden ladder descends from the ceiling, each rung overgrown with those not-quite-barnacles that pulse with their own slow heartbeat, ending mid-air where the water simply stops existing in a clean horizontal plane.
+
+The fauna here is sparse and wrong. You glimpse something that might be a fish, but it swims through the vegetation as easily as through water, its body phase-shifting between solid and liquid. Occasionally, clusters of what look like sea anemones emerge from the walls — but they're growing from inside the stone itself, their tentacles tasting the water before retreating back into solid rock.
+
+Sound barely travels here. Your movements create no splashes, no bubbles. The dense vegetation swallows echoes before they form. The only persistent sound is a deep, rhythmic creaking — like ship's timber under pressure — that seems to come from the space itself as it struggles to maintain its impossible architecture. Sometimes you hear what might be whale song, but pitched too high and coming from somewhere much too close.
+
+Time moves strangely in this pocket. The vegetation grows visibly if you watch long enough — fronds extending, retracting, extending again in cycles that don't match any tide or current. The water itself seems to age and renew, clearing and clouding in waves that pass through the chamber like thoughts through a dreaming mind.
+
+The boundaries of this place aren't walls but rather zones where reality grows too thick to push through. Approach the edges and the water becomes gradually more solid, the vegetation more aggressive in its growth, until you're faced with a living barrier that gently but firmly pushes you back toward the center. Sometimes, through gaps in the plant matter, you glimpse other chambers — or perhaps the same chamber from different angles, different moments, all existing simultaneously in the same impossible space.
+
+This is a young wound in the world, a place where the rules haven't yet scarred over properly. It feels freshly torn, like reality's skin has just been pulled apart to reveal this wet, breathing cavity beneath. Everything here has the sharp edges of recent formation — the plants too vigorous, the water too eager to explore its new freedom from physics, the space itself still deciding what it wants to be.

@@ -1,0 +1,15 @@
+The Breathing Mill
+
+You descend through a crack in the limestone, following the sound—a rhythmic wheeze that echoes from somewhere below. The fissure opens into a hidden chamber, perhaps fifty feet across, where warm air rises in gentle currents. Here, in this geological pocket, an abandoned textile mill has been colonized by something extraordinary.
+
+Massive looms stand in skeletal rows, their iron frames now serving as trellises for a vine that defies easy classification. The plant's thick, muscular stems pulse visibly with internal fluids, wrapping around drive shafts and threading through gear assemblies. Its leaves are broad and leathery, shaped like industrial leather belts, and they've grown to span the exact width of the old machinery—as if the plant learned the mill's dimensions and adapted accordingly.
+
+The sound comes from everywhere at once: a deep, mechanical breathing as the vine-wrapped machinery continues to operate, driven now not by steam or electricity, but by the plant's own hydraulic pressure. Ancient shuttles slide back and forth on their tracks, guided by tendrils that have grown into the control mechanisms. The looms weave continuously—not cotton or wool, but fibrous strands that the plant extrudes from specialized pods. The fabric emerges in slow, hypnotic patterns, then is immediately reabsorbed by waiting root systems in an endless cycle of creation and consumption.
+
+Condensation beads constantly on the warm limestone walls and drips onto the living machinery below. The plant has positioned broad catching-leaves at precise intervals, channeling this moisture along spiral grooves in its bark to feed the whole system. Pools collect in the mill's old oil sumps, now lined with moss-like growths that filter and recycle the water through hair-thin root networks.
+
+The air tastes of warm iron and green sap. Steam occasionally vents from organic pressure valves—bulbous growths that have replaced the original mill's safety releases. The temperature holds steady, warmed by the plant's metabolism and the friction of its endless weaving. No insects buzz here, no small creatures scurry between the machinery. This is a world of one organism, filling every niche, operating every system.
+
+In the dim light filtering down through the entrance crack, you can see that the plant has been experimenting. Some looms produce different textures—rougher, smoother, shot through with what might be primitive circuitry made from metallic root fibers. The mill floor is scattered with bolts of finished plant-fabric, some still warm from the process, arranged in neat piles as if awaiting collection by workers who will never come.
+
+The breathing grows faster when you move, slower when you're still, as if the entire mill-organism is aware of your presence but uncertain of your purpose. The weaving never stops. In this hidden chamber, industry and biology have merged into something unprecedented—a living factory that manufactures its own raw materials, tends its own machinery, and produces goods for a market that exists only in its own vast, vegetative dreams.

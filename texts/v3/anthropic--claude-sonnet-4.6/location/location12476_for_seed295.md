@@ -1,0 +1,63 @@
+# The Hanging Gardens
+
+---
+
+The first thing you notice is the sound.
+
+It arrives before the light does, before your eyes adjust to the dimness — a vast, continuous layering of animal voices so dense it has ceased to be a collection of individual sounds and become instead a single atmospheric condition, like pressure or humidity. There is no gap in it. There is no moment when it pauses to breathe. It has the quality of something geological: a sound that has been going on since before you arrived and will continue long after you have gone, indifferent to your presence, not addressed to you or to anything, simply the noise that this place makes the way a river makes the noise of a river.
+
+Frogs, primarily. That is the backbone of it — the low thrumming chorus of amphibians calling from every wet surface, from the moss-packed channels and the dripping overhangs and the shallow collected pools in stone basins, thousands of them layered in overlapping registers so that the sound has texture, a roughness you can almost feel against your skin. Over this: the grinding, stropping calls of insects, beetle-hum and cricket-rasp and the dry papery wing-buzz of things that move through the dense air without being seen. And over this, higher still, the birds — a constant overlapping dispute conducted from perches invisible in the green dimness above, rapid-fire and unceasing. The effect is not chaotic. It is, somehow, deeply ordered. It is the order of a place that has had a very long time to sort itself out.
+
+---
+
+You are high. The air tells you this before anything else does — it is thinner than you expect, carrying a faint cool edge beneath its warmth the way old stone carries cold through a summer wall. The warmth itself is real but it is the warmth of enclosure and biological density, not of direct sun. Warmth generated, in some sense, by the place itself — by the sheer metabolic output of the uncountable living bodies packed into every available surface. The temperature is steady. It does not fluctuate in any way you would notice across a day, or even a season. Things change here, but not quickly.
+
+The elevation is present in the quality of the sky, on those occasions when you can find it. Between structures — because everything here is structure — there are gaps, and through the gaps you can see cloud at close range, cloud that is not weather passing through but simply the ambient condition of this altitude, white and damp and pressed against the place like something trying to get in. Sometimes it does get in, pushing through the gaps as slow fog, condensing on every cold surface it touches, beading on stone and bark and shell and scale, running in thin quick threads down walls and across ledges to collect wherever collection is possible.
+
+---
+
+The place was built. This is the fundamental fact about it, and it takes some time to fully accept, because what was built here does not feel built in any way that the word *built* usually implies.
+
+There is no technology. There are no tools, no devices, nothing that required an instrument to shape or a concept to design. And yet everything is made. Every surface is a surface because something made it so. Every channel exists because something dug it or secreted it or pressed it into being over thousands of cycles. The walls — and there are walls, everywhere, curving and non-planar and furred with growth — are themselves living or were living, built of accumulated biological material: the compressed calcium carbonate of shell creatures long dead, the worked saliva of colony-builders, the interlocked woody extrusions of organisms that spent generations growing in specific directions for reasons that no longer matter because the reasons have become the structure and the structure has become the world.
+
+Think of it this way: a termite mound, but one that fills a valley. A coral reef, but one grown at altitude, without an ocean, using moisture gathered from cloud and condensation and intermittent rain to sustain what would otherwise require sea. A hive, but one so old and so elaborated and so thoroughly colonized by the secondary and tertiary and hundredth-generation inhabitants that it no longer belongs to any founding species, if a founding species ever existed.
+
+The forms are organic in the literal sense — they follow growth logic, branching and bulging and tapering where growth made them do so, reinforced where reinforcement was added by the weight of subsequent layers, shaped by the consistent slow pressures of water and load and the patient competition of organisms for surface. Arches have formed, not because anyone calculated an arch, but because the spans that did not form arches collapsed and the spans that did form them survived. Chambers exist because enclosed spaces are warmer, and warmth attracted occupants, and occupants added material at the margins, and the margins closed. Everything here is the residue of process. Nothing was planned. Everything is purposeful.
+
+---
+
+The scale is regional. If you could somehow achieve a perspective above it — above the cloud-line, above the ceiling of fog and green — you would see it extending across what was once a highland plateau, filling the old valleys between limestone ridges, growing up the ridge-faces themselves, furred and irregular and enormously dense, a texture rather than a collection of objects. It does not have a center, or rather it has many centers, each of which was once a center for different reasons, and the reasons have been absorbed into the mass.
+
+From within — which is the only perspective available — the scale is felt as a kind of endlessness. You move through passages and into chambers and out into what function as open areas but are still roofed, loosely, by overhanging masses of growth. You climb ramps that slope upward because the organisms that built them needed to reach higher moisture gradients, and you descend into lower sections where water collects and the air is thick with something almost sweetly rotten, fertile, generative. There is always more. The place does not end where you expect it to end. It folds back on itself, doubles, goes deeper.
+
+---
+
+The light is dim throughout. Not completely absent — there is light, diffuse and sourceless-seeming, green-grey, the light of overcast sky filtered through biological material. In the more open areas, where the roof-canopy is thin or has a gap, you get a silver-white illumination like just before rain. In the deeper passages and lower chambers, the light thins to something your eyes can use only gradually, a dimness in which shapes resolve slowly and colors are mostly surrendered — everything becomes a study in green-black and pale, wet stone-grey. Bioluminescence is not present. There is no glowing. The darkness is honest darkness, and the dim light is honest dim light, and you simply see less here than you are accustomed to seeing, and your other senses step up to compensate.
+
+The sound, as mentioned, compensates considerably.
+
+---
+
+Vegetation covers every surface that the animals have not entirely claimed, and the distinction is partially false since the vegetation itself is habitat, is shelter, is food, is the reason the animals are here at all. Mosses are primary — dense, moisture-holding, extraordinarily thick in places, cushioned to a depth of several fingers where they have had time to accumulate. Their green is the deepest color visible, almost blue-black in shadow, brightening toward an almost acid yellow-green where any light touches them. Ferns occupy every crevice, every ledge, every angle that collects a little damp soil — and soil is not scarce, because soil is produced continuously here by the slow composting of the dead. Larger plants have established themselves in the wider chambers, rooting into deep accumulated substrate, reaching upward toward light-gaps with the slow optimism of things that have nowhere else to be. Their root systems are fully integrated into the built structure, in many cases now constitutively part of it — the structure would not hold the same shape if the roots were removed, and the roots could not grow without the shape to support them.
+
+The lushness is not the wild exuberance of a rainforest, where growth seems almost violent in its speed and competition. It is steadier than that, older-feeling. These plants have been growing in these places for a long time. They have reached their niches. They are not competing urgently; they are occupying, settled, filling their available volume with the patient thoroughness of things that have already won.
+
+---
+
+Animals are everywhere, in a quantity that should feel oppressive but instead feels simply like the basic condition of the world. On every surface there is movement: the slow migration of gastropods trailing silver across wet stone, the quick adjustments of lizards in the middling dim, the passage of beetle-bodies glinting where the light catches their shells. Frogs sit on every horizontal surface, plump and motionless except for the working of their throats. Small mammals — cave-adapted, pale, large-eyed, accustomed to navigating by sound and whisker — move through the underpassages where even the dim light does not reach. Birds nest in crevices and on the ledges of tall interior faces, their nests woven into the built material with the expert casualness of species that have been doing this for very long. Insects are not merely present but atmospheric: they constitute a layer of the air, visible as a haze in better light, audible always as a component of that permanent total sound.
+
+Nothing here is rare. Everything lives in quantity, in communities, in the overlapping densities of an ecosystem that has had time to fill itself in completely. There are no empty niches. There are no surfaces unoccupied. The fauna is not a collection of species but a single tangled fact of the place, like the temperature or the sound — simply what the air contains.
+
+---
+
+The processes that govern this place are slow and they are old. Water enters from cloud and intermittent rain, follows channels worn and built over long periods, collects in basins and seeps through porous walls and evaporates into the enclosed air and condenses again on cooler surfaces and begins again. Organisms are born and die and their material is consumed and reassembled into new organisms and added to the fabric of the built structure where it calcifies or compresses or is woven in. The structure itself continues to grow at its margins, slowly, the outer faces where new material is added pressing gently outward against the limestone ridges, thickening, while inner chambers shift their dimensions over generations too long to witness. 
+
+Nothing here changes fast. Change is real — the place is not static — but change is the kind that you would need to measure in decades to detect. A chamber that was a passage. A passage that has closed. A species whose population center has drifted slowly toward a new moisture source over a hundred years. The sound seems constant but contains, if you could somehow perceive it at scale, a slow evolution — different species waxing and waning in their contribution to the chord across season and decade and century.
+
+The place is in balance. This does not mean it is in equilibrium in any formal sense — it is not stable, it is alive, it is engaged in constant metabolic process. But it has reached a condition of dynamic sufficiency, where what it takes in and what it produces are roughly matched, where collapse is not imminent and sudden growth is not occurring, where the system has found the shape it wants to be in and is, with the patient tenacity of very old living things, remaining in it.
+
+---
+
+You stand in a middle chamber — medium size, the frog-sound rolling off every surface in standing waves you can feel in your chest — and the light is the grey-green of perpetual overcast and the air smells of wet moss and living animals and the faint sweet edge of decomposition and something else underneath all of this, something like warm stone, like the inside of old mountains. The walls are close but not constricting; the ceiling arches overhead in the shape that load and growth made together. Every surface is alive or was alive or supports something living. Nothing here was made with hands. Everything here was made.
+
+You could stay here for a long time. You would not exhaust it. It would not particularly notice.

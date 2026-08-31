@@ -1,0 +1,17 @@
+This is the High Plateau of the Calcified Sigh, a place where time has stuttered and clicked into a permanent, frozen lock.
+
+The air here is thin, sharp, and entirely devoid of humidity. It tastes of powdered flint and ionized dust. Because there is no water—liquid or vapor—everything is preserved in a state of brittle, dusty perfection. The ground is not soil, but a vast, undulating expanse of ancient, compacted mineral crust, colored in pale ochres, bruised purples, and the chalky white of bleached bone. 
+
+The elevation is dizzying. You stand on the jagged roof of the world, surrounded by peaks that have been eroded not by wind or rain—for there is no weather here—but by the relentless, microscopic friction of the inhabitants. Over eons, the mountains have been scoured down to rounded, knuckle-like protrusions, stable and immutable.
+
+The density is the true terror of the plateau. While the landscape appears open, stretching for miles in a flat, high-altitude haze, every square inch of the crust is occupied. It is a world of overwhelming presence. Millions of creatures, small and lithic, cling to the ground and to each other. They are the fauna of the equilibrium: creatures made of silicate and brittle chitin, layered in mosaics of overlapping shells. They move with such agonizing slowness that they are effectively statues. To observe them is to see a living, breathing landscape, yet to watch them is to see nothing move at all.
+
+There are scattered structures—low, dry-stone huts built without mortar, their walls held together by the sheer weight of the fauna resting upon them. These are primitive, hand-stacked barricades, artifacts of an epoch before the world slowed to this stop. They look like teeth protruding from the gums of the earth.
+
+The weirdness is woven into the physics of the site; shadows here do not align with the light sources. A boulder might cast a shadow that stretches toward the zenith, while a cluster of crust-creatures throws no shadow at all, as if they have surrendered their three-dimensional depth to the plateau’s weight. 
+
+Silence is absolute. There is no wind to rustle the scant, wire-like vegetation—pale, crystalline stalks that poke through the mineral crust like frayed nerves. If you listen with your whole body, you might pick up the sound of *tension*: the high-frequency vibration of a trillion silicate limbs locked in place, holding the world together.
+
+Because this is a place of frozen equilibrium, nothing ever changes. A creature might be in the middle of a strike, its claw hovering an inch from prey, locked for ten thousand years. A pebble might be suspended in a mid-air tumble, halted by the lack of kinetic flow. 
+
+There is a sense of "The End" here. The plateau is not waiting for anything; it has arrived. It is the final state of a universe that has spent all its energy, settling into a dense, silent, and incredibly busy stillness. You are walking through a graveyard of motion, a vast, open-air gallery of the moment before the last breath. It is cool, bright, and utterly indifferent to your transit across its surface. It does not even acknowledge your arrival; to change your environment, you would have to shatter the lock of the world, and there is no strength in the air to allow for such a collision.

@@ -1,0 +1,41 @@
+# The Choral Flats
+
+You hear it before you see it — or rather, you hear it *as* you see it, because there is no distance here, no useful approach. Sound arrives from everywhere at once: a thick, vibrating moan like the inside of a cathedral organ, except the pipes are alive and they are *everywhere*, and they are changing their tune.
+
+The settlement — and it is a settlement, unmistakably, though no human hand laid its bones — stretches across a vast, low basin where the earth barely remembers to be earth. There are streets. There are chambers, passages, open plazas, tiered platforms, something like stairs. All of it is grown. Every surface is cellulose, lignin, vascular tissue, bark, pith, cambium. The buildings are trees that decided to be walls. The walls are trees that decided to be rooms. The rooms are trees that decided to hold something inside themselves and never quite closed.
+
+It is warm. Uncomfortably, humidly warm, the warmth of a mouth, of compost, of breath trapped under glass. Moisture collects on every surface — not rain, not quite, but a constant condensation that beads and runs and collects in shallow trays and basins that the architecture has formed for it. You find water in the hollows of staircase-roots, in the gutters of bark-shingled rooftops, in the deliberate bowls that the wood has grown to catch what the air surrenders. There is never enough water to call it wet. There is always enough to call it damp. The whole place glistens.
+
+And it *moves*.
+
+This is the part that undoes you. The settlement is not static. It is not decaying, not exactly — it is **churning**. Over the course of minutes, you can watch a wall thicken as new growth pushes through the existing grain, layering itself in real time, the fibers visible as they extend and harden. A doorway you walked through moments ago has narrowed. A room you hadn't noticed is forming in the corner of your vision, its roof-panel unfurling like a fern, slow and deliberate and relentless. Elsewhere — always elsewhere, always just at the edge of what you can track — structures are collapsing. Not falling. *Dissolving*. The wood softens, goes pale, loses its grain, and slumps, and the fibers pull apart and go quiet, and new shoots are already climbing through the wreckage before the old form has finished folding down.
+
+Creation and destruction are not opposites here. They are the same gesture. The whole city is breathing.
+
+The architecture is elaborate enough to call *urban* — this is not wilderness, not a forest, not a jungle. There are *intentional* geometries. Paths that lead from one chamber to another. Platforms arranged in rows like market stalls, though nothing is sold. Tiered galleries overlooking open clearings, as if for gathering, for watching, for performing. Whether the plants built this for themselves or for inhabitants that never came — or came and were absorbed — there is no way to know. The structures have the unmistakable quality of *meant* space. Rooms are rooms on purpose. Corridors go somewhere. But there are no tools here, no cut marks, no joins. Everything was grown into shape. Everything is still growing.
+
+And the sound. The sound is *deafening*.
+
+It is the creak of ten thousand expanding trunks. It is the rush of sap through channels the width of your arm. It is the percussive snap of bark splitting as new wood forces its way outward. It is the groan of structures settling under their own new weight. And beneath all of that, below the mechanical noise of growth, there is something harmonic — a resonant, sustained, multi-tonal hum that seems to arise wherever the architecture achieves a certain density, a certain geometry, as if the buildings have learned to *sing* when they reach sufficient complexity. The hum shifts. It is not pleasant. It is not unpleasant. It is the sound of something processing, thinking, expressing, at a scale and rate that makes your bones vibrate.
+
+There are no animals here. No insects, no birds, no蠕虫. Not even mold or fungus — or if there is, it has been assimilated so thoroughly into the plant-mass that it is indistinguishable. The silence of fauna is itself strange, because the *absence* of all the small sounds you expect — rustling, chirping, buzzing — makes the vegetal noise feel even louder, even more total. The plants have filled every acoustic niche. They have out-competed not just for light and water and space, but for *sound*.
+
+And then the weirdness.
+
+You notice it first as a wrongness in perspective. A corridor that you are certain is thirty meters long is, when you reach its end, perhaps four. A room you entered from the east, you exit to the north. The same species of vine appears on opposite sides of a plaza, growing in mirror-image, as if one side of the space is a reflection of the other — but *inverted*. The light is normal, the sun (or what serves as sun — there is light, warm and even and directionless, as if the atmosphere itself is luminescent) falls evenly, but shadows don't behave. A pillar casts its shadow *toward* the light source. A leaf's shadow is the wrong shape.
+
+And sometimes — and this is the thing you cannot explain, the thing you cannot even be sure of — the geometry of a room changes while you are looking at it. Not growing. Not the slow organic shift of the living architecture. Something else. A wall is *there*, and then it is *here*, and the wood is continuous, uninterrupted, as if it had always been in the new position and your memory is the thing that is wrong. The city does not rearrange itself. The city *revises* itself. As if it is not certain what shape it wants to be. As if it is trying on configurations. As if the reality of the place — its spatial logic, its physics — is still being negotiated, still under discussion, and the discussion is happening at a level below or above perception, in a language written in bark and fiber and the slow, terrifying patience of things that grow.
+
+You stand in a plaza. The ground beneath you is a dense mat of living root, warm and faintly pulsing. Around you, walls rise forty, fifty meters — vast tree-structures that have been trained, or have trained themselves, into the shapes of towers and buttresses and archways. The canopy above is not canopy; it is *ceiling*, a woven lattice of interlocking branches that has closed the sky into a mosaic of irregular panels, through which you can see light but not sky. The air is thick. The moisture sits on your skin. The sound is enormous — a chord, sustained, shifting, made of wood and water and the low seismic hum of things growing in every direction at once.
+
+Something behind you collapses, softly, with a sound like an exhalation.
+
+Something in front of you is being born.
+
+The settlement is not old. The features are sharp — the edges of the bark, the angles of the joints, the tips of the new shoots. Whatever this place is, it is *recent*. It emerged. It is still emerging. It has not yet decided what it is, and the not-deciding is the most unsettling thing about it, because you realize that the weirdness — the spatial errors, the impossible shadows, the revisions — are not flaws. They are *features of the process*. This is what it looks like when a place is being *written*. You are standing inside a draft.
+
+And it is deafening, and it is warm, and it is dense with every kind of living wood, and it is low and wet and young, and there are no animals and no tools and no technology and no one has been here, or everyone has been here, or the place itself is the inhabitant and the architecture is its body and you are an intrusion in someone else's self.
+
+The chord shifts. The walls lean in. Something grows where there was nothing, and you step back, and the floor adjusts beneath your foot, and you are not sure anymore whether you are standing in a city or a organism or a thought.
+
+The plants do not care which. They are busy. They are building. They are taking it down. They are loud about it, and they are thorough, and they will not stop.

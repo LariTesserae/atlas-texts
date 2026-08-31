@@ -1,0 +1,55 @@
+# The Mangrove Choir
+
+You enter first through sound.
+
+The noise arrives before sight resolves—a thick, multi-layered roar that isn't quite roar. It's the sound of ten thousand things breathing at once, or speaking in overlapping registers too low and too high for human ears to parse separately. Insects dominate the frequency range: a grinding, chittering oscillation that rises and falls like feedback from a system with no off switch. But woven through it are other things—the wet *crack* of wood expanding, the periodic whoosh-and-settle of unseen movement in the canopy, something that might be birdsong or might be wind interpreted through living throats. The sound doesn't diminish with distance. It simply *is*, the ambient condition of the air itself.
+
+The light comes next, and it's strange in its ordinariness. Warm, diffuse daylight filters down through layer upon layer of green—perhaps 60% green by volume at this point, though the proportion shifts as you move. It's the light of a normal afternoon, around 2 PM perhaps, but it never reaches you directly. Instead it comes refracted, scattered, bounced between leaf surfaces. Everything casts a secondary, green-tinged shadow. Your skin looks sallow. The shadows around your hands smell like chlorophyll.
+
+The ground—you begin to realize there may not be one.
+
+What you stand on is technically soil, but it's more accurate to call it *accumulated substrate*. The distinction matters. True earth lies somewhere below, certainly, in a lowland basin probably ten to fifteen meters above permanent water table, but the surface you walk on is a mat of root-tangle, decomposing plant matter, and living moss so thick and ancient that it holds its own shape. There are no stones. You find this unsettling. A few fallen logs—massive, horizontal—provide the only hard architecture. They're spongy. They've been here so long they're more than halfway to soil themselves, sprouting their own ecosystem of smaller plants, fungi, and hollow spaces where creatures nest.
+
+The vegetation doesn't organize itself into a forest. Forests have trees. This is *plant as substrate*, as air-filler, as the basic medium of existence rather than an object within space. It's layered, but not in neat strata:
+
+The canopy—where the light fails to penetrate—is a solid mass of interleaved growth at perhaps 8-12 meters up: broad-leafed trees with trunks that seem to subdivide into secondary and tertiary trunks; vines thick as your thigh that loop between them; emergent epiphytes and stranglers in parasitic embrace. You can't really see this layer. You know it exists because the light cuts off there, and because sometimes things fall from it.
+
+The mid-story is where you exist. Here the plant-mass is less dense, less totalizing. You can move through it, though movement requires navigation. Mangrove prop roots arch overhead and underfoot—living architecture that serves no purpose you understand; they don't support trees across water, because while water *exists* here, it's not continuous. Instead, the roots seem almost architectural, almost intentional in the way they form arches and chambers. Smaller shrubs with waxy leaves cluster in the spaces between. The air is warm and humid enough to feel like a texture, like you're moving through something thick. Moisture condenses constantly on leaves, on exposed skin. It's warm condensation. Strangely warm.
+
+The understory down near the mat is a chaos of dense growth: seedlings fighting for the scattered light that makes it this far, fungi sprouting in all their fractaled, impossible geometries, ferns with fronds larger than you are that seem to vibrate in air you can't feel moving. The moisture here is constant. Not wet—not quite—but never dry. The mat itself never fully dries. Between the dense vegetation and the warmth, things are always at the edge of mold-bloom, always damp enough for fungal fruiting bodies to erupt without warning.
+
+The water situation is the first reality-break.
+
+There *is* water here—you can hear it, occasionally see it in narrow channels and deeper pockets between root-masses. But it doesn't behave entirely normally. It exists in pockets and capillary spaces within the mat itself, wicking upward through the substrate and then... not quite evaporating. It hangs there. You can walk past a hollow in a root system and watch water suspended in mid-air within it, held by surface tension and the moisture-saturation of the surrounding plant-mass, as if the boundary between liquid and vapor has become negotiable. On certain mornings (or what you think of as mornings—the quality of light never changes enough to be certain), mist rises from the mat in columns that seem to have intention, that organize themselves into shapes before dispersing. The mist smells like fermentation and green growing things.
+
+The fauna exists in abundance, but you perceive it mostly through sound and absence.
+
+You see movement constantly: flickers in the canopy, small creatures pressing through the dense understory mass, things that might be reptiles or might be something else entirely moving through the root-arches. A bird—something with a call like struck glass—lands on a frond twelve meters away and you see it for three seconds before the vegetation resolves around it and it ceases to be visible, though you can still hear its call. Insects are *everywhere*. Not swarming exactly—you're not attacked, not swarmed over—but present in population so dense that when one falls near your foot, two others seem to arrive for it within seconds. There are spiders whose webs organize entire sections of the mid-story into geometric complexity. There are things that move through the substrate that you never quite see: tunnelers, burrowers, organisms that might be animal or might be fungal network expressing itself through movement.
+
+The creatures that do fully reveal themselves are the strangest.
+
+You'll encounter a lizard or something that wears lizard-shape—iridescent, three-tailed, with eyes that seem almost reflective—and it will hold position on a root for perhaps ten seconds before you realize it's not actually looking at you. It's listening. No, that's not right either. It's *resonating* with the ambient sound, and when you look at it you realize its throat is vibrating in sympathetic harmony with the surrounding noise. When it leaves, it disappears not by moving away but by seeming to fade backward into the green, as if the vegetation is pulling it in.
+
+There are small things—cat-sized, maybe, though their shape resists easy description—that walk upright through the mat on hind legs, passing in and out of shadows in the root-structure. Their coloration is too vibrant: iridescent black and green and violet, colors that seem to shift depending on angle. They're not afraid of you. They simply ignore you, moving through the space with purpose and direction.
+
+And there are the *singers*.
+
+You won't see them clearly, but you'll know they're here. The sound that fills the space is so total, so omnipresent, that you initially assume it's just ambient noise—the sum total of all smaller sounds. But as your ears adjust (or as the sound itself changes—the causality is unclear), you begin to perceive it as *organized*. There are patterns. There are themes that repeat. There are moments of near-silence followed by crescendos. There are creatures—and they must be creatures—that are actually *singing*, using the density of the green matter as a resonating chamber, as an instrument. The sound doesn't travel through the air; it seems to be conducted through the plants themselves, bones of wood and water and chlorophyll acting as a speaker system. Sometimes you feel it in your teeth. Sometimes in your chest.
+
+The scale of this place is intimate and small—you could walk across it in perhaps twenty minutes in any direction, before the vegetation becomes too dense, before you lose the ability to distinguish boundaries. Yet paradoxically, it feels vast. The vertical structure, the depth of the green, creates a sense of volume that the actual area doesn't explain. You feel both enclosed and exposed.
+
+The settlement exists in fragments.
+
+There are signs of architecture, but not recent, not maintained, possibly not even *built* in the conventional sense. Stone foundations—sunk into the mat, becoming increasingly buried—emerge here and there. A wall of stacked rock, perhaps two meters tall, that might have been a boundary marker or a failed attempt at construction. No tools lie about. No debris of habitation. Yet the placement of these stones is too regular to be natural. Someone (or something) organized them here, perhaps centuries ago. The forest is reclaiming the work, but slowly. The stones sink, but not quickly. This place resists change. It settles. It establishes itself. Whatever happened here happened deliberately, and the consequence has been allowed to mature into steady state.
+
+The weirdness isn't in dramatic distortion. It's in the *wrongness of consistency*.
+
+The light should change. It doesn't, or changes imperceptibly. The moisture should drain. It doesn't, held in suspension by the substrate itself, by the plants' continuous transpiration, by some balance that seems to have locked into place. The creatures should make sense. They don't, but their wrongness is so consistent, so endemic to this place, that you stop expecting them to conform to normal zoology. The sounds should have localized sources. They don't. The forest is the sound.
+
+And the boundary. You've been aware since entering that this place has edges. You can sense them—not walls, but something like the edge of a clearing, like the point at which the vegetation becomes thin enough that you'd begin to see sky. But every time you try to orient toward the boundary, move toward it, the green seems to shift. Not dramatically. Subtly. And when you arrive at where you thought the boundary was, you find only more of the same: more roots, more moisture, more unbounded green. The place is larger than its area should allow.
+
+There's no hostility here, though. That's the strangest thing of all. The place isn't trying to trap you. There's no malevolence, no predatory hunger. It's simply that this ecosystem is *complete*, is *self-contained*, is so thoroughly occupied by its own processes that the concept of "outside" barely applies. You're not a threat. You're not food, not yet. You're simply another presence in a landscape completely full of presences.
+
+The sound rises again. Settles. Rises. 
+
+The rhythm is the rhythm of something breathing, something living at a scale larger than any animal. The forest breathes. The mat breathes. The humid air breathes. And everything within it, every creature, every plant, every molecule of water suspended between liquid and vapor, moves in response to that great, green, endless respiration.

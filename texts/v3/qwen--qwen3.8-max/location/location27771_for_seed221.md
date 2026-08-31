@@ -1,0 +1,3 @@
+It is a pocket landscape, not a valley and not a plain: a hidden, high, cold chamber embedded inside a larger industrial body. You would miss it unless you knew the service ways. Beyond a pressure door, down a narrow maintenance throat, past humming cabinets and frost-rimed conduit, the place opens like a wet organ inside a machine. It is small enough to cross in a dozen paces, low enough that the ceiling presses psychologically even where it does not press physically, and yet it is saturated with presences. Everything here is close. Everything is near-touching.
+
+The first thing you understand is that nothing beneath your feet is natural substrate. There is no mountain rock here, even though the place sits high above the world, in the thin air where clouds

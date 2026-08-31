@@ -1,0 +1,35 @@
+You are standing on a continent that has not finished being born.
+
+It is high. Not a mountain high, but a table high — a plateau so large it generates its own weather, so high that the air is thin and still. The elevation is not a peak you can summit; it is the ground itself. The world here lifted all at once, a fresh block of planet thrust up in one clean geological thought, and it has not yet learned to be soft.
+
+That is the first thing you understand about the stone. It is young.
+
+Everything is sharp. The basalt came up black and glassy and it has stayed that way. There has not been enough time or friction to round it. The plateau is cut into terraces, each one a hundred meters high, each face a sheer, column-jointed cliff that looks quarried yesterday. The edges are knife-edges. The talus has not yet made slopes; rock breaks and falls and stays where it lands, angular, unweathered, steaming faintly in the cold. Between the terraces the land extends flat for kilometers before it drops again, a stair for giants ascending into cloud.
+
+It is cold. Not killing cold, but the steady, deep cold of altitude. Zero to five, always. Your breath makes a small, constant cloud that does not dissipate quickly because the air is already saturated. Normal daylight filters down through a high, thin overcast — not dim, not bright, the even white light of a northern sky at noon — and it finds no warmth to carry with it. The stone holds the cold. The metal holds the cold. Even the green holds the cold.
+
+And it is green. Impossibly, lushly green for such cold and such height.
+
+Because the water is everywhere, but not as rivers or lakes. The plateau weeps.
+
+Water is near the surface everywhere, under pressure from the new rock. It seeps from the vertical faces in black seams, beads on every basalt column, condenses out of the air itself. The atmosphere is always just at dewpoint. You can watch it form - a faint mist gathering on a steel handrail, on the down of moss, on the back of your own sleeve - gathering until it is heavy enough to run. The flats between terraces are not dry land but cold marsh, high fen, peat and sphagnum and wool-cotton and dwarf birch so thick it feels like walking on a soaked mattress. Low, dense, ferociously alive. The moss carpets everything that is not metal or sheer rock, inches thick, emerald and rust and acid yellow, holding the weeping water like a sponge. In the shallow pans, water stands clear and black, reflecting the sky perfectly, ringed by sedges that bow under their own damp weight. Small, intricate forests of stunted pine and lichen-draped alder fill the lee of every cliff, their branches heavy with condensation that ticks down constantly, a second rain that never stops.
+
+There are no animals to disturb it. Not a bird. Not an insect. No tracks in the peat except your own and the wind's. The vegetation has grown without being eaten, without being pruned or pollinated or scattered. It is lush in the way an unchecked greenhouse is lush — dense, matted, excessive, climax growth with nowhere to go. Pollen hangs unshed. Fallen leaves do not rot so much as sink, perfectly preserved in the cold water. The forest is silent in the biological sense, and that silence makes the other sound louder.
+
+The sound is the second thing you understand.
+
+It is loud. It has always been loud and it will always be loud at exactly this volume.
+
+This whole continent is a city, but not a city as you know one. It is an industrial urbanism stretched until it is almost empty. You can walk for half a day across moss and black mirror-pools and see nothing but the peat and the weeping cliff ahead, and then the land opens and you find a district.
+
+They stand with kilometers of empty fen between them — vast, organized, layered machines that are also buildings. Factories with the footprint of towns, but alone. Aeration towers the size of cathedrals, made of concrete and weather-darkened steel, their sides crusted in the same yellow lichen that grows on the rocks. Pumping houses, long and low, humming. Exchanger blocks that step down the terraces like the terraces themselves, connected by aqueducts and pipe-bridges big enough to drive a train through. Grids of vents set flush with the peat, exhaling warm, mineral-smelling steam that condenses instantly. Everything is electrified, everything is on. Lights burn amber behind frosted glass in windows no one looks out of. Gantry cranes stand motionless over nothing. Warning beacons turn, slowly, silently, throwing red light across the mist.
+
+Between them, infrastructure runs like veins: roads of poured stone that carry no traffic, rail lines that run straight to the horizon with no train, canals that move water from one weeping face to another for no reason you can see. It is all built. It is all working. It is utterly hollow. The density of presence is near void — for every cubic kilometer of cold, wet air, there might be one machine, one building, one stand of pines. The scale is so vast and the occupation so sparse that emptiness becomes the material the city is made of.
+
+And none of it changes.
+
+That is the rule of this place, the strange equilibrium that makes it feel wrong in your bones. Young rock should erode. Water should carve. Plants should grow and die. Machines should cycle, break, rust. Here, nothing does. The water weeps at the same rate, forever. The condensation forms and drips at the same interval you measured an hour ago. The moss is lush but it does not spread; the pine does not drop a needle. The towers hum at one note — a deep, chest-resonant, industrial drone that is not the sound of an engine starting or stopping but of an engine that has always been running and will always run, perfectly level, perfectly loud, with no variation. You can hear it from three kilometers away or from directly underneath and it is the same. Even the weather does not change. Clouds form over the plateau because the plateau makes them, the mist rises, condenses, falls, rises again, a closed loop that has found a way to keep itself perfectly still while moving constantly.
+
+There are other small wrongnesses that accumulate. Water doesn't always pool downhill. In some of the flatter fens, it sheets uphill a few centimeters before sinking, as if the gravity here is still deciding which way is down. The sharp shadows under the basalt ledges are too sharp for the diffuse light. Inside the factory districts, the sound seems to come from everywhere and nowhere, and sometimes a pipe will shudder with water hammer that never arrives. If you stay long enough, you realize you have not seen your own footprints fill with water. They stay cut in the peat, perfect.
+
+It is a place built to breathe for a world. A lung the size of a continent, cold and wet and green, assembled from fresh rock and city-scale machines, left running in the high, thin light. It does not need animals. It does not need you. It does not progress or decay. It simply is — a vast, loud, wet, empty, living factory-fen, humming to itself at the top of the sky, forever in the moment just after it was made.

@@ -1,0 +1,3 @@
+You find yourself at the edge of a submerged, vast ocean. The terrain stretches and reaches across the place, an ever-dark tunnel underground and below the world. The sea-life infused mud is spartan here - green plants don't really hold here.
+
+The atmosphere of this cave comes and goes with each ground rumble that shakes out far distant sounds. The wall you are standing on is rough to your wide-eyed touch. There's little to hold onto, so you need your claws to grip the rough and breaking muddy stone. You can move either up or down, left or right along the rough wall edges you haven't explored on either side.

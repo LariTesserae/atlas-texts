@@ -1,0 +1,13 @@
+**The Grotto of Half-Formed Things**  
+
+Light spills in from above—bright, almost too bright, for a place so sunken—through a jagged aperture in the cavern roof. The air is cool, damp with the breath of unseen water, though no stream runs openly here. Instead, moisture beads on the walls, gathers in shallow depressions in the stone, trembles on the edges of half-formed stalactites like hesitant tears. The rock itself seems unfinished, raw—some surfaces smooth where ancient water has licked them into shape, others rough and crumbling, as if the earth is still deciding what to make of itself.  
+
+The space is small, intimate, a pocket carved by time but not yet filled by it. The walls are pale, streaked with veins of minerals that catch the light and glint faintly, like the bones of the world showing through. Here and there, patches of moss cling to the stone, sparse but persistent, their green almost luminous in the brightness. A few thin, spindly plants push up from cracks in the floor, their leaves small and waxy, adapted to the damp and the dimness that must sometimes fall when the light shifts.  
+
+Life teems unseen. Beetles scuttle over damp stone, their carapaces iridescent in the fractured light. Pale, blind things move in the shadows—soft-bodied, quick, vanishing into crevices at the slightest disturbance. The air hums faintly with the sound of wings, tiny flies or moths drawn to the moisture, their movements almost silent but for the occasional whisper of air displaced.  
+
+And yet, something is *wrong* here. The light has no clear source—it is simply *there*, spilling in from nowhere, too bright for the depth, too steady for the time of day (if day exists here at all). The water does not behave as it should; droplets hang suspended mid-fall, trembling but never dropping, or flow upward along the walls in defiance of gravity. The plants sometimes twitch when unobserved, their leaves curling and uncurling as if testing the air. The stone itself seems to shift minutely, grains of rock rearranging themselves when you look away, as if the cavern is still deciding what shape to take.  
+
+There are no human marks here, no tools, no structures—only the slow, patient work of water and time, if time even moves in a straight line in this place. The silence is thick, broken only by the occasional drip of water that may or may not ever reach the ground.  
+
+It is a place caught between states—not quite formed, not quite stable, alive in ways that defy understanding. A hidden pocket where the rules are still being written, and sometimes, just sometimes, they change.

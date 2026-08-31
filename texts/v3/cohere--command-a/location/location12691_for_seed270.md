@@ -1,0 +1,15 @@
+**The Hollow of Whispering Gears**  
+
+This place is a sealed, pocket-sized void, a microcosm of industrial decay swallowed whole by an ancient, airless plain. The terrain is low-lying and deeply eroded, its surface a mosaic of flattened, ivory-hued stone that resembles the dried bones of a continent. No water exists here—not in liquid, vapor, or frozen form. The air is thin, cooler than a desert but sharper, as if each breath were chipped from a glacier. The atmosphere is still, yet pregnant with the weight of time, a silence so dense it feels like a second skin.  
+
+But silence is a lie. The space is loud, a cacophony of mechanical groans, metallic clicks, and the faint, incessant hum of ancient machinery. The sounds are layered, as if the world itself were a sprawling, rusted orchestra tuning instruments long forgotten. Every noise echoes in the cool air, reverberating through the hollow’s walls, which are lined with hexagonal plates of a material like petrified glass.  
+
+The ecology is alien and overwhelming. Fauna dominates—not animals as one might recognize, but *things* that crawl, skitter, and pulse in the dim, normal light. They are densely packed, near-touching in their urgency. Some resemble metallic insects, their carapaces etched with gears and cogs that grind as they move. Others are luminescent, jellyfish-like beings that float just above the ground, their bioluminescence casting an eerie, blue-green glow. There are no plants, no recognizable lifeforms—only these creatures, and the slow, industrial pulse that seems to animate them.  
+
+Scattered across the hollow are remnants of a long-dead civilization: rusted pipelines, half-buried turbines, and the skeletal frames of factories that once hummed with purpose. These structures are not ruins but relics, partially reclaimed by the terrain, their edges softened by eons of erosion. Some still function, their mechanisms powered by an unknown energy source, their purpose unclear. A single, massive tower rises in the center, its surface a latticework of pipes and valves, its peak obscured by a swarm of the glowing, jellyfish-like creatures.  
+
+The rules of this world are simple yet strange. Gravity is uneven, weaker near the tower and stronger at the edges, as if the hollow were a bowl tipped slightly askew. Time feels distorted here, the biological pace of the fauna out of sync with the mechanical rhythm of the machines. Predatory creatures hunt in cycles that don’t align with any known day or night, their movements governed by the tower’s unpredictable hum.  
+
+This is a place settled into its final form, a micro-environment both intimate and incomprehensible. It is dense with life, dense with history, dense with the weight of what once was and what now is. It is a hollow, but it is full—full of noise, full of movement, full of a strange, industrial vitality that defies the absence of water, the lack of recognizable biology, the cool, still air.  
+
+Here, the gears whisper, the creatures pulse, and the tower watches. Always watches.

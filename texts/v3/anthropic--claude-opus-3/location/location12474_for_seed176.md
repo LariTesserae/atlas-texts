@@ -1,0 +1,11 @@
+High in a remote mountain range, a small hidden valley nestles between soaring granite peaks. Mist drifts through the narrow defile, condensing on the steep rock walls that rise sharply on all sides. The sheer faces are draped in lush greenery - dense curtains of vines, emerald mosses, and epiphytic ferns clinging tenaciously to every crack and ledge. 
+
+Ribbons of water streak the cliffs, pouring from unseen springs to form dozens of ethereal waterfalls that plummet to the valley floor below. Their crystalline streams join to form a labyrinth of meandering brooks and ponds blanketed in lily pads and ringed by drooping willows. The whole vale is sodden, its rich dark soil saturated and its air heavy with humidity.
+
+Against one cliff face, several decrepit structures lean precariously, half-swallowed by choking vegetation. Constructed of riveted metal plates now mottled with rust, these relics of industry are entwined with strangler figs and bougainvillea vines exploding with crimson flowers. Serpentine pipes wind through the undergrowth, disappearing into chugging, hissing machines choked in creepers. Gears turn slowly. Arcane mechanisms still whir and click with unclear purpose.
+
+A cacophony of noises echoes off the valley walls. The roar of waterfalls mingles with metallic groans and clanks from the antique machinery. Ringing tones of water droplets striking hollow pipes punctuate the white noise. Stream water gurgles. Vines rasp against rusted metal as they sway in the breeze. And beneath it all, a deep thrumming, felt more than heard, pulses from some industrial process still in operation.
+
+Shafts of sunlight pierce the mists, setting the dampness aglow, illuminating jeweled tree frogs and flashes of hummingbird iridescence. Vibrantly colored bromeliads and orchids sprout from every surface. Swallowtail butterflies flit between them. But little other fauna is seen or heard - an eerie dearth of birdsong in this lost world. Life flourishes, but is not abundant.
+
+Time seems to move slower here, the fecundity of nature gradually reclaiming the angular structures of a bygone era at an imperceptible pace. The valley is a surreal fusion, nature and artifice intertwined in a dynamic process unfolding across centuries in this remote, isolated enclave suspended between water and sky.

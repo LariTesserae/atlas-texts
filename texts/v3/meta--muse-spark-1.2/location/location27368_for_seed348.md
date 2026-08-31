@@ -1,0 +1,41 @@
+It's a low place.
+
+Not low like a valley between mountains — low like a shallow saucer pressed into the earth where the land forgot to rise. A broad, level basin maybe half a kilometer across, rimmed by a smooth lip of weathered stone that holds it apart from whatever is beyond. You can see the whole thing from the rim before you go down. You could walk its diameter in twenty minutes if you didn't stop, and for a long time nothing makes you think it continues past its edge.
+
+The air sits there. Cool — not cold enough to bite, but cool enough that your breath ghosts faintly and doesn't want to leave. A normal, milk-white day, overcast but not dim, the light flat and even and showing everything without shadow drama. It makes the colors honest: grey concrete, rust red, iron black, the dull yellow of old brick, the sheen of wet stone.
+
+There are no plants. Not a weed in a crack, not a tree, not even the tough grass that usually finds a way around factories. The ground is mineral through and through — poured slabs and set cobbles and, where the slabs have cracked, the exposed native basalt smoothed by long weather. Everything is weathered, softened at the corners. The brick has rounded. The iron stairs have been worn concave in the middle of each step by a thousand boots. The concrete is pitted and lapped where water has run over it for a very long time. This place has been exactly itself long enough to settle. Nothing is raw or newly cut. Even the rust looks intentional, a patina.
+
+It is a town, but a small one, and a sparse one. Not dense with buildings pressed shoulder to shoulder, but urban in the way its few structures are undeniably organized. Six or seven big buildings, maybe eight if you count the long shed by the eastern culvert — all factory, all infrastructure. Riveted iron halls with high arched windows, most of them dark or blown out and replaced with corrugated sheeting. A water tower on thin legs, though it never seems to need filling. Brick kiln-houses with squat chimneys that exhale steady white steam. Conveyor housings on stilts that march between buildings doing nothing and everything at once. Switchyards, pipe racks, catwalks, gantries, a small grid of streets that are more like service lanes. The buildings don't crowd. They are set apart with a lot of deliberate empty space between them — yards of empty concrete, basins of empty gravel, the big open cistern. It feels like a hamlet-sized industrial park designed for machines much larger than people, or for fewer people than it was built for.
+
+Between the buildings, the water.
+
+It isn't a river and it isn't a lake. The basin is damp. Intermittently, perpetually damp. Condensation beads on every pipe and the underside of every catwalk and drips with a rhythm so constant you stop hearing it until you do. Puddles never quite dry between rains — dark, oil-slicked mirrors that reflect the white sky and the brick. Shallow channels, a hand-span deep, have been cut or worn into the concrete to guide the moisture: they run along the lanes, they gather into grated culverts, they sigh into the central cistern where the water sits a foot deep and absolutely still, black as basalt. Sometimes it rains, a fine cool drizzle that comes without clouds darkening, and sometimes it doesn't for hours, but the wet never leaves. The stone sweats. The air smells like wet iron and cold steam.
+
+And it is loud.
+
+Not chaotically loud — constantly, evenly loud. The kind of loud that becomes a kind of silence if you stay. The whole hamlet hums at one sustained chord. The big hall on the north side thrums with dynamos; you feel it in your molars before you hear it. Boilers mutter and tick. Pistons in the long shed go *chunk-chunk, chunk-chunk* without variation. Belts slap. A vent on the kiln-house screams a high, thin steam whistle that never wavers, never peaks, never stops. Chains rattle over sprockets. Water ticks from pipe joints onto puddles. It's an industrial plainchant, electrified and mechanized, scaled for production, but nothing seems to be being produced except the sound itself and the steam itself. The sound has no crescendo. It doesn't get louder at noon or quieter at night. It just is.
+
+It should be uninhabitable without plant life. Instead it is overwhelmingly inhabited.
+
+The fauna is everywhere, and that is the strangest thing until the next strangest thing replaces it.
+
+They have taken the emptiness left between the buildings and filled it absolutely. On every ledge, every pipe, every yard of empty gravel, something is living and watching and moving. Not hidden — abundant, brazen, layered.
+
+Pigeons first. Thousands of them, slate and white and the iridescent green-black of oil. They cover the roofs in a feathered shingle, they line the gantries shoulder to shoulder facing the same direction, they rise in a sheet that whites the sky for a second and then resettle exactly where they were. Starlings too, in murmurations that don't murmur — they turn above the basin in a single, slow, perfect torus, never landing, never leaving.
+
+Below them, on the ground: rats the size of cats, sleek and wet, moving in lines along the water channels with their tails trailing in the water. They do not scurry. They trot, purposeful, as if on errands between buildings. In the cistern, pale eels or something like eels, thick as your arm, knot and unknot endlessly, breaking the black surface with flat heads. Midges and moths in clouds so dense they look like steam themselves — grey moths with eyes on their wings that never land, that hang in the cool air and vibrate.
+
+And beetles. Black iron beetles with shells like riveted plates that tick as they walk over concrete, that gather in the warm lee of the dynamo hall and click in time with the pistons. You realize after a while that some of the sound you thought was machinery is actually them.
+
+There is nothing for them to eat. No grass, no seed, no leaf. And yet they are fat, and glossy, and numerous beyond any scarcity. They eat rust, maybe. They eat condensation and steam and the flaking scale of brick. They eat the sound. When a pigeon dies — and they do, occasionally, toppling stiffly off a ledge — beetles cover it in minutes and leave a clean bone that the rats then carry, reverently, to the water.
+
+This is the rule of the place, the weirdness that makes it hold together: everything is in equilibrium and has been for a long time. Nothing changes, but nothing is still.
+
+The water never rises to flood the yards, never evaporates away. The amount of pigeon on the roof is always the same pigeon-mass, even as individual birds cycle. The steam pressure never climbs or drops. The rust advances to a certain orange and then stops. The hum never resolves. If you leave a boot-print in the damp gravel, when you look back ten minutes later the gravel has settled back to smooth, not because something smoothed it but because it was always smooth.
+
+It is not frozen in the sense of stopped. Pistons still piston, eels still knot, moths still hang. It's frozen in the sense of a balanced equation. Input equals output. The factory makes exactly enough heat to keep the basin cool. The condensation makes exactly enough water to keep it damp.
+
+You can live here, and some people do — or did. There are small, neat row houses tucked against the outside of the big halls, laundry still hung but never getting wetter or drier, doors open, a kettle forever just about to whistle on a stove that is always warm. No one is in them now, or perhaps everyone here is the pigeons and the rats and you, and that was always the population count. The town doesn't need more.
+
+If you stand in the middle of the cistern yard at midday under that flat normal light, with the cool mist on your face and the roar in your chest and the thousand eyes of birds and beetles all calmly regarding you as one more sparse fixture among the gantries, you understand that this small, low, damp, plantless hamlet isn't abandoned. It's complete. It finished becoming itself a long time ago and decided, perfectly, to stay.

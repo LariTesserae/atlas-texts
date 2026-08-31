@@ -1,0 +1,15 @@
+A salt cathedral grows itself. In a space no larger than a village square, thousands of crystalline spires thrust upward, each new formation shouldering against its neighbors as they all strain toward the harsh sun. The towers range from knee-height to four stories tall, their faceted surfaces catching light and throwing it between them in a dazzling maze of reflections.
+
+This is a place of perpetual emergence. The ground underneath is a deep thermal spring, superheated and mineral-laden, that pushes up through hairline fissures in the rock. In the intense heat, the water flash-evaporates almost instantly, leaving behind accumulating layers of mineral deposits that build ever higher, like stalagmites in fast-forward. The air shimmers with steam and salt haze.
+
+The sound is constant - a percussion of pops and crackles as crystals form and shatter, underlying the steady hiss of escaping steam. Occasionally there's a sharp report like a gunshot when pressure builds up enough to force open a new fissure, followed by the tinkling fall of crystal shards.
+
+Between the major spires, smaller crystalline structures create intricate galleries and passages, some barely wide enough to see through. The dominant color is white, but mineral impurities paint streaks and bands of rust-red, sulfurous yellow, and copper green through the formations. In places, the crystal has grown around pockets of trapped steam, creating cloudy chambers that pulse with changing pressure.
+
+The few living things here have adapted to the extreme conditions. Tiny red algae form films in the cooler crevices where condensation gathers, giving off a faint metallic smell. Heat-loving bacteria create rusty streaks where the water first emerges. Sometimes, metallic-feathered birds like small hawks circle overhead, riding the thermal updrafts and watching for the heat-resistant insects that make their homes in the crystal maze.
+
+The formations show their youth in their sharp edges and clear facets, not yet worn down by wind or rain. But they're ephemeral - as quickly as they grow, portions collapse under their own weight or explode from trapped pressure, only to begin growing again. The entire cathedral is in constant flux, an ongoing performance of mineral architecture.
+
+At certain times of day, when the sun hits at particular angles, the whole structure seems to sing as heat causes the crystals to expand and contract, creating eerie harmonics that echo through the crystal chambers. The sound mingles with the constant background noise of growth and collapse to create an ever-changing geological symphony.
+
+This is a natural architecture of accumulation and pressure, where the boundary between solid and fluid remains in constant negotiation, and every surface is either growing or about to fall away.

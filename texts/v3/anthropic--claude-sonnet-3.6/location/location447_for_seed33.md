@@ -1,0 +1,17 @@
+In the highest reaches of what was once called atmosphere, the crystal cities hang motionless. Their vast geometric forms catch what little light filters through the perpetual twilight haze, refracting it into deep blues and greys that pulse with slow, irregular rhythms. These are not cities as we would understand them - they are more like crystalline growths that emerged from some mathematical principle made manifest, their forms both impossibly delicate and brutally massive.
+
+The spaces between these suspended megalithic structures are vast and nearly empty. Occasionally, something that might be called wind moves through these gaps, though it carries no moisture and barely disturbs the perfect stillness. This not-quite-wind makes the cities emit deep, almost subsonic harmonics that hover just at the edge of perception.
+
+What appear at first to be birds or flying creatures reveal themselves, upon closer inspection, to be temporary knots in the fabric of space itself - like origami folds in reality that form, hold their shape for moments or hours, then smooth themselves out again. They move in flocks that follow patterns more like crystal growth than animal behavior.
+
+The surfaces of the crystal cities are marked with erosion patterns that suggest centuries of exposure to forces that no longer exist in this realm. Deep channels and worn facets catch the dim light, creating maps of imaginary watersheds. These patterns shift and flow with glacial slowness, the cities gradually reforming themselves according to rules that seem to draw from both crystallography and urban planning.
+
+In certain angles of light, one can see what might be inhabitants moving through the translucent walls - not creatures exactly, but organized complexities in the crystal structure itself, like the domain boundaries in a piece of stressed metal viewed through a polarizing filter. These "inhabitants" appear to maintain and modify their crystalline environment, though whether they are conscious or simply following physical laws is impossible to determine.
+
+The temperature hovers just above freezing, though the concept of temperature itself feels somewhat metaphorical here. There is a mathematical coolness to the space, as if it were maintained by abstract principles rather than thermodynamics.
+
+At regular intervals, new structures emerge from seemingly nowhere, growing like frost patterns in reverse, building themselves from the inside out according to some vast and incomprehensible blueprint. The process is entirely silent but somehow suggests immense energies being carefully channeled.
+
+The longer one observes this landscape, the more the initial impressions of architecture and city give way to something else - a sense that this might be what pure information would look like if it spontaneously developed a physical form, or perhaps the visible portion of some vast computation extending into dimensions we can't perceive.
+
+There is a constant subtle movement throughout the structure, like the way heat shimmer distorts distant objects, except here it seems to be reality itself that's wavering. The effect creates a persistent uncertainty about the true distance and scale of anything in view - features that appear close might be enormous and far away, or tiny and near, or possibly both simultaneously.

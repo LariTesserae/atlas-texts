@@ -1,0 +1,19 @@
+The air is thin, bright, and cold, smelling of ozone and wet flint. At this altitude, the sun does not warm the land so much as it illuminates it with a high-intensity, clinical glare. The sky is a hard, pale violet, cloudless except for a low, horizontal belt of mist that clings to the valley floor like a spilled reservoir of milk. 
+
+This is a young valley, formed of razor-sharp basalt shelves and black glass-like obsidian that have not yet had time to smooth down. The ridges rise in jagged, un-weathered stairs, their edges so crisp they look sheared by a clean blade. Yet, despite the harshness of the stone and the dryness of the high air, there is an overwhelming, suffocating greenness here.
+
+The vegetation does not grow in soil; it grows on the rock, and on itself. It is a dense, high-saturation carpet of thick-leaved, waxy succulents and fibrous, pale mosses that are three feet deep in some places. These plants do not rely on rain—which is rare and brief—but on the heavy dew that forms when the cold air meets the black rock at dawn. Every leaf is a complex cistern. They are shaped like cups, funnels, and ribbed troughs, holding tiny, trembling jewels of water in their centers. The flora has a strange, geometric beauty: spiraling rosettes of jade and blue-gray, and flat, shield-like leaves covered in silver fuzz that catches the brilliant light, making the valley floor shimmer as if frosted in diamonds.
+
+Among this lush, choking greenery sit the massive, silent fragments of an industrial age. 
+
+These are not elegant ruins; they are heavy, brutalist machines—steam-condensator towers, thick-walled copper boilers, and massive iron gears thirty feet across, half-sunken into the wet moss. They are scattered miles apart, like lonely giants that fell where they stood. A line of massive iron pylons, strung with cables thick as a man’s thigh, stretches from the high cliffs down into the mist. The cables do not hum; they are dead, overgrown with thick, orange-fleshed lichens that have begun to digest the metal, secreting an acid that turns the iron into a crumbly, purple ore. 
+
+The silence here is absolute, an physical presence. 
+
+There are no birds to call, no insects to hum. The rare fauna of this place is small and subterranean—soft-bodied, blind things that slide noiselessly through the wet root-mats beneath the moss, completely hidden from the sharp light. Even more than the lack of life, the plants themselves seem designed to swallow sound. The undersides of the waxy leaves are covered in microscopic, felt-like hairs that trap vibrations. If you were to drop a heavy steel bolt onto the rocks, it would land on the deep moss cushion with a faint, instantly deadened *thud*, without an echo. If you were to scream, the sound would carry only a few yards before being choked out by the spongy, green architecture of the valley.
+
+Movement here is measured in decades. 
+
+At the bottom of a steep ravine, a colossal iron turbine wheel is wedged between two plates of basalt. It is connected to a deep mountain fault. Once every few years, as the deep pressure of the earth shifts by a fraction of a millimeter, the wheel gives a single, agonizingly slow turn of three degrees. It takes days for this turn to complete, a movement so gradual it is invisible to the eye, marked only by the slow parting of the vines that have woven through its spokes.
+
+In the brilliant, shadowless noon, the valley looks like a vast, green machine that has forgotten its original purpose. The plants, nourished by the metallic minerals of the young volcanic rock and the iron runoff of the rusting towers, have become semi-metallic themselves. Faint, blueish copper veins run through the thick stems of the succulent rosettes. When the light hits them at a certain angle, the entire landscape gleams with the cold, wet sheen of brass and chlorophyll, waiting in the silence for a season that never arrives.

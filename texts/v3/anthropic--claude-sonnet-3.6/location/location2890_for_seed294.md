@@ -1,0 +1,15 @@
+The mountains have worn completely flat. Not into hills or gentle slopes - into vast horizontal planes, stacked like sheets of slate, extending for kilometers. Each layer is perfectly level, as if cut by an impossibly precise knife, but the edges are ragged where they've fractured. The planes hover at different heights, connected by sudden vertical drops ranging from meters to hundreds of meters.
+
+The air is thick with a constant industrial hum that seems to come from everywhere and nowhere. Machinery grows here like crystal formations - sprouting from the rock faces in fractal patterns of pipes, valves, gauges, and pulsing tubes. The machines build themselves, consuming the ancient stone and extruding more of their own substance in endless recursive growth. Their purpose, if they ever had one, is long forgotten.
+
+Between the layers, in the shadow-spaces, condensation gathers. Not as drops, but as shifting geometric patterns that crawl across the surfaces, leaving trails of moisture that fade into complex mathematical designs. Small creatures live in these wet zones - flat as paper, transparent as glass, moving in impossible angles. They feed on the machine-growths and on each other, their bodies folding through dimensions that hurt to look at.
+
+The light is perpetually dim, filtered through a sky that seems too close, too dense. It moves in waves, like an ocean overhead, casting swimming shadows that never quite match the objects casting them. Sometimes the shadows move first, and the objects follow.
+
+The air tastes of copper and ozone. Sounds echo strangely - a scraping of metal might bounce between the layers for hours, while the constant drone of the machines sometimes drops into pockets of perfect silence. Rain falls upward in precise hexagonal columns, disappearing into the swimming sky.
+
+Settlement exists here, if you can call it that. Structures that might be buildings merge seamlessly with the machine-growths and the living rock. Their inhabitants might be human, or might once have been human, or might be something that convergently evolved to occupy human-shaped spaces. They move with purpose through their geometric world, tending to incomprehensible tasks with tools that fold in on themselves.
+
+The whole landscape feels like mathematics made solid, like the endpoint of time where even chaos has worn itself into perfect patterns. Nothing is natural here anymore, if it ever was, but everything follows rules - rules so complex and absolute they've become a new kind of nature.
+
+At the edges of vision, the planes seem to curve impossibly, suggesting that this entire place might be the surface of some vast geometric object, folded through dimensions we weren't meant to perceive. The machine-growth continues its endless crystalline expansion. The paper-thin creatures hunt in the wet shadows. The maybe-humans go about their precise businesses. And underneath it all, the mountain that wore itself flat dreams of Euclidean perfection.

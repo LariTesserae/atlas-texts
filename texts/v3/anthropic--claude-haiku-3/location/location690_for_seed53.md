@@ -1,0 +1,7 @@
+A realm of harsh, enduring extremes. Towering peaks jut skyward, their summits lost in a glare of bright, achromatic light. The terrain is a tapestry of weathered, unyielding rock – ancient stone sculpted by endless cycles of frost, wind, and glacial grinding.
+
+Moisture clings to this unforgiving landscape in muted, ephemeral ways. Damp crevices harbor the occasional lichen or moss-like growth, while thin rivulets trickle down sheer cliff faces before evaporating into the frigid air. Clouds drift through narrow passes, now and then dropping a fine mist that glitters briefly before dissipating.
+
+The scale is immense, dwarfing any transient human presence. Yet there are signs of a more intimate, hidden world – faint markings on the rock, vestiges of long-vanished habitation. Perhaps ancient, nomadic peoples once eked out an existence in these extreme heights, leaving behind the merest traces of their passing.
+
+The atmosphere is one of profound, fragile stillness, broken only by the whisper of the wind and the occasional distant rumble of rockfall or avalanche. The overall impression is of a place utterly indifferent to the presence of life, yet open to the possibility of its return – a canvas waiting, weathered yet resilient, for the next iteration of form to emerge.

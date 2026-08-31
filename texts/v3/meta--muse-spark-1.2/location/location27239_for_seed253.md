@@ -1,0 +1,39 @@
+There is a place at the top of the world where the world has ended.
+
+Not a peak. Peaks are young, sharp things, thrust up and still fighting weather. This is what is left when that fight has been over for so long that the mountain has forgotten it was ever a fight at all.
+
+A table. A continent lifted. The stone is so old it is no longer stone in any way that matters — it has been smoothed down to a slow, cold curve, pitted and licked and polished until the valleys are broad shallow bowls and the ridges are only long, whale-backed swells in the dark. You could walk for a day and think you were on flat ground, until you realize the horizon never gets closer and the cold gets thinner, and that the air above you is not air at all.
+
+Because the water did not run off.
+
+At this elevation there should be wind and ice and thin sky. Instead there is sea. Not a sea that came up from below, but a sea that stayed. A cold, black, heavy ocean held aloft in the ancient basin of the high table, kilometers deep in its center and shallower toward the worn edges where it finally spills — infinitely slowly — over the lip of the world in a silent, sheer cataract you can feel more than hear. The water is cool enough to ache. Not freezing, never freezing. Just that perfect, penetrating cool that makes everything slow and clear and preserved.
+
+You are submerged. Fully. From the smoothed stone floor to hundreds of meters above your head is only water. It has weight and presence but it is not murky. It is dark the way deep water is dark — not cloudy, just lightless. The sun, if it exists beyond this sea-in-the-sky, does not reach here. The darkness is complete and soft and absolute. And yet you can see, after your eyes give up on sun.
+
+The builders provided their own light.
+
+Everything here is built, but nothing was ever made. That is the first rule of this place. There are no quarries, no cut stone, no metal, no tools. And yet there is no natural ground left to stand on either. The original rock is still there, far below, but you will never touch it. It is buried under what has grown over it.
+
+The vegetation took the commission.
+
+It did not grow *on* the high sea. It grew *as* the high sea. In the cold dark, in the stillness, a single kind of plant — though calling it a plant feels insufficient — has become substrate, architecture, forest, city, and reef all at once. Think of kelp, think of banyan, think of mangrove and coral and wicker, and then forget those specifics. Here the trunks are as thick as houses, black-green and slick, rising vertically from the root-mat that has sealed the ancient stone entirely. They grow straight up through the water column for a hundred, two hundred meters, and then they stop, as if they have agreed on a ceiling, and send out limbs that braid and fuse with their neighbors.
+
+It is a built environment in the truest sense. Floors are grown where fronds have widened and hardened into platforms. Walls are curtains of interwoven aerial roots that have sealed themselves watertight, then opened again into archways. Pillars are living trunks that have been colonized and thickened by generations of epiphytic growth until they are fluted columns. Stairwells are helical vines you can climb. Chambers are hollowed galls the size of cathedrals. Nothing is dead. Everything is alive and still growing, infinitesimally, at the speed of stone.
+
+And it is sparse. For all that it fills every cubic meter from floor to vaulted canopy with living matter, it is not dense. The great trunks are spaced far apart — a minute's swim between one and the next, sometimes more. The water between them is open and empty, a cold void. This is not a jungle that chokes you. It is a drowned temple complex at the scale of a valley or a small country, where each building is a tree and each tree is a building, and between them are avenues of pure, dark, cold water. You can see for a long way, because nothing clouds the water, and see nothing but the next lit pillar in the distance.
+
+Because they do give light, faintly. Not bright. Pinpricks and seams of cool phosphor along the bark, along the undersides of the leaf-floors, lines of bioluminescence that outline the architecture the way a city at night outlines itself. It is never enough to see by in the way you are used to. It is enough to know shape, and distance, and that you are not alone. The light never flickers. It never brightens or dims.
+
+Nothing here changes. That is the second rule, and it is why the place can exist at all. Water at this height should fall. Plants should die. Light should move. But this high sea is in equilibrium. It has been in equilibrium for so long that change has worn out. The cool water does not circulate in currents; it hangs, still and immense. The plants do not grow toward anything; they maintain. The erosion that made this table so ancient and so flat has finished its work and stopped. There is no weather inside the water. No seasons. No storm. The only movement is the movement of those who live within it.
+
+And they are many.
+
+For how sparse and quiet and empty this grown city appears, it is loud and abundant. The water carries sound perfectly, coldly. At any moment you can hear the forest itself — the low groan of trunks shifting a millimeter under water pressure, the pop and sigh of bladders adjusting, the soft, constant rain of detritus falling from the canopy like snow. And over that, the animals.
+
+They are everywhere, but like the trunks, they keep their distance from each other, as if respecting the scale of the place. Huge, slow things, pale and blind, with translucent bodies and trailing fronds of their own that mimic the architecture. They graze along the walls, scraping the living bark with flat, circular mouths, and each scrape echoes. Smaller, quick things dart in schools between pillars, flashing their own brief lights on and off in patterns that have no urgency. Things with long, hanging bells drift under the leaf-floors, ringing them softly when the water moves. A pod of something like whales, but with fern-like fins, passes once an hour — or once a day; time is hard to hold onto — and their calls are the loudest thing in this world: deep, resonant, architectural sounds that use the pillars as instruments, vibrating the entire water column so you feel it in your chest.
+
+Nothing hunts quickly. Nothing flees quickly. Even the fauna has settled into the same equilibrium as the forest. Abundant, but patient. Present, but spaced. They do not swarm. They process.
+
+If you stay here, treading cold water between two massive, glowing columns that lean very slightly toward each other like the remains of an arch, you understand the weirdness of the place is not that it is fantastical. It is that it is completely reasonable, once you accept its premise. Of course a mountain this old would wear flat. Of course water would pool in its flattened top if the world cooled just enough to hold it. Of course life, given no sun and no tool-using animal to cut it, would learn to build for itself, and would build a sparse, open city because there is no need to crowd. Of course that city would be dark and loud with its own inhabitants. Of course it would stop changing, because it has reached the shape that does not need to change anymore.
+
+The Summit Sea does not wait for you. It does not welcome or reject. It is simply there, perfectly constructed without construction, a cold black ocean held impossibly high, a forest that is also a town that is also a reef, lit only by itself, groaning softly to itself, ancient beyond any map's ability to record, and exactly as it will be tomorrow.

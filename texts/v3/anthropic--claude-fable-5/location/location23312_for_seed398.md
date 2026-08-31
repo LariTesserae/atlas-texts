@@ -1,0 +1,33 @@
+**The Chamber at Caldera Height**
+
+Near the summit of a mountain so tall its upper third stands above weather, there is a flaw in the rock. From outside it is nothing — a hairline shadow in a wall of fresh black glass, a place where the wind, what little wind survives at this altitude, makes a low note when it passes. You would have to know it was there. Almost nothing does.
+
+Inside, the flaw opens into a hollow about the size of a cathedral's nave, and the hollow is full of heat.
+
+This is young stone. The mountain finished extruding this part of itself recently, geologically speaking — within living memory, if anything up here lived. The walls have not been touched by ice or rain or root. They are obsidian and welded ash, and they still hold their formation-shapes: ropy folds, frozen drips, edges sharp enough to part skin without your noticing until later. Nothing has had time to soften anything. The floor of the chamber is a single cooled lake of glass, faintly rippled, like water photographed mid-disturbance and then made permanent.
+
+The heat comes up through that floor. Somewhere below — not far below — the mountain is still deciding things about itself. The glass underfoot is warm the way a sleeping body is warm. In places it is much more than that, and a faint shimmer stands above the floor like the air over a road in summer, except there is no sun here. There is almost no light at all.
+
+What light exists is this: a dull carnelian glow from three fissures in the chamber floor, narrow as letter slots, breathing heat. And a second light, stranger — a pale, sourceless gray that seems to belong to the city itself.
+
+Because there is a city here.
+
+It occupies perhaps a fifth of the chamber, off-center, built against the eastern wall where a shelf of cooled lava makes a natural terrace. It is a city in every structural sense — streets in a deliberate grid that breaks, in places, into deliberate irregularity; towers; stepped foundations; what can only be called infrastructure, conduits and channels running beneath elevated walkways; districts with recognizably different characters, denser here, opener there. It is also no more than knee-high at its tallest spire.
+
+It was not built small as a model is built small. Nothing about it suggests representation. It suggests *occupation* — at a scale, or in a mode, that doesn't correspond to bodies as we understand them. The materials are wrong for miniature work: the towers are grown, not assembled, drawn up out of the chamber floor in a single continuous mineral gesture, glass flowing into structures the way frost flows into ferns, except with intention. Seams are absent. Doorways — if the dark apertures at the bases of the buildings are doorways — open onto interiors that the dim light does not penetrate and that seem, when you look too long, slightly deeper than the buildings containing them.
+
+The city is still growing. This is one of the few sounds in the chamber: an intermittent, crystalline *tick... tick-tick... tick*, irregular as a cooling engine, which is the sound of new structure precipitating out of the hot floor. Watch a vacant lot at the city's edge for an hour and you will see a foundation assemble itself — not rising visibly, but *resolving*, the way a shape resolves out of fog, until what was rippled glass is unmistakably the beginning of a building. No machinery is visible. No machinery may exist, in the sense of discrete machines. The construction seems to be a property of the matter itself, instructed at some scale beneath sight.
+
+The water is the chamber's other voice.
+
+At this altitude the outside air is thin and very cold, and where it seeps through the entrance flaw it meets the volcanic heat and surrenders its moisture all at once. The upper walls of the chamber sweat. Condensation gathers on the cooled overhangs near the ceiling — beads of it, fat and trembling in the carnelian glow — and falls, drop by widely spaced drop, to the hot floor below. Each drop lands with a small *tss*, a hiss and a momentary ghost of steam, and a brief sweet smell like rain on summer pavement, here where there has never been rain or pavement.
+
+Some of the drops fall on the city.
+
+The city has prepared for this. Threading the streets is a network of channels — gutters, aqueducts, cisterns the size of thimbles — and the architecture of whole districts is organized around catchment. Sloped roofs feed copings feed downspouts feed a covered reservoir near the city's center, a low domed structure that is the only building in the city that ever makes its own sound: a soft internal slosh, very occasionally, like something turning over in sleep. What the city does with the water is not apparent. Possibly the water is the point of the entire settlement — the reason something chose to build, with physics we don't have words for, a town at the one place on this mountain where fire and frost negotiate.
+
+Beyond the city, the chamber is almost perfectly empty. This is most of the place, and it should be said plainly: emptiness is the dominant feature. The black floor runs out from the last streets and just continues, warm and dim and rippled, for what feels like much farther than the chamber's actual size should allow — and may in fact *be* farther; pacing it out gives inconsistent results, and the far wall is sometimes eleven minutes away and sometimes thirty, with no sensation of the discrepancy while walking. The city's builders apparently fold space the way other cultures fold metal. The emptiness may be storage. It may be margin. It may be respect.
+
+There is no life. Not the absence-of-life of a sterile room, but something more anticipatory — the chamber has the feeling of a stage set before the play has been written, or after it has been forgotten. No lichen, because nothing organic could seed itself here; no insects; nothing that breathes. The only motion belonging to anything other than stone, water, and heat is the city's slow self-assembly, and a periodic event that occurs perhaps twice in a long visit: all the pale gray light in the city dims at once, holds dark for the length of a held breath, and returns. A blink. Whether the city is checking on itself, or signaling, or simply resting, there is no way to know. Nothing answers it.
+
+Then the quiet reasserts itself — the *tick* of growth, the *tss* of a falling drop, the held bass note of heat in the floor, the thin flute of wind in the entrance flaw — and the small city goes on becoming itself in the dark, knee-high and patient, on the inside of a mountain too tall for weather, in a room almost no one will ever find.

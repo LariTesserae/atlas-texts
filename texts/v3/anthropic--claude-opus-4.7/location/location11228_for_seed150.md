@@ -1,0 +1,27 @@
+# The Sodden City
+
+It is a city, but no one built it.
+
+The place sits high — you can tell from the thinness of the air and the way clouds pass through the upper galleries rather than over them — on a shelf of pale stone that must have been pushed up recently in geological terms. The rock still has edges. Fractures run sharp and unrounded along the bases of things, and where streams cut through, they cut straight down rather than meandering: young water in young stone, both still learning the shape of each other.
+
+But the rock is barely the point. What you notice first is that the city is made of moss.
+
+Not moss as decoration. Moss as substance. The towers — and they are towers, three and four stories of them packed shoulder to shoulder along lanes barely wide enough for a person to pass — are wholly vegetable. Bryophyte architecture. Generations of sphagnum and pleurocarp and something stranger have grown over and into one another until the accumulated mass forms walls, columns, vaulted ceilings, the suggestion of windows. Where a wall has thickened over centuries it becomes load-bearing; where the growth has been thinner it becomes a translucent membrane through which the dim green light filters into the rooms beyond. The whole settlement is one continuous organism wearing the shape of habitation.
+
+It must have grown into these forms. Mosses have no architects. And yet there are doorways at human height. There are stairs. There are what look like cisterns, and channels, and a central plaza with something like a forum's tiered seating. Whoever or whatever lived here once — if anyone did — has been absorbed. Their shapes are remembered in the plant.
+
+Everything is wet. Not flooded, not running — the streams keep to their channels — but saturated, the way a wrung sponge is still heavy. Water beads on every surface and falls in slow, irregular drips that constitute most of the city's sound. The cold helps. At this elevation the air condenses constantly against the moss-walls; the whole place is a passive still, pulling moisture from the cloud that drifts through it. Touch a column and your palm comes away dark.
+
+The temperature stays just above freezing. In the mornings — if mornings mean anything here, under the perpetual overcast — thin ice forms in the shallowest puddles and on the north faces of the upper galleries, and the moss there goes silver and brittle until the day's marginal warmth releases it again. This freeze-thaw is part of how the city sculpts itself. Ice expands in the seams; new growth fills the gaps; the buildings are slowly, slowly remodeling.
+
+Fauna is scarce. Once in an hour you might see a small pale invertebrate moving along a wall — something like a springtail, something like nothing — or hear the rustle of one of the few birds that tolerate the cold and the closeness. They nest in the upper hollows. Their calls are infrequent and short, as if they too feel the hush of the place and don't want to disturb it. There are no large animals. Nothing hunts here. The ecosystem is essentially the plant talking to itself.
+
+The packing is extraordinary. Everywhere you look, something living is touching something else living. The lanes between buildings are only nominally open — moss has crept across the cobbles (themselves a kind of compressed root-mat) until walking requires pressing through a soft resistance. Liverworts colonize the moss; algal films colonize the liverworts; in the deepest crevices, only-just-visible threads of something fungal or filamentous bind the whole assembly. There is no bare surface anywhere. Even the water has a thin green skin where it pools.
+
+And yet it is small. You can walk the whole settlement in twenty minutes. It ends abruptly at the edges of the shelf — a wall of the same dense growth, then a drop into cloud. There is no suburb, no hinterland visible. The city is a single dense pellet of life perched on a young cliff, and the world beyond it is presumably out there somewhere, but the cloud keeps its own counsel about that.
+
+The light is dim and even. There is no sun, only a diffuse green-grey luminance that seems to come from the walls themselves as much as from overhead — and perhaps it does; some of the deeper mosses have a faint bioluminescent quality, more an absence of full dark than a real glow. At what would be noon the lanes brighten to the color of weak tea. At what would be evening they go to the color of slate, and then to a dark in which only the dripping continues.
+
+The dynamism is slow but real. Cloud moves through. Water cycles from wall to air to wall again. Ice forms and releases. Somewhere, very slowly, the moss is deciding to grow a new buttress against a place where the wind from the cliff edge has been pressing for a century. Spores release in puffs from the fruiting bodies that stipple the higher walls — these are the closest thing to weather the city makes on its own, brief silent exhalations of pale dust that drift through the lanes and settle and become, eventually, more wall.
+
+It does not feel abandoned, exactly. It feels attended to. As if the plant remembers what shapes it was asked to take, and is keeping them, patiently, against the cold and the wet and the slow erosion of the young stone beneath, in case whoever asked comes back.

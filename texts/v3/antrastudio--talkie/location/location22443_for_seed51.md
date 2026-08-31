@@ -1,0 +1,1 @@
+An encircled countryside, remote from the town, with gentle dips and swells between long parallel ridges; water showing here and there; green fields; trees in clumps and lines; a white road running aimlessly; here and there a house. In the enclosures, beasts and birds; in the airs above, birds flying. Silence, but for such sounds as come from life. Quietness. A place of peace.

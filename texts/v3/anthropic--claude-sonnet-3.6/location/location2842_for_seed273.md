@@ -1,0 +1,13 @@
+In the root-heart of an ancient city, there is a forgotten garden-chamber. Not built but grown, its walls are living wood - the merged and thickened trunks of trees that, over centuries, have knit themselves into architecture. The space is small, perhaps four meters across, and nearly spherical. Every surface crawls with life.
+
+The air is cold and still. Water beads constantly on the wooden walls, gathering in rivulets that trace the spiral grain of the wood before being caught and channeled by moss into tiny reservoirs and channels. This internal irrigation feeds countless small beings.
+
+The darkness is near-complete, but broken by patches of bioluminescent fungi that pulse slowly, their rhythm matching the subtle expansion and contraction of the chamber itself as the living walls breathe. These ghost-lights reveal layers upon layers of life: Translucent slugs with phosphorescent trails. Countless varieties of insects, most no larger than a grain of rice, moving in complex social patterns across the walls. Miniature ferns unfurl and curl in waves, responding to some internal timing rather than sun or season.
+
+The chamber sits at the confluence of several ancient root systems, and through these roots comes a constant slow percussion - the heartbeat of the greater forest above, felt more than heard. The walls themselves occasionally creak and shift, but softly, like someone turning in their sleep.
+
+The density of life here is almost suffocating. Every square centimeter hosts multiple species, living in precise vertical layers. Thin fungal films provide foundation for moss colonies, which support communities of invertebrates, which in turn feed carnivorous plants no larger than a fingernail. The ecosystem has evolved over centuries to occupy this specific niche, this particular darkness.
+
+Despite the constant motion - the endless hunting and feeding and growing and dying of countless small creatures - the overall sensation is one of profound stability. This is a system that reached its final form long ago. The chamber itself might be as old as the city above, grown perhaps from seeds planted by the first settlers, but its current state of teeming, ordered life represents an endpoint of evolution. Nothing new comes here; nothing leaves. The chamber sustains itself in perfect, eternal balance.
+
+Water is everywhere but never floods. Life is abundant but never overflows. The cold preserves, the darkness protects, and the living walls hold everything in its proper place. This is a pocket universe of biological clockwork, ticking away in the depths, unnoticed by the world above.

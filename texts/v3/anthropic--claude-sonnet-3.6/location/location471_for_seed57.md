@@ -1,0 +1,15 @@
+In the fold between two unremarkable rocks lies a pocket of impossible water, a liquid anomaly that doesn't flow away or evaporate. Dense as mercury but clear as winter air, it holds its form like a lens or a suspended tear. To discover it requires perfect timing - it's only visible during the deep blue moment before true night, when its subtle distortions catch the last fragments of twilight.
+
+Within this contained volume, an entire aquatic microcosm thrives. Delicate fronds of some unknown water plant create an architecture of overlapping transparencies, their leaves so thin they're nearly two-dimensional. They grow in tight, precise spirals, each layer filtering the already-dim light into deeper shades of indigo and violet. The plants don't move with currents - there are none - but rather seem to shift through planes of space that don't quite align with normal geometry.
+
+The water itself feels wrong to observe. It simultaneously appears to be inches deep and fathomless, creating a vertiginous sensation for anyone who looks too long. Tiny bubbles hang motionless, catching what little light penetrates to create constellation-like patterns that slowly rearrange themselves according to rules just beyond comprehension.
+
+Against this abstract backdrop, a single creature makes its endless circuit. About the size of a child's palm, it resembles a nautilus made of dark glass, its chambers filled with bioluminescent fluid that pulses in long, slow waves. It leaves no wake as it moves, but sometimes appears to swim through earlier versions of itself, creating ghost-images that fade like old photographs.
+
+At the very bottom of this pocket universe, barely visible, lie the remnants of what might have been a tiny shrine - just a few geometric shapes in some dark metal, arranged with clear purpose but now grown over with crystalline structures that might be mineral or might be living things. The formation is so dense with detail that the eye slides off it, unable to find purchase on any one feature.
+
+The entire space hums at a frequency just below hearing. The sound manifests more as a presence in the chest cavity, a resonance that seems to sync with the observer's heartbeat before pulling it slightly out of its normal rhythm. The air around the water holds a perpetual chill, as if the pocket constantly radiates the temperature of deep ocean trenches.
+
+Time behaves strangely here - moments stretch and compress unpredictably. Sometimes the nautilus-thing seems to freeze mid-movement, while the plants complete weeks of growth in seconds. Other times, everything moves with glacial slowness except for darting shadows that have no visible source.
+
+This place feels like a puncture in reality, a tiny window into some vast alternate ocean that operates on principles we can't quite grasp. It's as if all the water that should fill a much larger space has been compressed into this small volume, creating a density of experience that strains the boundaries of what seems possible.

@@ -1,0 +1,15 @@
+To breathe here, you do not inhale air; you inhale a thick, lukewarm emulsion of suspended minerals and bioluminescent jelly. We are at extreme elevation, yet we are submerged. The entire world exists within a vertical, suspended column of liquid that shouldn't exist so far above the basin—a jagged, impossible gravity-well that holds a sphere of pressurized sea in the thin, freezing mountain air.
+
+The architecture of the terrain is "young," meaning it hasn't settled. It looks as if the earth were pinched into existence by a clumsy finger; the crags are impossibly sharp, obsidian-dark, and still radiating the heat of their volcanic birth. Because the landscape is small—no bigger than the nave of an ancient cathedral—the "sea" is pressurized. It churns with a violent, rhythmic turbulence.
+
+The sound is not merely a noise; it is a physical weight. It is the sound of tectonic plates grinding together inside a jar of water: a deafening, wet *thrum* that vibrates the marrow in your bones. It shifts pitch violently, like a choir of thousands trying to scream underwater.
+
+Because the weirdness is high, the reality of the place is fraying. You might watch a floating, translucent fragment of stone dissolve into a swarm of pale, translucent eels, only for those eels to blink out of existence and reappear as liquid mercury, which then crystallizes back into jagged basalt. Nothing stays a state of matter for long. 
+
+There is almost no vegetation, save for thin, hair-like filaments of violet algae that drift in the current, tethered to the basalt by gossamer threads. They glow with a guttering, dim light, pulsing in sync with the roar of the water.
+
+In the center of this cathedral-scale abyss sit the remains of something once built. It is a cluster of three-sided arches made of a porous, bone-like stone. They are not ruins; they are "faint marks," as if reality had stuttered while trying to render a structure and abandoned the attempt halfway through. They appear and disappear within the turbulance, sometimes crystalline and solid, other times reduced to ink-blots that swirl into the surrounding water.
+
+There is no technology here, only biology, but it is a biology that seems to have learned how to mimic the chaos. The rare fauna are blind, gelatinous things—drifters that look like ribs tied together with veins—that dart through the liquid. They do not swim so much as they phase from one coordinate to another, avoiding the crushing pressure of the center.
+
+It is a lonely, violent, and deafening nursery of matter. If you were to touch the "walls" of this liquid column, your hand wouldn’t hit a surface; you would feel the temperature drop to a killing frost, realizing that the water isn't just containing the landscape—the landscape is trying to weep itself into a solid form, and the water is the only thing keeping it from shattering into nothingness.

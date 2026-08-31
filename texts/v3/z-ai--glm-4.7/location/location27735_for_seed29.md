@@ -1,0 +1,23 @@
+It is a vertical world, a towering, singular throat of stone that rises infinitely—or perhaps only a few hundred feet—into a suffocating dark. The scale is deceptive; the space feels like a vast mountain range, yet it is bounded by curving walls of dark, glassy obsidian, suggesting this is merely a pocket, a blisters within the greater crust of the planet. It is a room with no ceiling and no floor, only the endless climb of the "Spine."
+
+The atmosphere is thick, heavy, and dry. Water here is a mythological memory, a concept long since baked out of existence. The humidity is effectively zero. The air tastes of ozone, pulverized dust, and hot iron. It is a breath that dries the throat instantly, a gas that seems to sublimate moisture from the eyes. There are no clouds, no fog, just a still, superheated transparency that vibrates with the distortion of heat radiating from the walls.
+
+The heat is oppressive, relentless. It sits at a steady, sweltering bake, enough to blister unprotected skin within minutes but not quite hot enough to melt the chitin of the inhabitants. The rock faces radiate a dull, infrared glow that is invisible to the eye but felt as a physical weight against the body. This is a planet-scale kiln.
+
+Geologically, the terrain is embryonic and raw. This is a landscape that has not yet decided what it wants to be. The rock is sharp—sharply sharp. There are no rounded pebbles, no sand smoothed by eons of wind. The Spire is composed of jagged basalt columns that look like frozen black lightning, constantly cracking and reforming as the planet beneath heaves with tectonic growing pains. Erosion has not had time to soften the edges; the world is a collection of blades and fractures. The ground is unstable, a scree of freshly shattered mineral that crunches loudly underfoot.
+
+And it is loud.
+
+The defining characteristic of this place is the noise. It is an industrial roar, a deafening cacophony of friction and collision. It sounds like a thousand foundries working at full capacity, yet there are no hammers, no steam pistons, and no electrical generators. The industry is organic.
+
+The space is packed. There is no empty room here. Every available surface—the sheer vertical cliffs, the jagged overhangs, the narrow ledges—is occupied by life. This is the "Fauna," but they behave like components of a machine. They are immense, armored, lobster-like creatures the size of draft horses, encased in slick, black carapaces that reflect no light. They exist in densities that defy comfort, clambering over one another in a ceaseless, tactile mesh.
+
+They are the engine of this world. Because there is no vegetation to eat, the ecosystem has turned to the rock itself. The creatures are lithovores, equipped with massive, diamond-edged mandibles that screech and grind against the raw basalt. They are mining the mountain, processing the stone, digesting the minerals and excreting fine, glittering sands that pile up in the depressions.
+
+This is the industrial nature of the place: the movement of the creatures mimics a factory line. There is a rhythm to it—a slow, grinding dynamic. Those on the lower levels scrape the rock and pass the crushed rubble upward via clawed conveyor-belt chains to the processors on the ledges above. It is an assembly line of survival, indifferent to the individual, driven by a biological imperative that functions exactly like mechanized production.
+
+The lighting is nearly non-existent. It is a place of profound darkness. The only light comes from the occasional sparks thrown off when a creature strikes a flint-heavy vein of rock, and the dim, angry red patches where the raw geology vents its internal heat. Vision is nearly useless here; the world is perceived through the vibration of the rock and the scent of minerals. The darkness is absolute, save for these fleeting, violent illuminations.
+
+The rules of this world are simple: climb, consume, process. There is no waste, and no stillness. The "hidden" nature of the pocket means the population is trapped in a high-pressure cooker of evolution. They have adapted to the lack of water by retaining every drop of fluid in closed-loop biological systems, leaking nothing. The air is filled with the dry dust of their labor, a thick particulate haze that hangs in the darkness.
+
+It is a place of choking heat, blinding noise, and claustrophobic crowding. It is a living mine, a biological factory operating in the dark, raw and unfinished, stripping the world down around them even as they build their own density within it. To stand here is to be an insignificant cog in a vast, blind, and deafening machine of flesh and stone.

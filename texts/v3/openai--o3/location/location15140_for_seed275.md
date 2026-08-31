@@ -1,0 +1,34 @@
+The first thing you notice is the ceiling: a single, unbroken continent of living tissue stretched taut across stone like a pale green firmament.  It hangs thirty, sometimes eighty metres overhead, supported by its own muscular vines that grow downward in massive, buttress-thick cables, then root themselves in the floor.  Faint veins pulse just beneath the translucent surface, carrying sap instead of blood, and every minute or so those veins dilate, then relax again, as though the sky itself were breathing.  
+That ceiling is the source of all ordinary light here.  Embedded along the vascular network are millions of lenticular nodules—plant organs that behave like lamp glass.  They brighten and dim according to an engineered diurnal rhythm, filling each “day” with a bland, clinic-white glow that never quite warms the air.  You are half a kilometre below the crust, but your eyes tell you it is an overcast afternoon that never ends.
+
+Terrain  
+The ground is young rock: raw, angular sheets of basalt still bearing the parallel scars of tunnel-boring drums.  Whole avenues are nothing more than converging trenches the colour of gunmetal, their floors strewn with powdered feldspar that squeaks underfoot like snow.  There is almost no sign of erosion—edges remain knife-clean, drill dust still clings to wall striations, and the occasional slab waits where it fell, having never yet been tidied away.  Space is generous.  Caverns open one into the next, each the size of a city block, linked by rib-vaulted corridors so broad that any single pedestrian feels like an afterthought.
+
+Atmosphere  
+Temperature hovers just above ten degrees Celsius: cool enough that exhalations silver in the air and condensate briefly on your sleeves before vanishing again into the dryness.  An air-handling grid in the ceiling roots exhales a constant, low sigh—recycled nitrogen-rich gas gently laced with ozone and resinous plant volatiles.  Humidity is next to nothing; the inside of your mouth picks up the faint taste of chalk.  Water is too precious to waste as vapour.  Pipes carry it under pressure from deep refrigeration cisterns straight to where it is metabolically indispensable, and almost nowhere else.
+
+Vegetation  
+Where water is absent, the plants have turned to rock for sustenance.  The dominant organism—locals call it latticewood—runs its hungry rootlets into microscopic fissures, injects acids, and drinks liquefied mineral ions.  Everywhere, the substance of the colony is also its architecture: walls, bridges, platforms, and even the occasional spiral stair have been coaxed into shape by guiding scaffolds of rebar and induction heaters.  Once the form sets, the metal skeleton is withdrawn, leaving a hollow, living structure that creaks softly as it thickens over decades.
+
+Look closer and you’ll find lesser flora occupying every niche.  Sheets of photokeratin moss coat unfinished walls in rectangular surveyor plots; translucent polyphyll succulents cling to ceilings, splaying into parabolic dishes that concentrate ceiling-light onto their own chloroplast lattices.  Tiny, almost invisible aerospores drift like dust motes, probing for any crumb of uncolonised substrate.
+
+Built & Tech  
+The city—if that word still means anything when the neighbourhoods are alive—began as an industrial project three generations ago: an underground manufactorum meant to escape the surface droughts.  It is arranged in concentric rings, each one successively newer, cleaner, and less populated.  Rail spurs curve along the cavern rims; ore trams glitter with brass control rods and scratch their way toward the distant smelter domes whose chimneys pierce the vegetative sky and vanish into service shafts.  Engines are everywhere but seldom loud: electric shunters hum, hydraulic muscle-cord winches flex, pneumatic rivet guns thunk once in a while, but the bulk of factory noise has been tamed by acoustic mycelia panels that swallow echoes whole.
+
+Fauna  
+Animals followed the farms.  Copper-coloured resin-gnats flit in erratic voxels of motion, licking sap beads from vine joints.  Glossy, knee-high scavengers—utric brooms—roam the plazas on six sticklike legs, sweeping dust into their mouth-parts and excreting neat pellets of mineral-free cellulose used by citizens as packaging.  Higher up, where the vines tether to the ceiling, hang glider-lizards wait motionless until the lamps dim for the nightly rest phase; only then do they launch into the warm thermals vented by the foundries, hunting the gnats in silence.
+
+Soundscape  
+Most of the time you can hear shoes on grit and the pulse in your own ears.  Conversations carry for astonishing distances, so people speak in the near-whisper customary here.  Every hour, a faraway clang reminds you that the rock is still being opened; then quiet enfolds the world again.  When the ceiling-roots exhale to equalise pressure, a soft, drawn-out whoof passes through every corridor like the turning of an immense page.
+
+Dynamics  
+Nothing is static, only slow.  The plant-sky thickens by millimetres each year and lowers tiny exploratory tendrils that survey population density before deciding whether to sprout balconies or retract.  Walls swell, heal, and sometimes split, prompting maintenance crews to bolt expansion joints or bleed off excess sap.  Predator and prey behave by the same clock as the lamps; industry schedules its shifts around that living pulse, and residents learn to read the subtle colour change in the ceiling to know when to rest, when to work, and when to stay alert for gliders aloft.
+
+Rules of the Place  
+1. No open flame—oxygen is imported and costly, and the plants hoard what little exists.  
+2. Never sever a structural vine without first damping its bioelectric field; an ungrounded cut can arc like a stun baton.  
+3. If your footsteps start echoing, you’ve wandered into an unfinished chamber where the sky has not yet grown.  Turn back—the air there may be thin.  
+4. Offer your greywater to the moss hives; they will thank you, and so will the recyclers.  
+5. At shift-change, wait for the latticewood to flex before crossing a bridge.  It’s polite, and you will not win a shoving contest with a plant that weighs more than a freighter.
+
+Standing at the centre of one of the older plazas, you sense the scale—a valley’s breadth of half-lit hallows, briery colonnades, and the slow quiver of botanical engineering still deciding what shape this young underworld wants to take.  It is sparse yet spreading, quiet yet deeply alive, cool as a cavern river that never existed, and as strange as a future caught in the act of germinating beneath our feet.

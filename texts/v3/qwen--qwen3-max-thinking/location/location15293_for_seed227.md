@@ -1,0 +1,27 @@
+The air tastes of iron and wet stone, sharp against the tongue even in the near-absence of breath. You stand within a cavity—a chamber hollowed not by hands but by time’s slow gnawing—tucked into the base of a nameless, glacially smoothed hill. This is no cave in the usual sense, but rather a *pocket*, a geological sigh caught between bedrock folds: low-ceilinged, intimate as a cradle, yet echoing with a violence that defies its scale.  
+
+**Terrain & Materials**:  
+The floor is uneven shale, fractured into plates like old pottery, slick with condensation that weeps ceaselessly from the ceiling. Patches of coarse gravel—granite and basalt grit, rounded by millennia of glacial till—huddle in the corners, but most of the ground is bare, polished stone. Thin veins of quartz glint dully in the gloom, the only interruption to the monochrome palette of charcoal greys and iron-reds. Water, sparse but persistent, doesn’t pool; it beads on cold surfaces, trickles in hairline channels along the walls, and vanishes into unseen fissures below. The occasional drip echoes like a hammer strike, yet it’s drowned out by…  
+
+**Sound**:  
+…*the roar*. Not wind, not water—but *stone*. High above, the hill’s crown is scoured by a permanent, low-altitude jet of ice-laden air funneled through a narrow pass miles away. It howls across the summit at hurricane force, day and night, a ceaseless, deafening bellow that vibrates through the bedrock and into your bones. Inside this pocket, the sound transforms: a subsonic thrumming that makes your teeth ache, overlaid with metallic shrieks as pebbles skitter across the hilltop like shrapnel. Yet the air here is utterly still. The violence is distant, filtered through stone, felt more than heard—a pressure against your eardrums that never relents.  
+
+**Atmosphere & Light**:  
+Darkness is absolute, save for what little seeps through a fissure no wider than a finger, 20 feet up the back wall. That sliver of twilight—pale as bone—casts no meaningful light; it merely defines the ceiling’s curve as a void within void. The cold (0.3/3—*biting, breath-stealing*) clings like a second skin, yet there’s no frost. Moisture here is too sparse, too fleeting. The air feels thin, starved of life, yet thick with suspended mineral dust that catches in your throat.  
+
+**Vegetation & Fauna**:  
+Lushness (1.6/3) is a paradox in this tomb-like chill. It exists only in micro-havens: where water condenses fastest, velvety mosses the color of tarnished copper cling to vertical cracks. In one sheltered alcove, a single, stunted *Empetrum* (crowberry) shrub—knee-high, wiry, bearing hard black berries—roots into a pocket of acidic peat no larger than a bootprint. Its leaves are leathery, edged with frost-rime even in summer. Fauna is ghostly: the occasional mite in the moss, a blind, pale springtail hopping between damp stones. Once, a snow bunting—lost, desperate—fluttered into the fissure, stunned itself against the wall, and lay still for hours before vanishing. Its feathers remain, snagged on a quartz vein.  
+
+**Built & Tech**:  
+Scattered signs of human passage: a circle of fire-blackened stones, half-buried in gravel (1.4/3—*scattered*). Nearby, a crude soapstone lamp, cracked and empty of oil, lies on its side. Tools are primitive (1.2/3): a flint scraper, its edge dulled; a bone needle; three smooth river cobbles stacked into a cairn no taller than a hand. Nothing recent. These are relics from a time when people navigated by stars now obscured by this hill’s shadow, left by hands that knew the roar above as a god’s voice. The structures aren’t shelters but *markers*—deliberate, fragile gestures against the void.  
+
+**Erosion & Scale**:  
+This pocket is ancient (2.0/3—*established*). Its walls are smoothed by glacial polish, not water; its shape settled since the ice retreated. It feels less *carved* than *revealed*—a negative space worn stable over epochs. And it is emphatically *hidden* (0.5/3): you’d walk within ten paces of its fissure entrance and never notice. It exists as a secret the land keeps from itself, a room-sized lung in the body of the earth.  
+
+**Density & Dynamic**:  
+Emptiness (0.0/3) reigns. The chamber holds almost nothing: no clutter, no growth, no lingering spirits. Just stone, damp, cold, and that all-consuming sound. Change is glacial (1.0/3—*slow*). Moss advances a millimeter per decade. The cairn’s stones shift only when frost heaves the ground—a process measured in centuries. The roar above? Unchanging since the first wolf howled beneath this hill.  
+
+**Rules of the World**:  
+Here, silence is the anomaly. Sound is the bedrock. Water is a thief that steals warmth but gives nothing back. Life persists only where it can *hide*—in cracks, under stones, within its own slow metabolism. The human traces are not ownership but *acknowledgement*: a recognition that even in this hollow, deafening dark, someone once sat, warmed their hands, and left proof they’d listened.  
+
+You feel it as you stand there: the weight of the hill above, the roar vibrating through your soles, the cold leaching into your core. The moss glows faintly where your breath hits it—a transient, living ember in the stone. And then you remember: the water here doesn’t flow *out*. It flows *in*, drawn by some deep capillary thirst, vanishing into the earth’s veins. This pocket isn’t a container. It’s a *filter*. And you are the impurity passing through.

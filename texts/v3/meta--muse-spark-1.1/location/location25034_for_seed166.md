@@ -1,0 +1,27 @@
+It is a room below the world.
+
+Not a cave that leads somewhere else. Just a room. A single room that happened when the limestone gave way a long time ago and settled.
+
+You get to it from above, through a throat in the rock no wider than a well mouth. The throat is open to the sky. That's where the light comes from. Normal daylight, mid-afternoon daylight, but thinned and made to work hard. It comes down the throat in a straight column and hits water, and the water takes it and folds it. By the time it reaches the bottom it is no longer direct, it is all around, even and without source, like light in a very clean swimming pool. You can see clearly.
+
+The room is full to its ceiling. It has been full for a very long time.
+
+Cold, fresh water.  Perhaps 8 or 9 degrees Celsius. So cold it feels dense, weighted. Not moving. The surface up in the throat is fifty feet above your head, a perfect, trembling circle of bright. Down here, where the room is, nothing trembles. The pressure holds everything in place. The water is so still and so clear that at first you think there is no water at all, and then you feel the cold press on your cheeks and understand you are submerged inside the earth.
+
+The room itself is small. If you drained it you could fit a small chapel inside it, or a grove of ten trees. Roughly oval. Twenty meters long, maybe twelve across, seven high at its center. The walls are limestone that has been under water so long it has given up any sharpness. Every edge is round-shouldered, smoothed to a soft, hand-worn look. The floor is not silt. The water is too cold and too poor for silt. It is bare rock, with a shallow drift of pale sand that has collected in the low spots like snow that never melts. The stone is gray-white, then yellow where iron has bled through it.
+
+This is what is industrial about it: not any machine, because there has never been a machine here, or a build or a hand. It is industrial in its process.
+
+On the east wall, the rock sweats.
+
+It sweats mineral water that is not the same as the water that fills the room. It comes out cold from a dozen pores and runs down in slow, viscous sheets, leaving behind what it carries. Travertine. Calcite. Laid down in sheets and curtains and drips that have grown together over centuries into forms that are purely functional. A broad lip, then a tube, then a fluted column, then a basin. It looks exactly like heavy pipework. It looks like ducting, like a manifold cast in stone, like the back of a factory where all the plumbing is exposed. One thick trunk grows out from the wall two feet and then elbows down at ninety degrees, perfectly. Inside it, water trickles with a sound you can feel more than hear. Below it, a series of shallow bowls have formed, rimstone dams, each one spilling into the next with a lip so even it might have been milled. The whole east side of the room is a natural chemical plant, precipitating stone, running day and night without variation. Grinding nothing but itself. No fuel, no operator.
+
+That sound is the only sound. Water finding the lowest route through stone pipes. A fat, irregular *plick... plick...* every few seconds, muted by all that water above. Otherwise, the room is mostly quiet in a way that deep water is quiet. It doesn't echo. It absorbs.
+
+On the floor, in the bare patches where light is best, there is vegetation. Very sparse. Hair-like green algae anchored to the stone, no more than an inch tall, scattered. Not a mat. Single tufts, ten or twenty feet apart, waving not because there is current but because they grow toward the light with a slight kink. They are the only soft thing here. They have no grazers, no fish, nothing to eat them. There is no animal life at all. No insect, no minnow, no blind white cave thing. The water is too clean, too cold, too still, too locked. Because of that the algae never gets thick. It grows until it has used the little dissolved phosphate there is and then it stops.
+
+The emptiness between things is part of the terrain. Between one algal tuft and the next is ten feet of bare, light-scoured stone. Between one stone pipe and the next is shadow. The room is not crowded with features. You can take it in all at once from the center and then spend a long time looking at how little there is.
+
+Nothing changes here. That is its rule. The water level does not rise and fall, because the throat that connects it to the world is its overflow and its intake both, and the rain is steady across centuries. The stone factory on the east wall grows at the speed fingernails grow, but under water you cannot see it grow, and the sand on the floor never shifts because there is no current to shift it. The light in the room stays even all day, dimming only a little toward evening, and then comes back the same the next morning, carried down that column from the open sky. The cold holds.
+
+If you stayed here submerged — and you could, for a little while, holding your breath in the cold — you would feel the place assert its equilibrium on you. The way the pressure holds your joints. The way the rock holds its shape. The way the water holds its cold. It is settled-form, long-existed, in balance. Not pristine, because pristine implies untouched novelty. This is touched, continuously touched by water for a thousand years, worn until it has become exactly what water wants limestone to be: smooth, round, and quietly at work making more of itself.

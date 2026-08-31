@@ -1,0 +1,38 @@
+It's not a cave. There is no cave wall left to see.
+
+Somewhere below the lower levels, below the maintenance stair that ends at a door marked NO ACCESS - CONDENSATION HAZARD, there is a pocket that wasn't on any plan, or that was on a plan and then built over. You have to crouch to get into it through the service chase where they ran the main return. You would not find it if you were not already looking for where the cold comes from.
+
+It is a room, but just just a room. Maybe twelve feet long, seven wide, six high at the center before the ceiling dips with the weight of pipe. That is its whole scale. A hidden knuckle in the throat of a much larger building. Its floor, walls, ceiling — all made. Poured concrete block sealed with tar, then overplated with riveted steel where the tar failed fifty years ago, then overplated again with white enameled sheet where the rivets sweated. There is no stone here. No dirt. Even the ground under the grating is a second floor, a catch pan. This is total built environment, a box inside a box inside permafrost or deep earth, so far down that the air has a pressure to it.
+
+And it is crowded. Density like a heart.
+
+You can't stand without touching something. From the low ceiling, manifolds descend - clusters of iron lungs, fat with rust, wrapped in old asbestos that has been painted over so many times it looks like plaster intestine. They hang to chest height. Between them, newer copper runs are threaded, bright green at the joints, and PVC trunking that clicks and contracts. Conduit. Cable tray. Chain hoists that were left hooked. Valves the size of dinner plates and valves the size of your thumb, all in the same square foot. It is too many things in a space meant for air, a layering of generations of fixes that never removed what they fixed. You have to turn sideways to move. Everything is within arm's touch, and cold enough that touch sticks.
+
+The temperature is not manageable cold. It is the kind of cold that is older than the building. The steel holds it. The enamel holds it. Even when the pipes are running, especially when they are running, the room gets colder, because what they carry is exterior air to be stripped of its water, or coolant to be sunk into the earth. Your breath comes out and does not rise. It falls, in a slow white pour, to the grating. Your boots stick to the grating with a faint tick.
+
+Light is dim and industrial and not meant for seeing. One caged bulb behind wire glass over the door, 40 watts, brown with dust, and it never goes out — the switch was sheeted over. And then the other light, which is not a light, which is the pilot-glow from a small, square viewing port on the main condenser unit itself, a deep amber, low and flickering, not enough to make shadows, just enough to make the edges of things exist. The condenser is the only thing in the room that appears to have been intended to be here. Everything else accumulated around it like iron filings.
+
+Water is present the way cold is present — not as a feature, but as a condition.
+
+There is not a river here. There is not even a puddle that persists. There is intermittent moisture that is always happening somewhere. It beads on the undersides of the copper elbows, swells, hangs, holds too long, then falls to a lower pipe with a clear *tik*. There, it splits — part of it freezes mid-smear into a white cataract, part of it runs on to the next joint. The tarped ceiling sweats. In the coldest corner, where two enameled walls meet badly, the condensation has become a beard of clear needle-ice a foot thick, growing not down but out, horizontal, toward the heat of the amber port. It never melts. It sublimates a little on its windward side and grows on its leeward, so it seems to breathe. The grating underfoot is dry under your boots, then wet two steps later, then dry again, as if the room inhales and exhales dampness in slow patches. If you listen, you can hear water inside pipes going elsewhere. Never here.
+
+Nothing is eroding here. This is before erosion has been invented.
+
+All those surfaces are raw in a way that new industrial spaces are raw. The weld spatter is still on the welds under the paint. The concrete was never finished smooth. Thread-cutting oil has darkened the grating in places and never dried. This pocket feels embryonic, just-come-into-being, even though the dates stamped on the manifolds say 1961, 1978, 2003. It is a place that is still under construction by itself. In the corner behind the condenser, a small, new wall of mineral is beginning where a pinhole leak has been spraying micro-fine hard water for years. It is not stalactite. It is not stalagmite. It is a white, porous, cauliflower-like column of calcium and rust that has grown up from floor to pipe to seal its own leak, a self-made pillar supporting nothing. It is still wet at the tip. It grows a millimeter a week. The room is making its own geology out of its own failures.
+
+In this density, this cold, life is a technicality.
+
+There are no animals. Not a fly, not the obvious rat, not a cockroach. Too cold, too sealed, too all-metal. The sound of your own body feels invasive here. But there is sparse vegetation, if you can call it that. In the orange leak-light of the viewport, if you bring your face close to the oldest lagging, you see it is not discolored paint but a dry, black-green dusting of something that endures. Lichen, maybe, but lichen that has learned to eat iron and enamel. It grows only in the seams, in hairline cracks where there is a half-degree less cold. Flat, hard rosettes the size of a thumbnail. It does not spread. It does not die. It just holds. There are six or seven colonies in the whole room. You could count them. They are the only soft thing.
+
+The sound of the place is mostly quiet, which is different from silence.
+
+The building above has its roars, its subway shudders, its air handlers. None of that reaches here. Here the baseline is a large, held quiet, the kind of quiet you hear in a freezer. Under that: the tick of cooling metal, irregular. The occasional sigh of a solenoid opening three floors away that makes one pipe in this room shiver. The *tik* of water falling from pipe to pipe. Your own breath. And underneath that again, a low, constant, contented hum from the condenser itself, not loud, not mechanical in the obvious engine sense — more like a transformer thinking. It cycles. Every nine or ten minutes, it works harder. The hum deepens, the amber light brightens for sixty seconds, the air gets a degree colder and you see your exhale flood the grating and vanish, pulled through slits you can't see. Then it eases. Frost reforms on the green copper joints with an almost audible fur. This is the dynamic of the place: not wind, not weather, but this lung, this tide of cold and condensation, making and unmaking the same water over and over.
+
+Rules become clear quickly in a pocket this total:
+
+1. Nothing you bring in dries.
+2. The ice grows toward heat.
+3. The room was built to make this weather, so you cannot turn the weather off without unbuilding the room.
+4. If you stay long enough to be counted as something in the room's inventory, the condensation will start to bead on you, too, and will not fall off.
+
+It is strange, but not in a way that announces. It is the strange of a place that has been built entirely by people and then completely forgotten what people are for.

@@ -1,0 +1,15 @@
+In the Cathedral of Living Sound, every surface writhes with growth. The space feels both vast and enclosed, like standing inside an enormous organ pipe lined with restless life. Dark-adapted eyes can barely make out the ceiling high above, where masses of vine-like structures pulse and writhe in complex patterns.
+
+The plants here are not green. In the near-darkness, they have evolved to be almost black, with occasional bioluminescent patches that pulse in rhythm with the overwhelming sound. The sound - it defines everything here. It emerges from the plants themselves, a deafening chorus of rustling, creaking, popping, and deep resonant thrums that seem to vibrate through your bones. The plants are both instruments and players, having evolved to harness and amplify acoustic energy in ways that shouldn't be possible.
+
+The floor rises in terraces, each about shoulder-height above the last, creating a spiraling ascent through the space. The terraces are completely overtaken by dense growths that respond to presence - not by moving away, but by intensifying their sonic emissions, creating focused beams of sound that can be felt as pressure on the skin. The air is cool and extremely dry - any moisture is immediately absorbed by the surrounding vegetation.
+
+Scattered throughout are the remains of what seems to have been a research installation - fragments of equipment fused with and overtaken by the living walls, their original purpose now impossible to determine. More intriguing are the perfectly preserved spherical chambers that appear at irregular intervals, each about the size of a small room. Inside these spheres, the sound is completely absent - not dampened, but excluded by some technology that seems to slice a perfect bubble of silence out of the sonic chaos outside.
+
+The plants here don't photosynthesize - they feed on sound itself, using principles of quantum acoustics to convert sonic energy into chemical energy. Their growth is constant but nearly invisible in the darkness, like watching hour hands move. The entire system exists in a state of perpetual turbulence, sound waves building and crashing like an ocean made of noise, the plant life responding and contributing to the cacophony in endless feedback loops.
+
+The few animals that survive here have evolved extreme adaptations - most are completely deaf, communicating through light or electromagnetic sensing. They appear rarely, darting between the silent spheres, their movements precisely timed to the rhythms of the sonic storm.
+
+Near the center, a structure of uncertain origin rises through all the levels - a twisted spire of some dark material that might be technological or might be biological, humming at a frequency that makes thought itself feel strange. The plants seem to grow toward it and away from it simultaneously, creating spiral patterns in the growth that mirror the larger spiral of the terraces.
+
+The entire space feels like it's breathing, like it's about to speak, like it's already speaking - if only we could understand what sound means to a system that has evolved to turn noise into life itself.

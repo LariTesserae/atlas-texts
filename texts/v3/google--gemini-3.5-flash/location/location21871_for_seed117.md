@@ -1,0 +1,24 @@
+The descent into the basin is short but slick, down a slope of smooth, dark basalt that has been polished by a century of weeping moisture. The air down here is noticeably cooler than the higher plateaus—a damp, cellar-like chill that clings to the skin and smells faintly of wet iron, cold grease, and sulfur. 
+
+This is the Sump, a small, bowl-shaped depression no larger than a churchyard, bounded on all sides by sheer walls of dripping black stone. It is a world of transitions, where the division between the geological, the mechanical, and the living has eroded into a single, wet, functional state.
+
+There is no green here. The concept of a leaf or a root feels entirely foreign to this gray and copper-colored hollow. Instead of plants, the surface of every rock and iron pipe is coated in a dense, gelatinous crust of non-recognized biology. Pale, semi-translucent fungal shelves, hard as fired porcelain, sprout from the joints of rusted machinery. Beneath these shelves, thick mats of soot-colored, oil-eating bacteria form velvet carpets that bubble slowly, releasing tiny, cold pockets of methane. In the crevices, thread-like silicate structures weave patterns that look like crystal lace, drawing their energy not from the distant, overcast sky, but from the slow decay of the metal and stone beneath them.
+
+The basin is crowded, nearly claustrophobic. Every square inch of space is occupied. Above, a tangled canopy of dead iron pipes and lead conduits crosses the space from wall to wall, dripping fat, greasy droplets into the black pools below. Some of these pipes are cracked open, revealing dense packings of white, needle-like mineral crystals that have grown inside them like marrow. 
+
+Scattered throughout the basin are the remains of a small, long-abandoned industrial operation—perhaps a pumping station or an electrochemical refinery. A half-submerged iron boiler sits in the center of the depression, its rivets popped, now serving as a reef for millions of tiny, blind, hard-shelled organisms. Nearby, a heavy copper-wound turbine still turns with agonizing slowness, perhaps once every half-minute, driven by a subterranean weight or a deep, geothermal pressure loop. With every rotation, it produces a low, hydraulic groan that vibrates through the soles of your boots, followed by the soft, wet *click-clack* of a bronze relay that has somehow kept its timing for decades.
+
+Water is the dominant force. It doesn't fall as rain, but rather condenses directly out of the thick, dim air, runneling down the walls in silent, shimmering sheets. The water is cold and heavy, rich with dissolved salts and oxides. It gathers in shallow, interconnected pools that cover the floor of the basin. 
+
+These pools are far from empty; they are thick with an abundant, bizarre fauna. Thousands of pale, multi-jointed isopods, some as small as a fingernail, others the size of a fist, crawl over the rusted iron framework. They are the caretakers of this place, their tiny, brass-like mandibles scraping at the orange scale of the pipes, keeping the metal beneath polished to a clean, silver gleam in narrow, manicured lanes. In the water, long, ribbon-like siphonophores—glass-clear and filled with a faint yellow fluid—pulse rhythmically. They drift around the slowly turning turbine blades, feeding on the bacterial drifts.
+
+The light is dim, a perpetual twilight filtered through the heavy mist and the overhanging iron gridwork. The only sharp illumination comes from the organisms themselves. When the heavy hum of the turbine reverberates through the rock, thousands of microscopic dinoflagellates in the pools react to the vibration, pulsing with a cold, pale-blue luminescence that briefly lights up the undersides of the rusted girders and the pale bellies of the crawling isopods.
+
+It is quiet, but not silent. The soundscape is a rhythmic, wet clockwork:
+*Plip.*
+*Plip.*
+The dry, insectoid scraping of thousands of tiny legs on wet zinc. 
+The distant, half-choked hiss of steam escaping a hairline fracture in an underground well. 
+The low, 60-hertz thrum of the dying turbine.
+
+Nothing here is static. The Sump operates on a slow, cyclical metabolism. The water carries dissolved iron from the surrounding hills into the basin; the bacterial mats consume the iron, producing heavy, dark silts; the isopods consume the mats, depositing dense, metallic pellets that form the new bedrock of the floor. Over decades, the basin is slowly petrifying its own machinery, turning the engines into geology, while the biology of the place adapts to use the crumbling metal as its skeleton. It is a small, heavy, wet machine that is slowly, perfectly, digests itself.

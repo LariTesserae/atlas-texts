@@ -1,0 +1,17 @@
+Within the canopy of an ancient cloud forest, where the world's ceiling presses close and wet, there exists a hollow no larger than a chapel nave. The trees here grow wrong—their bark spirals in directions that hurt to follow with your eyes, and their roots arch overhead instead of below, dripping with condensation that falls upward into the moss carpeting what should be the floor.
+
+This pocket breathes. Every surface weeps moisture that collects in impossible ways: pooling on vertical bark, beading along the undersides of leaves, gathering in small mercurial puddles that reflect not what's above them but what's beneath. The air itself is thick enough to leave trails when you move through it, warm and dense as blood, tasting of copper and chlorophyll.
+
+The vegetation crowds in layers upon layers—orchids growing from ferns growing from mosses growing from what might be more orchids, or might be something pretending to be orchids. Each plant seems to occupy the same space as three others, their leaves passing through each other like ghosts, yet somehow all drawing sustenance from the perpetual seepage. Vines spiral both clockwise and counterclockwise simultaneously. Flowers bloom inside out, their petals extending into spaces that shouldn't exist within such a small hollow.
+
+At the center, half-swallowed by the aggressive greenery, stands a structure that might once have been a shrine. Clay bricks, handmade and thumb-printed, form a shape that changes depending on the angle of view—sometimes a simple shelter, sometimes a spiral tower extending impossibly high into the canopy's false ceiling. Clay vessels, cracked and moss-claimed, nestle in the crooks of reality where physics has grown soft. Their glazes shift between colors that have no names.
+
+The fauna here exists in abundance but at angles to normal life. Butterflies pass through solid bark to sip nectar from flowers buried deep in wood. Tree frogs with too many or too few limbs sing silently, their throat sacs inflating with music only felt as pressure changes in your inner ear. Beetles trace paths that loop back on themselves without turning. Birds nest in the same spaces, their territories overlapping perfectly, building homes from twigs that exist in parallel states.
+
+Time moves like sap here. A raindrop might take an hour to fall the length of your arm, while somewhere at the edge of vision, moss grows across a stone in seconds. The few ceramic shards that haven't been claimed by the green bear tool marks from implements that seem to have been used yesterday and a thousand years ago simultaneously.
+
+The silence is profound but full—not the absence of sound but its confluence into something below hearing. Water drips upward without splash. Leaves rustle in still air without whisper. The very atoms of the place vibrate at frequencies that cancel each other out, creating a quiet so dense it has texture.
+
+Light filters through the canopy in ways that defy the sun's position, creating pools of illumination that drift slowly across surfaces like lazy fish. Sometimes the light arrives before its source. Sometimes shadows fall upward, pooling in the crown-shy gaps between the inverted trees.
+
+This is a place between—between earth and sky, between past and present, between one state and another. It persists in its impossibility, a bubble of broken physics held stable by its own contradictions, lush with life that shouldn't exist, wet with water that doesn't quite obey, warm with the fever-heat of a world trying to reconcile itself with itself.

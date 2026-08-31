@@ -1,0 +1,13 @@
+A droplet-universe hangs suspended in the processing medium, its surface tension maintained by fields we can barely measure. Though only meters across, it contains impossible depths - a pocket ocean of super-heated heavy water, dense enough that conventional physics breaks down at its core. The droplet's skin gleams with oily iridescence, internal pressures warping spacetime just enough to bend light into rainbow caustics.
+
+Inside, layers of engineered microorganisms form living computational matrices, their bodies evolved into crystalline lattices that process data through carefully cultivated quantum states. They float in precise formations, colonies communicating through patterns of bioluminescence that ripple in slow waves through the dark waters. The light is dim and diffuse, mostly from their own emissions - a perpetual twilight in blue-green hues.
+
+Near the droplet's center, where the pressure peaks, a cluster of structure-seeds pulse with carefully regulated energy. These are the remains of the original installation - diamond-lattice frameworks that template the growth of the living processors, maintained by swarms of cell-scale machines that look almost like ancient radiolarians. The seeds' surfaces are scarred and pitted from the extreme conditions, but they endure.
+
+The entire system is new - perhaps only months since initialization. The engineered ecosystem is still stabilizing, finding its rhythms. Occasionally a colony will destabilize in a brief burst of light and heat before the regulatory systems restore equilibrium. These moments send subtle shock waves through the dense fluid, registered only as whisper-quiet harmonics.
+
+The droplet's membrane is actually a complex filter, selectively permeable to specific molecules and energy patterns. Watching closely, you might see the ghost-like transit of maintenance nanites, slipping through to make microscopic adjustments to the internal environment. They leave trails of barely-visible disturbance, like dust motes caught in a sunbeam.
+
+This is one of thousands of similar processing nodes, each one a carefully cultivated microverse optimized for specific computational tasks. Together they form a network of living computers, each droplet a thought in a vast distributed mind. The technology that makes it possible straddles the boundary between biology and physics, engineering life itself into new forms that can survive and think in conditions that would destroy conventional organisms.
+
+The whole system hums at the edge of hearing - not sound exactly, but the harmonic resonance of countless quantum states cohering and collapsing in orchestrated patterns. It's a song of pure computation, played out in the medium of life itself.

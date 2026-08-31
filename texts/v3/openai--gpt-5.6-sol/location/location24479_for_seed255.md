@@ -1,0 +1,61 @@
+The country lies low, though there is no sea to measure it against. It spreads as a broad, shallow basin under a ceiling of cloud, open for many miles yet crowded everywhere with construction. Nothing here is unmade. The ground is fitted slab against fitted slab: black fired clay, pale mortar, hammered lead, blocks of pumice-colored ceramic, and long pavements assembled from millions of thumb-sized tiles. Where a slab has cracked, the crack reveals not soil or bedrock but older courses beneath—floors under floors, arches packed with broken arches, entire buried streets serving as foundation.
+
+In the darkness, distance is difficult to judge. There is no sun, only a bruised grayness that strengthens and weakens behind the cloud cover. Small lamps burn in wall niches: bowls of rendered oil, twists of mineral wick, slow orange flames protected by lattices of horn and wire. Their light does not illuminate the basin so much as pick pieces out of it—a wet parapet, a descending stair, the flank of a tower, white condensation trembling beneath an arch.
+
+Everything is close-made. Causeways cross channels which cross lower causeways. Retaining walls stand before other retaining walls. Rows of squat vaults occupy the tops of older roofs. Kilns, cisterns, ramps, drainage courts, rope bridges, chimneys, hammer yards, blind alleys, and hollow pillars repeat toward the horizon. Yet the place does not feel urban in any familiar sense. There are no central plazas, no grand façades, and almost no distinction between building and terrain. A hill is a collapsed dome packed over with masonry. A ravine is a corridor whose roof was taken away. Cliffs are the exposed sides of immense foundations. The whole region has been built as one object by innumerable hands that never possessed a complete plan.
+
+Its makers work with simple means. Stone mauls, wooden levers, wedges of soft metal, rope slings, ceramic plumb bobs, hand-turned drills. Heavy blocks are moved on rollers along tracks greased with animal fat. Measurements are kept on knotted cords and incised rods. The largest machines are treadwheels: tall, creaking circles in which teams walk for hours, raising buckets, gates, counterweights, and baskets of rubble. No engine hums here. Every motion can be traced back to a shoulder, a falling weight, a tightened rope, water in a channel, or wind caught in a hide sail.
+
+For all that, the landscape is never quiet.
+
+The treadwheels groan through the dark. Mallets strike wedges in uneven choruses. Chains drag over ceramic lips. Waterwheels slap in narrow ducts whenever the cisterns overflow. Air trapped in the lower galleries escapes through thousands of pipes, making the basin bellow and whistle. Some vents give a steady bass note; others cough like enormous sleeping animals. When pressure changes before rain, whole districts begin to sing. Railings hum. Vaults boom. Thin towers shriek at their capped mouths.
+
+People speak by leaning close, or by touching forehead to forehead and feeling words through the bones.
+
+Moisture comes intermittently. Most surfaces are only cold and clammy, filmed with condensation gathered from the breath of the crowded chambers below. Along shaded walls, droplets grow all day, merge, and fall into carved gutters. These gutters carry water into pockets distributed across the basin: cistern courtyards, stair-bottom pools, flooded crypts, shallow troughs lined with blue glaze. Between them lie long stretches of dry masonry powdered with lime.
+
+Rain arrives without warning. It is usually fine and slanting, scarcely visible except where lamps reveal silver threads, but it can continue for two or three days. Then the whole constructed country awakens hydraulically. Channels fill. Plugged mouths burst open. Spouts pour from towers into basins which spill through grilles into lower basins. Water travels down through the layered architecture, sometimes taking weeks to reach the deepest known floors.
+
+The rains are new.
+
+This is spoken of not as legend but as a practical emergency. The oldest structures were built for a dry world. Their mortar dissolves. Their unfired inner bricks swell and slump. Painted marks run into long black tears. In places, water has begun to do what no mason intended: round sharp stair edges, score channels across courtyards, hollow soft joints beneath harder blocks. Erosion is only just being invented here. There are no ancient gullies, no weathered crags, no polished river stones. Instead there are first cuts—bright, raw, undecided grooves in material that has never before met flowing water.
+
+After every rain, surveyors walk the basin with sounding hammers. They tap walls and floors, listening for new hollows. Where a chamber has formed below, the surface answers with a deeper note. A ring of chalk is drawn around it. Sometimes it is reinforced. Sometimes it is deliberately broken open, and a fresh stair is built down into the darkness.
+
+Thus ruin is not the opposite of construction. Ruin is one of its methods.
+
+There is no vegetation. No moss softens the drains, no root prises apart the walls, no grass takes hold in mortar dust. Wet surfaces remain naked: slick black ceramic, greenish copper, salt bloom, chalk, soot. In the cisterns, a translucent film occasionally gathers, neither leaf nor fungus, and is skimmed off with shell ladles. It contracts when struck by lamplight and spreads again when darkness returns. No one agrees whether it is alive. It leaves behind tiny hexagonal pits in the glaze.
+
+Animals are scarce enough to be named individually. Pale, jointed things live in the flooded foundations. They are hand-sized, eyeless, and nearly flat, with shells the color of old wax. During rain they climb drainage grilles and hold themselves in the current, feeding on whatever the water carries from occupied levels. Their scraping can be heard only in rare quiet intervals.
+
+Long-winged scavengers sometimes enter from beyond the basin’s rim, though no one has found the opening by which they come. They have naked gray bodies, black teeth, and too many finger bones in each wing. They circle the warm kiln chimneys, crying once or twice before vanishing into the cloud. A fallen one is an event. Its hide becomes drumskin, its tendons bowstrings, its hollow bones measuring tubes. Nothing is wasted.
+
+The most feared creature is not large. It is called the mortar-eater, though it may be several creatures mistakenly treated as one. Its presence is known from a dry clicking inside walls and from neat piles of lime appearing at the foot of pillars. No whole specimen has been caught. Builders press their ears to masonry, follow the clicking, and mark suspect sections with red handprints. Sometimes the sound moves while they listen.
+
+The inhabitants occupy the dense middle layers, between the rain courts above and the drowned works below. Their homes are vaulted cells sealed with wool curtains and waxed hides. Beds are shallow shelves cut into walls. Heat comes from shared kilns, bakeries, lime pits, and crowded bodies. The air smells of wet stone, smoke, lamp oil, metal, and mineral dust. Coolness accumulates in the low corridors, where breath fogs and bare hands stiffen. Warmth rises into the high chambers but escapes through cracks, feeding the condensation that eventually descends again as droplets.
+
+There are few doors. Passage is regulated by ladders, removable bridges, counterweighted platforms, and narrow turns that only locals can negotiate quickly. Ownership is not measured in enclosed rooms but in access: a family may possess three steps of a stair, half the use of a cistern, the right to hang lamps along a particular corridor, and two hours each night on a freight ramp. A guild may own the sound of a bell rather than the bell itself.
+
+Sound is law. Because sight fails at distance, districts announce their conditions acoustically. Three slow strikes mean a gate is lifting. A roll on hide warns of incoming water. Clay clappers signal falling masonry. Deep horns call workers to brace a wall. During heavy rain these codes overlap until the basin becomes a vast argument of drums, pipes, hammering, rushing water, and shouted numbers.
+
+There is one prohibition observed everywhere: no one may silence a noise whose source is unknown.
+
+A new rattle may be a loose chain, a settling arch, trapped water, an animal in a wall, or pressure building below a sealed floor. To stop it without understanding it is considered both criminal and sacrilegious. The landscape speaks through strain. Builders place cups against pillars and bowls of water on pavements, watching for tremors. Children learn structural listening before they learn carving. They can distinguish a safe groan from a fatal one.
+
+At the basin’s broadest center stands the Field of Columns, though it is less a field than a congestion of supports. Tens of thousands of pillars rise from the tiled floor, spaced so tightly that a person can rarely see more than twenty paces. They differ in age, material, diameter, and purpose. Some hold bridges. Some hold pipes. Some brace neighboring pillars. Some support nothing visible and cannot be removed because their bases descend beyond all surveyed levels.
+
+Rainwater collects on the Field’s slight depressions and makes black mirrors among the columns. Reflections multiply the supports downward, suggesting an equally dense architecture beneath. During storms, drops strike hollow capitals and produce a hard, multitudinous music. Workers string guide ropes through the maze so that travelers do not circle unknowingly back to where they began.
+
+Beyond the Field, the country opens without becoming sparse. Low terraces, raised aqueducts, banks of kilns, storage domes, and roofless chambers cover the distance. The skyline is serrated with scaffolds. Since timber is precious, much scaffolding is made from ceramic poles lashed with hide. It flexes in wind and knocks softly against walls. Crews are always extending something: a drainage spine, a buttress line, a new inhabited platform over unstable older work. Construction advances horizontally across the basin and vertically into its own foundations.
+
+No one knows what lies beneath the lowest floor.
+
+Excavators have descended through forty-seven built layers in some places. Each layer contains evidence of labor: chisel marks, fingerprints in brick, abandoned tools, lamp soot, sealed ramps, unfinished corners. There is never natural rock. The deeper they go, the cruder and larger the work becomes. At great depth, walls are made of blocks too heavy for any known treadwheel. Below those are chambers shaped as though the material had been pressed into place while soft.
+
+Some believe the entire basin is a vessel built to catch the first rain. Others say it is a roof, and that everything called the world is merely the upper surface of a structure whose true rooms lie beneath. A minority hold that there was once no landscape at all—only construction continuing in darkness, with the idea of ground invented afterward for convenience.
+
+Whatever its purpose, the place is changing now. Water is teaching it slopes. Gravity is choosing routes through plans that ignored it. New pools appear where architects intended squares; corridors become streams; weakened towers settle into shapes almost like hills. Sediment—mortar dust, ceramic grit, soot, bone fragments, rust—has begun to collect in the low channels. It is the nearest thing the basin has to soil, but nothing grows in it.
+
+At night, when the lamps have burned low, one can stand on a rain-slick parapet and sense the enormous made country continuing beyond sight. Hammer blows travel from remote districts through the connected masonry. Gates open with subterranean thunder. Water murmurs far below, testing joints, finding gradients, composing rivers inside walls.
+
+The landscape is not ancient in the way mountains are ancient. It is old in workmanship and young in weather. Its structures remember thousands of hands, but its valleys are only beginning. Its first pebbles are being rounded now. Its first waterfalls are cutting their lips. It has been completely built and is only just becoming terrain.

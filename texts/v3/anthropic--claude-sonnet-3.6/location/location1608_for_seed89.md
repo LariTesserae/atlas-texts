@@ -1,0 +1,17 @@
+The first thing you notice is how the darkness moves. It coils and eddies like ink in water, but it's the water that's dark and the darkness that flows. Above, kilometers of near-vertical rock face vanish into an atmosphere that refuses to settle into any one state of matter. The air here sweats, but upward - droplets of water forming and rising in slow motion, catching what little light makes it through to glint like inverse rain.
+
+The rock walls are new, geologically speaking. They emerged fully-formed some decades or centuries ago, thrust up through reality's skin by forces that the planet's physics are still trying to reconcile. Their surfaces are sharp, crystalline, with edges that can slice through equipment and probability alike. In places, the rock face ripples with interference patterns where competing physical laws overlap.
+
+The basin between the walls is a dense tangle of activity. The ground itself is uncertain - sometimes solid enough to walk on, sometimes a film of tension over unknowable depths. What looks like sparse vegetation is actually the visible portions of vast colonial organisms that exist primarily in dimensions adjacent to normal space. Their stalks and filaments phase between states: now looking like black bamboo, now like fiber optic cables, now like neural networks made manifest.
+
+The fauna is everywhere and nowhere. Thousands of species crowd the darkness, most of them only partially expressed in visible reality. They rustle and click and hum in frequencies that human ears interpret as both sound and emotion. Some are predators, some prey, but the relationship is less about consumption than about information exchange. When they feed, it's on possibilities rather than flesh.
+
+Water is the medium through which all this impossibility flows. It seeps from the rock faces in twisting rivulets that obey gravity only as a suggestion. It pools in depressions that seem deeper on the inside than their edges would suggest. The water carries messages in its molecular structure - not information so much as fragments of discarded laws of physics, looking for new phenomena to govern.
+
+The noise is constant but not steady - a overlapping chorus of reality trying to debug itself. Sometimes it sounds like grinding stone, sometimes like quantum static, sometimes like the humming of vast processors trying to maintain local coherence. The sounds seem to come from everywhere and nowhere, as if the very air is trying to explain itself to itself.
+
+The scale of it all becomes apparent gradually: this isn't just a valley or a basin, but a wound in the world's logic that stretches for hundreds of kilometers. The darkness isn't absence of light but presence of something that light hasn't learned to illuminate yet. And it's all changing, but so slowly that change itself seems to have gotten lost in the depths of what's possible here.
+
+Distance is unreliable. Something that appears kilometers away might be within arm's reach through the right fold in space, while adjacent points might be separated by infinities of probability. The only consistent measure is the density of impossibility - how many layers of almost-real press against each other in any given volume of space-time.
+
+The water never stops moving, the darkness never stops flowing, and reality never quite manages to heal itself around this place where something new is still being born.

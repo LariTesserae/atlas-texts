@@ -1,0 +1,41 @@
+The plateau begins above the last trees of the lower country, though it is not bare in the manner of most high places. It is green almost immediately—green in layers, green pressed into every fracture of the stone, green standing waist-deep in water that has nowhere particular to go. The land is so high that clouds arrive tired. They scrape along the slopes and settle among the reeds, dissolving slowly into the marshes.
+
+From a distance, the plateau seems level. Up close it is a crowded arrangement of old basins, ridges, black shelves of exposed rock, and shallow lakes joined by veils of running water. The ground never quite decides whether it is earth or water. A bootless visitor would find no simple path across it: turf yields under weight; moss conceals cold channels; roots hold up mats of soil over pools of peat-dark water. Everywhere, thin streams are moving—among stones, beneath grass, down the faces of cliffs in silver threads. The rocks weep constantly. On cold mornings, water beads from their surfaces even where no rain has fallen.
+
+Nothing here has been built.
+
+Yet the place works with the severity and fullness of an industrial district.
+
+The whole high country is a machine without makers. Water enters as cloud, mist, rain, and snow dusted across the upper cliffs. It is gathered by a hundred thousand hollows, strained through peat and roots, forced through seams in the mountain, and expelled from the lower escarpments in white, mineral-rich falls. Beneath the ground, the water grinds. It turns loose stone against stone in drowned chambers. It carries iron stains, pale salts, and black silt from one basin to another. At certain ravines, there is a low, almost inaudible vibration from the pressure of water moving through narrow rock throats. It can be felt by resting a hand on the ground.
+
+The stone itself bears the evidence of long labor. Its faces are rounded, fluted, and polished by weather, then split along old planes into immense dark slabs. There are no fresh, violent scars. The mountains have been worked down patiently. Their slopes are not young; they have settled into agreements with rain and frost. Every cliff has a skirt of lichened debris at its foot. Every stream has chosen a bed and deepened it for centuries. Even the landslides seem established: broad slopes of boulders furred with heather, alder, and low twisted pine, their movement so slow that only uprooted trees and tilted pools reveal it.
+
+The vegetation is dense enough to alter the scale of things. What seems at first like open moor is packed with life: sedges, rushes, water-loving grasses, blue-green mosses, small white flowers hiding in wet ground, shrubs bent flat by wind, and forested folds where the terrain offers shelter. The trees are not tall. They have been shaped by cold, thin soil, and constant weather into muscular, crowded forms. Birch cling to streambanks. Black pine grows in clusters from cracks in stone. Alder thickets occupy every wet margin, their roots knotted together over dark water. In protected basins there are stands of narrow-leaved trees with pale trunks, so close-grown that their canopies merge into a continuous dark cloth.
+
+Where the ground is richest, vegetation overflows its own boundaries. Moss spills over stones. Ferns rise from the mouths of springs. Low shrubs root in old logs until wood and plant become indistinguishable. On the cliffs, a red-brown growth follows mineral seeps in long vertical curtains. From a distance these stains suggest rust, and perhaps that is what they are: not metal worked by hands, but iron opened by water and colonized by bacteria, a slow chemical bloom across the mountain.
+
+Animals are everywhere, though they rarely announce themselves.
+
+Herds of pale, broad-shouldered grazing animals move through the sedge flats in loose files, their coats damp with mist. They leave paths that fill with water after a day of rain and become channels after a season. Smaller deer-like creatures browse the willow scrub. Black birds with long wings circle the ravines, using the rising air from the cliffs without a sound. Along the lake margins, waterfowl nest in the reeds in such numbers that the ground appears to breathe when they shift. In the pools, silver fish hold themselves perfectly still against the flow. At dusk, otter-shaped forms travel through the black channels, leaving only a brief V in the floating pollen.
+
+There are predators too, but they belong to the quietness. A low cat, mottled like wet granite, watches from the edges of the pine thickets. Packs of long-legged scavengers cross the upper slopes after storms, following the scent of animals stranded in bogs or broken by falls. Their calls are infrequent and subdued by the weather. Most killing happens beyond sight, under brush, in fog, or beneath water.
+
+The sounds of the plateau are close sounds rather than large ones. Water ticking from leaves. The soft suction of mud. A wing folding in reeds. Rain traveling across a lake in a shifting gray sheet. Wind passing through pine needles with the dry hush of something being sorted. The great waterfalls are often too far away to roar; their noise arrives as a steady pressure at the edge of hearing, like distant machinery behind a wall.
+
+And now and then the land makes a sound no animal makes.
+
+Deep below the peat basins, the mountain exhales through vents in the stone. Cold vapor rises in narrow columns, smelling faintly of wet iron and crushed leaves. In winter these vents remain open while the marsh freezes around them, each one ringed with lush, impossible green. In summer, the vapor catches sunlight and forms bright lanes among the reeds, as if a road were being laid across the wetland and then erased again a few minutes later.
+
+The unusual quality of the place is not that it is alien, but that its processes are too complete. Every available space has been occupied. Every rock has an inhabitant. Every pool has roots reaching into it, insects skating its surface, larvae in its depths, fish below the peat tint, birds above it, and cloud reflected between them. Even decay is crowded: fallen trunks host fungi, moss, beetles, seedlings, and small burrowing animals before their bark has fully softened.
+
+The weather moves through this abundance without interrupting it. Rain is common but rarely dramatic. It begins as a thickening of the air, a dimness across distant slopes, then a fine wetness on skin and stone. The ground receives it almost greedily. Streams rise, lake edges dissolve into grass, and the marsh becomes briefly more lake than land. By afternoon, if the cloud breaks, ordinary high-country sunlight lays itself over everything: silver on water, clean white on granite, dark green in the folds of forest. The temperature never quite warms. Even under sun, the wind comes down from the upper snowfields with a cool mineral taste.
+
+At the far end of the plateau, beyond many days of wet walking, the land falls away into a system of immense valleys. There the accumulated waters leave in force. Rivers emerge from the high marshes broad and cold, already carrying the color of stone and root. They descend through ravines so deep that weather gathers inside them separately from the weather above. Fog pools in their bottoms. Forest fills their sides. Water works continuously through every hour, transferring the plateau grain by grain into a world below.
+
+But the high country remains.
+
+It has been leaking, growing, eroding, freezing, nesting, feeding, and reclaiming itself for so long that no element can be called dominant. Water is everywhere but does not own the land. Stone is ancient but continuously changing. The plants are lavish but held close to the ground by cold and wind. Animals multiply, migrate, vanish into cover, return. Clouds are made there, caught there, emptied there.
+
+Nothing has made it.
+
+Still, it has the feeling of a place under constant operation: vast, wet, quiet, crowded beyond measure, and busy in ways too slow—or too deep—to be called movement.

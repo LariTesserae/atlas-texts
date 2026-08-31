@@ -1,0 +1,19 @@
+The air is heavy, a thick, dry blanket that presses against the skin without the relief of a breeze. It is warm here—a suspended, stifling warmth that doesn't so much scorch as it suffocates, holding the heat close to the ground like a trapped breath. This warmth radiates not from a sky that cannot be seen, but from the earth itself, from the vast, living deep that thrums beneath the soles of your feet.
+
+You are standing on a spine of rock that thrusts upward into the gloom, an extreme elevation where the air is thin yet strangely viscous. It is a landscape of raw, embryonic geology. There are no smoothed edges here, no valleys worn by the patience of water. Water is a myth in this place, a forgotten chemistry; the ground is bone-dry, composed of fractured obsidian and granites that look less like settled stone and more like frozen foam, cooling rapidly from a violent birth.
+
+This is a world of verticality. All around, jagged pinnacles stab outward into the dark, a forest of stone spears clustered in regional gatherings but spaced sparsely enough that the void between them is the dominant feature. The scale is deceptive; what looks like a nearby outcropping is a monolith the size of a tower, separated by a gulf of shadow.
+
+Despite the absence of wind or animal life, the silence is not absolute. It is a "mostly quiet"—a low-frequency thrumming that you feel in your chest more than you hear with your ears. It is the sound of stress, of the world holding itself together against a chaotic interior.
+
+And it is moving.
+
+The landscape is turbulent in a way that defies the stillness of the air. This is the violence of creation in slow motion. Before your eyes, a fissure opens in the sheer face of a distant cliff. It does not crumble; it unfolds. A slab of black basalt, large enough to crush a town, peels away from the mountainside with the agonizing, silent grace of a blooming flower. It falls into the abyss, and the impact sends no shockwave through the air, only a dull vibration that travels up through the rock beneath you.
+
+This is the rule of the place: **The raw state is the only state.** Erosion has not had time to sharpen the mountains into beauty; time is too slow for the frenetic rate of this world's construction. The geology is hyperactive. Spires of salt-crusted quartz extrude from the ground like growing crystals, gaining inches in a matter of hours.
+
+In the dim light—a darkness so profound it feels like a physical weight, punctuated only by the faint, reddish afterglow of the planet’s own heat—the scattered "structures" become visible. They are not built by hands, for there is no life to build them. They are geological anomalies, arches of natural stone that bridge impossible gaps, and hollows in the cliff faces that resemble the windows of a fortress. They stand as accidental monuments to the chaotic forces that shape the land, arranged in a pattern that feels too intentional to be random, yet too chaotic to be designed.
+
+Occasionally, the ground pitches. It is a subtle, rolling motion, like the back of a sleeping giant turning over. Dust puffs upward from the fractures in the ground—dry, silica-rich powder that hangs suspended in the thick air, forming low-hanging clouds that obscure the base of the spires.
+
+There is no green, no softness, no wetness. It is a hard, angular, mineral world. It is a place of intense, quiet energy, where the land is not a backdrop but an active, impatient participant, constantly reshaping itself, destroying its own formations moments after creating them, locked in a turbulent, silent dance of becoming.

@@ -1,0 +1,7 @@
+Heavy, damp air clings to the steep-sided gorge, condensing from the moist furnace of the nearby river. Towering cliffs of rough, red sandstone rise hundreds of feet on either side, seamed by trickling gutters and waterfalls. Mosses, ferns and small trees crowd the narrow benches between strata, lush and green in the perpetual gloom. 
+
+Churning below is the river, frothing over stone and between jumbling boulders, propelling itself around sudden bends. Steam rises from its whirling eddies, for it's heated from the bowels of the earth. The volcanic stone glistens dark and wet, tumbled and sharp of edge as if let loose in a collapse only yesterday.
+
+Ethereal mist swirls along the lathered flow. The industrial drone of distant machines rumbles from further upriver, where it cuts the spreading feet of glaciered peaks. The peaks glower down, their snowfields stroked by the tails of passing clouds. Around the gorge mouth, those clouds shed a fine spray, a constant patter in the thickets and a soundscape of exposure.
+
+Weak, red light filters through the ashen overcast and drifting fog. One can hardly call it daylight - simply less dark. The trough of the gorge is dinless, upholstered with dense moss and screened by dense, prickly thickets. Only the augmented growl of the river and languid patter of rain seems to persistently define this place as dynamic rather than static, and allow any form of "now" to bump against the stones and be attentively realized there.

@@ -1,0 +1,17 @@
+In the heart of an ancient processing facility, there exists a forgotten chamber - a perfect cube perhaps thirty feet on each side, carved from a single block of pale green nephrite jade. The chamber sits near the peak of a mountain, though you'd never know it from inside. No windows pierce its walls; no doors break its seamless surfaces. Entry is gained only through a maintenance shaft that winds up through hundreds of feet of living rock.
+
+The space thrums with an industrial symphony - the endless cycling of machinery that has run without pause for centuries or millennia. The sound comes from everywhere and nowhere, reverberating through the crystalline walls until it seems to emanate from the jade itself. It's a layered chorus: the deep bass pulse of massive hidden pistons, the mid-range whir of unseen turbines, the high metallic ticking of countless small mechanisms.
+
+Every surface is covered in growth. Thick mats of crystalline structures, somewhere between mineral and vegetable, spread across the walls in fractal patterns. They glow with their own pale bioluminescence - blues and greens that pulse slowly in time with the machinery's rhythm. These are not separate organisms but a single vast entity, a crystal garden that has evolved to harvest energy directly from the jade's vibrations.
+
+The crystal-plants grow in impossible density, each new formation sprouting from the shoulders of its neighbors in endlessly repeating patterns. Their structures are mathematical, precise - more like circuit boards than organic forms. In places they've grown over ancient control panels and readouts, incorporating the technology into their lattices until it's impossible to tell where machine ends and crystal begins.
+
+The air is cool and completely dry. Whatever atmosphere exists here is carefully regulated, though the mechanisms for this are hidden behind the walls. Occasionally a soft hiss emerges from invisible vents, releasing puffs of some inert gas that keeps the environment stable.
+
+Small maintenance robots - no larger than mice - can sometimes be glimpsed moving through the crystal forest. They follow preset paths worn into the crystal, tending to the ancient machinery with mindless dedication. Their movements add a delicate mechanical skittering to the chamber's constant song.
+
+The entire space feels like a single organism, a perfect fusion of technology and crystalline life that has achieved absolute equilibrium. Nothing here has changed in eons. Nothing needs to. The chamber simply exists, humming its eternal song, growing its geometric gardens, maintaining its mysterious purpose with clockwork precision.
+
+The light is always the same - that soft blue-green glow that seems to pulse with thought but never truly varies. The temperature never shifts. The crystals grow only to predetermined patterns, then stop. Even the dust that occasionally falls from the ceiling does so in regular intervals, as if measured out by some vast timepiece.
+
+This place feels both deeply alien and strangely familiar - like stumbling upon the maintenance room of reality itself, some vital component of the universe's machinery that must be kept running at all costs, even if its original purpose has been long forgotten.

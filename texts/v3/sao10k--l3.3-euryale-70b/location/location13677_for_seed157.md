@@ -1,0 +1,7 @@
+Deep within a dense, primeval forest, where the trees twist and stretch toward the dimly-lit canopy, lies a small, enclosed valley surrounded by towering trunks and a tangle of overgrown vegetation. The landscape here is wet and lush, with water seeping from the base of ancient, moss-covered rocks and condensing on every surface in the cool, damp atmosphere. 
+
+Seeds sprout in every crack and crevice, and vines and moss and lichen cling to every available surface — even the forest floor is a dense mat of decaying plant matter and new sprouts reaching for any sliver of dim light that filters down. A shoe-box sized pond fills the center of the clearing, but a thousand water-filled depressions pockmark the leafy forest floor. 
+
+The air is still, and the soundscape features the rustling of small creatures through the damp undergrowth and water trickling through hidden channels — but there are no larger animals or dramatic movements in this static environment. 
+
+The tech level visible in toolsctors such as the ancient, decaying wooden remains of capillary action pumps and the suspiciously unreasonable root placement shows a dated but long-peaceful savvy character's detonation from the earth. Small enough to be enclosed by a single stand of sentinel trees, the clearing is not large; just active and dense. Dense was noticeable as moss / seed tough ve启动‎">{{$fibne disruption‎ NerSwah Clearly all indications are present that nature developed an oddball version... an old air‎рует‎

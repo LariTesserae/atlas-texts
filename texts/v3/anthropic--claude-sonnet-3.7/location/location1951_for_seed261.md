@@ -1,0 +1,25 @@
+# The Emergence of Mist Haven
+
+The plateau rises abruptly from lower lands, its edges defined by weathered stone cliffs that appear strangely new—as though the uplift might have happened only generations ago. The geology here seems caught in its early moments of becoming, rocks sharp-edged and unweathered, raw striations visible in cliff faces that haven't yet learned to crumble.
+
+Pools of clear, cold water collect everywhere, in depressions natural and deliberate. The settlement sprawls across the high plateau in clusters of round stone dwellings with thatched roofs that shed the persistent moisture. Between these clusters, the land opens into stretches of cobalt-hued moss and pale stone, creating breathing spaces within the community. Water seeps from seemingly every surface—not in torrents, but in the slow, deliberate way of high places that capture clouds. Shallow channels lined with hand-placed stones direct the constant moisture around dwellings and through ceremonial spaces.
+
+The air is perpetually cool and laden with mist that rolls across the plateau in slow waves, especially during mornings when it thickens to obscure whole sections of the settlement before burning away to reveal glimpses of the vast valleys below. Tendrils of vapor rise from the countless pools, creating a landscape that breathes visible air.
+
+Vegetation is sparse but deliberate—hardy blue-green grasses in clumps, twisted dwarf pines that hug the ground against high winds, and cultivated patches where the settlers grow medicinal herbs and tough root vegetables. What plants do grow here seem oversized in their sparse settings, each one commanding its own territory.
+
+The settlement itself follows the natural contours of the plateau, buildings clustered along seep lines where water naturally emerges from the stone. Narrow walkways of fitted stone connect the community, worn smooth by generations of bare feet. Central gathering spaces feature concentric rings of stone seating around ceremonial pools where the water is particularly clear and still.
+
+But what truly brings this place alive is its fauna—an astonishing abundance of birdlife. The plateau serves as a nesting ground and migratory waypoint for countless species. Birds of every imaginable size and coloration occupy every niche—from tiny iridescent hoverers that drink nectar from the sparse flowering plants, to majestic wide-winged gliders that ride the thermal currents rising from the valleys below. The people have built elaborate wooden structures throughout the settlement—not houses for themselves, but intricate nesting platforms for different bird species, some rising twenty feet high with multiple chambers.
+
+The sound is overwhelming—a constant symphony of calls, songs, and wingbeats that rises and falls with the daily rhythms but never truly ceases. Dawn brings a crescendo that can be felt as much as heard, vibrating through the stone underfoot.
+
+The people move through this soundscape with practiced ease, their clothing woven from plant fibers and adorned with feathers shed by their avian neighbors. They carry simple tools—stone knives with wooden handles, clay vessels for collecting water, woven baskets for gathering eggs (taken sparingly and according to strict traditions). They know each bird family by sight and sound, and their children learn the complex language of calls before they master their own speech.
+
+Every dwelling and public structure incorporates nesting spaces—small openings in walls, protected ledges under eaves. The relationship appears symbiotic; the birds provide warning calls when weather changes approach, help control insects, and offer guidance to new water sources when old ones falter.
+
+In the central plaza, elders work with apprentices on what appears to be mapping—but their stone tablets don't merely chart the existing plateau. They're planning expansions, new channels for the emerging springs, additional nesting structures. This place isn't fully formed yet; it's growing alongside the raw geology beneath it, the community expanding with the same deliberate patience as the water that shapes their world.
+
+The plateau itself seems to be still rising, imperceptibly but certainly, as though the earth below hasn't yet decided its final form. New springs appear seasonally, celebrated with ritual and immediately incorporated into the water management system. The people don't fight this ongoing emergence—they've built their entire culture around harmonizing with it, treating their settlement as something evolving rather than finished.
+
+From the highest point of the plateau, in the thin, cool air, one can sometimes glimpse other similar formations in the distance, each with its own settlement glinting in the clear light—a constellation of human presence across a landscape that itself feels newly born.

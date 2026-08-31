@@ -1,0 +1,47 @@
+The plateau begins above the ordinary weather.
+
+Its rim rises in long, scarcely eroded steps from the low countries, not as a range of peaks but as a continental shelf lifted into the cold. From below it resembles a single gray wall beneath a bank of cloud. From the top there is no clear sense of standing on a mountain. The land extends too far, curving through its own horizons, broad enough to assemble storms and divide migrating populations. Elevation is felt instead in the thinness of breath, the hard clarity after rain, and the way clouds drag their lower surfaces across roads and rooftops.
+
+The ground is young. There are few deep valleys and almost no mature river systems. Water has not had time to decide where it belongs.
+
+Rain gathers in slight depressions, making chains of dark pools across plains of basaltic grit. It slides beneath loose stone and reappears kilometers away in weeping seams. Low scarps shine with moisture. Along the plateau’s gentlest folds, saturated ground supports pale sedges, black moss, and short mats of alpine clover. Elsewhere the surface is bare: gray aggregate, newly fused bedrock, slabs fractured by frost but not yet rounded or carried away. The cuts made for roads remain sharp-edged for decades. Spoil heaps look as fresh as the day they were tipped.
+
+There are streams, but many are temporary and indecisive. They widen into marshes before narrowing again, or vanish into porous construction beds. During the thaw, water moves almost everywhere at once—under pavement, through gravel galleries, across flat rock in sheets no deeper than a finger. In colder months it stiffens into clear skins. Air bubbles and drowned grass remain visible beneath the ice.
+
+The city is dispersed across this enormous, unfinished watershed.
+
+There is no continuous center. Habitation occurs in clusters separated by kilometers of wet ground, wildlife range, reservoirs, and empty civic terraces. One district may consist of six towers and a transit hall standing alone under a vast sky; another is a low crescent of workshops built into the lee of a raw stone rise. Larger settlements gather where the plateau’s buried water tables intersect its transport lines, but even these cities leave broad gaps between structures. Their plazas are not crowded. Their avenues often open directly onto marsh or exposed rock.
+
+The architecture is substantial without seeming heavy. Walls are grown from local mineral slurry, their surfaces finely porous so that meltwater can pass through without cracking them. Roofs are shallow catchments, silver-gray and usually wet, feeding cisterns that descend deep into insulated ground. Some buildings are old enough to have acquired green margins of lichen, but most still possess the clean, granular appearance of recently formed stone.
+
+Nothing here is allowed to erode accidentally if it can be made to develop deliberately. Drainage is treated less as disposal than as landscape design. Roads flex microscopically with frost. Foundations redistribute pressure through field structures that engineers can measure but not entirely explain. Along unstable ground, towers rest on narrow luminous piers that cancel part of their effective weight. Freight platforms move without rails over prepared corridors, passing silently between settlements with only a pressure in the ears to announce them.
+
+The most advanced systems are also the least conspicuous. Weather stations stand like ordinary fence posts. Beneath them, networks of quantum-scale sensors read stress in the plateau, water chemistry, animal movement, and the formation of ice crystals in approaching cloud. They do not command the weather, but they can persuade condensation to occur over selected basins, easing one storm and strengthening another. At the scale of the plateau this influence becomes significant. Reservoirs are filled without dams. Settlements remain dry while marshes nearby receive rain.
+
+Such engineering is not regarded as miraculous. It is public infrastructure, debated in municipal meetings and repaired by crews in orange cold-weather clothing. The machines still require access panels, replacement parts, drainage clearances, and budgets.
+
+Most of the visible movement belongs to animals.
+
+Herds of compact, dark-coated grazers cross the open ground in loose files, feeding on sparse vegetation over immense ranges. Their numbers are high, but the land is larger, so they rarely make the plateau seem crowded. White-necked geese settle by the tens of thousands on seasonal pools, turning quiet water into stippled gray. Small wading birds follow the fresh edges of every flood. In the marsh channels live cold-water fish, translucent crustaceans, and black-shelled mollusks that graze on mineral films.
+
+Predators are common enough to leave signs everywhere and remain seldom seen. Pale foxes patrol the drainage margins. Long-legged cats use culverts and elevated utility runs as sheltered travel routes. Packs of gray hunting animals move behind the herds, patient over distances that would exhaust anything adapted to a smaller country. Above them, broad-winged raptors hang in the updrafts created where cold plateau air spills over the rim.
+
+The settlements do not exclude this abundance. They are designed around it. Transit corridors rise during migrations. Warm waste-water channels are screened so birds cannot become dependent on them. Building glass changes polarization when flocks approach. Underpasses are wide, dim, and floored with real ground rather than concrete. At night, municipal lighting narrows into amber lanes, leaving most of the sky and wetlands dark.
+
+Vegetation remains sparse despite all the water. Cold, shallow soils and the youth of the surface prevent forests from taking hold. A few groves survive where heated groundwater reaches sheltered basins: low birch with twisted white trunks, resinous shrubs, dense patches of willow. These places are vivid against the gray land and heavily used by animals. Most plants grow close to the ground, conserving warmth between stone and snow. After rain, mosses brighten suddenly. For a few hours the flats appear green, then the color subsides as cloud lifts and cold wind returns.
+
+The plateau is mostly quiet. Distance absorbs the city.
+
+Near habitation there is the subdued rush of ventilation, the brief chime of a crossing signal, boots on wet paving, and the soft displacement of air as transit platforms arrive. Beyond the last buildings, sound separates into individual events: water dripping from a rock lip; the crack of forming ice; wingbeats passing overhead; stones ticking downslope during a thaw. A herd moving through fog can be heard before it is seen, not as thunder but as thousands of irregular, muffled contacts with the ground.
+
+Weather supplies the larger rhythms. Clouds assemble over the western reaches and travel inland in broad fronts. Rain may fall for two days, fine and nearly vertical, condensing on every exposed surface. Then a pressure shift opens the sky. Normal daylight pours across the plateau—neither dim nor dazzling—and every pool reflects the same pale blue. In winter, blowing snow smooths the unfinished ground without burying its larger shapes. In spring, thawwater spreads so widely that districts become temporary islands linked by raised transit.
+
+Because erosion is only beginning, each season writes the first lines of future geography. A shallow runoff channel deepens by a few centimeters. A marsh gains an outlet. Frost lifts a pavement edge, and engineers choose whether to repair it or allow the new watercourse to remain. Maps are revised constantly, not because the land is catastrophic but because it has not settled into habits.
+
+The governing rule of the plateau is accommodation rather than permanence. Construction anticipates relocation. Utilities branch and reseal. Whole residential blocks can be separated from their foundations and shifted to firmer ground over the course of a winter. When a migration path changes or a basin begins to hold water, the city often yields. Empty foundations are ground back into substrate, leaving only rectangular patches where lichen has not yet grown.
+
+From a distance, this can make the settlements appear temporary. They are not. Some have stood for centuries. Their continuity lies in their systems, routes, archives, and communities rather than in any particular wall. The plateau itself is treated in the same way: not as a finished landscape to be preserved unchanged, but as a place still becoming its rivers, soils, marshes, and shores.
+
+At the farthest horizons, the high ground dips almost imperceptibly toward an inland sea. No one can see the water from the central districts, yet its presence shapes the sky. Migrating birds arrive with salt on their feathers. Storms carry a faint marine smell across hundreds of kilometers of cold stone. Beneath the plateau, aquifers lean in that direction, and the youngest streams are slowly discovering the same descent.
+
+In another hundred thousand years there may be canyons here, wooded valleys, mature deltas, and cities gathered along permanent rivers. For now there is openness: wet rock, scattered towers, moving herds, shallow water, and the patient infrastructure of a civilization living on land whose final shape has not yet been chosen.

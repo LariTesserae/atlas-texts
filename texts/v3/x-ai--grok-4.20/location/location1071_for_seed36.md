@@ -1,0 +1,25 @@
+The place has no name, and it never will. It is still deciding what it is.
+
+You stand inside a colossal underground cathedral that has never seen a sky. The ceiling, if it can be called that, is an unformed membrane of living white root-mass hanging eighty meters above you, dripping slow, warm beads of condensation that never quite become rain. Every droplet that falls lands on other leaves, other roots, other pale fungal lattices, and is drunk instantly. Nothing here is wasted.
+
+The heat is thick, wet, and total, like the inside of a mouth that has been breathing the same air for ten thousand years. It smells of green syrup, of crushed chlorophyll, of something faintly like cinnamon left too long in the sun. Temperature does not fluctuate. It simply is 2.6 forever.
+
+Everything is plant. Not growing on stone or soil, but instead the plant is the geology. Vast rhizomatic plates of pale green and bone-white fiber have folded, buckled, and fused into cliffs, buttresses, and sloping hillsides that stretch for kilometers in every direction. Some of the “stone” is still soft; you can press a hand into it and feel the slow pulse of sap moving a meter beneath the surface. Other sections have hardened into something like living marble, veined with red and gold where minerals are being woven into the xylem by patient microbial gardeners.
+
+The light is the strangest thing. It is bright, almost cruelly so, yet there is no sun. The illumination pours downward from the hanging root-ceiling in vertical sheets of pure white-gold, as though the membrane itself is bioluminescent and has decided to become day. Where the light touches the denser growths, the leaves turn mirror-bright and reflect it deeper into the vaults, so the entire cavern system glows like the inside of an enormous lantern. Shadows are thin and sharply defined, almost surgical.
+
+Vegetation density is absolute. There is almost nowhere to put your foot that is not already occupied by something alive. You walk on the broad, overlapping leaves of titan bromeliads the size of dinner tables. You climb staircases that are actually the spiraling trunks of vines that have braided themselves into steps over centuries of motionless ambition. Every vertical surface is furred with ferns, mosses, and delicate epiphytic ladders that tremble when you breathe on them. In the distance you can see entire “forests” that are in truth single organisms—colossal, continent-like fungi and woody lianas that have merged into one body and now wear other plants like ornamental armor.
+
+Yet the place is only just being born.
+
+Huge sections of the root-geology are still embryonic. Great translucent bulbs the size of houses hang from the ceiling, pulsing faintly, their interiors swirling with half-formed leaf-shadows and future branch-structures. These are the next rooms, the next chambers, waiting to be instructed by whatever slow will guides this world. You can stand beneath one and watch it grow, millimeter by millimeter, while the warm condensation drips onto your shoulders like lazy benedictions. The landscape is literally building itself around you in real time, yet so slowly that a human lifetime would barely register the change. It feels both ancient and larval.
+
+Scattered across this living topography are the only marks that are not purely botanical. Here and there, half-swallowed by succulent growth, you find single, inexplicable artifacts: a stone arch whose keystone has become a flowering heart; a marble well whose water has been replaced by a column of upward-growing reeds; the fossilized skeleton of a wooden ship now rooted and sprouting orchids from its ribs. These are not ruins. They are seeds. The plants have not destroyed them; they are patiently incorporating them, turning history into nutrient and architecture.
+
+Fauna is almost absent. Once every few hours you might hear the dry click of translucent insect wings, or see a pale, blind lizard no longer than your finger freeze against a stem before vanishing into a crevice of folded leaf. Mostly there is only the vegetation, breathing, drinking, building.
+
+The quiet is enormous. Sound itself seems to have been edited. Your own footsteps are muffled by thick moss that feels like walking on warm flesh. The only steady noise is the soft, irregular dripping from above and, if you stand perfectly still, the low, organ-like thrum of sap moving through titanic vessels deep within the root-walls. It is the sound of a heartbeat three kilometers wide.
+
+Nothing here has ever changed, and nothing ever will, except in the slowest, most deliberate way imaginable. This is not a stable climax ecosystem. This is an ecosystem that has decided equilibrium itself is a kind of womb, and it is still deciding what it wants to become when it is finally born.
+
+You are standing inside the egg, and the egg is warm, and bright, and very much alive, and it is still growing around you.

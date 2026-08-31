@@ -1,0 +1,23 @@
+To stand inside this space is to be subjected to a wall of sheer, concussive force. 
+
+The sound hits first—a deafening, 130-decibel roar that vibratingly bypasses the ears and seats itself directly in the marrow of your bones. It is a relentless, rhythmic violence: the *WHUN-dunk, WHUN-dunk* of a colossal mechanized heartbeat, overlaid by the screaming, high-pitched chime of a million vibrating glass edges. 
+
+The cavern is relatively small, roughly the volume of an echoing, old-world cathedral, heavily bounded by a ceiling and floor of dense bedrock. It is deeply subterranean, born of a violent, recent tectonic snap. The walls possess the harsh, unweathered geometry of young erosion—jagged razor-lines of freshly splintered basalt and deep, un-dulled glassy cleavage planes that look as though they shattered only seconds ago. There is no dust piled in the corners, no softened edges, no smoothing hand of time or wind. 
+
+And there is absolutely no water. The atmosphere is stripped of all moisture, locked in a state of harsh, cracking aridity. The temperature is a steady, relentless bake, possessing the heavy, desiccating warmth of an industrial kiln. The air smells sharply of ozone, ionized flux, and scorched flint. 
+
+The cavern was not excavated on purpose; it is a hollow that simply tore open, exposing the scattered remnants of some incomprehensibly massive, world-spanning industrial superstructure hidden in the crust. A colossal, hexagonal drive-shaft—measuring fifty feet across—punches blindly through the jagged ceiling and disappears into the floor, spinning at an agonizing, ceaseless velocity. A few heavy, riveted transformer blocks and thick, unspooled bundles of copper cable jut awkwardly from the raw stone. These are not a complete factory, merely isolated extrusions of autonomous, deep-earth machinery indifferent to the void that has opened around them.
+
+The only light in this sealed pocket is dim and harsh. It bleeds from the cherry-red heat sinks of the solitary engine blocks, casting dull russet glares across the black stone, occasionally interrupted by the dancing, blue-white static arcs that jump between the exposed cables. 
+
+Despite the barren, arid conditions, the space is heavily, overwhelmingly alive. The sheer density of presences defies logic. Every square inch of the freshly fractured rock, every sheer cliff face, and the casings of the machinery itself, is completely carpeted in organisms. 
+
+They are piezoelectric polyps—strange, dry creatures constructed of dull metallic hematite and sharp blades of silica. Possessing no flesh, no mouths, and no wet chemistry, they are hound-sized geometries of living mineral. They exist to consume pure mechanical energy. The concussive roaring of the scattered drive shaft and the electromagnetic fields of the cables vibrate their crystalline structures, generating internal electrical currents that keep them animated. 
+
+They pack together in extreme, near-touching saturation, layered three or four deep along the sheer walls. There are thousands—perhaps millions—of them. They do not hunt or crawl; rather, they vibrate in unison with the machinery. Because the deep-crust engine continually pumps out perfectly consistent, deafening bass notes, the creatures organize themselves according to the standing acoustic waves. Across the black walls, the swarm arranges into colossal, shifting Chladni figures—vast, intricate acoustic mandalas of living bodies that ripple, hold, and perfectly map the invisible sounds of the room. 
+
+Where the dry heat radiates most intensely from the exposed transformer blocks, sparse patches of vegetation manage to cling. Wisps of metallic moss, resembling tangles of spun brass and fine copper wire, anchor themselves to the hot iron, quietly feeding off the electromagnetic bleed of the heavy machinery. 
+
+Despite the ferocious volume, the suffocating heat, and the hyper-dense swarming of bizarre life, the entire cathedral is locked in absolute, frozen stasis. There are no gradients here, no cycles of day or night, no seasons of growth, and no ebb in the tide. The heavy drive-shaft never accelerates or slows. The baked air holds eternally at its exact, dry temperature. The densely packed silica creatures have reached a limit of perfect, uncompromising carrying capacity, neither dying out nor reproducing, locked in a perpetual, writhing loop of acoustic consumption. 
+
+It is a roaring equilibrium, a pocket-universe of deafening noise and pure kinetic heat, trapped deep below the earth, looping forever in the dark.

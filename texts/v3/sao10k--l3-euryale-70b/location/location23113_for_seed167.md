@@ -1,0 +1,9 @@
+Deep beneath the dark waves of the Siren's Abyss lies the submerged city of Atlantia. Shattered spires of eroded coral pierce hazily up from the silty seafloor. Drifts of feathery seaweed and ribbons of iridescent jellyfish undulate past wizened facades, their rusted gates hanging cracked and still. 
+
+The city is set into the precipitous slope of a drowned volcanic island, with halls and towers clinging to the rugged shoulders of stone. Narrow streets, now mere gutters for slow currents, wander between the cyclopean structures. Delicate artifacts of the Atlantians still speckle the ruins - corroded metalwork, weathered tools, skittering racks of antique apparatuses.
+
+Giant glowers casting long shadows pace the outer walls - vast uglies of protrusions and spines, pulsing with repressed menace. They swerve heedless of the city's confines, crushing architecture beneath armored hides. Herds of silver-bearded anglerfish dart through dusk hallways, their ember eyes catching the weak starlight penetrating the fathoms above.
+
+Small clusters of non-luminescent fungi dot the graffiti'd walls of Atlantia, casting tenebrous grottoes where eldritch seafolk crouuche. Flowers of acid-yellow anemones wallow in upwelling currents. Hydroids and feather-ants perfume the chill water with entangling mists of stinging barbs.
+
+Tidewraiths of iridescent tatters languidly observe the scene-shifting Atlantian settlement from beneath gnarled coral overhangs - lunatic only in the starclock, their amorphous folds undulating to its ellipses. Strange songs drift from captized windows, clotted ululations garbled by dropsical water-masses.

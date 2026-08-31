@@ -1,0 +1,25 @@
+# The Mantlehive
+
+In the upper reaches of the stratosphere, where the air grows thin and the horizon curves visibly away, there exists a realm that defies conventional understanding. The Mantlehive hovers at impossible altitudes, a dense megalopolis of irregular geometries that neither rises from below nor descends from above, but simply *is*—suspended in the thin air like a massive, intricate dust mote caught in perpetual stillness.
+
+From a distance, it appears as a dark smudge against the dim amber sky, a sprawling metropolis-organism stretching for hundreds of miles across the upper atmosphere. No foundations support it; no pillars reach to ground. The Mantlehive exists in perfect gravitational equilibrium, neither rising nor falling, a monument to physics that should not work but somehow does.
+
+The substance of the hive itself is neither stone nor metal but a carbon-silicon composite extruded by its inhabitants. It resembles obsidian but is warm to the touch—always precisely body temperature. No matter the external conditions, this temperature never varies. The material grows in fractal patterns that seem both chaotic and meticulously planned, creating a labyrinthine structure of tunnels, chambers, and thin-walled domes that somehow support massive weight despite appearing delicate.
+
+No water exists here. Not in droplets, not in vapor, not in ice. The atmosphere within the hive is perfectly desiccated, preserved in a state of absolute aridity that would turn human flesh to leather in hours. Instead of water, a viscous amber fluid serves as the metabolic medium—a silicon-based compound that flows like honey but conducts electricity like liquid metal.
+
+The hive is overwhelming with life, though none of it recognizable as terrestrial. The inhabitants—the Mantids—fill every conceivable space with their chittering presence. They range in size from microscopic to the largest specimens reaching six meters in length. Their bodies resemble articulated mechanical constructs more than organic entities—hexagonal abdomens, limbs that telescope rather than bend, compound eyes that glow with internal bioluminescence providing the only significant light source in this dim realm.
+
+These creatures are in constant motion, yet the overall hive remains in perfect stasis. The Mantids build, repair, and modify their habitat without cease, extruding new chambers while dismantling obsolete ones. Their movements create a background susurration just at the edge of hearing—a soft, continuous sound like distant paper being crumpled. Despite their countless numbers, they operate in near silence, communicating through subtle vibrations conducted through the hive structure itself.
+
+Scattered throughout the vastness are industrial complexes where the larger Mantids operate incomprehensible machinery—devices that appear partly grown, partly constructed. These factories process raw materials harvested from the thin air itself, extracting trace elements and energy from the upper atmosphere through means no human science can yet explain. The machines pulse with an amber light matching the metabolic fluid, occasionally emitting soft harmonic tones that ripple through the structure.
+
+The technology here blurs the boundary between biological and mechanical. Tubes of pulsing fluid connect to geometric arrays of crystalline components. Moving parts slide with perfect precision without visible lubricants. Nothing rusts. Nothing deteriorates. The entire technological ecosystem exists in a state of perfect maintenance, with no component ever showing signs of age or wear.
+
+The hive's outer surface is equally strange—neither fully enclosed nor fully exposed. Millions of thin, translucent membranes stretch between structural elements, allowing diffuse light to penetrate while maintaining the internal atmosphere. These membranes flex and adjust to atmospheric pressure changes but never tear or degrade. They have existed in this state since the hive first appeared, whenever that might have been.
+
+For the Mantlehive seems neither ancient nor new—it exists in a temporal stasis matching its physical one. Carbon dating of fallen fragments yields impossible results, suggesting the structure somehow exists outside normal chronological progression. The Mantids themselves show no lifecycle, no birth or death that outside observers have ever witnessed. They simply continue, unchanging, their society locked in perfect equilibrium.
+
+Human observers who have managed to reach these altitudes report a disorienting sense of timelessness within the hive—watches stop, biological rhythms falter, and thought itself seems to expand into a perpetual now. It is a place of perfect strangeness that nonetheless operates with perfect order, a cosmic anomaly that follows its own immutable rules.
+
+The Mantlehive simply is, and always has been, and always will be—suspended between heaven and earth in its impossible existence.

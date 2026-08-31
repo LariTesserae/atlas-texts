@@ -1,0 +1,13 @@
+In the depths of an immense, ancient aquascape, layers of water-saturated geology stretch beyond perception. This is not an ocean as we know it, but a living, breathing hydraulic megastructure—a planet-scale waterscape so old that its contours have been sculpted into absolute stillness by millions of years of patient erosion.
+
+Massive stone formations rise like petrified forests through the translucent water, their surfaces smoothed to an almost glassy perfection. These are not mountains, but calcified remnants of some primordial infrastructure—perhaps the skeletal remains of continental-scale engineering projects from epochs past. Each formation is dense with layered sedimentations, embedded with the compressed histories of geological and potentially technological processes.
+
+The water itself is not clear, but a deep amber-green, thick with microscopic life and suspended mineral memories. Currents move with glacial deliberation, creating sound waves so profound they are felt more than heard—a constant, deafening subsonic pulse that vibrates through everything, a heartbeat slower than centuries.
+
+Scattered through this waterscape are the fragmented remains of urban structures: not ruins, exactly, but calcified settlements that have become so integrated with the surrounding geology that their boundaries have blurred. Primitive constructions of stone and hardened organic materials peek through the water-saturated landscape—geometric shapes that suggest intentional arrangement, but so ancient that their original purpose has been lost to time.
+
+Rare, strange fauna drift through this environment—creatures that seem more like living geological formations than animals. They move with incredible slowness, their bodies adapted to the patient rhythms of this world. Bioluminescent tendrils extend from some structures, suggesting a symbiotic ecosystem where the boundaries between constructed and living have long since dissolved.
+
+The light here is diffuse, filtering through layers of water and mineral suspension, creating an omnidirectional glow that seems to emerge from within the landscape itself rather than from an external source. Everything feels simultaneously ancient and alive—a world so settled into its final form that change has become almost imperceptible, yet still breathing with a profound, slow metabolism.
+
+This is a place of ultimate stability: a water-world so old that its very existence has become a form of patient, geological meditation.

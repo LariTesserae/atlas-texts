@@ -1,0 +1,21 @@
+# The Chitin Caverns
+
+The tunnels stretch for miles beneath the surface, a latticed labyrinth carved not by water or time, but by the ceaseless activity of its inhabitants. Here in the darkness, the moisture is palpable—not as standing water, but as a constant slick film that coats every surface, condensing from breath and body heat and the strange metabolic processes that sustain this realm.
+
+The walls pulse with movement. They are not stone, though at first glance they might appear so—rather, they are composed of living chitin, the exoskeletons of countless small creatures fused together in a biological architecture that defies conventional categorization. The creatures—if one can call them that—resemble arthropods but lack any earthly analogue. Their bodies range from the size of a fingernail to that of a human palm, with translucent segmented shells that glow with faint bioluminescence, casting the caverns in a ghostly blue-green light that never quite dispels the darkness.
+
+The cool air carries a symphony of sound that borders on assault: the constant clicking and chittering of millions of these beings communicating in patterns too complex to decipher, the rustling of countless legs against the tunnel surfaces, the occasional thunderous rumble as a section of wall collapses and is immediately rebuilt by a swarm moving with single-minded purpose. The soundscape is relentless, physical—it vibrates through your body rather than simply entering your ears.
+
+There is nothing green here, nothing that photosynthesizes. The ecosystem exists on different principles. The smaller creatures feed on the slime molds that bloom in patches where moisture gathers, while larger arthropoid forms hunt the smaller. Some appear to consume the very minerals of the earth, their mandibles powerful enough to grind stone to powder. Others seem to subsist on sound itself, orienting their sensory appendages toward the loudest sources and visibly swelling afterward.
+
+The passages wind downward, always downward, at a gentle slope that nonetheless covers considerable vertical distance over time. The network of tunnels has been established for centuries, perhaps millennia—the walls polished by the passage of countless bodies, the junctions optimized through some collective intelligence that has perfected this underground city through iterative design without conscious architects.
+
+At certain junctions, the tunnels widen into cavernous chambers where the density of creatures becomes almost hallucinatory. Here, they cluster in spherical formations that pulse and rotate like living galaxies, thousands of individuals moving in coordination. The air in these chambers is noticeably damper, condensation dripping from ceiling formations that resemble stalactites but are actually living columns of creatures clinging to one another.
+
+There are no artifacts here, no tools, no technology as humans would recognize it. Yet intelligence is evident in the organization, in the way waste is channeled away through dedicated tunnels, in how the weak blue light is strategically amplified at complex intersections, in the perfect temperature regulation that keeps the environment cool but never cold.
+
+Occasionally, larger creatures move through—the apex predators of this realm. They resemble centipedes but are the length of buses, their segmented bodies undulating with hypnotic rhythm as they pass. Lesser beings part before them not in panic but in organized waves, like a crowd making way for royalty. These giants produce deep, resonant tones that momentarily override the cacophony, imposing a brief, strange harmony before the chaos of sound resumes.
+
+The most unsettling aspect is the sense that the entire system—tunnels, creatures, moisture, sound—functions as a single organism. Disturbances propagate through the network like thoughts through a brain. Information travels via vibration and chemical signals left on the slick walls. The whole vast, sprawling complex seems to breathe, to think, to adapt with purpose, though no individual within it could comprehend the whole.
+
+And as you move deeper, the feeling grows that you are not moving through a place, but through a body—that the caverns themselves are alive and aware, and have been quietly observing you since the moment you entered their strange and ceaseless domain.

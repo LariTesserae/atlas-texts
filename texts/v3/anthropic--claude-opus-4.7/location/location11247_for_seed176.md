@@ -1,0 +1,35 @@
+# The Condensary at Aiqal Spur
+
+At eleven thousand meters — high enough that the air itself behaves like a substance you can lean against — there is a shelf of black basalt no wider than a village square. The mountain it clings to is too new to have a proper name in any of the lowland tongues; it pushed itself up out of the crustal seam perhaps four hundred years ago, and its summit ridges are still glass-sharp, still flaking off in cleavage planes that ring like struck bells when they fall.
+
+The shelf is wet. Always wet. This is where the trouble and the wonder both begin.
+
+A river of cloud climbs the south face every afternoon, finds the cold knife of the ridge, and gives up its water all at once. The basalt weeps. Not dramatically — there is no waterfall here, no torrent — just a slow universal seeping, every facet of every stone beaded and silver, every crack hosting a bright vein of trickle. The rock itself is so young that the water has nowhere prepared to go; it pools in shallow uncertain places, runs sideways along ledges it has not yet learned to cut, hesitates, doubles back. In a thousand years there will be channels. For now there is only the sheen.
+
+Out of this sheen, the vegetation. At this altitude things should be sparse, lichen-thin, but the shelf is a freak microclimate — warm updrafts from the valley, constant moisture, light filtered through a thin cloud-ceiling that holds steady most days at a soft pearl brightness. So instead of tundra there is a hanging garden: cushion plants the size of dinner plates packed shoulder to shoulder, fleshy and almost coral-like in the way they grow into each other. Mosses in six colors — the usual greens, but also a wet rust-orange and a near-black that looks like spilled ink until you touch it and find it warm. Small twisted trees, none taller than a person, with bark that peels in paper sheets and leaves that are waxed against the constant damp. Between them, ferns. Between the ferns, more ferns. The density is such that you cannot set a foot down without crushing three living things, and the things crushed exhale a green pepper smell that lingers.
+
+And in the middle of this — this is the part that stops the breath — stands the Condensary.
+
+It is not large. Perhaps the footprint of a small chapel. But it is unmistakably industrial: a riveted iron drum maybe four meters tall, surrounded by a forest of copper pipework that branches and rebranches into finer and finer capillaries until the smallest tubes are no thicker than reeds and disappear into the moss. A boiler somewhere underneath thuds at the pace of a slow heartbeat. Steam rises from a stack and joins the cloud-river overhead, indistinguishable from it within a meter of leaving the pipe. A flywheel as tall as a man turns, turns, turns. There is a smell of hot brass and wet stone.
+
+Nobody is here. Nobody is ever here, as far as anyone has been able to determine. The machine tends itself. It has been tending itself, by the carbon-staining on its chimney and the patina on its copper, for perhaps eighty years — which means someone hauled it up here, in pieces, across cliffs that have killed expeditions, and assembled it, and walked away. Or it walked here itself. The accounts disagree.
+
+What it does: it harvests the cloud. The fine capillaries siphon condensate from the air and from the mosses; the drum holds it; the boiler reduces it; and out of a spigot on the downhill side, drop by patient drop, comes a clear heavy liquid that is not quite water. It tastes of minerals and faintly of ozone. It falls into a basin carved from the basalt — the only carved thing on the shelf, and carved badly, as if by someone in a hurry or someone who had never carved before — and from the basin it overflows into the moss and is gone.
+
+The sound. This is what you notice second, after the shock of the machine. The shelf is loud. The boiler thumps; the flywheel sings a low continuous note; steam hisses from a dozen joints; the pipes themselves ping and tick as they expand and contract. Underneath all of it, the constant tympanic patter of the weeping rock, and over all of it, the wind sliding across the ridge at a pitch that changes with the hour. It is the soundscape of a small factory at the top of the world. You cannot hold a conversation here without raising your voice.
+
+Animals are scarce. A species of small dark bird — something between a chough and a wren — nests in the warm crevices of the boiler housing and seems to have adapted entirely to the machine, drinking the spigot-water, eating insects drawn to the heat. A few pale slugs in the moss. Once, the print of something larger, four-toed, near the basin; never twice.
+
+The rules of this place, as best as can be inferred:
+
+The machine will not be approached too closely. Not because it forbids — there is no fence, no sign — but because the closer you get, the more the air feels wrong, dense in a way that makes your ears pop and your thinking slow. People who have tried to lay hands on the iron drum report afterwards that they cannot remember the half-hour during which they did it.
+
+Nothing here changes quickly. The mountain is young but its life is slow. A moss-patch the size of your palm is a century old. The machine's pace is the place's pace: thud, turn, drip. Storms pass below, not over. Seasons here are a faint modulation in the brightness of the cloud-ceiling.
+
+And the water that drips from the spigot — the heavy clear stuff — does something. Plants that grow near where it sinks into the moss are larger, glossier, the wrong shade of green. The carved basin is the wrong shape if you look at it from above; it is not quite a circle, and the not-quite resists being described. Pilgrims have come, occasionally, and filled small bottles, and gone back down the mountain, and the bottles in the lowlands are always found later to contain only ordinary water, as if whatever made the liquid different could not survive the descent.
+
+What the machine is for, who built it, why it weeps its alien water into moss that drinks it gratefully and asks nothing — these are not questions the shelf answers. The shelf is busy. The shelf is, in its small loud wet way, doing its work. The cloud climbs the south face; the basalt weeps; the boiler thuds; the spigot drips; the moss thickens by an unmeasurable fraction; somewhere far below, a valley that has never heard of any of this grows its rice and counts its days.
+
+At dusk the cloud-ceiling thins and for perhaps twenty minutes the shelf is lit by direct light, low and gold, and every wet surface — and every surface is wet — throws back a separate small sun. The copper pipes look, in that light, like the nervous system of something enormous and patient, laid bare for inspection, still functioning, still waiting to be claimed.
+
+Then the cloud closes. The light goes pearl again. The machine works on.

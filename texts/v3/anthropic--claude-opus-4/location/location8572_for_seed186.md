@@ -1,0 +1,15 @@
+The Thermal Chimneys rise from absolute darkness—volcanic necks of black basalt worn smooth by ages of patient erosion. Each spire stands alone in the void, separated by chasms so deep their bottoms have never known measurement. The heat here is wrong: it comes not from below but from the stone itself, radiating at precisely 47.3 degrees Celsius regardless of depth or season. The rock sweats.
+
+In this perpetual night, condensation beads and runs in thin films down the towers' faces. The moisture appears from nowhere—the air is bone dry between the spires, yet water materializes where stone meets vacuum. It pools in shallow depressions carved by millennia of the same impossible process, each pool no larger than a baptismal font, perfectly circular, perfectly still.
+
+The vegetation clings desperate and strange. Thermophilic lichens grow in fractal spirals, their metabolism powered by heat differential rather than light. They've evolved to photosynthesize darkness itself—processing the absence of photons through molecular mechanisms that shouldn't exist. Once every forty days, they release spores that drift between the towers on convection currents that defy the surrounding stillness.
+
+Sound dies here. Not muffled—murdered. A scream becomes a whisper becomes nothing in the space of meters. The only audible presence is the faint industrial hum that seems to emanate from inside the stone itself, as if vast turbines spin in dimensions folded within the basalt. Sometimes the frequency shifts, and those who've listened too long report hearing production lines, assembly sequences, the rhythmic pulse of manufacture—all from rock that predates human history.
+
+The fauna are theoretical. Thermal signatures suggest something moves in the depths between the spires, but nothing has ever been seen. Shed exoskeletons appear occasionally at pool edges—chitinous forms that seem designed for creatures that exist partially outside normal space. They're always empty, always facing the same cardinal direction, always precisely 1.7 meters in length.
+
+Reality stutters here. The same drop of water will fall from a pool's edge repeatedly, caught in a temporal loop lasting anywhere from seconds to hours before breaking free. Observers report seeing their own heat signatures from impossible angles—as if their thermal presence has become unstuck from their physical form. The industrial hum occasionally resolves into the sound of one's own heartbeat, mechanized and mass-produced.
+
+The air tastes of copper and absence. Time moves like sap. The boundary between the spires and the void blurs until it becomes unclear whether the darkness is empty space or solid matter in a state unknown to physics. This is a place of profound patience—erosion as meditation, condensation as prayer, existence balanced on the knife-edge between being and unbeing.
+
+In the eternal night of the Thermal Chimneys, the only truth is heat, and heat is a language spoken in frequencies that human ears were never meant to decode.

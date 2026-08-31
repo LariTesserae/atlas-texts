@@ -1,0 +1,31 @@
+# The Cistern Gardens of the Upper Manifold
+
+Begin with the water, because the water came first and everything else was built to argue with it.
+
+It stands. That is the strange thing — not falling, not flowing, but *standing*, filling the whole interior of the place like a held breath, warm and faintly green and so still that you could mistake it for glass if not for the slow drift of pollen suspended in it, turning over and over with no current to turn them. You are inside it. There is no surface to break, no boundary between air and water you ever crossed. The whole world here is submerged, and yet you breathe — the water is thinner than water should be, an in-between substance, the kind of thing that exists only because someone, long ago, decided it should.
+
+The structure that holds this water is small. You could walk its full circuit in an hour, if there were anywhere here to walk. Call it a tower turned inward, a vessel high in some atmosphere you cannot see past — the windows show only more green-gold haze, more of the standing water going up and up. High elevation, certainly: there's a thinness to the light, a clarity that belongs to altitude, the sun arriving undiffused and laying clean bright lines across the wet bronze of the walls.
+
+And the walls are *made*. Everything is made. There is no rock here, no soil, no natural floor beneath the construction — the construction is the floor, is the ground, is the bedrock. Riveted bronze plate and brass lattice and great cast pillars fluted like organ pipes, the metalwork young and unweathered, edges still sharp, seams still bright, as though the whole apparatus were lifted from its mold last season. Someone built a watertight world and filled it and the building has not yet had time to learn decay. The rivets gleam. The corners cut.
+
+Into this made vessel they put the gardens.
+
+The vegetation is the second argument the place is having with itself. It is *lush* — overwhelmingly, ecstatically lush — but none of it grows from earth, because there is no earth. It grows from the architecture. Vines feed on copper, ferns root in the joints between plates, broad waxy leaves unfurl from the mouths of the organ-pipe pillars where condensation pools. The plants have adapted to the warm standing water; they hang in it, suspended, fronds spreading wide and slow because there is no current to fight, only the gentle pressure of the medium holding them open like hands. Moss sheets every horizontal surface in a green so deep it reads as black until light strikes it. Tendrils have wound through the brass lattice so completely that you cannot tell, in places, whether the lattice supports the plant or the plant has become the lattice.
+
+The density is total. There is no empty water here, no clear span. Every cubic measure holds *something* — a leaf, a stem, a hanging root, a drifting seed, a column of slow bubbles rising from some submerged machine vent and never quite arriving anywhere. The place is packed to saturation. To move through it would be to part curtain after curtain of suspended green, each one closing softly behind you.
+
+Now the machines.
+
+This is a working place, an industrial place, though you might not believe it at first because of the quiet. Beneath the moss, behind the lattice, the engines turn. Great gear-trains submerged and oiled, their teeth meshing with slow patience, driving pumps that move the standing water in cycles too gradual to perceive — a full turnover, perhaps, across a season. Glass tubes carry threads of mineral solution to the roots. Mechanical irises in the high windows open and close to ration the light. Somewhere a boiler keeps the whole vessel at its even, blood-warm temperature, and you can feel the warmth as a constant against your skin, neither hot nor cool, the temperature of something kept alive on purpose.
+
+The machinery is not separate from the garden. That's the heart of the strangeness. The engineers who built this did not build a greenhouse and put a garden in it — they built a garden that *is* an engine, plant and gear interleaved until the distinction stops meaning anything. The vines have learned to grip the slow-turning shafts and ride them. The pumps' rhythm has shaped the way the ferns angle their fronds. It is industrial and it is overgrown and it is impossible to say which came to serve which.
+
+And it is nearly silent. This is what makes it sacred rather than merely mechanical. All that turning gear, all that pumping and circulating, and the water swallows the sound — every clank softened to a felt vibration in the chest, every hiss of steam reduced to a faint pressure in the ear. What sound there is comes muffled and far: the slow knock of a gear seating, a thread of bubbles releasing with a sound like a swallowed bell, the creak of a vine taking the weight of its own growing. You hold your breath and hear your own pulse louder than the machinery that runs the world.
+
+There are no animals. None. No fish drift the standing water, no insect troubles the leaves, no bird could survive the submersion. This is a garden without grazers, without pollinators, without predators — which means the machines must do the animals' work. Brass armatures move pollen tip to tip. Mechanical fingers prune. The whole ecology runs on substitution: every absent creature replaced by a device built in the shape of its function. The silence is partly this — the silence of a system that has edited out every voice that might have called across it.
+
+What kind of place is it, finally?
+
+A reliquary, maybe. A held thing. Someone built a small bright vessel high above an unseen world, filled it with warm standing water, planted it dense with green, threaded it through with patient quiet engines, and sealed it — and then, perhaps, left. The newness of the metal suggests this happened recently. The completeness of the growth suggests it happened long ago. Both are true, in the way the place keeps both its arguments running without resolving them.
+
+You hang in the warm green light. Pollen turns past your face, unhurried. Far below, a gear seats home with a sound you feel more than hear, and somewhere a leaf you cannot see unrolls itself one millimeter further into the standing water, into the made and breathing dark.

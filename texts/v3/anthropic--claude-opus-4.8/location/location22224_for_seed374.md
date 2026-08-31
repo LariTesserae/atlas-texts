@@ -1,0 +1,27 @@
+There is a city here that has not finished being born, and it never will.
+
+Start with the floor of the place, because the floor is the oldest argument the land has with itself. It is warm rock, the kind that holds the day's heat into a night that never quite arrives — a flat-bottomed valley of pale stone, low and broad, the horizon soft on every side. The rock is wet. Not flooded, not marshed exactly, but everywhere weeping: thin films of water sliding down every vertical face, beading on every overhang, collecting in the seams between stones. Touch any surface and your hand comes away slick. The air itself is thick enough to drink, and it condenses on whatever is cooler than it — which is almost nothing, because the whole basin runs warm, a low even body-heat warmth, like standing inside a sleeping animal.
+
+There is almost no green. A few mats of something dark and rubbery cling in the wettest seams — not quite moss, not quite algae, an early simple thing that does the work of plants without committing to the shape of them. Otherwise the world is mineral. This is not a dead place; it is a place that has not yet gotten around to most kinds of life, and has filled the gap with the kinds it has.
+
+Now the building. Across the whole basin, rising out of the wet stone, stand structures — and they are unmistakably structures, organized, towered, dense, walls beside walls beside walls, the unmistakable saturated geometry of a city. Towers lean against towers. Galleries stack into galleries. From a distance it reads as a built place, a settlement on the scale of a town climbing into the scale of a small crowded city, all of it close-packed, near-touching, layered up into the dim air.
+
+But come closer and the construction confesses itself. These are not made by hands that planned, though hands — or things like hands — made them. The walls are accretions. The whole city is being secreted. The fauna build it.
+
+The basin is abundant with animals, and they are the masons. Picture something between a wasp and a coral polyp and a swift — soft-bodied, palm-sized, working in colonies of uncountable thousands. They gather the dissolved mineral out of the weeping water, carry it in their bodies, and lay it down in the warm air where it hardens. Layer on layer, generation on generation, they have raised the towers. Every wall is a graph of their labor: bands of paler and darker stone where the water ran richer or thinner, flutings where many bodies passed in a line, blind windows that are simply where the work has not yet reached. This is why the place is *emerging* — raw, embryonic, under construction — and why it will stay that way. The building never finishes. There is no plan, only the endless local instinct to add the next bead of stone to the wet face in front of you.
+
+And here is the strange equilibrium of it: the place never changes. It is always being built and never built. The colonies that secrete the towers are matched, exactly, by the slow drip of the weeping water that re-dissolves the oldest stone at the base. What rises at the top is unmade at the bottom at precisely the same rate. The city stands in perfect stasis — not frozen, but flowing in place, like a fountain that holds a single shape while the water inside it is never the same water twice. Stand here a year and nothing will be different. The same towers, the same lean, the same blind windows half-finished. The work and the unmaking have reached a treaty, and the treaty holds.
+
+The light is dim and comes from no clear source — a soft mineral luminescence, perhaps, in the weeping films, perhaps just the diffuse grey of a sky too thick with vapor to show a sun. It pools in the lower galleries and gives out before it reaches the tower-tops, so that the city fades upward into a warm dark. Everything is wet and gleaming in that half-light. Surfaces shine without being seen clearly.
+
+And the sound — the sound is the truth of the place. It is deafening. The colonies make it: the dry rasp of millions of small bodies scraping mineral onto stone, multiplied across every wall of every tower, layered and overlapping until it becomes a single vast roar, a white granular thunder with no edges and no pauses. Under it, the water: the endless drip and run and trickle of the weeping rock, a million separate falls of it, which alone would be a torrent's sound but here is only the bed the louder noise lies on. There is no silence anywhere in the basin and there never has been. You feel it in your sternum. You stop being able to hear yourself think and start thinking in the rhythm of the rasp.
+
+There are rules to this world, simple ones, primitive as the tools the builders carry in their own bodies:
+
+Nothing here decides. There is no architect, no king of the colonies, no center. The city is the sum of small wet instincts, and it is beautiful the way a coral reef or a termite spire is beautiful — by accumulation, not intention.
+
+Nothing here finishes, and nothing here is lost. Every wall is being added to above and dissolved below, and the difference is zero.
+
+And nothing here is quiet. The roar is the city's pulse, and the city has no off.
+
+A traveler standing in the lowest gallery, ankle-deep in the warm running film, the towers leaning over and dissolving and rising all around in the dim secreted light, the deafening rasp pressing in from every wall — that traveler is standing inside a thing in the exact middle of being made, held there forever, neither beginning nor done.

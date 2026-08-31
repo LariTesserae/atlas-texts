@@ -1,0 +1,35 @@
+# The Peneplain
+
+You would not see it. That is the first thing to understand.
+
+The landscape exists in a darkness that is not absence but *consumption* — a total, warm darkness, the kind that presses against skin like bathwater. The air is dense and humid, almost viscous, carrying heat that does not come from above because there is no above worth speaking of. No sky. The canopy — if canopy is even the word — begins perhaps twenty meters overhead and extends upward for kilometers in layered shelves of living tissue, each stratum a slightly different texture of black, absorbing every wavelength that dares to exist here. Whatever faint radiogenic glow seeps up from below, the plant-mass drinks it. The darkness is a living mouth, open across an entire low-lying continent, and it has swallowed all light without choking.
+
+The ground is not ground.
+
+It is a substrate of plant matter so dense, so interlocked, that the distinction between organism and geology has ceased to be meaningful. Stand — or rather, *rest* — on this surface and you rest on the backs of structures that are technically alive, though "alive" here means something closer to how we'd describe a mineral process. The plants are not rooted in soil. They *are* the soil. They have metabolized whatever tectonic substrate once existed beneath them and replaced it, layer by sharp layer, with their own architecture: ridges of lignified tissue rising from the surface like the folds of cooling basalt, except the basalt is warm to the touch and exudes a thin film of condensation. These ridges are young. They are *fresh* — angular, unrounded, their edges still sharp enough to catch and hold droplets of the ceaseless condensation that weeps from every surface. The landscape has the quality of something recently extruded, as though the entire continental surface has been pressed through a die and has not yet had time to soften.
+
+And it operates.
+
+This is the part that resists description without slipping into metaphor, and yet the metaphor is the literal truth. The plant-mass is *industrial* — not in the sense that it was built by industry, because nothing here was built. There are no structures. No artifacts. No roads, no walls, no tools, no ruins. There is only the living substrate performing, at continental scale, a set of chemical processes so vast and so repetitive that they constitute something indistinguishable from manufacturing.
+
+The ridge-formations function as conduits. Channels run through them — not carved by water, though water fills them, but *grown* into place, the plant tissue routing itself to create capillary networks at a scale that dwarfs any human pipe system. Warm water — never cold, always matching the ambient warmth of the air — moves through these channels with a slow, peristaltic pulse that you would not feel unless you pressed your hand flat against the surface and waited. The water carries dissolved minerals upward from somewhere deep, processing them through successive layers of tissue that extract, transform, and redistribute chemical compounds with an efficiency that would shame any factory floor. The excess is exuded: thin, warm films of mineral-rich liquid that coat every surface, giving the entire landscape a wet sheen, a glistening quality that, if you could see it, would make the darkness look like obsidian.
+
+The sound is almost nothing.
+
+Not silence exactly — the condensation drips in places where the capillary systems are slightly overfull, creating a sparse, irregular tapping that might, in the first hour, feel like sound but eventually becomes indistinguishable from the pressure of the air against your eardrums. The slow pulse of water through the channels produces a sub-audible vibration, a hum felt in the bones of the feet if you stand still. But there are no voices. No calls. No rustling of wings or skittering of legs. The only animal life that has ever existed here has been consumed — not eaten, not preyed upon, but simply *integrated*, the plant-mass unable to distinguish between mineral and organism, incorporating everything into its processing streams. There is nothing that moves independently. Nothing that watches. The landscape is alone with itself and has been alone for however long it has existed, which is not long in geological terms — the sharpness of the ridges, the freshness of the tissue, the absence of any weathered or decayed layer suggests this whole arrangement achieved its current state recently. Perhaps centuries. Perhaps millennia. Long enough to be complete. Not long enough to be old.
+
+And it will not change.
+
+This is what makes the strangeness cohere into something almost spiritual in its wrongness. The system has reached equilibrium. The water cycles and the chemical processing and the tissue growth have all found a balance point from which there is no gradient, no pressure toward difference, no reason to shift. The condensation that forms is exactly the condensation that is reabsorbed. The minerals drawn up from below are exactly the minerals exuded at the surface. The plant-mass grows at precisely the rate that would be required to maintain itself without expanding. The darkness that the canopy creates is the darkness that the canopy needs. Every process feeds every other process in a closed loop so perfect that the entire continental system has become, in effect, a single machine idling at its own steady state — warm, wet, dark, productive, and absolutely still.
+
+If you could see it — which you cannot, because the darkness drinks light the way the plants drink water — you would see a low, flat expanse stretching to every horizon, broken by sharp angular ridges of living tissue, wetly gleaming, with channels of warm mineral water threading between them. No trees. No grasses. No forms recognizable as plant. Only ridges, channels, planes, and shelves — geometric, almost architectural, but grown rather than designed. The shapes recur with a regularity that suggests purpose but has no author. The whole thing is the size of a continent, and every square meter of it is doing exactly what every other square meter is doing, and what all of them were doing yesterday, and what all of them will do tomorrow, and what they will do for as long as the deep heat and the deep minerals last.
+
+You would stand in the warm, wet darkness, on a surface that is alive and operating, surrounded by silence, and you would understand — not intellectually but in the way you understand the presence of something much larger than yourself — that this place is a process that has become a place. That it does not need you. That it does not need anyone. That it has never needed anyone. That it is, in the most literal sense, complete.
+
+The water weeps down the sharp face of a ridge beside you, catching no light, warm against your fingers if you reach out.
+
+It tastes of iron and something like copper and something else that has no name because no mouth was ever meant to taste it.
+
+You withdraw your hand.
+
+Nothing changes.

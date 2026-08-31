@@ -1,0 +1,13 @@
+A sunken garden thrives in the depths of an ancient lava tube, fed by heat that rises through the volcanic glass floor. The chamber stretches perhaps forty meters across, its weathered walls smoothed by millennia of thermal currents into flowing obsidian curves that catch and scatter the light from above.
+
+That light pours through a series of natural skylights - places where the tube's ceiling has worn through to the surface. The beams cut through the warm, still air at sharp angles, illuminating floating motes of pollen and spores in their path. The chamber feels both intimate and cathedral-like, with the dark glass walls soaring up into shadow.
+
+The floor is a marvel of adaptation. Thick-leaved plants with waxy, iridescent surfaces crowd every surface, drawing moisture not from rain or streams but from the perpetually warm, humid air. Their leaves trap the humidity that condenses on the cooler ceiling at night and channels it down their stems. The plants grow in dense clusters with clear spaces between - each cluster centered on one of the countless hairline fissures where geothermal heat seeps up through the glassy floor.
+
+These heat-garden islands pulse with subtle movement. The plants' leaves slowly track the shifting light beams throughout the day, and occasionally a leaf will unfurl or a flower will gradually open, releasing a cloud of glowing spores into the illuminated air. The flowers are strange - more like crystalline formations than petals, an adaptation to the intense heat and minimal water. They chime very softly when they touch each other in the thermal currents.
+
+Near one wall, half-buried in a drift of fallen leaves, sits what appears to be an ancient ceramic vessel, its surface patterned with spiral designs that echo the curves of the walls. A few others can be glimpsed among the foliage - suggesting this chamber once held some significance to someone, though whether as a temple, garden, or something else is unclear.
+
+The only animals visible are the occasional translucent insects that drift between plant clusters, their wings catching the light like bits of mica. But there are signs of other life - small burrows at the edges of the plant islands, delicate webs stretched in shadowy corners, paths worn smooth through the fallen leaf litter.
+
+The heat is ever-present but not oppressive - more like a gentle embrace that rises from below and radiates from the walls. The air is so still that the slightest movement of a leaf creates subtle echoes. The overall feeling is one of profound isolation and peace - a hidden world that has found its own balance in this protected space beneath the earth.

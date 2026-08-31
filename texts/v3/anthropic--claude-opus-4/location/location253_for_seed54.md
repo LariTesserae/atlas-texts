@@ -1,0 +1,17 @@
+The city clings to the mountain's throat like a crystalline parasite, its towers rising from raw basalt that still steams where meltwater finds volcanic veins. In the perpetual twilight—neither day nor night but something older—the settlement appears as a dense cluster of luminous nodes against the wet black stone.
+
+Water is everywhere here, though nothing grows. It seeps from cracks in the newly-cooled rock, condenses from the thick atmosphere in sheets that run down building faces, pools in depressions that form faster than the city's drainage systems can evolve to handle them. The air tastes of minerals and electricity. Each breath deposits moisture in your lungs.
+
+The structures themselves defy easy categorization. They're grown rather than built, assembled at scales too small to observe by armies of creatures that might be machines, might be organisms, might be something between. Their surfaces ripple with hexagonal patterns that shift slowly, like the compound eyes of vast sleeping insects. The buildings communicate through frequencies that make the wet air hum and your bones ache.
+
+Between the towers, in spaces too narrow for the concept of streets, the fauna move in dense rivers. They're not quite visible in the darkness—your eyes catch suggestions of segmented bodies, of too many legs moving in perfect coordination, of shells or carapaces that reflect the buildings' bioluminescence in broken rainbow fragments. They flow up walls and across ceilings with equal ease, their collective movement generating a sound like heavy rain on metal, like whispered calculations, like the earth's crust cooling.
+
+The mountain itself is still becoming. You can feel it in the way the ground occasionally shudders, in the sulfurous breath that rises from fresh fissures. The city adapts in real-time, its structures flowing and reforming to accommodate new topography. Buildings sink roots—or are they feeding tubes?—deep into the cooling stone, extracting materials, energy, purpose.
+
+The loudness here isn't chaotic. It's algorithmic, patterned—millions of synchronized movements creating waves of sound that roll across the settlement. During the deepest cycles, when the crawling multitudes pause their work, you can hear the mountain's heartbeat: the crack of contracting rock, the hiss of steam, the groan of tectonic adjustment.
+
+Above, where the atmosphere thins toward space, vast forms circle on wings that might be membrane, might be force fields, might be controlled distortions in local physics. They cast no shadows in this lightless place, but you feel their presence in the way the air pressure shifts, in the way the fauna below respond with subtle changes in their flow patterns.
+
+Water drips. The city grows. The mountain cools toward stability it will not reach for another thousand years. And through it all, the endless procession of chittering, clicking life continues its patient work of transforming raw geology into something unprecedented—a metropolis that is also an organism, an ecosystem that builds itself, a wet darkness dense with purpose.
+
+The boundary between natural and artificial dissolved here before it ever formed. This is a place still deciding what it wants to become, and taking its time in the becoming.

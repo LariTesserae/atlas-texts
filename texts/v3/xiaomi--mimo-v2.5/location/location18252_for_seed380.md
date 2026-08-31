@@ -1,0 +1,47 @@
+# The Seepworks
+
+You descend. The passage spirals — not a tunnel carved through rock but one *dissolved* into it, walls rounded and slick, glazed in mineral deposit the color of weak tea. Water moves everywhere, though you cannot always see it. It threads through the stone behind your fingers when you touch the wall. It weeps from hairline fractures in the ceiling in a mist so fine it never quite lands on your skin but keeps you damp, keeps the air tasting of chalk and iron. The temperature is the steady cool of a cellar — of a body kept just below livability — and it does not change. It has not changed, you suspect, for longer than anything you could name.
+
+This is the Seepworks.
+
+---
+
+**The stone** is old. Not old the way ruins are old — broken, romantic, collapsed into picturesque disorder — but old the way a riverbed is old. It has been shaped by water for so long that the architecture and the geology have become the same thing. The walls are pocked with dissolution cavities, some the size of fists, some the size of rooms. Many of these have been *incorporated*. A passage will widen into a natural dome, and that dome will have been fitted — not constructed atop, but fitted into — with iron grating, riveted plates, condensation-collection baskets woven from some dark plant fiber or wire. The floor is stone worn smooth by ten thousand years of water and footfall and the slow passage of machinery, and it pitches always, imperceptibly, toward the lowest point, where channels have been carved and recarved and recarved again to carry runoff toward the deep cisterns below.
+
+The whole place smells of wet metal and the faintly sweet rot of old grease.
+
+---
+
+**The structures** here are not buildings in any conventional sense. They are *infusions* — layered constructions built inside and around and through the natural cavities of the limestone, the way a hermit crab inhabits a shell. Iron bulkheads divide larger chambers into corridors and workrooms. Riveted tanks — some still pressurized, some long breached and now serving as cisterns or nesting hollows — are bolted to walls with brackets that have themselves become geological features, mineral crusts welding metal to rock. Overhead, a lattice of pipe and conduit runs in every direction, some of it still active, carrying water or compressed air or something else with a dull, intermittent pulse you feel more in your feet than your ears. Much of this infrastructure is redundant, layered atop itself in strata that mirror the geological ones — three, four, five generations of plumbing and wiring and structural reinforcement, each partially entombed by the slow calcium precipitation of the Seepworks itself. You can read the ages of different passages by the depth of the mineral glaze over their pipes.
+
+This was, once, a place of tremendous industry. The scale of the machinery — enormous flywheels now seized and calcified, piston-housings the size of rooms, gear trains embedded in walls like fossils — suggests operations on a scale the Seepworks' small passages should not have been able to contain. But the geometry here is unreliable. A room you are certain is twelve meters across will reveal, in its far wall, a door that seems proportionally wrong — too small or too large for the space you just crossed. This is not disorientation. The rooms are simply not consistent. They never were.
+
+---
+
+**The water** is the true infrastructure. Everything else is accessory. It enters from above, from the vast and unseen aquifer overhead, percolating through limestone in a process so slow it is almost structural — water as a load-bearing phenomenon, a column of hydrostatic patience holding the ceiling up by being where it is. It pools in basins carved and natural alike, some shallow and warm with mineral content, some deep and cold and lightless. It runs in channels along the floors, in rivulets down the walls, in curtains that fall from broken pipe-ends in sheets so thin they are nearly invisible until they catch the light. The light — always dim, always the same — comes from bioluminescent cultures cultivated in shallow glass trays mounted at junctions and doorways: a faint blue-green, the color of deep ocean seen from above, steady and unblinking. These are fed by the water. They are one of the few living things here that seem to thrive.
+
+The water carries sound away. Or rather, it imposes its own sound over everything — a constant, low, everywhere present murmur and drip and trickle that is not noise so much as a *substrate* of noise, a floor beneath which silence lives. You can hear your own breathing. You can hear the slow tick of thermal contraction in distant pipes. But the world beyond — if there is a world beyond — is inaudible. The Seepworks has its own weather, its own seasons (measured in the slow cycling of water pressure, in the almost imperceptible rise and fall of water levels in the great cisterns), and it does not report on the surface.
+
+---
+
+**The fauna** is what makes the Seepworks strange.
+
+It is everywhere. The dimness and the moisture have produced an ecology of extraordinary density and quiet specialization. Pale crustaceans — eyeless, translucent, the size of a hand — cluster in the mineral-rich shallows, filtering. Something with too many legs moves in the shadows between pipe-racks with a deliberate, mechanical gait. Eels — or eel-shaped things — occupy the deeper channels, their bodies adapted to the mineral content, their skin depositing a thin metallic sheen on the stone they pass over. Bats roost in the upper cavities, their guano forming slow stalactites of its own. Things nest in the hollows of dead machinery: soft-bodied, pale, pressing into the grease and dust of ages. An insect with wings like wet paper drifts through the bioluminescent zones, caught forever in that faint blue glow, feeding on the cultures or on the things that feed on the cultures.
+
+None of them are loud. The fauna of the Seepworks has evolved in an environment where sound is already occupied — where the water speaks in every register and the fauna that survived are those that learned to move beneath it. A scrape of chitin on stone. A wet click. The barely-there rustle of something small redistributing itself in a nest of old rags inside a valve housing. The Seepworks teems, and it is nearly silent.
+
+---
+
+**The strangeness** is not one thing. It is cumulative. It is the way the passages branch in patterns that are almost, but not quite, logical — a branching that suggests intention, planning, even *writing*, if you could see it from a vantage that doesn't exist. It is the way the mineral deposits sometimes form shapes that are too specific to be coincidence: spirals within spirals, repeating at scales from the microscopic to the architectural, so that a chamber's entire layout recapitulates the structure of a single dissolution cavity in the wall. It is the way the water pressure *changes* — not the slow seasonal cycles, which are real and measurable, but sudden, localized shifts that last only moments: a pipe that was dry suddenly weeps; a pool that was still ripples without cause; a passage that was warm turns cold for exactly the duration it takes you to walk through it, and then is warm again.
+
+It is the machinery.
+
+Some of it still runs. Not all of it — most is seized, calcified, long dead. But some. A pump somewhere deep and unreachable turns over on a cycle you cannot determine, and when it does, the water level in the upper cisterns shifts by a centimeter and a vibration passes through the stone that you feel in your teeth. A light — not bioluminescent, but electric, or something like it, a dim amber glow behind thick glass — burns in a chamber you cannot find a door to, and you see its light leaking through cracks in the rock, and you can never tell if it is in front of you or behind you. There is a sound, sometimes, when the pressure shifts — a deep, slow harmonic, almost below hearing, that might be water moving through stone or might be something else entirely, something the Seepworks is still *doing*, still *producing*, a function whose purpose was forgotten long before the purpose was completed.
+
+---
+
+**The people**, if any remain, are not visible. Their infrastructure is — the channels, the grating, the bolted plates, the lamp housings, the doors (most sealed, some open, some missing entirely, their frames filled now with mineral deposit and pale fungal growth). They built for endurance. They built for the wet. They built in a place that wanted to dissolve them, and for a while — a long while, by the layering of it — they succeeded. The Seepworks is a settlement that has become a cave system, or a cave system that has become a settlement, and the distinction no longer matters. The water does not care. The fauna does not care. The machinery turns.
+
+You stand in a passage, ankle-deep in a channel of clear, cold water, and the light from the nearest bioluminescent tray casts your shadow long and strange against a wall that curves away into a dissolution chamber older than your species. Something moves in the pipes above you — not the water, something else. A scrape. A click. A settling of weight.
+
+The Seepworks breathes around you, slow and wet and deep, and it has nowhere to go and no reason to hurry, and neither, now, do you.

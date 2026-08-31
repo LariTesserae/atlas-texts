@@ -1,0 +1,13 @@
+The air hangs thick and heavy, a tepid, mineral-laden soup. It clings to the skin, leaving a slick, gritty residue that tastes faintly of iron and something acrid, like burnt plastic. The sun, a pale disc behind a perpetual haze, casts a weak, diffuse light across the rusted landscape. This is the Flats, a seemingly endless expanse of corrugated metal plains, broken only by the occasional jagged spire of corroded machinery.
+
+The ground isn’t soil, not anymore. It's a compacted layer of metallic oxides, the pulverized remains of colossal industrial processes long since abandoned. Rain comes infrequently, but when it does, it's a greasy, rust-colored drizzle that fills the shallow troughs and hollows in the metal landscape. These stagnant pools become iridescent slicks, reflecting the weak sunlight in shimmering rainbows of pollution.
+
+The silence here is anything but. The primary soundscape is the thunderous roar of the Recycling Engines — monolithic, decaying factories that still, miraculously, operate. They are not factories in the traditional sense; they don’t produce anything new. Instead, they consume the scrap of the Flats, digest it in their bowels of fire and acid, and excrete refined metals and usable energy. Each Engine is a city unto itself, a sprawling complex of pipes, tanks, and conveyor belts, their structures are impossibly, dangerously high. The vibrations from their constant operation reverberate through the ground and up into the bones. You can feel them more than hear them.
+
+Flora is absent, as are most forms of life, but life has found a way. In the shadows of the Engines, clinging to the warm metal, are colonies of metal-eating bacteria. They create a shimmering, almost iridescent biofilm that coats every surface, accelerating the already rampant corrosion. It’s a slow, steady process of decay and rebirth, a closed-loop ecosystem fueled by the detritus of a forgotten civilization.
+
+Here and there, one sees a scavenger-creature. Rare and small, these creatures scuttle and skitter in the wreckage, always looking for something, always on guard. They tend to be small, hard-shelled creatures that feast on bacteria, oil, and whatever else they can find to ingest.
+
+The laws of physics seem…compromised here. Heat rises, but so does magnetic residue. Wind moves, but it is heavy. The air is difficult to breathe, but enough to sustain. The earth, though open, is cramped.
+
+The Flats are static. The Engines roar on, day after day, year after year. The sun rises and sets, but the landscape remains the same. The rain comes and goes, but the pools of iridescent sludge remain. There is no forward momentum here, only a slow, grinding cycle of decay and recycling, a perfect, stagnant equilibrium.

@@ -1,0 +1,17 @@
+The place is called the **Under-Vault of the Weeping Lattice**.
+
+You stand inside a single, immense hollow chamber no larger than a modest cathedral, yet it feels infinite because there is almost nothing in it. The ceiling vanishes into dimness thirty meters above; the walls and floor are so far apart that footfalls take long seconds to return. Every surface is young stone—black basaltic glass still sharp enough to cut memory—born only decades ago by some inconceivable artifice. Nothing has had time to soften.
+
+Water is everywhere and nowhere. It does not fall as rain; it *condenses* out of the air itself in slow, deliberate pearls that drift like mercury before they touch anything. The air is warm, heavy, and wet, thick enough to drink. From the black walls and columns, water weeps upward in violation of every sensible gradient, forming trembling silver sheets that cling to the stone before letting go and rising again in languid fountains. The sound is constant, loud, and orchestral: a thousand different trickles, drips, and resonant chimes as each droplet strikes tuned filaments of engineered crystal that hang in mid-air. The chamber never falls silent. It sings.
+
+Vegetation is present but sparse, almost ceremonial. Great pale ferns, each frond the size of a ship’s sail, unfurl from fissures in the glass-stone. Their color is the greenish-white of new bone. They do not photosynthesize in any way you would recognize; instead they drink the rising moisture and the faint bioluminescent veins that thread the rock itself. Between the ferns, nothing grows. The emptiness is deliberate. The builders wanted the space to feel like a throat.
+
+The city—if it can still be called a city—clings to the vertical surfaces in layered, impossible architecture. Delicate bridges no wider than your hand span the gulf in fractal geometries that refuse to obey perspective. Towers grow downward from the ceiling like stalactites, their surfaces covered in moving script that rewrites itself every few minutes. Walkways orbit one another in slow, mathematically perfect rings, held aloft by fields that current physics has no name for. Every structure is recent, still warm from its own making. You can smell ozone and wet basalt and something like crushed lilies.
+
+There are no animals. Not a single insect, not even the suggestion of microbes. The only motion belongs to the water, the ferns, and the city itself. The infrastructure is alive in the way a heart is alive: it pulses, it adjusts, it dreams. Occasionally a entire bridge will reconfigure mid-span, folding itself into a new lattice with a sound like a harp being tuned by giants. When this happens the condensing droplets change their rhythm for a few seconds, as though the air itself is listening.
+
+Light is minimal and sourceless. A thin, dusty amethyst glow leaks from the deepest fractures in the stone and from the moving script on the towers. It is never enough to see clearly by. Edges remain uncertain. Distances lie.
+
+This is not a ruin. It is a place that has only just finished being born. The builders—whatever or whoever they were—have already moved on, leaving behind an almost-empty urban cathedral still ringing with the noise of its own creation. The water keeps rising. The ferns keep unfurling. The bridges keep rewriting their equations in the dark.
+
+And the chamber keeps singing, loud and wet and young, as though it is still deciding what it wants to become.

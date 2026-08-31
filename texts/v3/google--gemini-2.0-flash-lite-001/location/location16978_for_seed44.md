@@ -1,0 +1,17 @@
+The air hangs thick and heavy, a constant condensation against skin and leaf. It’s warm, a clinging humidity more akin to a breath than a weather. I can feel it in my lungs, a gentle pressure, and smell it in the metallic tang that rides the currents of air. Where does the wind come from here? I can't say I've felt a true wind. 
+
+The ground, what I assume is the ground, is a yielding mass. It’s a tapestry of interwoven roots, thick and ropy like the hawsers of some submerged vessel, covered in a velvet moss that shimmers with captured moisture. This is the foundation upon which everything else is built, or rather, from which everything grows. 
+
+The "buildings" are not built at all, as I understand the word. They *are* grown. Giant, fleshy structures, towering like cathedrals, but composed entirely of plant matter. Their surfaces are slick, veined with a deep, earthy green and punctuated by bulbous, bioluminescent nodes that pulse with a soft, internal light. The density here is staggering; the structures are layered, interwoven, packed so tightly together that little direct light penetrates. I trace the outline of a building and realise that they're both built and not-built: they *are* the landscape and they *contain* it. The structures are built from it, and from each other.
+
+Water is everywhere. Not in obvious streams or rivers, though I think such things may exist *within* the structures, beneath our feet. Instead, it seems to saturate life throughout. It drips from the underside of enormous, fungal canopies, collects in vast, shallow pools that mirror the luminescent nodes above, and constantly seeps from the porous surfaces of the structures. It's a fundamental part of the ecosystem, not just a visitor or even a participant. 
+
+The sounds are loud — a constant chorus of the place itself. The steady hum and thrum of unseen machinery, an industrial heartbeat pulsing through the living structures, overlaid with the rustle and drip of water, the creak of enormous leaves, and a deep, sonorous growl that vibrates through the very ground. I think I can hear the buildings growing. 
+
+The technology here is industrial, woven into the very fabric of the living world. I see conduits of polished, rust-eating metal twisting through the structures, seemingly directing the flow of nutrients and water. Pneumatic tubes, thick as a human torso, snake between the immense buildings, carrying (I imagine) resources, messages, or perhaps even the architecture itself. The engines aren’t the smoking, crude things I know. They’re organic, or perhaps, *integrated with* the organic. They seem to *be* the life, and the life seems to flow from them. 
+
+There is little sign of fauna. The rare things I see are mostly tiny, iridescent insects buzzing around the nodes and creeping along the moss. I don’t feel at risk, but I don’t feel *welcomed* either. I am a foreign element.
+
+The erosion here is not of the sharp, destructive kind. This is a place of slow, enduring change. The structures shift and grow in near-constant motion: what seems the same to the eye gradually warps and flows. The light and dark shift like tides across their surfaces. A tree trunk thickens by several inches while I stand here; a supporting pillar subtly changes its load-bearing angle.
+
+The entire place is on a cathedral scale, a contained, enclosed space. It feels like I'm inside a giant, living organism, and this enclosed space has boundaries. What lives outside? I don't know, but I would not want to leave.

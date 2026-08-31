@@ -1,0 +1,37 @@
+# The Sunken City of Thral
+
+You stand on what might have been a plaza once—the stone beneath your feet is so slick with moisture it's become almost glassy, catching what little light filters down. Everything here is *wrong* about light. The sun exists somewhere above, you know this, but only a bruised grayness reaches here, that particular shade of dusk that never quite graduates into true darkness or dawn. Your eyes adjust uselessly; there's no detail to find, only gradations of murk.
+
+The air itself breathes. It's humid to the point of being almost liquid—each inhalation feels like drinking warm, mineral-thick soup. The atmosphere seems to *condense* around your skin. There's a wet that isn't from rain, though rain has clearly fallen here recently; it's the wet of a place that never dries, where water seeps from the earth itself and weeps from stone walls that haven't seen sun in—you don't know how long. Decades. Centuries. The water has stained the stone in vertical streaks like old tears.
+
+Around you, the city extends in a pattern you can almost read: streets in rough grids, buildings—or the remains of them—rising in tiers toward a central depression. You're in a basin. You've always been in a basin. The city has subsided, or the water has risen, or both, but now it sits cupped in a valley that opens toward horizons you can't quite see through the thermal shimmer. Hot and wet, paradoxically, makes the air itself seem to ripple like the surface of opaque water.
+
+The buildings stand in clusters separated by wide spaces of nothing much. Not ruins exactly—they're too intact for that. Too *persistent*. Rectangular shapes of pale stone, their surfaces carved with patterns that used to mean something: geometric interlocks, chevrons, symbols that your mind nearly reads before sliding away. The masonry is excellent, mortared joints so precise they might have been placed yesterday, except for the patina of mineral deposits that coat everything in thin, powdery crusts. Orange, pale green, white—salts and oxides blooming from the stone like a slow crystalline garden.
+
+Nothing moves. That's the wrongness at the heart of it.
+
+The wrongness that makes your breath catch.
+
+There should be life here—the moisture, the temperature, the shelter—it should be teeming. Instead there's only the city and the silence and the sense that something in the world's basic rules has come undone.
+
+The streets are empty of bodies, but not of *traces*. As your eyes adjust further (or as the murk adjusts, grants you degrees of vision like a slow-opening door), you begin to see that the pavement is marked. Paths worn smooth across the stone, curving, intersecting, crisscrossing in patterns of genuine complexity. Recent wear, the grain of the stone still marked with the shadow-line of a half-height erosion. Things have walked here. Many things. Many times. The paths suggest traffic, intention, *purpose*, but there are no footprints, no organic residue, no trace of what made the marks.
+
+The air carries a faint mineral smell—the scent of exposed rock, of deep water, of something metallic and clean and utterly inhuman. No decay. No rot. That's another wrongness. A place this wet, this warm, should be bursting with mold, bacterial bloom, the sweet-sick ferment of decomposition. Instead: nothing organic except the absence of it.
+
+The sound of water is constant but so faint it takes you a moment to locate it—not flowing, but *moving*. The water table is so near the surface that capillary action pulls moisture upward through the stone itself. In the absolute stillness, you can hear the infinitesimal migration of water through limestone, through clay, a sound like slow breathing, like the stone is gradually becoming liquid.
+
+And the temperature rises incrementally as you move deeper into the city. The depression you're walking into is warmer than the edges. There's a thermal gradient, not from the air but from the *ground*. The earth beneath the city is warm. Blood-warm. By the time you've walked three blocks—if blocks they are—you're sweating through the humidity, and you understand that the city sits above something hot. Not volcanic, exactly, but geothermal, a slow heat rising from depth, a reminder that the world below is still cooking itself.
+
+The vegetation, such as it is, appears only in the spaces between things. Thin-stemmed growth, pale green leaning toward white, no chlorophyll worth the name. Adapted to dimness. The plants don't so much grow as *persist*—small clumps at the base of walls, thin runners following the mortar lines, feeding on minerals rather than soil. Some of them seem almost translucent, as if the light here is too feeble to support true green. They release no seeds that you can see, produce no flowers, simply exist in a holding pattern, alive in the minimum sense.
+
+The weirdness deepens when you begin to notice the architecture more carefully. The precision of the stonework is absolute, almost obsessive—each block fits the next with gaps so small a knife couldn't pass. But the patterns they form are *alien*. Not geometrically alien, but alien in proportion, in the spacing of windows (if they are windows) and the heights of doorways and the widths of streets. They're scaled as if for something else, or for something that experienced space differently. A doorway you'd expect to be narrow enough for a human shoulder is instead wide and very low, forcing you to duck to pass through. Streets seem wider than necessary for the buildings they border, as if designed for a crowd that never came, or came once and will never return.
+
+In one plaza, a structure rises at the center—not a tower, not quite, but a shaft of stone twisted somehow, spiraled in a way that shouldn't be architecturally possible given the materials. Yet it stands. It's been standing for an incalculable time. The spiral is perfect, patient, and the knowledge that something built this makes your skin contract.
+
+The water has pooled in lower depressions, creating shallow ponds of still, clear liquid. You can see down through them—the water is transparent—and there's nothing living at the bottom, just more stone, more mortar, more precise and inexplicable work. No algae colors the water. No insects break the surface.
+
+And around it all, pressing in from the edges of perception, is the sense of *activity*. Not from bodies moving, but from the process of the place. The water is slowly—over geological spans—reshaping the city, millimeter by millimeter, filling its spaces, smoothing its edges. The mineral deposits are building, encrusting, adding layers to the stone. The thermal current from below is creating tiny convection patterns in the atmosphere that you might almost not notice except for the way they catch the absent light. The worn paths on the streets tell you that *something* is moving, has moved, will move. Whatever rules this world, they're not the ones you came in with.
+
+The city extends beyond sight, tier after tier in the basin. Somewhere, there's a center to it. Somewhere, there's an explanation.
+
+But the light dies before you can reach it, and the heat rises, and the water keeps its slow, inexorable migration through the stone.

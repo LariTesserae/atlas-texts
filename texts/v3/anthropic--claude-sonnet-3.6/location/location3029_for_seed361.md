@@ -1,0 +1,17 @@
+In the upper reaches of what was once mundane mountain air, a new city grows like a crystal. Its foundations are not anchored to rock but rather suspended in the thin atmosphere by fields that physics journals are still debating. The settlement emerges at 15,000 feet, where the air has that particular mountain emptiness, that thinness that makes every breath deliberate.
+
+The buildings grow upward and downward simultaneously, extruding themselves molecule by molecule through processes that mimic organic growth but produce structures of unprecedented materials - things that look like glass but behave like living tissue, metals that respond to thought, surfaces that photosynthesize without being truly alive. The architecture has a viral quality, spreading in fractal patterns that seem both mathematical and somehow yearning.
+
+The spaces between buildings are thick with engineered vegetation - not trees exactly, but tree-like forms that have been designed to thrive in the thin air, their leaves iridescent and oversized to capture what little light filters through the perpetual mist that clings to the city's upper reaches. These pseudo-plants grow in dense mats and curtains, their roots more like fiber optic cables than organic matter, creating a network that carries both nutrients and data.
+
+Water is carefully managed here - every drop that condenses from the mountain air is captured, cycled, and recycled through the system. The moisture manifests as beads that roll upward instead of down, collecting in floating reservoirs that glow with a dim, bioluminescent light. The city drinks the clouds themselves, drawing sustenance from the water vapor that drifts through its latticed structures.
+
+The light is always indirect, filtered through the constant veil of engineered fog and the translucent surfaces of the buildings themselves. What illumination exists comes primarily from the subtle glow of the structures and plants - a soft, ambient radiance that never quite reaches full brightness but never plunges into true darkness either.
+
+Sound moves strangely here. The density of construction and vegetation absorbs most noise, creating pockets of near-silence interrupted only by the occasional whisper of moisture being drawn through the city's circulatory systems, or the soft crystalline chime of new structures emerging from their molecular seeds.
+
+There are no birds, no insects, no scurrying things. The only movement comes from the slow pulse of the city itself - the gradual unfurling of new growth, both architectural and botanical, and the steady flow of water and light through its systems. The whole place feels like a held breath, a moment of emergence stretched out into permanent form.
+
+The scale is intimate despite its elevation - no single structure rises more than a few stories above or below its neighbors. The spaces feel like chambers in an organic structure, connected by passages that might be streets or might be veins. The boundaries between interior and exterior blur; it's often impossible to tell whether you're inside a building or outside in what passes for open air.
+
+This is a place still being born, its final form not yet determined. New structures and systems emerge daily, integrating themselves into the whole with the inexorable patience of crystal formation. It's an urban experiment written in materials that defy classification, a city that grows like a garden but thinks like a computer, suspended between earth and sky in its mountain cradle.

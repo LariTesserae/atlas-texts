@@ -1,0 +1,57 @@
+At first it appears to be a high plateau under ordinary daylight: a pale, cold sun; blue-white distances; low clouds combing themselves apart on the horizon. The land is nearly level, not because it was ever a plain, but because age has exhausted its relief. Mountains have been reduced to long shoulders of stone. Valleys have widened until they are scarcely distinguishable from the surfaces between them. What remains stands at an immense elevation, a continent-sized table above a hidden lower world.
+
+The air is thin and damp. Moisture seldom gathers enough strength to become sustained rain. Instead, it manifests in brief local events: a curtain of droplets beneath one cloud, a night of frost, beads of water forming on exposed rock though the sky is clear. Every few days a soft rain crosses some portion of the plateau, narrow as a road and hundreds of leagues long. It may fall steadily for an hour, then cease at an exact boundary. Beyond that line, dust remains untouched.
+
+Water collects in hollows worn almost perfectly smooth. These pools are widely separated, but each supports a dense green enclosure. From afar they look like dark islands set in a gray-brown expanse. Up close, they are luxuriant: layered mosses, stiff silver grasses, black-leaved succulents, translucent ferns, and low shrubs whose stems braid together until the ground disappears. There are no insects among the leaves, no birds lifting from them, no worms beneath the roots. Nothing grazes, pollinates, nests, or calls. The vegetation has grown into complicated arrangements without animal interference, slowly filling every moist pocket until each resembles a sealed garden.
+
+Flowers exist, but they do not open for visitors. Some release dust directly into the wind. Others bend until neighboring blossoms touch. A few produce small mirrored cavities in which an image of the parent plant ripens, then steps outward as a new shoot. Their fruits are mostly stones: smooth, dense seeds that can remain dormant for centuries before splitting along geometric seams.
+
+Between the gardens lies a vastness of old mineral surfaces. The bedrock has been worn past rubble and gravel into enormous, continuous pavements. There are fields of mica dulled by time, expanses of red slate, and white bands of quartz that run farther than sight. Wind moves frost powder across them in thin, wandering sheets. Cracks are rare. Where they occur, they are deep enough to contain their own climates. Warm mist sometimes rises from them at dawn, nourishing vertical forests of moss down their walls.
+
+No young shapes remain in the terrain. There are no sharp peaks, fresh ravines, or unstable cliffs. Even the craters have softened into shallow circles. Yet erosion continues. It has become subtle and relentless: condensation loosens one grain at a time; frost lifts films of stone no thicker than skin; roots polish rather than fracture. The plateau is not being violently destroyed. It is being brought toward a final surface, an ultimate smoothness that may take another hundred million years.
+
+Across this near-flat world stands a city.
+
+It is so extensive that travelers may spend weeks within its outskirts before recognizing that the alignments are intentional. Low walls lie beneath the tundra. Drainage channels cross the stone in parallel grooves. Rows of pillars, worn down to knee height, continue over horizons and through shallow lakes. The inhabited—or once inhabited—center is denser, but never crowded. Vast plazas separate districts. A single house may stand alone in a square large enough to hold a forest. Streets are broad, perfectly graded, and almost empty.
+
+The city was built by hand from the plateau itself. Its oldest structures seem less constructed than persuaded from the bedrock: courts hollowed by hammerstones, stairs rubbed into slopes, chambers cut beneath thin stone roofs. Later buildings are assembled from fitted slabs, timber, packed moss, braided root, and pale ceramic fired in communal trenches. Metal is scarce. Where it appears, it is simple and precious: copper hooks, soft bronze blades, rivets green with age.
+
+Aqueducts cross the city, though they carry no continuous streams. They are designed for condensation. Their inner surfaces are lined with black stone that chills rapidly after sunset. Water beads along ceilings, enters grooves, and drips into underground cisterns. Roofs are covered in upright fins of slate to comb moisture from passing fog. During rain, whole neighborhoods wake into function. Channels fill. Gates of wood and hide lift under the weight of water. Courtyards become shallow reservoirs. For a few hours the city gleams, every surface running, while the inhabitants—if inhabitants still remain—open clay jars and clear moss from the drains.
+
+Then the water vanishes into storage, soil, or stone, and the silence returns.
+
+There are signs of daily life but almost no visible people. Smoke sometimes rises from a distant vent. A door that was closed at dusk may stand open in the morning. Bundles of cut reeds appear beside cisterns. Gardens are pruned into careful spirals. Stone bowls contain fresh water, though no footprints approach them.
+
+The city’s builders may not be absent. Distance is unreliable here, and so is presence.
+
+A figure seen crossing a plaza may remain at the same apparent size for hours. If pursued, it does not draw nearer; instead the plaza lengthens between paving seams. Turn away, and the figure may be standing beside you—not as a body, but as a shallow discoloration in the wall, holding tools carved in relief. At sunrise the carving casts a human-shaped shadow. By noon it is only weathering.
+
+Some houses have interiors larger than their districts. A doorway opens into a cold hall whose far end lies under different weather. Clouds form beneath its ceiling. Rain falls in remote chambers, visible as gray pillars beyond rows of columns. Other buildings have no interior at all: the door opens directly onto the exterior wall at the back, though the structure is thirty paces deep.
+
+Maps are made here, but they cannot represent position. They record sequence instead: *after the red cistern, before the stair that descends at noon, while frost is present*. Travelers navigate by conditions. A road may lead north when dry and east when wet. Some routes exist only during rainfall. Others can be crossed safely only when no one is watching them.
+
+The reality of the plateau is old in the same way as its stone. It has been weathered. Its laws have lost their edges.
+
+Gravity is usually downward, but “downward” adheres more strongly to ancient surfaces than to the planet beneath them. Loose stones sometimes fall toward old walls and remain there. Water follows the most remembered channel, even when that channel runs uphill or has been interrupted by construction. In several districts, rain lands years before the cloud that produced it arrives. Cistern keepers cover those reservoirs carefully; when the delayed storm finally appears, uncovered water may rise back into the sky.
+
+Time accumulates in sheltered places. Under eaves, in sealed jars, and at the bottoms of wells, unused winters can remain for centuries. Breaking an old vessel may release a night of hard frost into a warm room. Conversely, abandoned hearths occasionally yield a few minutes of summer heat. The city stores such anomalies as practical resources. Clay jars are marked not with contents but with dates and temperatures. A black spiral means silence. A white notch means morning.
+
+The vegetation has adapted to these failures. Some plants root in former locations rather than present soil. Their stems lean toward vanished pools and draw moisture from remembered rain. Pale vines disappear into one wall and emerge from another several streets away, carrying buds between disconnected courtyards. Moss grows thickest on surfaces that ought to exist but do not. People use it to find missing stairs.
+
+Despite the greenery, the world feels sparse. Life occurs in concentrated pockets with immense intervals between them. A basin may be crowded with fern towers and braided shrubs, while the next hundred leagues hold only stone, frost, and the faint grid of buried streets. Even in the city, construction emphasizes emptiness. Doorways frame vacant horizons. Colonnades surround bare ground. Stairways rise to platforms intended for a view rather than a destination.
+
+There is little sound. Wind rarely howls because the plateau offers it no sharp obstruction. It passes as a low pressure against the ears. Frost makes small clicking noises at dawn. Condensation drops ring in ceramic channels. Far away, a slab may settle with a single deep note that travels through the bedrock for hours.
+
+Plant movement is nearly silent, though constant. Roots tighten. Seed cases turn toward changes in pressure. Ferns fold before localized rain. Whole mats of moss migrate a finger’s width overnight, following hidden damp. During certain weather, the black-leaved shrubs all reverse their leaves at once, revealing silver undersides. From a height, this change passes across the gardens like light moving over water.
+
+There are no animal sounds because there are no animals. No tracks interrupt the frost except those that may be human, and even these are ambiguous. No bone has ever been found in the soil. The city contains chairs, tools, bridges, storage rooms, and long communal tables, but no stable image of the bodies for whom they were made. Sculptures show robes without wearers. Beds are shallow stone depressions lined with living moss. Cups have handles on the inside.
+
+Perhaps the builders were plants that briefly assumed motion. Perhaps the city is itself the organism, with cisterns for cells and roads for slow circulation. Perhaps “inhabitant” is only a phase that parts of the landscape enter when maintenance is required.
+
+The city is active regardless. Rain gates lift. Reservoirs exchange water through buried channels. Terraces green and fade. Buildings alter their dimensions with temperature. Crews of upright shapes are sometimes visible repairing distant aqueducts, passing stones hand to hand without sound. By the time anyone reaches the site, the repairs are ancient and the workers have become a row of narrow trees.
+
+At evening the light remains unremarkable: long blue shadows, a copper rim on the western clouds, frost beginning in shaded grooves. It is this normality that makes the plateau’s impossibilities more severe. Nothing glows without cause. There are no theatrical colors, no constant auroras, no obvious boundary between the real and the broken. A road simply arrives before it departs. A wall remembers being a mountain. A garden waits beside a pool that will not fill until three centuries from now.
+
+Night brings stars sharp enough to judge distance by, though their patterns vary between adjacent courtyards. The cold deepens. Moisture freezes onto the condensation fins and the sleeping plants close around their own warmth. Across the enormous city, one by one, unseen hands place stone lids over the cisterns.
+
+Then everything waits: the high, flattened continent; the scattered green abundance; the patient streets; the rain traveling somewhere beyond the horizon toward the place where it has already fallen.

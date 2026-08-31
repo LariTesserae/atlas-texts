@@ -1,0 +1,1 @@
+Somewhere between megafaunal Aden and Tabula rasa itself, that utterly average body in Thistledown's nearly normal habitat band, exists a place with granular details rather similar to those you've specified.

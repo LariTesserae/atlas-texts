@@ -1,0 +1,29 @@
+# The Drowning Antechamber
+
+You arrive through a crack in the floor of a quarry, or perhaps through a half-collapsed tunnel mouth whose keystone has long since fallen — the world above doesn't matter much, and you forget it quickly. What matters is the descent. A rope ladder slicked with green algae. Iron rungs bolted into stone that sweats. And then, after a turn that doubles back on itself for reasons that have nothing to do with engineering, the air opens.
+
+You are inside something.
+
+Not a mine. Not a cave. The walls are too smooth in places, too *resolved* in their geometry. There is a long arch — a single one — that runs the length of the chamber, perhaps forty meters at its apex, and its curve is so perfect that you can tell, without measuring, that the stone was not carved into this shape but persuaded. Water has been at work here for a very long time, and the rock has accepted its instructions.
+
+The chamber is the size of a small church. There are pews — or what you take for pews: low walls of stacked river-stone running in parallel rows down the length of the floor, dividing the space into a nave and two side aisles. They are rough, only knee-high, almost certainly the work of someone who once stood here, a long time ago, and arranged stones because they wanted to. There is a kind of altar at the far end: a slab of dark stone on four short pillars, and on the slab there is a device. Or what appears to be a device. It is not made of any material you can name. It is the color of deep water and it does not reflect. It hums. The hum is in your teeth.
+
+The place is bright. That is the first surprise, and the last thing you stop being surprised by. There is no sun here. There are no lamps. The brightness comes from the stone itself — from veins of something white-blue that run through the rock in long, branching threads, like the ghostly root-system of a tree turned to mineral. They glow, faintly, persistently, and they glow *more* where the water is. Where droplets run down the walls the veins beneath pulse softly in time with the drip. Where a pool gathers in a depression, the floor of the pool becomes faintly luminous from below, as if the stone is bleeding light into the water and the water is too polite to refuse.
+
+The water is everywhere. It is the medium of the place. It does not fall in streams; it emerges — it *seeps*, it condenses, it climbs. Every surface is wet. The air is so saturated that to breathe feels like drinking. Condensation runs down your forearms and gathers in the crooks of your elbows. The walls are dark and glistening, and where the light-veins run beneath them they look almost like living skin stretched over ribs. From somewhere above you — there is no visible ceiling in the dim upper reaches, only a darkness that breathes — a slow, heavy rain falls. Not all at once. It arrives in waves: a wave of droplets, then a lull, then another wave, then a longer lull, then a sudden dense burst, then quiet again. You realize, after a few minutes, that the pattern is not random. It is a kind of punctuation. It marks time. Something down here is *counting*.
+
+The sound is enormous. It surrounds you. The chamber is built — or grown, or chosen — to resonate. The falling water strikes the floor and the pools and the altar-slab and the standing stones, and every impact rings a small clear note, and the notes overlap and braid together into a sustained chord that is always changing, never resolving. Beneath that, lower, almost felt rather than heard, is the hum of the device on the slab — a bass note so low it makes the standing water in the shallow pools shiver into lace patterns on the surface. And beneath *that*, deeper, a kind of roar that is not water at all but the stone itself — or something in the stone — a slow tectonic exhalation, as if the chamber is breathing.
+
+You cannot quite see across to the far wall, because between you and it the air is moving. There is a heat — warm, but not unpleasant, like a bath left too long — rising from somewhere, and where it rises the moisture in the air becomes visible, faintly, in long slow columns of shimmer that bend the light. The whole chamber feels like a lung. Air is being drawn down from above, warmed from below, exhaled in slow columns. The turbulence is not violent; it is patient, enormous, the kind of churning that does not pause to notice you.
+
+The sparse vegetation: here and there, in the cracks between the rough pews, in the corners where the floor meets the wall, you see pale things growing. They are not plants, exactly. They are more like corals — branching white structures, soft-looking, translucent, that seem to be made of frozen light. They grow toward the warm air. They pulse faintly when the light-veins pulse. They are the only living things you can see.
+
+There is a sound in the distance — a deeper sound, at the limit of hearing — that might be the chamber next door. There is always a chamber next door. The architecture suggests that this is one cell in a larger body, that somewhere past the altar and through a low archway you can see but cannot quite reach, there are other halls, other devices on other slabs, other slow rains and other resonant chords. You do not go through. Not because anything stops you. Because you understand, the way you understand the temperature of bathwater, that the chamber next door is a different note, and you are still learning this one.
+
+A stone near your foot has writing on it. You crouch. The writing is wet, but it is not washing away — it is being *maintained*, refreshed by the same water that wears down everything else. The characters are small and even and you cannot read them. They do not look like any alphabet you have been taught. They look, instead, like a careful notation of something — pitch, perhaps, or pressure, or duration. A record. A score.
+
+The device on the altar hums.
+
+The rain falls in waves.
+
+The chamber counts.

@@ -1,0 +1,39 @@
+# The Driphouse
+
+---
+
+The ceiling weeps.
+
+Not dramatically — not in sheets or cascades — but in the patient, continuous way that limestone has always given up its hold on water. Every surface above head height is slick, beaded, threaded with rivulets that find their way down the faces of pipes and the flanks of tanks and the cheeks of pillars, and arrive at the floor already ancient, already warm, already belonging. The floor is never dry. Two to four inches of standing water cover every surface — a shallow, permanent flood that reflects nothing because there is almost nothing to reflect. The light comes from filaments. Bare glass bulbs, spaced too far apart, strung on wiring that has lost its insulation in places and grown a white crust of mineral deposits in others. They hum at a frequency you feel in your molars more than hear. They give off a pale amber glow that reaches perhaps eight feet before the air — thick, humid, tasting of copper and wet stone — swallows it entirely. Beyond that radius: darkness with texture. You know it's full of things because of how the darkness holds its shape, bulging here, concave there, suggesting the presence of enormous objects that have simply agreed not to be seen.
+
+This is a small place. You could walk its perimeter in twenty minutes if the floor were clear, but the floor is not clear. The floor is a maze of ankle-deep channels cut into the stone — some deliberate, some worn — and between those channels rise the structures.
+
+---
+
+**The structures** are the reason for the density.
+
+Everything here is pressed against everything else. Boiler tanks the size of coffins are bolted to walls that hold up catwalks that hold up secondary walls on which lean racks of copper tubing that feed into settling basins that are stacked three high and bolted to the floor. There is no corridor wider than shoulder-width. There is no room that does not contain the machinery of at least two other rooms bleeding into it from above, below, or through an open seam. If you turned sideways and pressed your back to one wall, you could touch the opposite wall with your fingertips. You would get wet doing this. You would also find, under your fingers, something you didn't expect — a valve, a gauge, a nameplate in script you can't read, a cluster of something soft that might be moss.
+
+Because there is growth.
+
+It is not the riotous growth of a jungle. It is not even the aggressive reclamation of an abandoned city. It is *opportunistic*. It is the growth of organisms that have found a niche in an industrial ecology and have squeezed themselves into every crevice with the patience of a tide. Water-moss — a deep, almost black green — furs the north faces of every vertical surface. A species of broad-leafed aquatic plant, something like a water lily but without the flower, has colonized the settling basins, its pads sitting fat and pale on the surface of standing water that is itself only a shade lighter than the leaves. Root systems have threaded into the mortar between stones and the gaskets between pipe fittings. In places where a pipe has rusted through, the leak has been colonized so thoroughly that the rust and the root are now one structure — a brittle, living coral of iron oxide and organic fiber that holds the pipe together better than the original metal did.
+
+This is the ecology. This is nearly all of it. There are no fish in the channels — the water is too warm, too mineral-heavy, too stagnant for that. Occasionally something very small moves in the deeper pools — a translucent thing, flat, no larger than a thumbnail, that folds itself in half when the light passes over it. You might see two or three in a week. You might see none. The fauna is not absent so much as *submicroscopic* — the real inhabitants of this place are too small to see, and they are everywhere, and they are the reason the water is warm. They are the reason *everything* is warm. The metabolic heat of billions of organisms processing mineral runoff and light-filament waste and the slow, slow decomposition of material that has been falling from the ceiling for longer than anyone has been here to notice. The temperature never changes. It is warm the way a body is warm — not by any external source, but by its own continuous, low-grade living.
+
+---
+
+**The sounds** are these:
+
+The drip. Always the drip. Not the sharp drip of a faucet but the soft, irregular percussion of water finding its way down long surfaces before committing to a drop. It comes from everywhere. It is the bass note of the place, the rhythm that all other rhythms are measured against, and it is so constant that within ten minutes of arrival it ceases to be sound and becomes *silence* — the specific, textured silence of a space where nothing is happening quickly. Beyond the drip: the hum of the filaments, felt more than heard. A low, almost subsonic vibration from somewhere below the floor — machinery, running at low power, turning over in cycles that take minutes to complete. Once, perhaps twice an hour, a sound like a long, slow exhalation as a pressure valve somewhere deep in the complex releases a breath of steam that has been building for an indeterminate length of time. The steam enters the air and immediately becomes humidity. It does not rise far. It joins the general thickness and is absorbed.
+
+There are no voices. There may have been, once. The walls bear evidence of habitation — hooks for lanterns at a human height, a shelf carved into stone with a lip to prevent things from sliding off into the water, the faint rectangular ghost of a door that has been bricked shut so long ago that the brick and the wall have become the same color. Someone lived here. Someone organized this place, stacked these tanks, laid these channels, hung these lights. But the organization has taken on a geology of its own — it has settled, compacted, become the landscape rather than something placed within it. The erosion is not destructive. It is *transformative*. Rust becomes structure. Calcium deposits become fixtures. Moss becomes insulation. Nothing is falling apart; everything is becoming more itself, more dense, more complete, more certain of its own shape.
+
+---
+
+**What this place is for**, if it was ever for anything, is no longer clear. The machinery runs. It runs slowly, at the pace of the place — a pump cycles once every few minutes, drawing water from one channel into a tank where it sits, and sits, and eventually overflows into another channel, which carries it six feet to the left and deposits it in another tank, where the process begins again. Nothing is being purified. Nothing is being produced. The system is complete in the way that a forest is complete — it is a loop, self-sustaining, requiring no input and generating no output, simply *continuing*. The industrial infrastructure has passed through the phase of human utility and entered the phase of *geography*. It is a place where water moves because the channels are there, and the channels are there because the water moves.
+
+---
+
+**To stand here** is to feel compressed. Not uncomfortably — not claustrophobically — but *intimately*. The walls are close. The ceiling is low. The light is dim and amber and reaches exactly as far as you need it to and no farther. The water is warm around your ankles. The air is warm on your skin. The moss is soft when you touch it, and it yields, and beneath it the stone is smooth, and beneath the stone the machines turn, and above the machines the ceiling weeps, and the weeping runs down the machines and into the channels and across your feet and into the basins where the broad pale leaves float in their own patience, and none of this is going anywhere, and none of this is in a hurry, and the silence holds you the way water holds a stone —
+
+gently, completely, and without any intention of letting go.

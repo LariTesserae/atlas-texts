@@ -1,0 +1,23 @@
+You descend through the breathing holes.
+
+The crust above is thin, recently solidified from some vast birthing—still sharp-edged where it cracked and fell inward. These openings are scattered across thousands of miles of hardened mineral skin, each one exhaling darkness and the faint salt-sweet smell of something that has never known water.
+
+Below, the world opens into cathedral vastness. Not caves exactly—the word implies water's patient work, and water has never touched this place. These are cooling bubbles, gas pockets in a young planet's flesh, connected by a labyrinthine network of tubes and chambers that stretch beyond any hope of mapping. Some spaces are tight enough that the creatures must fold themselves to pass; others could swallow cities whole.
+
+The warmth rises from below in slow currents. Not volcanic heat, but something more peculiar—a metabolic warmth, as if the planet itself digests something in its depths. The air (not air exactly, but a dense mixture of noble gases and organic volatiles) shimmers with it, creating false horizons in the darkness.
+
+Light here is biological, sparse, and deeply wrong. The fauna—if that word applies—generate it in patterns that hurt to perceive directly. They are soft-bodied things, invertebrate, crowded together in writhing colonies that carpet the chamber floors and cluster at the junction points where tunnels meet. Their light comes in stutters and whispers: deep violets that shouldn't be visible, colors that seem to exist only in peripheral vision. Each creature is perhaps the size of a human torso, but they press together so tightly they become a single surface, a living geography.
+
+They build, after a fashion. Simple structures of secreted mineral—low mounds with openings, channels that direct the flow of warm gases, markers whose purpose remains opaque. These constructions follow rules that feel almost linguistic, as if the creatures write enormous sentences across the chamber floors. The tools are their own bodies: specialized limbs that extrude, shape, polish. You find their work everywhere, though never in progress—as if all building happened long ago, or happens only when unobserved.
+
+Sound barely travels here. The gas mixture swallows vibration, leaves only the closest noises audible: the wet whisper of creatures shifting against each other, the occasional crack of cooling mineral above, your own breathing if you brought apparatus for it. The silence is thick, expectant, like the pause between words in a conversation you can't quite hear.
+
+Nothing changes. The creatures shift positions but maintain their total coverage. The warm currents cycle but never vary. The structures neither decay nor multiply. Even the sharp edges of recent geological formation seem frozen mid-break, as if time itself runs differently here—not stopped, but circling, like a record player stuck in a groove.
+
+Sometimes you find gaps in the living carpet, roughly circular spaces where no creatures venture. At the center of each: a small depression in the floor, perfectly smooth, containing a single object. These vary—a sphere of fused glass, a coil of metal that predates any local smelting technology, a crystal that hums at the edge of perception. The creatures maintain these spaces with religious precision, their bodies forming perfect borders around the empty zones.
+
+The deeper you go, the larger the chambers become, until you reach spaces where the ceiling vanishes into darkness that no biological light can pierce. Here the creature-colonies form patterns visible only from great height—spirals, grids, forms that suggest mathematics or star maps or circuit diagrams. They maintain these patterns with absolute fidelity, generation after generation (if they have generations), a living manuscript written in a language of flesh and placement.
+
+The planet continues below, network upon network, each level stranger than the last. You realize this isn't a young world at all—it's an old world with a young surface, something that periodically sheds its skin while keeping its depths unchanged. The creatures, the constructions, the careful empty spaces: they're not primitive. They're the refined endpoint of something, stripped of all excess, reduced to pure function.
+
+Though what that function might be, in this warm darkness where nothing changes and everything watches with dim violet light, remains utterly unclear.

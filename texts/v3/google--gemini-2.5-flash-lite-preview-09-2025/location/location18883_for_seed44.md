@@ -1,0 +1,23 @@
+The air hangs thick, warm, and heavy, saturated not just with humidity, but with the slow, grinding exhalation of the **Substructure Blooms**.
+
+This is a landscape defined entirely by **Vascular Metropolises**. The elevation is relentlessly low, a flat, sodden plane where the distinction between the ground and the architecture has long dissolved. Everything here is *grown*, or perhaps, *cultured into shape*.
+
+The primary material is not brick or steel, but cellulose and lignin, yet it pulses with the rhythm of industry. Giant, fungal-like structures—perhaps the remnants of ancient, massive root systems engineered for specific purposes—form the dense, high-saturation environment. These are the **'Weave-Walls'**: skyscraper-tall columns of tightly braided, living fiber, moist to the touch and perpetually slick with condensation. They form narrow, echoing canyons where the light, reaching down from the ambient, warm-white sky (a normal light filtered through a perpetual, low-lying canopy), appears as thick, vertical shafts.
+
+Water is everywhere (2.3/3). It doesn't flow so much as it *weeps*. The Weave-Walls constantly leach moisture, their surfaces covered in a sheen of microbial slime and slow, bead-like droplets that join rivulets tracing the internal vascular pathways of the structure itself. These rivulets collect in shallow, perpetually muddy troughs that snake between the base structures—these are the pathways, the roads, and sometimes, the foundation of the next layer up. The very ground is a saturated sponge of living material, barely capable of supporting weight without yielding softly.
+
+Vegetation (2.7/3) is not background; it *is* the medium. There are no discernible trees or individual plants as we might understand them; rather, it is a single, colossal, engineered biome acting as both substrate and infrastructure. Thick lianas, the consistency of pressurized hydraulic hoses, snake between the vertical masses, carrying nutrient-rich, brackish fluid. Where these vines intersect, they have been coaxed or forced into rigid, three-dimensional lattices—the 'Grid-Lacing'—which serve as walkways, conduits, and scaffolding for the denser layers above.
+
+The density (1.9/3) is oppressive. Every millimeter of available space seems occupied by overlapping layers of biological construction. One moves through a sequence of living galleries, each passage smelling intensely of ozone, mineral-rich soil, and warm, fermenting sap.
+
+This is an *industrial* ecology (Tech 2.1/3). Embedded within the living architecture are veins of metallic, dark-green plating. These are the maintenance conduits, the heat exchangers, and the power relays of the ancient, slow-running system that keeps this bio-city functioning. Occasional flashes of faint blue or greenish electricity can be seen arcing weakly across junctions where two overly mature, woody fibers have rubbed against a bare conduit point, causing a brief, sharp hum before the biological material swells slightly to insulate the connection again.
+
+The soundscape (1.8/3) is dominated by the relentless churning and pumping of the hidden systems. It’s a low, powerful *thrum* emanating from the depths of the structure, overlaid by the constant, rhythmic *drip-hiss* of condensation and fluid transfer within the walls. It is loud, but slow—the sound of massive, slow-moving machinery built of living matter.
+
+The sense of scale is paradoxically both intimate and vast. While the overall area may be contained (small scale, 0.7/3), within that area, the cathedral-like chambers carved out by the Weave-Walls create spaces of immense verticality, like exploring a single, gargantuan, decaying engine room.
+
+The structure is ancient and deeply established (Erosion 1.9/3). There is no sudden collapse; the entropy here is in the gradual, patient thickening of the mass, the slow redirection of the water flows, and the sealing over of older pathways with fresh, rapidly growing rhizomes. Change occurs on the timescale of centuries.
+
+Fauna is nearly absent (0.6/3). The ecological pressures are too high for independent organisms. The ecosystem is self-contained, a machine digesting itself in slow motion. Occasionally, one might see a glimmer of movement—a specialized, symbiotic grub boring through a structural joint, or a patch of phosphorescent moss indicating a nutrient bleed—but no true, free-roaming creatures.
+
+This is the **Weeping Refinery**, a settlement built into the very bones of its environment, powered by the slow, warm decay of its own magnificent, waterlogged architecture.

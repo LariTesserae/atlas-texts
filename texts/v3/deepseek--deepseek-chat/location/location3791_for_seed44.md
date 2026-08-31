@@ -1,0 +1,11 @@
+**The Moss-Covered Engine Quarter**  
+
+A low, warm city of canals and damp brick, where the air hums with the slow churn of industry and every surface wears a living fur of moss. The water here is never absent—it seeps up between cobblestones, beads on the iron pipes that coil along the walls, and drips from the eaves of buildings in a steady, unhurried rhythm. The canals are thick with algae, their surfaces a shifting mosaic of duckweed and rust-colored blooms, disturbed only by the occasional passage of a barge laden with peat or bundled reeds.  
+
+The buildings are short but dense, their walls built from a porous, water-loving stone that has long since surrendered to the green. Vines and ferns spill from rooftops, rooting in the mortar cracks, turning the city into a kind of vertical marsh. Even the machinery here is half-consumed: steam engines exhale into the damp air, their pistons and flywheels crusted with lichen, their boilers fed by peat cut from the soggy outskirts. The streets are narrow, winding things, more like root-choked gullies than thoroughfares, and the few people who move through them do so slowly, their boots sinking slightly into the soft ground.  
+
+Sound here is a layered thing—the distant groan of a waterwheel, the creak of wooden pulleys, the low hiss of steam escaping a valve. But it is never sharp, never sudden; the moisture in the air swallows echoes, turning every noise into something rounded and diffuse. The few animals that remain are small, quiet things—snails tracing silver paths across the bricks, frogs sheltering in the hollows of pipes, the occasional heron standing motionless in the shallows.  
+
+Time moves thickly here. The city does not so much decay as it *settles*, its structures sinking gently into the wet earth, its machines growing slower and greener with each passing year. It is a place where industry has learned to breathe like a swamp, where the boundary between the built and the grown has long since dissolved. The air smells of wet iron, of peat smoke, of the deep, slow rot of things returning to the water.  
+
+This is not a ruin. It is a place that has found its balance.

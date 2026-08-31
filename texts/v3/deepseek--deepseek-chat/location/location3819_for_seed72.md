@@ -1,0 +1,13 @@
+### **The Weeping Caverns of Vhul**  
+
+Beneath the skin of the world, where the air is thick with the breath of unseen engines, lies the cavern-city of Vhul—a place of slow sweat and industrial murmurs, where the walls weep ceaselessly into shallow pools that never quite drain.  
+
+The cavern is vast but not endless, its ceiling lost in a perpetual haze of condensation, the moisture beading and dripping in languid rhythms. The rock itself is soft, not yet fully hardened, its surfaces slick with a film of mineral-rich water that glistens in the dim, flickering glow of phosphorescent lichen and sputtering electric lamps. The air is hot, heavy, pressing against the skin like a damp hand.  
+
+Vhul is a city carved into the yielding stone, its structures half-excavated, half-grown—buildings of rough-hewn basalt and rusted iron, their foundations sunk into the ever-damp earth. The streets are narrow, winding channels where the water gathers in shallow rivulets, trickling between cobbles worn smooth by slow erosion. The architecture is utilitarian, blocky, industrial, but softened at the edges by the constant moisture, the metal streaked with rust, the stone slick with algae.  
+
+Life here is sparse but overwhelming—great colonies of blind, pale crustaceans scuttle through the runoff, their shells clicking against the stone. Bats, or something like them, flit in the upper gloom, their wings stirring the humid air. The sound is a constant murmur: the drip of water, the groan of distant machinery, the skittering of chitinous legs, the low hum of generators buried deep in the rock.  
+
+There is no sky here, only the weight of the earth above, pressing down. Time moves slowly, measured in the steady fall of droplets, the slow spread of rust, the gradual sinking of foundations into the soft, wet stone. The city breathes, but its breath is the exhalation of steam pipes, the sigh of water finding its way through cracks.  
+
+This is a place of waiting, of slow transformation. The cavern is still forming, still settling. The water has not yet decided if it will drown the city or nourish it. The stone has not yet chosen whether it will hold or collapse. And the people—those who live here, who work the machines, who navigate the damp corridors—move through it all with the patience of those who know that change, when it comes, will come like the water: inevitable, quiet, and utterly indifferent.

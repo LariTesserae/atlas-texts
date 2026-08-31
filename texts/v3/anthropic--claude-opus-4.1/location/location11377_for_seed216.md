@@ -1,0 +1,25 @@
+# The Breathing Scaffolds
+
+You ascend through warm, wet air that clings like breath. The world here is woven—not grown, but *made* from living matter, constructed with primitive tools over impossible spans of time. 
+
+Vast scaffoldings of braided vine-rope stretch between mountain peaks, each strand as thick as ancient trees, hand-wound and knotted by generations of builders who understood that architecture must be alive to persist at this scale. The ropes weep constantly, beading moisture that runs down their twisted surfaces. They were soaked in the beginning, centuries ago, in solutions that convinced them never to dry, never to die, always to remain pliable.
+
+The scaffolds support hanging gardens the size of cities—basket-worlds woven from living wood that was bent and trained while growing, shaped by patient hands with bronze tools and stone weights. These suspended territories drip continuously. Water moves through everything here: condensing from the warm air onto the cooler vine-ropes, channeling through the hollow cores of structural bamboo, weeping from the moss-curtains that serve as walls.
+
+Between these hanging gardens stretches emptiness—vast volumes of humid air where clouds form and dissipate in the dim green light that filters from somewhere above, though the source has been forgotten. The distances between inhabited baskets can be traveled only by creatures that fly or climb. The original builders are gone, but their descendants—or perhaps their tools—remain.
+
+The fauna have become the architecture's keepers. Colonies of moth-soft creatures with too many joints maintain the knots, their saliva serving as preservative. They move in silence across the rope-roads, tending the bonds that hold this aerial world together. Larger beasts with membranous wings drift between the basket-gardens, their bodies porous, filtering moisture from the air. They nest in the woven chambers, their weight carefully distributed according to patterns the builders calculated long ago.
+
+The plants here were never wild. Every species was selected, shaped, bred for purpose—this vine for its reluctance to snap, that moss for its ability to filter water, these trees for their hollow bones that provide both structure and irrigation. The vegetation has grown so completely through and around and into the built structures that the distinction has dissolved. Living wood frames wrapped in living vines support living floors of interwoven root systems. The warmth rises from below, from whatever ground exists beneath the cloud layer, carrying with it the moisture that keeps everything supple.
+
+Time moves strangely in the scaffolds. The ropes remember their making—you can feel it when you touch them, the years of winding, the generations of hands. Sometimes the knots retie themselves in the night, following instructions encoded in their fibers. Sometimes a basket-garden will begin growing a new chamber, the walls weaving themselves according to plans planted in the seed-codes of the structural species.
+
+Sound barely travels here. The moisture-thick air swallows noise. The creatures communicate through chemical signals that drift on the warm updrafts. Even the rain, when it comes, falls in silence—absorbed immediately into the thirsty ropes and moss walls, incorporated into the system.
+
+At the highest points, where the scaffolds reach into colder air, the condensation becomes so intense that streams form, running down the great vine-highways, pooling in basket-lakes suspended in the emptiness. These aerial waters host their own ecosystems—translucent fish that never know solid ground, plants that root in nothing but collected rain.
+
+The builders' primitive tools still hang from the ropes—bronze sickles green with patina, stone hammers wrapped to wooden handles with gut-string, ceramic vessels that collect the eternal dripping. But they're no longer tools—they've become part of the architecture, growing into it, their materials slowly merging with the living structure. A hammer's handle sprouts leaves. A blade's edge channels water to thirsty roots.
+
+This is architecture as organism, construction as cultivation, a built world that builds itself according to ancient instructions, maintained by creatures that might have been designed for this purpose or might have evolved into it. The boundary between the made and the living dissolved so long ago that the question no longer has meaning. Everything here was placed with intention, but intention itself has taken root, has begun to grow, to weep, to breathe in the warm, wet air of the scaffolds.
+
+The vastness defies comprehension—basket-gardens beyond counting, rope-roads extending past the curve of sight, vertical territories stretching from the cloud-hidden ground to the cold ceiling of the world. Each garden develops its own weather, its own cycles of condensation and evaporation. Sometimes you can watch storms form in the empty spaces between territories, see them drift through the scaffolds, feeding the eternal wetness that keeps this constructed ecosystem alive.

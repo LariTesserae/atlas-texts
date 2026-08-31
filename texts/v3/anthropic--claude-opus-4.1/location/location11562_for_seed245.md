@@ -1,0 +1,27 @@
+The Foundry breathes.
+
+Across impossible distances, the half-formed infrastructure spreads like a fever dream of engineering. Steam rises from vast shallow pools of condensation that collect in the hammered bronze basins—each one the size of a small sea, yet only ankle-deep where they exist at all. The liquid isn't quite water. It runs too thick, too warm, and when disturbed it remembers its previous shape for moments too long before settling.
+
+Everything here was made by hands, or by things that once had hands, or by the memory of having hands. The ground is not ground but a latticework of copper pipes and clay tiles and woven iron cables, stretched across the void like the skeleton of a world that hasn't decided what it wants to become. Some sections are still soft, like wet pottery before the kiln—you can press your palm into what looks like solid floor and leave an impression that slowly fills with that not-quite-water seeping up from below.
+
+The heat comes from everywhere and nowhere. Not from above—the dim amber light that suffuses this place has no source, no sun, just a persistent glow that seems to emanate from the moisture in the air itself. The heat rises through the gaps in the constructed floor, carrying the smell of hot metal and mineral salts and something else, something like bread dough or birthing fluid.
+
+In the distance, towering frameworks of bamboo and bronze reach up until they disappear into the humid haze. They're scaffolds for nothing, or for something not yet arrived. Sometimes they collapse—you'll hear the distant crash and splash, muffled by the thick air—and within hours, new ones are already growing. Not growing like plants, but growing like thoughts, like decisions being made by invisible builders who work in dimensions you cannot quite perceive.
+
+The geography refuses to hold still. A peninsula of hammered tin and ceramic pipes that existed this morning has become an archipelago by noon, the warm liquid having risen or the platform having sunk or perhaps both or neither. Distance means nothing here—you can walk for days toward those scaffold towers and never reach them, or turn around and find one has assembled itself behind you while you weren't watching.
+
+There are canals, or perhaps they're veins, running through the constructed landscape. They're lined with fired clay bricks, each one stamped with a symbol that looks different every time you check. The not-water runs through them in directions that shouldn't be possible, uphill and downhill simultaneously, splitting and rejoining like an M.C. Escher fever dream. Sometimes the liquid forms standing waves that hold their shape for hours, perfect sine waves frozen in space while the rest of the flow continues around them.
+
+The quiet here is aggressive. It's not the absence of sound but the presence of silence, thick and tangible. When something does make noise—the settling of a metal plate, the splash of condensation dropping from an impossible height, the groan of bamboo adjusting to new weight—the sound arrives from the wrong direction, or arrives before the event occurs, or arrives as a physical sensation rather than something you hear.
+
+Tools lie scattered across the vast construction, but they're wrong. A hammer with two handles and no head. A saw that cuts only probability. Tongs that can grip concepts but not objects. They're made with careful craftsmanship from materials that shouldn't exist—solid fog, crystallized heat, metals that are sometimes metals and sometimes just the idea of metals.
+
+The world is building itself and unbuilding itself simultaneously. In some areas, you can watch the construction happen in reverse—bricks unstacking themselves, pipes unsoldering, tiles peeling up from the framework to reveal more framework underneath, endless layers of making and unmaking. The causality runs in loops and spirals. An effect creates its cause. A structure builds itself from its own ruins.
+
+When the wind comes—and wind shouldn't exist in a place this vast and enclosed and infinite—it carries the sound of hammering from workshops that haven't been built yet, or were destroyed yesterday, or exist in the parallel version of this place that you can sometimes see reflected in the shallow pools. The reflection shows different scaffolding, different canals, the same dim amber light but coming from below instead of above.
+
+There are no shadows here. Objects exist in their own light, each surface dimly self-luminous with that amber glow. This gives everything a flatness, a sense of being pressed between glass plates, even as the space extends to impossible horizons. You cannot trust your depth perception. A scaffold tower might be an arm's length away or a continent away. The only way to know is to walk, and walking changes what you're walking toward.
+
+The Foundry is always almost finished, always just beginning, always abandoned mid-construction. It builds itself from primitive tools and dream logic, from the memory of water and the anticipation of form. It is a world-sized workshop where reality itself is being assembled by workers who forgot to exist, following blueprints written in condensation on surfaces that evaporate before the plans can be read.
+
+And beneath it all, through the gaps in the constructed floor, you can sometimes glimpse the nothing that everything is being built upon—not darkness, not void, but a kind of aggressive potential, waiting to become.

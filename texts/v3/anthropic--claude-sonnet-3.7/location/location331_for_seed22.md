@@ -1,0 +1,17 @@
+# The Hollow Canopy
+
+In the darkness beneath the Canopy, the city of Echomesh sprawls. Vast, skeletal towers thrust upward through the undulating green ceiling, their transparent structural bones barely visible through the dense foliage that engulfs them. The Canopy itself—a living, engineered marvel—extends for hundreds of kilometers in all directions, suspended a kilometer above what was once barren ground. Now that ground teems with life in perpetual twilight.
+
+The air here is warm and carries a wetness that doesn't quite manifest as rain. Instead, moisture weeps from the Canopy's underside in rhythmic pulses, falling as fat droplets that splatter with percussive intensity against the sound-amplifying surfaces below. These drops gather into ephemeral streams that flow briefly along engineered channels before being reclaimed by collection systems. Nothing is wasted in Echomesh.
+
+Everywhere, the symphony of sound is overwhelming. The Canopy itself hums with operational frequencies—the resonant tones of photosynthesis maximizers and atmospheric processors—while below, the cacophony of countless creatures fills every auditory frequency. Bioacoustic engineers designed this soundscape deliberately: a communication network of living things that simultaneously powers portions of the city through vibration-energy capture membranes stretched between buildings.
+
+The structures themselves appear impossibly delicate—lattices of metamaterials that shouldn't support their own weight, yet do. They're spaced oddly far apart, with vast empty stretches between inhabited zones. The emptiness isn't accidental; it's precision-engineered negative space, created to maintain specific acoustical properties and air circulation patterns that keep the ecosystem balanced.
+
+Most remarkable are the inhabitants. Engineered creatures scurry, fly, and swing through the dim light—some no larger than insects but with the intelligence of small mammals, others massive but weightless due to internal vacuum sacs. They maintain the Canopy, repair infrastructure, and form a living immune system against invasive species. Their calls, clicks, and songs contribute specific frequencies to the city's operational soundscape.
+
+Human movement is rare but distinctive: figures on walkways that materialize and dematerialize as needed, or occasionally suspended in midair on personal gravity fields. Most of Echomesh's human population interfaces with the city remotely, their consciousness distributed through the neural networks embedded in the vegetation itself.
+
+The Canopy is young—grown just decades ago using accelerated botanical engineering—but already its edges push outward several meters each day, claiming more territory. The structures beneath it bear the sharpness of recent construction, their edges not yet worn by time. In places where the expansion is most active, bright flashes of bioluminescence periodically pierce the dimness as new growth modules activate.
+
+When the Canopy breathes—a collective exhalation of trillions of engineered stomata that happens thrice daily—the sound is like an ocean breaking against cliffs, and every creature falls momentarily silent. In that brief quiet, one can hear the subtle clicking of nanomachines in the soil, endlessly reforming the fundamental chemistry of this place, making it ever more alive.

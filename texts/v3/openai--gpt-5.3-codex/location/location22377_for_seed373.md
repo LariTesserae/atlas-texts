@@ -1,0 +1,31 @@
+You reach it by climbing above the cloudline, above even weather as most worlds understand weather, until the mountain stops being mountain and becomes a shelf of exposed mineral hung in thin sky. The place itself is not large—more like a walled amphitheater than a region, a high cirque perhaps a kilometer across, ringed by old black ridges polished by ages of wind. It feels bounded, self-contained, like a room built by geology and then inherited by something far newer.
+
+At first glance it looks dry to the point of sterility. No streams, no snowpack, no mud, no glint of standing liquid. The ground is a tessellation of pale salts, dark metamorphic plates, and porous ceramic-looking crust that crunches like fired clay. Cracks run everywhere, old and stable. Nothing here is fresh-broken. Everything has been abraded into its current shape and left to hold it.
+
+Then your eyes adjust, and “lush” reveals itself in a form that has nothing to do with water.
+
+The vegetation grows as forests of cold fronds and filament towers rooted in mineral seams. Trunks are not wood but braided silica and carbon foam, translucent at the edges, with veins that pulse amber and violet. Leaves are thin metallic membranes that furl and unfurl in gusts, drinking not rain but charge: static from the perpetual wind, ion flow from the sky, trace gases stripped out of the air by catalytic skin. Whole groves shiver like tuning forks. Some mats creep over stone in velvety black sheets and bloom overnight into crystal cilia, then retract by noon. Nothing drips, nothing wilts. Life here exchanges moisture the way a sealed machine does—closed loops, near-total recovery, chemistry kept inside membranes with fanatical efficiency.
+
+The fauna is everywhere and nowhere because the air is mostly empty space and movement is fast. A moment of stillness shows almost nothing; the next moment the basin erupts with motion. Ribbon-bodied gliders snap out of crevices, six-winged things with mirrored undersides tumble in schools, spindle-legged grazers sweep over mineral moss in synchronized lines, and between them swarm fist-sized “bees” that are more like autonomous organs than insects—soft-bodied reactors wrapped in fur-like sensors, harvesting static and distributing nutrients to root colonies. Predators exist as flashes: silent dives, abrupt vortices of feathers or foil-skin, then absence.
+
+And over all of it: sound.
+
+Not a single sound, but a layered assault. The wind alone would be enough—katabatic torrents shearing over the rim, falling into the basin, rebounding in standing waves. But the vegetation is resonant, the animals vocalize in pressure clicks and metallic trills, and the built remnants amplify everything. The result is cathedral-scale acoustics in a place the size of a village bowl: booming infrasonic pulses you feel in your ribs, knife-thin whistles that stitch across the ears, continuous drumming from frond-fields slapping phase with gust fronts. Conversation is impossible unless two mouths are almost touching. Even then, words arrive as guesses.
+
+The built elements appear only after you stop looking for buildings and start looking for decisions in the landscape. A half-ring of pylons, each no taller than a house, black and smooth as cooled glass, set with impossible precision into bedrock. Fragments of walkway hanging unsupported three meters above ground, as if local gravity forgot them. A shelter-bubble collapsed long ago into lace, yet still warming itself from nowhere. One intact structure near the basin center resembles a chapel stripped to framework: twelve vertical spars around an open core, each spar crowded with nanoscale machinery that blooms and retracts like frost depending on wind speed. It does not seem abandoned. It seems patient.
+
+This is beyond modern technology not because it is shiny or alien, but because it cooperates with processes you cannot model. Surfaces edit turbulence instead of resisting it. Certain stones are computational—set in lines that “solve” airflow by changing texture in real time. The root-nets of the plants and the old machines are entangled; nutrients and data travel together. Fauna carry tags that are grown, not attached: photonic filaments under skin that pulse in local protocols. Nothing is fully natural, nothing fully built. The distinction eroded long ago, as thoroughly as the ridges.
+
+The rules of the place become clear only by surviving an hour in it:
+
+1. **Stillness is temporary and local.** Every calm pocket will shear apart within minutes.  
+2. **Moisture is private property.** Organisms and structures guard internal solvents absolutely; theft and leakage are catastrophic events.  
+3. **Sound is infrastructure.** Echo maps territory, coordinates swarms, opens and closes feeding cycles. Silence means system failure—or predation.  
+4. **Height is life.** Most growth rises to maximize charge harvest and gas access; anything that stays low is armored, parasitic, or dying.  
+5. **The basin is one organism spread across many bodies.** Damage in one sector reroutes behavior everywhere.
+
+Because elevation is high and air is thin, light is clean and hard-edged. Mornings are silver-blue, noon almost white, evenings long and copper. Shadows are sharp enough to look physical. At night, the pylons and certain plant crowns emit dim coherent glow—not bioluminescence exactly, more like low-power signaling lasers softened by dust—so the basin becomes a map of nodal constellations.
+
+Despite the violence, the place is not young. Its turbulence is established, habitual, balanced on deep timescales. Channels in the salt-pan show where shockwinds have run for centuries. Root buttresses are layered like tree rings made of glass. Nesting alcoves in cliff walls are polished smooth by generations of the same body plans. Even chaos has memory here.
+
+Standing at the rim, you can take in all of it at once: a small high world, mostly empty air, nearly no water, deafeningly alive. A dry garden engineered by storms, where technology learned to photosynthesize and ecology learned to compute, and both agreed that quiet was unnecessary.

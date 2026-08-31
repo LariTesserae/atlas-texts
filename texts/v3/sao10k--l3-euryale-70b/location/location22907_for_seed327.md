@@ -1,0 +1,11 @@
+Misty wetlands slope upwards into soaring volcanic peaks hidden in cloud. The landscape is blanketed by a dense tangle of ferns, blood-red bonsai trees, and briars that writhe together, constantly saturated in drizzle and sweat. Scattered dripping waterfalls fall from the twisting limbs of trees into rock pools slick with moss and lichen. 
+
+Meandering streams run in channels etched by innumerable adulthood of rain and meltwater, their sources and mouths invisible in the twilight dim. Thick strands of fungus and bulbous mushrooms, glowing in sickly bioluminescent hues, crusted the shattered stumps of fallen trees. Behemoths of vinous vegetation recline in the shadows where the shards of a hundred sundered forest floor trees spread and slough.
+
+The wretched air clings alive with the clamor of a thousand unseen creatures cheeping, croaking, chirping, chittering, growling and gurgling in the catacombs of the twisted biomass underbrush. Thorned grey-green brambles writhe as if possessed, twisting in the half-lids the half-lit air. Gigantic ropes of serpentine vines knit across the silhouette of the horizon, drizzling condensing water, grey mosses dripping.
+
+The ground underfoot sinks queasily, unclear if soil or polder, and dark like a bruise, flecked with jewel-bright gemstones of crushed opal or jade from the spiked, steaming mountains above. Brackish vapors swirl and clear periodically to reveal twisted blasted dead tree trunks, and the vast flanks of the peaks still above, where sooner or later the rocky tissue of the earth again flays into the sky.
+
+Spumes and catapumes of steam jet from hidden crevices, carrying a desperate whiff of buried dragonfire, sorcerers' hell-katastrophe, and possible presences. The vegetation pulses like a viscera as the groaning of things hidden under all endeavour to surface. The air drips and hurls as if the clouds are stuffed tight as a fleam and are about to burst.
+
+This is a place where moss infects rock and earth, where sap splits mountains, a place where the volcano and the wetland are only sleeping and may rise again when the time is ripe, a place where stone becomes flesh and flesh becomes stone and the horns of the swamp chant to the horns of the mountain in a murmer that cannot quite be heard.

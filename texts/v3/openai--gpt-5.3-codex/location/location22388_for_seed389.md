@@ -1,0 +1,25 @@
+From a distance, the place looks like a city that was poured rather than built.
+
+It occupies a high volcanic tableland, so high that the horizon is thin and slightly curved, and the air feels close to the sun even when the light is ordinary and white. The plateau is not old enough to be soft. Its surfaces are sharp, black, iron-red, glassy; whole districts stand on cooling flows that still remember motion in their shape—roped ridges, buckled crust, folds like frozen fabric. There are no soils, no roots, no green interruptions. Every exposed surface is mineral, ceramic, slag, salt, oxidized metal, or a polished synthetic made to survive heat.
+
+Yet it is not dry in a simple way. Moisture appears in episodes and in pockets, as if the city has learned to trap weather when weather passes. Long galleries of condenser fins run between towers, and at dawn they sweat. Gutters click open. Thin runnels spill along channels carved directly into basalt and vanish into cistern throats. In shaded under-bridges, beads of water persist all morning, bright as solder. Some courtyards hold shallow pans where condensed water accumulates, metallic-tasting and warm. By midday most of it is gone, lifted back into the hot air.
+
+The city is dense enough that open space feels engineered. Buildings lean toward one another across narrow aerial streets. Pipe racks and cable trays make a second and third ceiling above ground routes. Catwalks cross at irregular heights. Verticality dominates: elevator shafts, vent stacks, cooling chimneys, crane spines. Even the “empty” districts are full of structure—stanchions waiting for future load, unfinished frames, retaining walls keyed into raw stone. It is urban at the scale of a valley and intimate at arm’s length: a regional machine packed tight.
+
+Industry is everywhere but not frantic. This is a place of patient throughput. Kiln lines glow behind slit windows. Presses cycle on long intervals. Distillation columns stand with almost ceremonial stillness, punctuated by a valve release every few minutes. Conveyor belts move slowly enough to watch individual ingots travel. Nothing rushes; nothing stops. The city seems tuned to thermal inertia and long contracts of work.
+
+Because of that pacing, the soundscape surprises people. It is mostly quiet. Not silent—never silent—but quiet in broad bands. You hear wind skimming edges, the ticking of cooling metal, a deep electrical hum underfoot, occasional chain rattle, a far horn when cargo platforms switch levels. Footsteps ring. Voices carry and then flatten against hot stone. Rain, when it comes, is startling: abrupt drumming on sheet metal, steam lifting from roads in pale curtains, then calm again.
+
+Strangeness accumulates not in spectacle but in rules.
+
+- **Heat rises from below as much as above.** The plateau’s crust is thin, geothermally active; some streets are warm enough to haze the air even at night.
+- **Water is owned by surface geometry.** Where condensation can form, districts thrive; where it cannot, they are abandoned shells.
+- **Shadows are infrastructure.** Since no vegetation provides cover, overhangs and suspended grids are mapped and traded like utilities.
+- **Age is measured in edge-rounding.** Erosion is young here; corners stay sharp for decades. People can read construction eras by how intact a cut face remains.
+- **Growth is additive, not replacing.** New layers are bolted onto old frameworks, producing a thick stratigraphy of industry rather than clean redevelopment.
+
+Ecology is minimal but not absent. There are no plants at all—not moss, not lichen, not even the memory of them in cracks. Life survives in rarer, stranger forms. In wet channels you can find thin mineral biofilms that look like oil sheens but arrange themselves in branching tessellations overnight. Inside warm ducts, pale threadlike colonies feed on trace chemicals and leave chalky lace. Fauna is sparse: a few heat-tolerant gliders with translucent wings nest in turbine housings; blind six-limbed scavengers pick salt crystals from drain grates; once in a while, something larger crosses a rooftop at dusk and is gone before you decide it was real.
+
+At this elevation, weather behaves theatrically but infrequently. Clouds arrive below the highest towers, caught on escarpments like torn wool. Storms are short, decisive. Most days are bright enough to expose every seam in the construction and every crystal in the rock. Nights cool quickly on the surface while pipes remain warm, so the whole city exhales faint vapor from joints and inspection ports, like breath through teeth.
+
+If you stand on the outer rim at evening, you can see how unfinished everything is. The city does not end with walls; it frays into quarries, half-laid rail lines, casting yards, survey poles, and fresh cuts in black stone. Beyond that: more high ground, more raw terraces, more future districts marked in chalk and steel stakes. It feels less like a ruin and more like a beginning that decided to stay a beginning—an industrial highland perpetually in early formation, dense with intention, moving slowly, holding heat, waiting for the next brief rain.

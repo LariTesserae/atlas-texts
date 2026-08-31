@@ -1,0 +1,15 @@
+# The Pocket Garden of Emerging Stone
+
+This place is a pocket — a basin, a crease in the world, a space no larger than a single large room. It sits at an altitude that should be cool, but something about the enclosed geometry, the angle of whatever light falls here, concentrates heat like a lazy fist pressed against the earth. It is hot without being blistering, a sustained warmth that feels like patience.
+
+The geology is raw and unweathered. Rock formations rise like things just born, their surfaces smooth in the way of new things — not smooth from erosion, but smooth from having not yet been touched by enough time to roughen. Crystalline structures catch light at angles that seem wrong, surfaces that look like they should be matte but instead hold a faint oily shine. The erosion is so minimal that you can see the original formation in everything: the way the rock cooled, the forces that cracked it into being, the absence of the million small histories that usually wear stone down into comfortable familiarity.
+
+And yet: vegetation. Lush, almost shockingly so, against this backdrop of embryonic stone and dry heat. The plants are not green. They are something else — deep maroon to pale amber,叶片 thick and waxy, arranged in spirals that feel deliberate. They draw moisture from somewhere, some chemistry that doesn't follow terrestrial rules. Perhaps from the air itself, which here carries a faint metallic taste and a barely-perceptible humidity that should not exist. The plants cluster in the shade of boulder formations, creating pockets of density within the overall sparse arrangement.
+
+There are no animals. There never were, or perhaps they have been here and something removed them, and the place holds the memory of their absence like a room holds the shape of furniture after the furniture is gone. No insects drone. No birds call. The silence is not total — there is a low hum, almost subsonic, that you feel in your teeth more than hear. The hum comes from the rocks, or from somewhere beneath them.
+
+And the technology. It is here, embedded in the stone itself: veins of what might be machinery, channels that carry something warm and fluid through the rock. The tech is industrial in character — you can sense the scaled purpose, the mechanized logic — but it is invisible, subsurface, woven into the geology. No one built it in the way we understand building. It grew, or it was placed, or it has simply always been here, part of the landscape's fundamental composition.
+
+This is a place in the process of becoming. Changes occur here across centuries or millennia — a rock face splitting by millimeters, a plant colony expanding one leaf at a time, the hum shifting pitch by degrees. The weirdness is high: light falls at unexpected angles, shadows fall in directions that don't match the apparent sources, the crystalline surfaces seem to shift slightly when you look away and back. The geometry of the pocket doesn't quite add up; you could swear the entrance was larger than it is, or closer, or further.
+
+You are observed here by nothing. And yet the feeling persists.

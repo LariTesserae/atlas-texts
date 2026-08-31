@@ -1,0 +1,19 @@
+The ground breathes. Not metaphorically - the rust-colored soil actually inhales and exhales in slow, kilometer-wide ripples. Each breath cycle takes days, the surface rising and falling perhaps a meter over the course of a week. The water table rises and falls with it, causing shallow pools to appear and disappear in a complex choreography across the landscape.
+
+The pools are never truly empty - they simply sink below the surface, becoming transparent windows into the saturated earth below. Looking down through these "drowning holes," you can see pale ribbon-like creatures undulating in the subterranean waters, their bodies seeming to extend endlessly deeper, never fully revealing their true size or form.
+
+Scattered across this breathing plain are what appear at first to be termite mounds, but they're actually colonies of something more unsettling - trumpet-shaped growths that emit deep, resonant tones as air passes through them during the ground's respiratory cycle. These biological pipe organs create an ever-shifting drone that can be felt as much as heard, with harmonics that seem to follow mathematical patterns just beyond comprehension.
+
+The sparse vegetation consists mainly of what appear to be ferns, but they grow in impossible mobius strip patterns, their fronds flowing into each other in ways that hurt the eyes to follow. They cast shadows that don't quite match their physical forms, and sometimes the shadows move independently of the plants.
+
+The air is warm and thick with moisture, creating a constant light mist that refracts sunlight in subtle prismatic patterns. Occasionally, the mist coalesces into floating spheres that drift lazily across the landscape before dissolving back into vapor. Within these spheres, time appears to flow at different rates - insects caught inside might freeze in place or blur into streaks of rapid movement.
+
+The fauna is abundant but deeply strange. Herds of creatures that seem to be constantly in the process of becoming other creatures move across the plain. What looks like a deer-like animal might, when viewed from a different angle, appear more like a collection of birds moving in perfect synchronization, or perhaps a school of fish swimming through the air. They make sounds like glass wind chimes being played backwards.
+
+Small flying creatures that might be insects, might be birds, or might be something else entirely swarm in mathematical patterns that periodically collapse into two dimensions before expanding back into three. Their calls sound like someone rapidly shuffling through radio frequencies, catching snippets of songs that were never recorded.
+
+The horizon itself seems uncertain, sometimes appearing closer or further than it should be, sometimes curving upward at impossible angles. Distance becomes an unreliable concept - a feature that appears far away might suddenly be discovered to be within arm's reach, while something that seems close might take hours to walk to.
+
+The overall feeling is of a place where reality is soft and pliable, where the usual rules of nature are more like suggestions. Yet there's a strange stability to it all - this has been the way of things here for a very long time, and while the patterns may be incomprehensible, they are patterns nonetheless, cycling and recycling through their own peculiar logic with geological patience.
+
+At night, the drowning holes glow with a soft light that casts shadows upward into the sky, and the biological pipe organs play different tones that seem to communicate with something beyond the visible stars. The air becomes even thicker with moisture, and sometimes visitors report seeing their own memories floating past like leaves on a stream, becoming part of the landscape's eternal breath.

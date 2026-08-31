@@ -1,0 +1,43 @@
+Low is the first thing you understand about this place. Not low like a valley, low like the world has sagged.
+
+You are standing in a basin so vast and so gently concave that you only realize it is a basin because the horizon is wrong — it lifts, just slightly, in every direction, a shallow bowl ground into the crust over a time that has no name anymore. This is not a landscape that was carved. It was worn. Everything that could be sharp has been taken. The bedrock here is old in a way that makes old mountains look like children; it is gneiss and basalt and iron-banded stone polished down to a near-plain, a peneplain so smooth and so tired it has forgotten how to be a hill. And yet it is not empty. It is not flat. It is *packed*.
+
+The rock does not show.
+
+At first, in the dim, you think the ground is stone. The light here never gets stronger than late dusk - a low, colorless, sourceless luminescence that seems to come from the air itself rather than any sky. There is a sky, of a sort, but it is a low, wet ceiling of cloud that never breaks and never precipitates so much as it *condenses*, beading directly onto everything. The air is cold enough that your lungs ache, a deep, still cold that is not winter but something more absolute, the cold of a world far from its sun or long after it. And still, nothing freezes solid.
+
+Water is everywhere and it should not be liquid. It weeps.
+
+It weeps out of the rock itself, which sweats brine that stays fluid at twenty below. It beads on every surface and runs in sheets a millimeter deep across the entire plain, black and reflective as oil, never more than ankle-deep but never absent. Shallow pans and braided runnels and glassy pools cover the stone so completely that you cannot take a step without breaking a skin of water. The ancient rock underneath is potholed and wrinkled with billions of years of flow, and each wrinkle is a channel, each pothole a dark mirror. When the wind moves — and it always moves — the whole plain shivers with ripples that run for kilometers, unbroken. You hear it before you see it: a vast, low hissing of water on cold stone, like rain that never lands.
+
+And covering the water, covering the stone, covering everything — the fauna.
+
+There are no plants here. Nothing green, nothing leafed, nothing that roots. The world is mineral, wet stone and black water and iron. If there was ever soil, it has been washed away or eaten. In its place is a living carpet so dense you cannot see where one creature ends and the next begins.
+
+They are not animals the way you know animals. They are industry made flesh, or flesh made industry.
+
+The dominant things are low, broad, and segmented, the size of seals or small cars, with backs of pitted black iron and overlapping plates like boiler shielding. They crowd shoulder to shoulder, flank to flank, across the entire open expanse until they vanish into the dim haze a few miles away — tens of thousands, hundreds of thousands, a solid, breathing pavement of bodies. Each one has a circular mouth on its underside pressed to the rock, sucking the mineral brine. Each one has a stack.
+
+From the center of its back rises a short chimney, and from that chimney it vents. Constantly. White steam, black smoke, and sometimes a gout of sparks that dies instantly in the wet air. Their sides bellows-heave. Inside them you can hear pistons firing, not with the rhythm of a heart but with the relentless, out-of-phase chugging of engines. Click-clack-CHUFF. Click-clack-CHUFF. Every individual at a slightly different tempo, so the plain becomes a roaring, clattering, hissing factory floor with no walls, no roof, no builder.
+
+They do not build. Nothing is built here. There are no structures, no hives, no dams, no nests. Even the dead leave no architecture — when one seizes and stills, its plates go dull, its stack goes cold, and within minutes its neighbors lever it over with blunt, shovel-like forelimbs and feed its underside to the water, sucking it clean until only a hollow iron carapace remains, which then slowly sinks and becomes part of the pitted bedrock again. The tech is not *used*. It *is* them. Evolution, or something older than evolution, has made metabolisms that are steam cycles, digestion that is smelting, blood that is pressurized oil and scalding water.
+
+Among them move smaller things, and larger things.
+
+The smaller things are bright, fast, and loud in a different way — crab-like things the size of your hand made all of wire and chitin and exposed gears, sprinting across the backs of the larger grazers, picking at their rivets, cleaning their seams, laying eggs of hot copper in their exhaust. The larger things — far fewer, but impossible to miss — are tall on stilt legs that step carefully from back to back, never touching the water. They are silent except for a deep, subsonic thump with each step and a long, mournful whistle of pressure release that sounds almost like a whale. When they lower their heads, which are nothing but massive, toothed intake manifolds, they inhale a dozen of the smaller crabs or tear the stack clean off a grazer, which screams — not in pain but in the shriek of a ruptured boiler — and is swarmed instantly by a churning knot of bodies.
+
+It is all happening at once, everywhere. An ecosystem at full sprint despite the cold. Grazing, parasitism, predation, scavenging, birth — birth is startling: the big iron-backs shudder and split along their sides and a fresh, red-hot juvenile, steaming violently in the cold brine, scuttles out from within and immediately jostles for space, its own tiny stack already puffing.
+
+This is the sound of the place, and it is overwhelming. The water hiss, the wind over the plain, the endless, unsynchronized chuffing of a million little engines, the clatter of legs on iron on stone, the whistle-screams, the subsonic thumps, the crackle of ice forming and instantly melting again in the hot spots around each creature. It is loud the way a foundry is loud, loud enough you feel it in your molars.
+
+And then you notice the weirdness, which has been there the whole time and which your brain was editing out to keep you sane.
+
+Distance doesn't hold.
+
+You watch one of the stilt-legged predators walk away from you, and after a hundred meters it does not get smaller. It gets *less detailed*, as if the air has fewer pixels there. And then, without turning, it is walking *toward* you again from a slightly different angle, as if the plain has folded and you are seeing the same stretch of ground from two places at once. The reflection in the ankle-deep water is not your reflection. The water shows a sky that isn't there — a sky with two dim suns — while above you there is only the flat, wet, lightless cloud. If you stare at a grazer for too long, its stack smoke does not rise. It hangs, then drifts sideways, then falls *up* into the cloud, which ripples like a disturbed pond.
+
+The plain is low and flat and ancient and wet and cold and utterly full, but it is also not entirely in this geometry. The horizon, which should be kilometers away across this open, valley-sized expanse, sometimes feels like a wall right behind the haze, close enough to touch. At other moments the plain seems to stretch forever, repeating. You hear a piston chuff that seems to come from inside your own chest. The cold bites, but the steam from the creatures is scalding when it washes over you; both temperatures exist without mixing.
+
+The rule here, if there is a rule, is that this is a place where biology learned to be industrial before physics learned to be consistent. Energy is not conserved so much as it is *performed*. Water condenses out of stone because the stone remembers being an ocean. Iron grows like coral because the animals exhale it. The world is primordial not because it is young, but because it has lived so long it has looped around and become primordial again — a final, settled, humming state where life, rock, water, and machine have packed themselves into every available niche until there is no room left for anything else, not even for straight lines.
+
+If you stand still long enough, the grazers will flow around your boots, not acknowledging you, their hot sides brushing your legs. The water will keep weeping. The engines will keep chugging. The cloud will keep glowing dimly without a source. And somewhere out in the packed, hissing dark, a stack will blow and something will scream like torn metal, and the whole plain will keep working.

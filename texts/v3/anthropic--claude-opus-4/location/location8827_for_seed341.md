@@ -1,0 +1,17 @@
+The Churning Hollows
+
+Deep beneath what was once solid ground, a vast network of caverns writhes in perpetual birth. The stone here has not yet learned how to be stone—it flows and hardens and flows again, mineral milk seeping from surfaces that haven't decided their final form. The walls sweat constantly, weeping groundwater that filters down from the saturated earth above, creating a perpetual mist that clings to everything like wet breath.
+
+The sound is overwhelming. Not from any single source, but from the landscape's own becoming—the groan of rock learning its shape, the crack and hiss of new passages opening, the thunderous splash of underground rivers suddenly finding new courses as the geology rearranges itself. Water moves everywhere here, not in predictable streams but in sheets and curtains and sudden deluges, following gravity through channels that exist for minutes or hours before the stone shifts again.
+
+What vegetation exists clings desperately to temporary surfaces—pale rootless things that photosynthesize from the faint bioluminescence of mineral deposits, growing in fast-forward whenever they find purchase, dying in masses when their substrate liquefies. Fungal mats spread across wet stone faces like nervous systems, pulsing faintly with their own dim light, only to be swallowed when the cavern walls fold in on themselves.
+
+The darkness is nearly complete save for these biological glows and the occasional spark of piezoelectric discharge when the stone grinds against itself. In the brief illuminations, you might glimpse the scattered remnants of those who tried to inhabit this place—crude shelters of stacked stones that topple and scatter as the ground beneath them softens, tools of flint and simple beaten copper abandoned mid-task, cairns that mark passages that no longer exist.
+
+The few creatures here move like liquid themselves, boneless things that compress through the shifting cracks, their bodies more suggestion than substance. They feed on the mineral-rich water and the dying vegetation, reproducing quickly in the brief stable moments before the next upheaval. You might hear them—a wet slithering beneath the geological cacophony—but rarely see more than a glistening trail where they've passed.
+
+The air tastes of iron and lime, thick with stone dust and the ozone smell of rocks splitting. Every surface streams with condensation. The temperature hovers just above freezing—cold enough that the mist sometimes crystallizes on surfaces before melting again, adding another layer to the constant sound of water moving, dripping, flowing.
+
+This is a place between places, a vast birthing ground where the earth itself has not yet decided what it will become. The caverns extend for miles in every direction, connected by passages that open and close like breathing throats. Sometimes whole chambers collapse upward, briefly opening to the surface world before sealing again. Sometimes new voids appear with explosive force, accompanied by rushes of scalding or freezing water from unknown depths.
+
+Nothing here is permanent except change itself. The few human artifacts suggest attempts at mapping, at understanding the patterns—scratched symbols on stone faces that no longer align, primitive counting systems trying to track the rhythms of transformation. But the Churning Hollows resist comprehension, remain embryonic, unfinished, raw. A landscape in perpetual labor, never quite delivering itself into being.

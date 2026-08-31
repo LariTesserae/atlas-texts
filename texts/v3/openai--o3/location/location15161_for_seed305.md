@@ -1,0 +1,36 @@
+The world rises into the sky like the sudden lifting of a continent-sized shoulder. From orbit you would see it as a pale, jagged blister on the planet’s curved hide: a single, continuous tableland two thousand kilometres across, still raw from the tectonic heave that lofted it. Down here on its surface everything feels newly unwrapped—edges still knife-sharp, stone still ringing from the break, air still thin and startlingly clear. Light pours through the high, unpolluted atmosphere with almost metallic intensity; every crystal of rime, every flake of frost on the black basalt throws shards of brilliance in every direction, until even shadows seem glazed with brightness.
+
+1. Terrain  
+The mesa’s rim is a serrated crown of basalt fins, each fin as tall as a mountain range back home. Between the fins run slot canyons so narrow and deep that noon sunlight never quite reaches their frozen floors. Great chutes of obsidian scree plunge away from the high ridges, their facets only half-dulled by the short time since they fractured. Standing anywhere you hear the slow drip of ice melt echoing down gullies: water is here in pockets, never in breadth—rills that run for an hour before the air laps them dry, shallow ponds that crust over nightly to become mirrors for the next morning’s sun.
+
+2. Moisture & Temperature  
+The plateau is cold, rarely climbing above freezing, yet it is not a desert. A persistent, low-level updraft drags moist sea air up the thousand-metre escarpments by day; at dusk the air slumps, condenses, and the whole world sweats. Condensation is the reigning weather. It beads on every surface—stone, leaf, shell, fur—then trickles downward in glittering threads. Once every few weeks a broad, bright storm capers across the flats like an inattentive god, dropping brief hails of slush that melt away in an afternoon. There is never the long, soaking rain of lower lands; nothing lasts long enough in liquid form.
+
+3. Vegetation  
+Despite the cold, life is packed so densely the ground is almost never visible. Cushion-mosses in blues and yellows form ankle-deep quilts over the rock, storing the nightly condensate like living sponges. Between the cushions grow crested ferns whose fronds are thick and waxy as industrial belting; they pump glycol through hollow veins to keep from freezing and exhale faint curls of vapor that smell of pepper and iron. Where cracks open wider, dwarf conifers lean outward—black-needled, waist-high, trunks twisted into helixes by the constant mineral winds. Clinging lichens fluoresce lime-green under the high UV, turning entire cliff faces into luminous murals at dusk.
+
+4. Fauna  
+Movement is everywhere. The smallest life here is conspicuous: glass-winged midges drift in such numbers they become weather of their own, their wingbeats sewing a constant silver hiss through the air. Thumb-sized grazers—furred, six-legged, each with a pair of flick-knife incisors to carve moss—scurry in networks so dense the very ground seems fluid.
+
+Over them rise the big mechanisms of flesh that dominate the soundscape. Picture herds of torsion-backed colossi, each ten metres long, their spinal tendons strung like bow-cables. As they walk the cables flex and pluck, producing gong-notes deep enough to vibrate your sternum; an entire herd moving together is a mobile pipe-organ that can be heard for thirty kilometres. Between their stilt-legs move flocks of scavenger sloths—paradoxically quick, armed with drilling claws that split discarded conifer cones with the squeal of rotary saws.
+
+Predators have adapted notions of scale that feel unreasonable. The canyon walls occasionally unfold: what seemed a growth of coppery vines reveals itself as the ribbed wings of a cliff-mantis five storeys high. When it launches, the snap of cavitation in the thin air sounds like distant artillery, and the wind of its passing strips moss down to shiny basalt.
+
+5. Industrial Biology  
+Nothing here is “built” in the ordinary sense—there are no settlements, no ruins, no worked metal—yet the place smells and sounds industrial. The megafauna run internal factories. Steam valves line their flanks, venting rhythmic white jets; chromatophores on their hides flash warning glyphs with the crispness of hazard signage. Even the plants participate: those waxy ferns extrude sheets of lignin so regular they resemble pressed plastic, then shed them in stacks later used by beetles as resonating chambers. It is an ecology that mass-produces itself, a closed-loop industry older than the mesa.
+
+6. Light  
+Because the air is thin and clean, noon is brutally bright, every color over-saturated, every contour knife-edged. Yet nights are hardly dark: auroras coil overhead, fed by the plateau’s own magnetic anomalies, and the lichen panels on the cliffs kick back a diffuse chartreuse glow. During the brief civil twilight after a condensation fog, every droplet in the air refracts, turning the world into a slow-moving kaleidoscope where shadows fracture into rainbows that follow you like tame animals.
+
+7. Sound  
+Silence never quite takes hold. Wind threads the basalt spires, playing them like oversized flutes—each fin a different, slowly drifting note. Add to that the megafaunal bow-cables, the insect hiss, the steam vents, the percussion of ice cracking under footfalls, and the place becomes an endless, overlapping industrial symphony. If you sit still long enough you notice the tempo is glacially slow: themes return not in minutes but in hours. A single droning chord may last the span of an afternoon before the weather tilts and the choir of stone shifts key.
+
+8. Rules & Rhythm  
+Nothing happens fast except terror; almost everything else is patient. Plants grow three or four millimetres a year, yet live centuries. The great herds migrate in circuits so expansive they pass any given point only once every dozen years. Storm systems take seasons to form and minutes to discharge. Even decay is slow; a fallen beast’s shell can lie for decades, accreting lichens, before finally sifting into the moss as brittle shavings of calcium and glass.
+
+The physics almost seem to stretch with the mesa’s scale. Distances trick the eye—what looks a morning’s walk may prove a three-day traverse, perspective warped by the unnatural clarity of air. Sound carries too far in the low density atmosphere, and colors, unfiltered, feel almost digitized, stepping from hue to hue without the usual half-tones.
+
+9. Standing Here  
+Reach out: your glove comes away wet with pure condensation, already freezing into feathery hoarfrost. Breathe: the air is cold enough to burn yet so oxygen-rich your blood hums. Listen: somewhere beyond sight, fifty kilometres off, a herd’s bass chord walks the western flats. Above that, the wind’s high, lonely whistle. Below, the constant, granular crunch of a billion tiny jaws scissoring moss.
+
+And there is no sign of roads, camps, or monuments—nothing a sapient hand ever shaped. The landscape is its own engine, its own workshop, its own cathedral. It does not need us, and if we choose to walk it we do so like dust motes hanging in a beam of impossible sunlight, briefly, brightly, already vanishing back into the silence that is never quiet.

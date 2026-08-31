@@ -1,0 +1,29 @@
+There is a fold in the mountain where the wind cannot reach, and it is into this fold that you must climb.
+
+Begin at the place where breathing changes. This high, the air goes thin and the warmth surprises you — it ought to be cold at such elevation, and it is not. The stone holds heat. It has held heat for a very long time, and it gives it back slowly, the way old animals give back warmth to the rock they sleep against. You are near three kilometers of sky beneath you and yet the air is close, humid, the temperature of blood somewhat cooled.
+
+The fold itself is small. You could walk its length in the time it takes a meal to digest. It is a crease between two enormous weathered shoulders of mountain, and the crease is roofed — not by anything built, never anything built, but by the way the rock has slumped over the eons into an overhang, a brow, leaving below it a chamber open at one end. Cathedral-narrow. Room-deep. The walls are rounded everywhere, every edge softened, every corner gone to curve. Nothing here is sharp. The erosion has had its whole patience to work, and the work is finished, or nearly — these are settled shapes, shapes that have found their resting form and will not change again in any span you could witness.
+
+It is dark inside the fold. Not the total dark of caves, but the dark of deep dusk that never lifts, light arriving sideways and weak through the open mouth, smeared grey across the wet stone. Your eyes will widen and widen and still find little. You will learn the place mostly by other senses.
+
+By sound, first. The fold is loud. It is loud in a way that has nothing to do with weather and everything to do with the living. There is a constant overlapping din — chitter, rasp, the leather creak of wings, a low collective respiration that you feel in your sternum before you name it. The roof is occupied. Thousands upon thousands of small warm bodies hang from the overhang and clot the high crevices, layered, near-touching, packed to a density that makes the ceiling seem to breathe and ripple. Bats, you would say at first, and you would be near enough. They are the warmth-source, partly; their massed bodies are why the stone stays hot. They have lived here long enough to change the place to suit them, and the place has changed them in turn — they are pale, eyeless or near it, oriented entirely by the cries that fill the dark.
+
+And there is more than them. The floor moves. Beneath the hanging multitudes the ground is rich with their fallen leavings, a deep soft midden, and in that midden lives everything that can live on plenty in the dark: blind beetles the size of thumbs, things that ripple and segment, soft pale crawlers, a whole closed economy of small bodies eating and being eaten. The fauna here is not a feature of the landscape. It is the landscape. The rock is a frame; the living are the picture, crowded to overflowing, every surface tenanted.
+
+Through all this runs a little water. Not a river — the wider world outside is dry, the slopes below are bare scree and sun — but here, in the cool roofed dark, moisture gathers. It condenses on the brow of the overhang and falls in slow irregular drips, each drip a clean tick against the soft floor, audible only because the ear learns to find it under the larger din. There are seeps in the back wall where the water comes through as a darkening, a sheen, and pools in worn basins no bigger than cupped hands. The bodies above drink there at the edges of their sleep. The water cycles slowly, patiently — gathered over a season, given back over a season, never rushing.
+
+Vegetation barely registers. What grows, grows at the open mouth where the weak light still has strength: a fringe of stubborn pale moss, a few ferns the color of weak tea, lichen mapping the stone in slow grey continents. Nothing photosynthesizing could survive in the deep dark; the green retreats to the threshold and stops. Inside, the green gives way entirely to fungus — threads and fans and slick caps that need no light, feeding on the same richness as the beetles. They glow faintly, some of them. This is the one true strangeness of the place, the only light worth the name: a low blue-green luminescence on certain caps and certain filaments, a cold light that does not illuminate so much as mark itself, scattered constellations at floor-level and along the wettest seams of the wall. By this light alone you might find your hands.
+
+There is one made thing, almost. Near the threshold, half-sunk in the midden, lies a circle of stones — small, the work of patient hands a long time ago, blackened on their inner faces by old fire. Someone came here once, knowing this fold, and made a single hearth, and gathered, you would guess, the easy harvest the dark offers: the slow beetles, the fungus, the leaving-rich earth. No metal anywhere. A chipped edge of stone, perhaps, dropped and never reclaimed, worn now nearly back to ordinary pebble. The makers did not stay. They took what the fold gave and they left it as they found it, and the fold has been settling over their hearth ever since, drip by drip, season by slow season, claiming the ring back into itself.
+
+The rules of this place are few and old.
+
+Warmth comes from below and from the massed living, never from the sky.
+
+Light is a thing certain bodies make, not a thing that arrives.
+
+Nothing here moves fast except the bats at dusk, when the whole ceiling unstitches itself at once and pours out through the open mouth in a roaring spiral, and the fold falls — for one held breath — quiet, and you can finally hear the water, only the water, ticking down into the dark. Then they return before dawn and the loudness folds back over everything like a tide, and the slow cycle holds, and holds, and holds.
+
+It is warm. It is dark. It is full to bursting and it changes almost not at all.
+
+It has been becoming itself for longer than there have been eyes to find it strange.

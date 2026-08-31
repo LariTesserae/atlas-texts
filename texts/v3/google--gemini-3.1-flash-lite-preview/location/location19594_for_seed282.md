@@ -1,0 +1,15 @@
+You find yourself inside the "Sump-Lungs," an interstitial architecture wedged deep beneath the crust of a world that long ago forgot the sensation of sun.
+
+This is a space of claustrophobic precision. You are standing in a hexagonal junction, a room no larger than a cargo container, where every surface serves a specific, relentless utility. There is no natural stone or soil here; the floor is a lattice of interlocking thermal-conductive plates, and the walls are paneled in matte-black synthetic resin, hummed thin by the vibration of unseen pistons.
+
+The atmosphere is perpetually weeping. Because the temperature is barely above freezing, the moisture—a cycle of brackish, recycled industrial coolant—does not flow in streams. Instead, it manifests as a constant, heavy condensation that beads on every surface. Micro-droplets cling to the wire-mesh conduits and the oily, bolted joints of the machinery, growing into heavy pearls before sliding down into the floor-grates with a rhythmic *tink-tink-drip*. 
+
+This is an ecosystem of manufacture, yet it produces nothing recognizable as a product. The "flora" here consists of delicate, crystalline structures of frost and mineral precipitate that bloom in the corners or along the cooling vents—pale, brittle fans of salt and silicon that grow overnight only to be shattered by the mechanical shivering of the room. They are the only "vegetation," fragile things that possess no chlorophyll, only a crystalline hunger for heat.
+
+The density is high, not because of life, but because of the congestion of mechanisms. Pipes overlap like the veins of a giant; gears the size of dinner plates rotate at a glacial, hypnotic speed behind grated partitions; heavy, insulated power-cables traverse the ceiling like ivy. Every inch is occupied by the infrastructure of an endless, automated labor. The air tastes of ozone and stale, metallic damp. 
+
+The environment is in a state of "embryonic erosion." The machine-processes are so young, or so perpetually recalibrated, that the surfaces are not worn away by time, but rather "being-made." You can see the faint, glowing seams where nanoscopic assemblers are still stitching the floor plates together, repairing the microscopic pits left by the acidic condensation. It is a world under permanent, recursive construction.
+
+Sound is local and intimate. There is no wind, only the *thrum* of a distant turbine vibrating through the floor plates—a low-frequency heartbeat that makes your marrow ache. Occasionally, a pressure valve releases a hiss of steam, which instantly collapses into fog, blinding the room for a heart-stopping moment before the draft pulls it into the intake vents.
+
+There is no fauna, no twitch of organic life, only the cold, mechanical metabolism of the sump. You are a trespasser in a machine that is perpetually breathing in its own sweat, consuming its own exhaust, and building itself into a configuration that will never truly be finished. It is a room that is busy, but entirely indifferent to the fact that you are watching it.

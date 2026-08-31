@@ -1,0 +1,11 @@
+**The Rooted Caverns of Dripping Heat**  
+
+Beneath the surface of a vast, sun-scorched plain, the earth splits open into a sprawling network of caverns—not dark, but glowing with an oppressive, golden light that seeps through cracks in the ceiling, filtered through layers of translucent roots. The air is thick, humid, and heavy with the scent of wet vegetation, a cloying sweetness that clings to the skin.  
+
+The caverns are **alive with plants**—not merely growing, but *being* the architecture itself. Great taproots plunge from the ceiling like pillars, their surfaces slick with condensation, while fibrous mats of mycelium and moss form spongy bridges across chasms. Vines twist into lattices, forming walls, floors, even suspended terraces where bulbous, fleshy flowers exhale warm, damp breath. The water here is not pooled but *present*—beading on leaves, trickling down root-channels, condensing in the still air before dripping onto the next layer of foliage below.  
+
+The heat is **constant, stifling**, radiating from the stone and the respiration of the plants themselves. There is no wind, only the slow pulse of moisture cycling through the air. The caverns stretch far, an **open but dense** labyrinth where every surface is occupied—roots knotting into nests, leaves overlapping like scales, fungal shelves protruding like balconies. Yet despite the density, the space feels **mostly quiet**, save for the occasional *plink* of water, the creak of settling roots, or the distant, infrequent rustle of something small moving through the undergrowth.  
+
+There are **no tools, no artifacts**—only the slow, patient work of biology. The stone is raw, barely eroded, as if the caverns are newly formed, yet the plants have already claimed them entirely. The few creatures that exist here are rare, nearly invisible—pale, slow-moving things that cling to the roots, feeding on nectar or rot.  
+
+The light never dims, the heat never fades, the plants never stop growing. This is a place of **perfect, unchanging saturation**, where life has filled every possible niche, leaving no room for decay or disturbance. It is not a ruin, not a garden—it is a **living machine**, breathing in the damp heat, exhaling stillness.

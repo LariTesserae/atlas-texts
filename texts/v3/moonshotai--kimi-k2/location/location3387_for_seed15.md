@@ -1,0 +1,26 @@
+Everything here is a single inhalation held inside a stone throat.  
+Water: 2.6/3 – not a distant ocean but a bright, lung-filling flood that has replaced the air itself. You do not dive into it; you are already in it, as if the whole world were a breath drawn through brine. The liquid is warm (2.5/3), almost blood temperature, and so clear that brightness (2.9/3) ricochets downward in silver-white spears. There is no surface in sight, only a limitless above that shivers with pressure wrinkles, and whatever “surface” once meant has become a rumor.
+
+Construction: 2.7/3 – every atom is placed. Nothing is mined, only arranged. The walls are hand-laid cyclopean blocks, each the size of a baker’s oven, cut from a coral-esque mineral that hardens under strong light. The masons worked in negative space: they built a hive of corridors, bell-shaped pockets, and spiral shafts first, then allowed the flood to pour in and claim its level. What you see is an upside-down architecture—an inhabited void that happens to be full of water.
+
+Vegetation: 1.2/3 – sparse, but valiant. A cultivar of kelp has been trained along grooves chiseled into the stone. Its blades are translucent bronze, no longer than your forearm, and they sway like slow piano keys. Between tiles you find single rooted pearls: nodes of some engineered lotus whose petals store dissolved oxygen and release it in bright bubbles when touched. That is all—the walls would feel bald without them, but together they make a thin green script across a page of pale stone.
+
+Elevation: 0.5/3 – you stand, or rather neutrally drift, thirty meters below any remembered ground. Yet “below” is tricky; there are stairs that climb upward only to dead-end in blank ceiling, and shafts that descend until they narrow into throat-tight cracks. Gravity is still vertically loyal, but the water buoys you so generously that the feeling is of perpetually falling sideways.
+
+Erosion: 1.1/3 – the complex is geologically infant. Tool marks still carry the half-moon of antler picks; corners stand knife-sharp. In a few places weak calcium veins have begun to fizz away in the warm current, creating baby-smooth thumbprints, but everywhere else the planes remain newborn.
+
+Scale: 0.5/3 – the entire environment is a single interlocked suite no larger than a modest monastery. From any spot you can watch passages radiate out, shrink, and curve back until you glimpse your own shoulder down a side tube. It is a wet marble in the world’s pocket.
+
+Density: 0.6/3 – sparsity rules. You share the water only with motes of stone dust, oxygen pearls, and the slow drift of your own hair. The kelp leaves stand an arm’s length apart; corridors widen into deserted chambers where the only furniture is light.
+
+Tech: 1.2/3 – primitive within total construction. No metal: the tools that cut these blocks were reef-stone wedges, snapped fresh from the seabed and lashed to wooden handles with sinew that has long since dissolved. Joinery is all post-and-lintel; there are no arches, only trilithons repeated like a stutter. Yet the planning is advanced—gutters run perfectly true, catching thermal currents to power a slow circulation, turning the whole structure into a lung that exhales cooler water at dusk.
+
+Fauna: 0.3/3 – none. Fish never found their way in, and anything smaller than a krill was filtered-trapped at the inlet grates. The only animate motions are vegetable and manual (yours).
+
+Sound: 2.1/3 – loud, but in the way a seashell is loud. The stone conducts vibration, so every click of your fingernail against block become a cathedral bell. Your heartbeat is an audible drum, accelerated because the warmth persuades you you’re excited even when you’re still. Bubbles pop from the lotus nodes with a hard “tok!” that echoes down corridors like a woodpecker inside a cave.
+
+Dynamic: 1.7/3 – active in slow motion. The kelp photosynthesizes, releasing sugars that feed a translucent film of aerobic bacteria-free algae; their death warms the water by half a degree every dusk, setting up a thermal siphon that drags cooler water in through floor slits. You can feel the gentle tug shift direction twice a day—an aquatic tide invented solely inside this stone egg.
+
+Weirdness: 0.1/3 – although extraordinary, nothing dissents from physical law. It is simply a place where someone, long ago, carved a private ocean, seeded it with minimal green, and then walked away. Now it drifts beneath later strata of geology, an intact jewel box forgotten by its maker.
+
+If you remain motionless the water forgets you are foreign and sheathes you like original skin. Your breath, recycled through the lotus bubbles, could keep you alive for days, though you would emerge tasting of warm stone and ancient salt. The only risk is the clarity: with no sediment to soften sight, the brightness becomes a blade after hours, etching afterimages of corridor angles onto your retina. Eventually you would see perfect white lattices even with eyes closed—a final imprint of a finished world that never needed anything more than light, stone, and a single shared lungful of warm water.

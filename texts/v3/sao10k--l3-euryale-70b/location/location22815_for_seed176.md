@@ -1,0 +1,9 @@
+Amidst a dense forest of towering evergreen trees, a fast-moving river winds through a narrow, winding canyon of rugged dark rock. The river's blue-gray waters swirl around mossy boulders worn smooth by its steady flow. Frothy spray rises in the air, dampening the moss and ferns clinging to the rocky banks.
+
+The air is cool and humid, fresh from the river. An earthy, vegetative smell of wet soil and growing things permeates the air. Sunlight filters through the dense canopy far overhead in dappled patterns on the forest floor. Most of the area is in shade due to the steep canyon walls rising on either side of the river.
+
+Occasional birdsong rings out from unseen locations in the trees - chirps, trills, whistles in alien patterns. Small, nippy fish dart past in the shallow shallows along the riverbanks. The water is crystal clear, revealing every pebble and smooth stone lining the riverbed.
+
+Scattered amidst the trees on the slopes above the canyon are the decaying remains of fungus-claimed wooden structures in various states of collapse and overgrowth. Rotting planks and beams thrust out from thick stems of brush at unlikely angles. Rusty iron piping and copper wiring sag between the trees, tangled with vines. Some brick ruins still stand against the canyon walls. Their moss-coated crumbling facades and capped chimneys rise like rotted tusks from the tangle of vegetation at their feet.
+
+The overall impression is one of reclaimed ruin - nature colonizing and digesting the remnants of human works in this damp, verdant microcosm, with the heart of the river channeling through it all. The roar of moving water predominates, punctuated by drawn out cracks of unseen tree branches bending in the humid air currents, an occasional birdcall, the hypnotic dopey drone of insects that serves as background to it all.

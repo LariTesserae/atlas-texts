@@ -1,0 +1,17 @@
+The air here is a dry, golden suspension, a parched gaseous ocean that has never known a drop of dew. At this high elevation, the atmosphere is thin but agitated, whipping through the jagged, weathered spires of a mineral plateau that feels like the attic of a world. 
+
+There is no water. The "lushness" here is a dry, biological frenzy. The vegetation is not green or supple; it is composed of lithophytic organo-silicates—leathery, rattling fronds the color of burnt ochre and deep violet. These plants do not drink; they breathe the static electricity of the constant dust storms and harvest the fine, powdered minerals carried on the wind. They grow in explosive, architectural bursts—climbing up the sides of eroded limestone needles, forming dense, hollow thickets that hum when the wind passes through them.
+
+Despite the density of the plant life, the world feels sparse because the plateau is fractured. Great vertical shafts of empty space separate the clusters of life. It is a hamlet-sized ecosystem, a high-altitude balcony where every inch is contested by something living and screaming.
+
+The sound is a wall. Because there is no liquid to dampen the vibrations, the environment is a percussion chamber. The wind shrieks through the porous "wood" of the tree-analogues, which clatter against one another like hollow bones. The fauna—small, six-limbed hexapods with translucent, chitinous plating—are never silent. They communicate through high-frequency rasping, grinding their carapaces together to create a rhythmic, metallic chatter that rises and falls with the turbulence of the air.
+
+The dynamics of the place are hyperactive. The landscape is in a state of constant, "dry" storming. Clouds of fine, abrasive pollen and pulverized rock swirl in violent eddies, reshaping the dunes of mineral dust in minutes. It is a bazaar of kinetic energy; things are constantly breaking, regrowing, or being blown from one spire to another.
+
+In the dim, sepia light of a distant or obscured sun, the marks of "civilization" appear. They are primitive but ingenious. Hand-carved dwellings are notched directly into the leeward side of the great stone needles—small, singular cells built from woven, calcified fibers and bound with a dry, resinous spit. There are no roads, only precarious rope bridges made of braided vine-tendrils that whip dangerously in the gusts. Occasionally, one finds a tool: a heavy, blunt scraper made of obsidian, or a wind-vane carved from a huge, fallen leaf-shell, used to predict the most violent of the updrafts.
+
+These inhabitants—whoever or whatever they are—work in the dimness with a frenetic, ant-hill energy. They do not build for permanence; they build for the storm. Their structures are designed to be sacrificial, shedding layers as the abrasive winds peel them back, revealing new, inner chambers.
+
+The weirdness is found in the chemistry of the light and the "growth." When a plant dies, it doesn't rot; it shatters. The biological matter is so desiccated and mineral-rich that it turns into a fine, glowing glitter. At night, or in the deepest dimness of the storm-shadows, the ground is a carpet of phosphorescent shards—the ground-up diamonds of a thousand years of life, crunching underfoot like dry glass.
+
+It is a warm, dry, screaming place. It feels like standing inside the throat of a giant, musical instrument that hasn't been cleaned in a millennium. Everything is moving, everything is loud, and everything is desperately, vibrantly dry.

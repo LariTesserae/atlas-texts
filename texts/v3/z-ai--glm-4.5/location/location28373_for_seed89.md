@@ -1,0 +1,21 @@
+The air here is thick enough to chew. It hangs warm and heavy, a humid pocket trapped far above the world, yet the heat is not the dry breath of a desert; it is the intimate, suffocating warmth of a greenhouse sealed for centuries.
+
+You are standing in a cathedral of stone, though not a cathedral built by hands. This is a natural amphitheater, a vast, collapsed bubble in the spine of a towering limestone range. The walls rise vertiginously, eroded into smooth, flowing shapes by the patience of ages, grey and slick with moisture. The scale is deceptively intimate—claustrophobic despite the height. The space feels like a room that forgot to open its windows, bounded by curved cliffs that lean inward, as if listening.
+
+Everything is damp. The environmental parameter of water manifests not as a flood, but as a constant, weeping perspiration. The rock sweats. Condensation slicks every surface, gathering into heavy droplets that hang from the overhangs before plummeting with a rhythmic *plink, plink, splash* into the darkness below. The smell is primal: wet dust, mildew, and the metallic tang of minerals leaching from the stone.
+
+Light is a scarce commodity here. The ceiling of the grotto is a jagged mesh of rock, allowing only shafts of murky twilight to pierce the gloom. The sun is a distant rumor; the illumination is weak, etching the world in high-contrast shades of charcoal and deep bruised purple. Your eyes strain to adjust, and what they settle on is the movement.
+
+The silence is absolute, yet it is a loud silence. The sheer volume of life here creates a roar of white noise that the brain quickly filters out, only to have it rush back in when you focus. It is the sound of a million legs scuttling over wet stone, the rustle of chitinous shells brushing against one another, the soft click of mandibles.
+
+This is a place of overwhelming fauna, a biological density that defies logic. The walls are not bare rock; they are a living carpet. Thousands of pale, eyeless crustaceans—resembling woodlice the size of a man’s fist, or perhaps land-bound crabs with soft, translucent shells—cover every vertical surface. They cling to the wet limestone in layers three and four deep, a teeming mosaic of grey and white.
+
+There is almost no vegetation. The sparse greenery is limited to a single, gnarled bonsai-like tree that grows horizontally from a crack near the ceiling, its roots drinking the ceiling’s sweat, its leaves few and leathery. The floor of the grotto is a mess of broken talus, but here, too, life dominates. The ground is a shifting city of the creatures.
+
+They are the architects of this place, utilizing the primitive tech parameter of the world. They possess a rudimentary intelligence, a simple, communal purpose. You watch as a line of the creatures passes small, smooth pebbles from one claw to the next, moving them deeper into the complex. They are building. The floor is covered in low, spiraling cairns, meticulously balanced stacks of stones that serve no obvious defensive purpose, standing like silent altars in the dim light.
+
+The dynamics of the place are agonizingly slow. The cairns do not appear overnight; they grow by a centimeter a decade. The erosion of the walls is countered by the creatures who scrape the algae and slime, polishing the rock to a glass sheen. It is a world in perfect, sluggish equilibrium. The dripping water wears down the stone, and the creatures build the stone up.
+
+The weirdness lies in the sound. Occasionally, the collective noise of the scuttling shifts. It harmonizes. The thousands of clicking legs fall into a syncopated rhythm, a low-frequency thrum that vibrates in your chest. It is not language, but it is communication—a primitive, sonic architecture that binds the colony together. When the thrumming hits its peak, the condensation on the walls seems to vibrate, shedding its load in a sudden, artificial rain that the colony rises up to drink.
+
+You stand in the warm, wet dark, surrounded by the clicking of a million workers, watching a stone cairn grow by the width of a hair. It is a small, dense, crowded universe, high above the clouds, endlessly building itself in the dark.

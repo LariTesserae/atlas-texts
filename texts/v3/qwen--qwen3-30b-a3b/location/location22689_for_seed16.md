@@ -1,0 +1,34 @@
+**The Landscape of Ember Hollow**  
+
+**Terrain:**  
+A low-lying basin, its edges eroded into jagged, weathered cliffs that rise like ancient teeth from the earth. The ground is a patchwork of cracked, obsidian-like basalt and mineral-rich salt-crusted flats, fractured by deep fissures that glow faintly with heat. The basin is encircled by a ring of dormant, conical volcanoes—rounded and smooth from millennia of wind abrasion—their peaks shrouded in a perpetual haze of dust and heat. The lack of water has left the terrain stark, but the salt formations shimmer with prismatic hues, refracting the dim light into fractured rainbows that dance across the ground.  
+
+**Materials:**  
+The structures of the urban settlement are built from a combination of blackened stone, weathered copper, and fibrous, glassy vegetation. The plants, which defy the arid environment, are tall and spindly, their stems translucent and filled with a viscous, amber-like fluid that pulses faintly, as though alive. Their leaves are thin and crystalline, shattering into brittle shards when touched. The city itself is a cluster of low, dome-shaped buildings made of compressed ash and clay, their surfaces etched with intricate patterns that resemble both runes and circuitry. Some buildings are half-buried in the salt flats, their entrances sealed with heavy, rusted gates.  
+
+**Atmosphere:**  
+The air is oppressively hot, thick with the scent of scorched minerals and the faint, metallic tang of the copper structures. A dim, diffuse light filters through the haze, casting everything in a sickly amber glow. The heat creates mirages that ripple across the basin, distorting the horizon and making the distant volcanoes appear to waver like hallucinations. Despite the lack of water, there’s a strange humidity—perhaps from the plants’ secretions or the mineral composition of the soil, which seems to hold moisture in ways that defy logic.  
+
+**Sounds:**  
+Loud, cacophonous. The wind howls through the fissures and hollow buildings, producing a low, resonant hum that shifts pitch as it snakes between structures. The city’s copper elements clang faintly in the heat, their vibrations amplified by the lack of natural damping. Occasionally, the plants emit a soft, grinding noise as their crystalline leaves rub against each other, creating a dissonant, almost musical screech. Beneath it all, there’s a rhythmic *thrum*—a vibration from deep within the earth, like the pulse of a dormant giant, though no one here seems to notice it.  
+
+**Ecology:**  
+The vegetation is the only life here, thriving in a paradox. These plants, known as *emberroots*, have evolved to harvest latent heat from the ground, their roots burrowing into the fissures to tap into geothermal energy. Their amber fluid is not water but a viscous, nutrient-rich substance that evaporates slowly, leaving behind iridescent salt deposits. The ecosystem is static yet active: the plants grow in slow, erratic bursts, their stalks bending and twisting as if responding to unseen stimuli. No fauna, but the roots sometimes twitch, as though sensing movement. Microbial colonies cling to the salt flats, their bioluminescence flickering in patterns that resemble code or language, though no one has deciphered them.  
+
+**Rules of the World:**  
+The basin is a closed system, its boundaries defined by the volcanic cliffs that prevent any escape. The *emberroots* are both a resource and a mystery; their fluid is used by the inhabitants to fuel primitive machinery, but it’s also said to be addictive, causing hallucinations when inhaled. The city’s architecture is designed to channel the heat, with narrow, spiral towers that funnel air into subterranean chambers, where it’s cooled by the plants’ transpiration. Time here flows differently—days are measured not by the sun but by the shifting of the salt patterns, which rearrange themselves overnight, forming new geometries that the residents interpret as omens.  
+
+**Hidden Scale:**  
+The settlement exists in a pocket of the world, its boundaries unclear to outsiders. It’s not a city in the traditional sense but a collection of interwoven structures and plant formations, as though the environment itself has folded into a habitable shape. The scale is intimate: pathways are winding and narrow, designed to avoid the worst of the heat, with buildings clustered around the most shaded spots. Yet the basin feels vast, its emptiness magnified by the lack of trees or other features. The only "landmarks" are the fissures, which glow faintly and are avoided by all, as they’re believed to be the mouths of the earth’s ancient heart.  
+
+**Density and Presence:**  
+The space is nearly empty. Few people dwell here, and those who do are spread out, living in isolated chambers or beneath the shade of the *emberroots*. The city’s infrastructure is sparse but efficient—canals of dense, gel-like fluid (not water) run between structures, carrying the amber substance that powers their tools. The air is thick with the scent of the plants, but there’s a silence that hangs between the sounds, as though the landscape is holding its breath.  
+
+**Weirdness:**  
+The *emberroots* are alive in ways that defy natural order. They don’t just grow; they *transform*, their stems occasionally sprouting metallic tendrils that pulse with the same rhythm as the earth’s thrum. The salt flats are not inert—they shift subtly, forming intricate, fractal patterns that resemble neural networks. The city’s buildings are said to "remember" the past, their surfaces subtly rearranging to reflect the history of their inhabitants. Some claim the fissures are not natural but artificial, carved by a long-lost civilization that left only whispers in the wind.  
+
+**Dynamic Processes:**  
+The basin is a living engine. The *emberroots* release their fluid in cycles, creating tiny, ephemeral "rivers" that flow through the salt flats before evaporating. The heat causes the ground to expand and contract, slowly cracking the basalt into new shapes. The city’s inhabitants move in predictable patterns, their lives dictated by the rhythms of the plants and the earth’s pulses. Though no animals exist, the landscape itself seems to *breathe*, with the salt deposits shifting and the fissures occasionally exhaling plumes of steam that vanish into the haze.  
+
+**A Final Note:**  
+This place is a relic of a forgotten balance—hot, dry, and alive with the hum of something older than memory. The urban structures are both shelter and surrender, built to coexist with the strange, thriving plants that dominate the emptiness. The loudness of the sounds contrasts with the emptiness, as if the landscape is trying to scream, but no one is listening.

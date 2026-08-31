@@ -1,0 +1,43 @@
+It’s a high place, but not a wide one.
+
+A bowl in the mountains—cathedral-sized, not valley-sized—cupped between ridges of newly broken stone. The walls are sharp with youth: clean fractures, knife-edged ribs of dark rock, talus that looks freshly poured. Erosion hasn’t had time to round anything. The basin feels as if it was unsealed recently, like a lid lifted off a cavity that had been pressurizing for ages.
+
+Water is everywhere without ever quite becoming a lake. It lives close to the skin of the world. It beads on stone and reeds; it makes a film on everything exposed; it gathers in shallow black pans and then, unhurried, disappears into seams that look too narrow to accept it. The ground is a marsh-edge quilt: springy mats, slick slate, pockets of peat, and bright, wet soil that stains your boots the color of iron. After any rain—which seems to have happened recently and often—the place holds onto the memory of it. Even the rocks weep, not in rivulets but in patient, continuous condensation, droplets forming and falling as if the stone is breathing out cold.
+
+The air is cool and heavy with mist. Light arrives already tired, filtered through a ceiling of cloud that sits low enough to feel like architecture. Nothing here is sunlit; everything is merely revealed. In the dim, greens don’t blaze—they deepen. The lushness is real but not crowded. Growth happens in thick, decisive patches separated by bare stretches of water-sheened rock and open, dark mudflats. A stand of tall sedge forms a room; a sweep of moss makes a carpet; then there’s sudden space again, a blankness of stone that looks industrial in its cleanliness, like a work surface wiped down between tasks.
+
+And then you notice why the emptiness feels that way.
+
+The basin behaves like a factory without buildings.
+
+It isn’t that there are machines sitting around—there are no constructed shapes, no bolts, no stamped plates, nothing you can point to and call made. It’s that the *processes* are mechanized. The rock’s fractures run in repeating patterns like gear teeth. Water doesn’t simply trickle; it pulses in measured surges through hairline channels, as if driven by pistons deep underground. In several places the ground emits a steady exhale of cold vapor that hisses with the regularity of a valve. The fog doesn’t drift at whim. It circulates in loops, tracing invisible belts: up the east wall, across the basin’s center, down along the western talus, and back again—always the same route, always the same speed, as if the air is being conveyed.
+
+The loudness isn’t episodic; it’s continuous, a constant working roar that never resolves into silence. It comes from everywhere and nowhere: a layered sound like turbines heard through stone, like a hundred waterfalls hidden inside the mountain, like a distant plant running at full capacity. Sometimes the noise sharpens into distinct *clacks*—not impacts, but a precise, repeating articulation, as though something huge is indexing into place. You can’t locate it because the basin refuses to carry sound normally. Echoes arrive too soon, or too late, or at a pitch that doesn’t match the source. The acoustics feel less like a property of air and more like a rule being enforced.
+
+That rule becomes apparent as you move: gradients don’t exist here. The marsh does not deepen toward a center. The fog does not thin near the edges. Temperature does not change between shade and open ground. Even moisture is strangely uniform—everything is wet, and nothing is *wetter*, as if the entire bowl has been tuned to one stable setting and locked there. It’s equilibrium with teeth.
+
+Reality breaks, but it breaks *tidily*.
+
+If you walk toward the northern wall, the ridgeline seems to advance at the same rate you do, keeping its distance as though attached by a rigid arm. Turn around and the basin looks slightly different—not rearranged, not dreamlike, but re-indexed: the same elements, swapped in order. A patch of luminous moss that was on your left is now on your right, still glowing with the same dull, underwater light. Your footprints don’t fill with water; they don’t dry; they remain as crisp impressions forever, as if the mud has decided “footprint” is a finished state.
+
+Waterfalls—there should be waterfalls, given the height and the wet—appear only as sound. Occasionally you’ll see a curtain of droplets in the air, hanging a meter above the rock, falling into nothing, never reaching the surface. The drops vanish mid-fall, replaced by new ones at the top, a continuous manufacturing of the *idea* of falling water. It’s mesmerizing and deeply wrong, and it never changes.
+
+The vegetation accepts this. It’s adapted to the basin’s steady settings and to the fact that physics has quirks here. Leaves are thick and dark, with a waxy sheen that holds mist like lacquer. Ferns grow in radial patterns, each frond perfectly spaced as if planted with a template. Lichens paint the stone in industrial colors: sulfur yellow, oxidized orange, a gray-green like old metal. Along the marsh edges, white-capped fungi push up in tidy arrays, each cap beaded with cold droplets. Some of the moss glows faintly, not enough to light the place, but enough to give depth to the dim—like embers under wet ash.
+
+Fauna is abundant, but not bustling in the way a crowded forest is. The basin is spacious; animals occupy it like pieces set deliberately on a board.
+
+There are many birds, their calls cutting through the machinery-roar in bright, insistent notes. They don’t wheel randomly; they follow the fog’s conveyor loops, letting the circulating air carry them, wings barely moving. Amphibians are everywhere in the marsh mats, their skins glossy as polished stone. In the shallow pans, insect life boils—dense clouds that lift and settle in synchronized waves, as if responding to a metronome you can’t hear beneath the larger din. Larger shapes move, too: pale, sure-footed creatures that resemble mountain goats until they turn and you realize their bodies are slightly out of phase with the world, edges shimmering, limbs arriving a fraction of a second after the torso. They browse on sedge and fungus, and their chewing is audible over the roar—slow, steady, mechanical, like a press operating at low speed.
+
+Predators exist, but they hunt with the basin’s odd rules in mind. A shadow will detach from a boulder and cross open ground without the animal itself seeming to move. A sleek, dark form will appear in the same place twice, as though its path loops. The prey does not panic the way it should; it steps aside at the right moment, as if both hunter and hunted are participating in a system that needs them to perform their parts.
+
+Nothing here looks wounded by time. Nothing is decaying into something else. Death happens—there are bones, there are feathers, there are places where the marsh has swallowed a body—but decomposition is arrested at a clean stage, like inventory stored mid-process. A fallen branch remains a fallen branch, not a future soil. Even the scent of rot is absent, replaced by wet stone, cold plant sap, and a faint metallic tang like rain on iron.
+
+If you stay long enough, you begin to sense the basin as an engine whose purpose isn’t production but *maintenance*. It runs loudly to keep itself the same. The fog circulates to keep light dim. The water pulses to keep everything wet but never flooded. The temperature holds cool to keep growth lush but slow, controlled. The animals move through the space to keep it inhabited without making it crowded. The fractures in the rock remain sharp, refusing the softening touch of weathering.
+
+And because there are no buildings, no tools, no human marks, the industrial feeling becomes more unsettling—not a sign of civilization, but a revelation about the world: that industry is not only something made. Here, it’s something the mountain has decided to be.
+
+At the basin’s boundary—where the ridges rise and the fog thickens into a nearly solid wall—you can feel the rule that contains it. Step toward the exit and the sound changes pitch, the roar tightening into a single note that vibrates in your teeth, as if the place is warning you that beyond the rim the settings will no longer hold. Step back, and the note relaxes, the many-layered clamor returning, the wet dim stability reasserting itself.
+
+Inside the bowl, nothing fundamentally shifts. The same droplets form on the same stones. The same mist runs its loop. The same loud, tireless work continues.
+
+A small high marsh-factory of the real, running forever at one perfect, impossible setting.

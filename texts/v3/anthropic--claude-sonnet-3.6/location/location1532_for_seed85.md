@@ -1,0 +1,15 @@
+A plateau city of raw obsidian rises in impossible geometries against a perpetual dusk. The black glass towers weren't built so much as they were pushed up from below - extruded by vast geological forces that continue their work even now. The ground shudders constantly with deep, barely-audible frequencies that make the teeth ache.
+
+The obsidian structures grow like crystals in geological time made visible - sprouting new facets, extending edges, occasionally shattering with reports like gunshots to reveal glowing orange cores that quickly cool to glass. Between these living mountains, the Lithophages make their homes.
+
+They're everywhere - countless species of creatures that consume, reshape, and excrete the volcanic glass. Some are like enormous termites with diamond-hard mandibles, slowly carving tunnel-warrens through the towers. Others resemble translucent slugs that digest paths through solid stone, leaving behind perfectly smooth tubes that the human settlers now use as streets and passages. The largest are rarely seen but their work is unmistakable - entire sections of the city will mysteriously soften and flow like tar, then re-solidify in new arrangements.
+
+The human settlement exists in a delicate balance with these stone-eating fauna. Their primitive tools - mostly wooden poles and fiber ropes - seem absurd against the massive glass landscape, but they've learned to predict and utilize the constant geological shifts. Homes are built in the stable zones between growing crystal-towers. Bridges are woven from tough local fibers, designed to flex and bounce with the endless tremors. 
+
+What little vegetation exists has evolved to anchor itself in tiny imperfections in the glass - ropy vines with leaves like black metal, flowers that seem to be made of living smoke. The plants don't photosynthesize in any conventional way; they feed on the same geological energies that drive the city's growth.
+
+The air is hot and perfectly dry, scattered with motes of obsidian dust that catch what little light filters through the haze. Sound behaves strangely here - sometimes carrying for impossible distances through the glass structures, sometimes dying away to nothing a few feet from its source. The overall effect is one of hushed intensity, like a library where the books are alive and slowly rearranging themselves.
+
+At irregular intervals, new towers burst from the plateau's surface with a sound like tearing silk. The human inhabitants have learned to feel these events coming and simply shift their paths accordingly, weaving through their ever-changing city like ants through a garden. They mark safe zones and danger areas with complex patterns of knotted cords, a three-dimensional language that describes the city's slow dance of growth and decay.
+
+The plateau itself floats unsupported, held aloft by the same mysterious forces that drive its constant transformation. Far below, visible through occasional gaps in the ever-present haze, other such plateaus can be glimpsed - some larger, some smaller, all in various stages of their own crystalline metamorphosis.

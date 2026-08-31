@@ -1,0 +1,13 @@
+The sun beats down from overhead, its intense rays refracting through a dense, humid atmosphere. The air is thick and heavy, moisture condensing on every surface in a perpetual haze of sticky droplets. This is a landscape shaped by water, where ancient rains and deluges have carved deep trenches and valleys into the rock over unimaginable spans of time.
+
+Craggy ridges and mesas rise up on all sides, their sun-baked flanks a riot of colors - deep crimsons, burnt oranges, and earthy ochres. The eroded formations look like the remnants of a prehistoric world, the last vestiges of a time before life itself. Their layered strata expose billions of years of geological history written into the rock.
+
+Despite the dry, barren appearance of the tortured stone, pockets of lush vegetation cling tenaciously wherever thin soils have accumulated. Hearty ferns and mosses spread across shaded alcoves, while withered, twisted trees sprout from seemingly impossible crevices. Their gnarled branches strain upwards, leaves shimmering with condensation under the pounding sunlight.  
+
+The landscape extends in a series of box canyons and winding ravines, opening up into broad vistas where the horizon stretches to infinity. Yet for all this open space, there is an oppressive sense of fullness. Each nook and cranny, each damp cavern and tumbled scree field seems to teem with a seething, overwhelming abundance of life.
+
+Skittering shapes flicker at the corner of vision - strange arthropods and squirming horrors that skitter across the sun-blasted rocks and lurk in every shadowed embrace. Above, leathery wings blot out the sky as alien creatures spiral on thermal updrafts, their piercing cries echoing in a deafening cacophony.  
+
+Scattered throughout are the remnants of primitive habitations - stone dugouts and rough-hewn structures barely protruding above the loamy soil and decaying vegetation. Skulls and weathered bones litter the ground, picked clean by innumerable scavengers over the eons. Though whatever crude tools or artifacts once belonged to these primitive denizens have long since rusted, corroded or been reclaimed by this voracious ecology.
+
+This is a world in constant, dynamic flux. A ceaseless cycle of growth, death and renewal driven by the region's punishing heat and humidity. The very air shimmers with the unseen dance of spores, seeds and microscopic life carried on the warm, condensation-laden breezes. An ancient land of permanent summer at the ragged edge of virulent, overwhelming verdancy.

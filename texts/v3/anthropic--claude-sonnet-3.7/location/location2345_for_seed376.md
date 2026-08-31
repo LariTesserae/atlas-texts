@@ -1,0 +1,19 @@
+# The Silent Exchange
+
+In the heart of what was once called Mosswell Vale lies a forgotten settlement, small enough to hold in a single gaze yet intricate enough to study for years. Beneath a perpetually overcast sky, this abandoned hamlet exists in a peculiar state of both decay and renewal.
+
+The buildings—mostly two-stories of stone and timber—huddle close together along narrow, cobbled streets that glisten with a constant sheen of moisture. The architecture suggests human hands crafted them, but no humans remain. Moss cascades down slate rooftops in thick curtains, while delicate ferns unfurl from every cracked window frame. Each structure seems caught in a silent negotiation with the encroaching vegetation—the buildings provide structure, the plants provide restoration.
+
+A cool mist hovers perpetually at knee-height, pooling in doorways and lingering in the small central square where a stone fountain still operates, though no one maintains it. The water cycles endlessly, pushed by some hidden mechanism that has outlasted its creators. The fountain's soft gurgling is one of the only sounds in this peculiarly hushed place—a whisper barely audible against the background silence.
+
+The structures form a tight cluster in a small depression ringed by young hills—geological formations that seem to have risen recently, their slopes still sharp and defined rather than rounded by centuries of wind and rain. Small channels between these hills funnel morning dew and occasional rain into the settlement, keeping everything in a state of permanent dampness without true flooding.
+
+What makes this place truly strange is its emptiness coupled with its apparent activity. No human footsteps echo on the stones, no animals dart between buildings, yet the place is far from static. Plants grow visibly, extending tendrils and unfurling leaves in real time. The wooden doors of buildings open and close with the changing air pressure. Windows cloud with condensation, then clear again as if breathed upon by invisible occupants.
+
+Most peculiar are the small mechanical contrivances scattered throughout—not technology as we understand it, but intricate arrangements of pulleys, counterweights, and water wheels that seem designed to harness the moisture in the air and the occasional rainfall. These contraptions move continuously, turning small gears that connect to others, creating a network of motion throughout the settlement. They appear to serve no practical purpose beyond their own perpetuation, yet they move with deliberate precision.
+
+The light here is ordinary in its quality but strange in its behavior. It shifts and changes as if passing through stained glass, casting colored patterns across walls despite the absence of any colored glass in the windows. The light seems to respond to the motion of the plants, brightening slightly when a new leaf unfurls or a flower opens.
+
+In the center of the settlement stands what must have been a small civic building—a town hall perhaps—now transformed into a cathedral of vegetation. Its roof has partially collapsed, allowing a column of diffuse light to illuminate a floor now carpeted in luminous blue moss that pulses faintly, like breathing.
+
+This place exists in a perpetual state of becoming—neither fully built nor fully natural, neither completely alive nor completely abandoned. It is a pocket ecosystem engaged in a slow, silent dance of reclamation and preservation, where human construction provides the framework for botanical innovation. The buildings don't simply surrender to decay; they transform, incorporating the green life into their very structure until it becomes impossible to determine where architecture ends and nature begins.

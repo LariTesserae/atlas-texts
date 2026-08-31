@@ -1,0 +1,17 @@
+The place reveals itself through sound first - a constant percussive music of drips and tiny impacts, thousands of ceramic wind chimes trading gentle collisions, the scrabbling of small feet on glazed surfaces. This is the Garden of Vessels, though "garden" speaks more to its density and liveliness than any true flora.
+
+Every surface is pottery - walls, floor, ceiling, all fashioned from clay by generations of hands. The chambers wind below ground level, connected by arched passages barely tall enough to walk through upright. Each room has its own character, its own peculiar acoustic signature created by the specific arrangement of vessels within.
+
+The pottery itself ranges from crude to intricate, from thumb-sized cups to massive urns taller than a person. They're fitted together like impossible architectural puzzles, mortared with more clay, creating walls that are really collections of containers. Many are deliberately imperfect - cracked or pierced with small holes that turn them into instruments when wind moves through the complex or water drips from higher chambers.
+
+That water is ever-present but never overwhelming. It seeps through hairline cracks, collects in strategic basins, runs down carefully engineered channels from vessel to vessel. The whole place operates as an elaborate catchment system, gathering condensation and occasional surface rainfall, filtering it through layers of fired clay.
+
+The warm air hangs thick with moisture and the musty-sweet smell of the place's inhabitants - colonies of small creatures that have adapted perfectly to this artificial ecosystem. Finger-length lizards with translucent scales dart between pots, lapping at water droplets. Furry moths with pottery-colored wings cling to walls, their larvae feeding on the algae that grows in the damper vessels. There are things that might once have been mice, now with longer toes for gripping the slick surfaces, nesting in the larger urns and feeding on moths and lizards.
+
+The light is steady but indirect, filtering down through strategic shafts lined with reflective glazed tiles. It catches on countless tiny droplets of water, creating a constant subtle shimmer. The glazes themselves contribute to the illumination - some have a peculiar luminescent quality, glowing faintly in blues and greens long after dark.
+
+Everything here was made by human hands, but those hands worked so long ago that nature has had time to adapt to their creation. The pottery itself continues to slowly change - mineral deposits build up, glazes weather, tiny cracks spread across decades or centuries. The creatures that live here now are equally artificial in origin - selective pressure has shaped them to fit this unique environment perfectly.
+
+It's an environment in constant motion, but the motion is largely cyclical - water moving through its endless circuits, animals following their daily and seasonal patterns, the slow progression of growth and decay playing out in miniature. Even the air moves in regular patterns, creating consistent currents that feed the wind-song of the vessel-walls.
+
+The overall effect is like being inside an instrument that plays itself, or perhaps a living thing made entirely of clay and water. Despite its entirely artificial nature, it feels organic - less like a built space and more like something that grew according to its own strange logic.

@@ -1,0 +1,23 @@
+You find yourself standing in the midst of a vast, open wetland, stretching out as far as the eye can see. The terrain is a mosaic of shallow lakes, marshes, and wet meadows, with water playing a ubiquitous role. Despite being at a high elevation, this area seems to defy the typical expectations one might have — instead of being dry and barren, it's teeming with life and moisture. Perhaps the unique geography creates a microclimate that traps moisture, or maybe there's some underground water source that keeps the area perpetually saturated.
+
+The landscape is completely overrun with vegetation. Towering above you are colossal trees, their trunks as wide as houses, their canopies a riot of green and brown. Vines and creepers snaking up the trunks, wrapping around each other in a tangle of tendrils and leaves. Every inch of soil is covered in moss, sedge, or some other type of plant life. Flowers of every color bloom in profusion, adding to the heady scent of damp earth and greenery that fills the air.
+
+The temperature is bitterly cold, but somehow the plants seem to thrive here. Perhaps the dense foliage traps heat, creating a warm microclimate that allows life to flourish despite the chill. Water condenses on the leaves, dripping to the ground to add to the ubiquitous wetness. Mist rises from the ground, giving everything a hazy, dreamlike quality.
+
+Despite its ageless, worn appearance, the landscape seems to be constantly in flux. Water flows through the wetlands in shallow channels, shifting and changing its path from day to day. The plants seem to lean in towards the paths, as if hungry for the water's touch. Erosion is evident, but it's not the sharp, jagged kind that comes from recent cataclysms — this is the gentle, insistent wear of centuries, smoothing and rounding every edge.
+
+On this scale, the scene unfolds over miles, with different areas offering different landscapes within the greater wetland. To one side, a massive lake stretches out, its surface broken by islands and waterfowl. Beyond the lake, the wetland gives way to a mist-shrouded forest, the trees looming like sentinels. To the other side, a series of small hills roll the horizon, covered in thick, impenetrable bush.
+
+Strangely, despite the lack of artificial structures, there's an undercurrent of industrial activity. Distant, low rumbles throb through the air, a constant bass note underscoring the sounds of nature. The hum of engines, the whir of fans, the clang of metal on metal — it's as if the very earth itself was turning, like a machine.
+
+Light filters down through the dense foliage, casting the world in a soft, sickly green. Dim as it is, there's an otherworldly quality to the illumination, as if it's being filtered through a thousand layers of damp earth and plant life. It's a bit like being underwater, watching the world through a murky aquarium.
+
+Everywhere you look, there's movement. Waterbirds strut through the shallows, their feathers glistening in the dim light. Beavers swim through the waterways, their flat tails slapping the surface. Higher up, creatures dart through the treetops, their iridescent wings flashing in the dim light.
+
+But despite the abundance of life, the world seems to be unraveling. Trees twist and writhe, their trunks thickening into bulbous, unnatural growths. Water seems to flow uphill, defying gravity. In the sky above, clouds boil and churn, opening into holes that show glimpses of a swirling, psychedelic void beyond.
+
+The air is filled with sound — the rush of water, the calls of birds, the hum of machines, and something else, something strange and dissonant that seems to be tearing the fabric of reality apart. Every few moments, the ground shudders and lurches, sending birds taking startled flight and water churning in the shallows. The whole scene is turbulent, chaotic, as if the very earth itself was alive and in agony.
+
+In this bizarre, non-Euclidean world, the rules of physics and reality seem to bend and warp. Plants grow in mid-air, their roots trailing downwards like snakes. Water flows upwards, running along the underside of branches like inverted rivers. Every few moments, a great gout of water shoots up from the ground, as if the earth itself was lonely for the sky. The scene is constantly shifting, as if everything was in motion, even the ground itself.
+
+Regardless of what you do, the world around you will continue to shift and writhe, like a living thing in torment. You're just a fleeting presence in a reality that's constantly rearranging itself.

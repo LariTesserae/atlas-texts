@@ -1,0 +1,17 @@
+**The Singing Chamber**
+
+Deep beneath the earth's skin, accessible only through a crack barely wide enough for shoulders, lies a pocket of the world that time forgot to finish carving. The chamber stretches no more than thirty paces in any direction—intimate enough that a voice carries easily to every corner, yet vast enough to feel like a secret cathedral.
+
+The walls curve inward like cupped palms, their surfaces polished to a dull gleam by eons of patient air currents. They are neither quite stone nor quite metal, but something between—a mineral composite that formed when the world was young and different elements still experimented with their affinities. The color shifts subtly as you move: pewter in the shadows, bronze where the light catches, sometimes revealing veins of deep amber that seem to hold their own faint luminescence.
+
+Above, a single shaft pierces the ceiling—a natural chimney that rises toward distant daylight. The opening is precise, almost deliberate, as if the earth had decided this one place deserved illumination. Light pours down in a clean column, bright and white, casting the chamber in sharp contrasts of brilliance and shadow. Motes of ancient dust drift lazily through the beam, each particle catching fire for a moment before disappearing back into darkness.
+
+The sound is what makes this place extraordinary. Every breath, every footstep, every whisper transforms into something larger. The chamber's shape and mineral composition create a resonance that amplifies and sustains sound in impossible ways. A single handclap becomes a waterfall of echoes, each one slightly different in pitch and timbre. The air itself seems to sing—a constant, barely perceptible harmonic that rises from the stone, as if the chamber were a vast, slow musical instrument played by the movement of air through hidden fissures.
+
+The floor is carpeted with the accumulated dust of millennia, soft and fine as ash, unmarked by any passage save the occasional delicate track of a cave beetle—one of the few creatures hardy enough to find sustenance in this dry realm. Here and there, sparse clusters of ghostly fungi emerge from the dust, no larger than coins, their pale caps catching and reflecting the shaft of light like tiny mirrors. They require no water, subsisting instead on minerals leached from the walls and the rare organic matter that filters down from above.
+
+The air tastes of metal and age, cool against the skin but not cold. There is no moisture here—the chamber exists in perfect desiccation, preserved by its isolation and the constant, gentle circulation of dry air through hairline cracks. Everything is still, settled, complete. The dust hasn't shifted in decades; the fungi grow so slowly their movement is imperceptible across human lifespans.
+
+Along one wall, ancient marks score the surface—not carved by tools, but scraped by some long-ago process of the earth's settling. They form no pattern, hold no meaning, yet their presence suggests this chamber has been exactly as it is for unimaginable stretches of time, a pocket of stability in a restless world.
+
+The light above shifts almost imperceptibly as the day passes overhead, but within the chamber, change is measured in geological time. This is a place that has found its final form and settled into it completely, content to exist in its small perfection, singing its mineral songs to itself in the darkness below the world.

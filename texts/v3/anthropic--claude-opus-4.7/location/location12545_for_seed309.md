@@ -1,0 +1,31 @@
+# The Hollow Works
+
+Down a stairwell of root and rusted iron, perhaps forty feet beneath what was once a forest floor, the chamber opens.
+
+Call it a chamber, though that undersells it — it is a vault the size of a market square, perhaps two hundred paces across, and the ceiling is a vaulted weave of living wood, tap-roots as thick as cathedral pillars descending through the loam and braiding themselves into ribs overhead. The roots are the architecture. They were here first. The construction came after, was *fitted into* them, the way a barnacle fits a hull.
+
+And the construction is industrial. Brass pipes follow the curves of the great roots, lashed to them with strapping that has corroded green and been re-grown over, swallowed in cambium and re-exposed where the bark sloughs. Boilers squat in alcoves between root-buttresses, their fireboxes glowing a low orange — the only real light in the place, that and the phosphor lamps wired in series along the walkways, each one no brighter than a held coal. Belts run between pulleys. Flywheels turn. Somewhere a governor spins, a steady whine under everything.
+
+The air is warm and damp. Not hot — the heat is dispersed, recycled. Condensation beads on the cooler pipes and falls in slow irregular drips into copper catchpans that overflow into runnels cut along the floor. The runnels feed a central sump where a paddle-wheel turns lazily, and from the sump the water is lifted again by a chain of leather buckets up into a cistern that drips, again, onto the works. Water moves in a closed circuit here. The forest above provides only what seeps; the engines reuse every drop.
+
+What do the engines *do*?
+
+They tend the beetles.
+
+This is the part that takes a while to see, because the light is so poor and the beetles are everywhere. The walls move. The ceiling moves. What looked like bark is carapace; what looked like the texture of root is the slow seething backs of ten thousand insects, each the size of a thumbnail, climbing over each other in unending slow tides. They cover every surface that isn't actively hot or actively moving. They drink the condensation. They eat the fungus that grows on the roots, and they excrete a resin that the machines collect — that's what the pipes are for, the brass pipes, they are tap-lines, drawing the sticky amber product down through filters and into settling tanks where it cools into pucks and is stacked, somewhere deeper, for purposes the chamber does not explain.
+
+The sound is the thing you notice last and then cannot stop noticing. It is loud. Not any single loud thing — the boilers mutter, the belts slap, the paddle-wheel sloshes, the governor whines — but underneath all of it is the beetles, and the beetles produce a sound like rain on a tin roof that never stops, the dry crackling rustle of a billion small legs on bark and brass and on each other. It rises and falls in waves as some disturbance crosses the population. When a phosphor lamp flickers brighter, a patch of wall goes still, listening, and the rustle drops in that quadrant and rises elsewhere to compensate.
+
+The place is old. You can tell by how the iron has been swallowed. A staircase railing has been engulfed by a root that grew around it over decades; the iron emerges from the wood on either side, polished by the hands of whoever used to come down here. Pipes elbow around growths that did not exist when the pipes were laid. In one corner, an entire pressure-gauge has been absorbed into a burl, only its glass face still visible, the needle frozen at three-quarters. Everything has reached an accommodation. The wood grew, the metal yielded where it could and held where it had to, and the result is a single fused organism of vegetation and machinery that no longer remembers which was the host.
+
+There are no people. There may once have been. There is a wooden desk against one wall, with a ledger on it, and the ledger is open, and the page is covered in beetles, and beneath the beetles, when they shift, you can see columns of figures in faded ink. The chair is pulled out as if someone just stood up. A tin cup on the desk holds a finger of brown water and a single drowned beetle. Whoever ran this place either left, or was subsumed — there is a coat hanging on a peg, and the coat has gone furry with moss, and inside the coat, if you looked, you might find that the moss has taken a shape.
+
+The rules of this small underground room, as far as one can determine them:
+
+The engines do not stop. They have not stopped in a very long time, and the fuel they burn is the resin they themselves produce — a closed loop, but a lossy one, and somewhere the loop is being topped up by something, because the boilers have not gone cold. The water cycles. The beetles tend the fungus, the fungus feeds on the wood, the wood is fed by what seeps down from above, and what seeps from above is — presumably — still a forest, still raining, still alive. If the forest above ever dies, this chamber has perhaps a season before the cycle staggers.
+
+The beetles are aware of you. Not as individuals — as a population. When you move, the rustle changes. When you stand still, it forgets you, and a few outliers begin to climb your boots, testing. They do not bite. They are looking for condensation, and you, warm-blooded and breathing, are a source of it. If you stayed long enough you would be tapped. If you stayed longer, the pipes would find you.
+
+It is dim. It is warm. It is loud with small lives and small machines. It has been here so long that the question of who built it has dissolved into the question of whether it was built at all, or whether it accreted, the way a reef accretes, one small accommodation at a time, until the accommodations became a place.
+
+You can leave by the stairwell. The stairwell is still there. The beetles part for you as you climb, and close again behind, and the rustle in the chamber rises briefly — a small disturbance, a small note in a long song — and then settles, and the works go on.

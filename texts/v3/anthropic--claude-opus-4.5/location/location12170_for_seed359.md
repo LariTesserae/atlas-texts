@@ -1,0 +1,23 @@
+# The Loom-House That Grows Itself
+
+The chamber measures perhaps forty paces across, though the number changes depending on which direction you count from. The walls are woven—not decorated with weaving, but *made of* weaving, thick cables of something like living rope that pulse with vegetative warmth, sprouting leaves and tendrils at every junction. The entire structure is a basket turned inside out, or a cocoon built by creatures who never learned the difference between making and growing.
+
+There is no water here. Not a drop. The air itself feels peculiarly desiccated, warm like breath held too long, and yet the vegetation thrives obscenely. Vines thick as arms twist through the woven walls, their leaves broad and waxy, sweating something that isn't moisture but serves a similar purpose—a clear resin that catches light and never falls. The plants don't drink. They *eat*. Small fibrous roots extend from every stem, burrowing into the woven structure itself, consuming it even as it regrows around them.
+
+This is what the Loom-House does. It devours itself and reconstitutes. The weaving is alive in some sense that defies easy categories—not plant, not animal, not quite either, but *made*. Someone created this place, though the hands that did so may no longer exist in any form you'd recognize. Primitive tools still hang from hooks that sprout like bracket fungi: wooden shuttles worn smooth by use, bone needles the length of forearms, stone weights that help the structure remember its own tension.
+
+The fauna have nested into every available crevice. Creatures like silk-moths but larger, their wings patterned with what look like woven designs—or perhaps they *are* woven, perhaps the moths emerged from the same process as the walls. They barely move, clustering in the upper reaches where the structure curves toward a ceiling that may or may not exist. Small things with too many legs pick their way along the vine-stems, grooming the leaves, their mandibles clicking in near-silence. A serpentine creature has wound itself through a section of wall-weave, becoming indistinguishable from the material, only its slow breathing revealing it as separate. Everything here shares a quality of patient density, of creatures pressed close but moving gently, respecting some unspoken economy of space.
+
+The light comes from the leaves themselves—a soft bioluminescence that waxes and wanes so gradually you might watch for an hour before noticing change. It gives the space a sense of perpetual late afternoon, warm and drowsy, though there is no sun and likely no outside in any conventional sense.
+
+Here is where reality grows unreliable:
+
+The weaving sometimes shows patterns you didn't see before. Not new patterns—patterns that were always there, that you somehow looked past, that your eyes refused until now. A face in the interlocking fibers. A map to somewhere. Writing in a language that feels like you should know it. If you look too long, the pattern starts to make a kind of sense, and then you notice your fingers have been moving, miming the motions of weaving, though you never learned how.
+
+The moths dream. You can tell because their wings flicker with images when they sleep—brief scenes, fragments, places that might be other Loom-Houses or might be something else entirely. Sometimes you see yourself in their wing-patterns, standing in this room, watching them. The image is always from an angle you couldn't occupy.
+
+Time moves strangely in the corners. The plants near the edges are simultaneously younger and older than those at the center—new shoots that have already fruited, ancient vines that haven't yet learned to climb. If you stand too long at the margins, you may find yourself remembering things that haven't happened, or forgetting things that have happened many times.
+
+And sometimes—rarely, but it occurs—a section of wall will simply *unweave*. Not collapse, not decay. The fibers will methodically work themselves loose, creating a gap that shows nothing, pure absence, not darkness but the lack of anything to see. The gap will persist for minutes or hours, and then the weaving will resume, the structure knitting itself back together with no sign it was ever open, and you will not be able to say with certainty whether something entered or left.
+
+The sound is mostly silence. The soft friction of growth. The occasional click of small jaws. Your own breathing, which you become newly aware of, which starts to feel like it might be keeping rhythm with something larger.

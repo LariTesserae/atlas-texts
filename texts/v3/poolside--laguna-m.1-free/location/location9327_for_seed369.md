@@ -1,0 +1,23 @@
+**The Weeping Hollows**  
+
+High above the world’s broader valleys, tucked into a sun-drenched plateau where the air is warm and thick with moisture, lies a cluster of small, bowl-shaped depressions known as the Weeping Hollows. Here, the land is ancient and patient, shaped by centuries of slow erosion into smooth, undulating forms—hills that roll like sleeping giants, their slopes cradling pools of water that perpetually birth trickling streams. The water here does not flow so much as *weep*: from fissures in the porous limestone bedrock, from moss-clad boulders, from the very soil itself, which seems perpetually damp, even in the absence of rain. The ground glistens with a slick sheen, and the scent of wet earth mingles with the sharp, green perfume of dense vegetation.  
+
+### Terrain & Materials  
+The hollows are ringed by low, rounded hills of weathered sandstone and limestone, their surfaces pocked with caves and crevices from which water seeps in silvery threads. Pools of water—some no larger than a person’s footprint, others stretching into shallow, reed-fringed lakes—dot the landscape in a sparse, scattered pattern. The soil here is dark and loamy, rich with organic matter, and spongy underfoot. Stone paths, worn smooth by time and the occasional passage of animals, wind between the pools like forgotten roads, their surfaces etched with faint grooves that suggest the work of primitive tools—stone scrapers or digging sticks.  
+
+### Vegetation  
+The vegetation is lush but carefully confined, as though the land itself has trained the plants to grow in deliberate, scattered bursts. Towering cattails and bulrushes line the edges of pools, their stems thick and waxy, while clusters of iridescent ferns—some with fronds that shimmer faintly blue or violet in the right light—sprout from mossy outcrops. In the open spaces between pools, gnarled clusters of silver-barked trees stand sentry, their leaves broad and leather-like, catching the light like mirrors. Vines drape from branches in loose, tangled curtains, some threaded with clusters of bioluminescent pods that pulse faintly at dusk, casting the hollows in an eerie, shifting glow.  
+
+### Atmosphere & Sounds  
+The air is warm and humid, clinging to the skin like a second layer of cloth. Mist rises from the pools at dawn and dusk, blurring the edges of the landscape until it feels as though the hollows exist in a perpetual state of half-dream. The soundscape is loud but not chaotic: a constant, layered symphony of water. Drips echo from the rocks in irregular rhythms, while nearby pools bubble and gurgle as underground streams shift and settle. The wind whistles through the reeds and trees, creating a low, resonant hum that occasionally rises into the sharp cry of a distant bird—or something else, something with too many legs or eyes.  
+
+### Ecology  
+Life here is sparse but tenacious. The pools are home to small, translucent fish with frilled fins, and amphibians whose skin shifts color to match the water’s depth. Birds are rare but striking: a few species of heron-like creatures with elongated necks and feathers that resemble woven reeds. The strangest residents are the *mire moths*, insects with wings like crumpled parchment that flutter in erratic swarms, their bodies emitting a faint, phosphorescent haze. Larger animals seem to avoid the hollows, though drag marks in the mud suggest something massive does occasionally pass through, leaving no trace but a lingering scent of ozone.  
+
+### Rules of the World  
+In the Weeping Hollows, time moves differently. The pools are said to be alive—conscious, even—and those who linger too long report feeling watched, or as though the landscape is slowly reshaping itself around them. Some stones here are warm to the touch, and certain pools reflect the sky in colors that don’t match the current weather. Tools left behind overnight are sometimes found altered: sharpened, arranged in patterns, or simply gone. The water tastes of iron and mint, and drinking it causes vivid, lucid dreams of places that never existed.  
+
+### A Sense of Scale  
+This is a small world, intimate and enclosed. A person could walk from one end to the other in an hour, yet the interplay of light, sound, and texture gives it a cathedral-like grandeur. Each pool feels like its own universe, and the hollows as a whole seem to exist in a state of perpetual twilight, as though the sun never fully rises or sets here.  
+
+The landscape is both serene and disquieting, a place where the boundaries between the natural and the uncanny blur like the edges of the mist.

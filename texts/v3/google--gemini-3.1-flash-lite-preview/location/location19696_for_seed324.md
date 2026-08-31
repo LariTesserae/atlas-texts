@@ -1,0 +1,13 @@
+You are standing inside the "Condenser Casket"—a singular, vertical chamber roughly the size of a service elevator, embedded deep within the superstructure of a mountainous, high-altitude industrial monolith.
+
+There is no soil here, no earth, no horizon. The floor is a heavy-duty, interlocking grate of brushed titanium, vibrating with a low-frequency hum that travels up through your soles. Below the grate, a labyrinth of pipes and churning coolant lines rattles with the mechanical pulse of the building’s circulation system. This is a place of total construction; every surface is manufactured, brushed, bolted, or soldered.
+
+The atmosphere is dense and heavy, saturated with a constant, warm-cool dampness. Water is the primary inhabitant of this room. It drips incessantly from the ceiling’s exposed conduits, slapping against the metal flooring with a melodic but relentless rhythm. High above, hidden vents spray a fine, pressurized mist that clings to the walls, causing large, heavy beads of moisture to track slowly down the rivets and seams. The air tastes of ionized metal and ozone.
+
+Despite the humidity, nothing grows. There is no soil for roots, and the light—a dim, sickly amber spill from a flickering recessed tube—is insufficient for photosynthesis. You might see a smudge of stubborn, pale mineral deposit on a bulkhead, or a single stalk of synthetic cabling that has frayed to resemble a dead twig, but there is no life here. No insects, no pulse of biology, save for your own.
+
+The sound is the chamber’s defining feature. It is deafening: a collision of steam-whistles, the rhythmic thud-thud-thud of massive pistons cycling somewhere behind the wall-plates, and the constant, cascading splash of grey water hitting metal. It is a percussive, industrial roar that leaves no room for thought. 
+
+The environment is in constant motion, an active machine that never sleeps. You watch as a secondary valve snaps open, releasing a fresh, sharp-edged spray of super-cooled fluid that instantly frosts over the inner hinge of a heavy service door. The geometry is fresh, the edges of the machinery are dangerously crisp, untempered by time or decay. It is a sterile, violent, and thoroughly engineered purgatory. 
+
+You are a secret held inside a giant’s lung. There is no way out of the room except to listen to the rhythm of the machinery, watching the water track in jagged, shimmering lines down the factory walls, waiting for the cycle to reset or the pipes to burst.

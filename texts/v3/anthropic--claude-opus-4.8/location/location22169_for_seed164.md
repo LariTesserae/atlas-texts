@@ -1,0 +1,33 @@
+# The Standing Engine
+
+Begin with the cold. Not the brittle cold of deep winter but a wet, mineral cold that lives in the air at altitude — the cold of a cloud that has decided to stay. This is the first thing you would feel, before you saw anything: that the air had weight, and the weight was cool water suspended just short of falling.
+
+You are very high up. High enough that the ground, when it eventually reveals itself through the moving veils of mist, is the *top* of something — a tableland of pale, sharp-edged stone, freshly broken, glittering where it splits. The rock here is young. It has not learned to round itself yet. Every ridge is a blade, every fracture a clean angle, as though the whole plateau were lifted up from below only recently and has not had time to weather into apology. Water beads on it everywhere, runs in thin bright threads down the faces, pools in the geometric cracks. The stone weeps without sorrow, simply because the air gives it more than it can hold.
+
+And things grow. This is the surprise of the place — at this height, in this cold, the rock is *lush*. Low cushions of moss in colors that don't belong to moss: deep blue-green, a moss like wet slate, a moss the color of old bruises. Ferns uncurl from every wet seam, fed by the standing mist. Pale lichen crusts the blades of stone in fans and rosettes. Liverworts spread their flat leather across the weeping faces. There are no flowers, because there is nothing to pollinate them — but there is green, abundant green, soft and saturated and dripping, the vegetation of a place that has all the water it needs and never, ever dries.
+
+There are no animals. Listen for a wingbeat, a scuttle, the small business of insects in the moss — nothing. No birds turn in the high air. No fish trouble the still pools. The greenery grows in absolute zoological silence, an ecology of plants and water and stone that has never been browsed, never been eaten, never been carried anywhere on the back of a living thing. It simply spreads, and holds, and weeps.
+
+---
+
+But the silence of the living world is not the silence of the place. The place is *loud*.
+
+It takes a while to locate the sound, because it comes from everywhere and from below. A deep, continuous, structural roar — the sound of enormous machinery working at full effort, not in bursts but forever. It comes up through the soles of your feet as much as through the air. Stand still and you can feel the stone humming, a vibration steady enough that the water in the pools holds a permanent fine ripple, a standing pattern of concentric rings that never collapses and never grows, frozen into motion.
+
+Walk to the edge — the plateau drops away into cloud — and the source begins to declare itself. The cliff face is not natural. Below the lip of the young stone, descending into the mist, are *works*. Iron and dark metal, riveted plate, the architecture of an industry built into the side of the mountain. Pipes thick as towers carrying the weeping water down. Great wheels turning, half-seen, throwing off plumes of vapor that join the permanent cloud. Furnace-glow pulsing red in the white murk, far down, like a heart you can see through fog. The roar is this: a vast standing engine, mechanized, electrified, terraced down the mountainside into invisibility.
+
+And here is the strangeness — it does not change. You watch the wheels turn and turn and they do not vary their speed. The furnace-glow pulses, but always to the same beat. The plumes of steam rise in the same volume, take the same shapes, dissolve at the same height. There are no workers. There is no one feeding the furnaces or oiling the wheels. The industry runs in perfect equilibrium, producing — what? The plumes feed the cloud. The cloud feeds the water. The water feeds the green and runs down the pipes and turns the wheels and feeds the furnace-steam that becomes the cloud again. A closed loop. An engine that exists to keep itself existing, perfectly balanced, neither growing nor decaying, loud beyond reason and going precisely nowhere.
+
+---
+
+Follow the plateau and you find the settlement. A town, organized, laid out in streets — but built *into* the engine, of the engine's materials, plate iron and bolt and pipe, dwellings with chimneys that carry steam not smoke, walkways crossing the great turning shafts, gantries threading between the wheels. The scale of it is a town's scale: hundreds of structures, a layered place with levels and stairs and lit windows.
+
+The windows are lit. The light inside is steady, electric, warm against the cold blue mist. But behind the glass: no one. No one in the streets either, no one on the gantries, no footprint in the condensation that films every surface. The town is inhabited the way the engine is operated — by no one, by the simple fact of its running. The lamps burn because the engine makes power and the power must go somewhere; the streets are swept clean by the constant running water; the doors stand open on rooms warm and lit and empty and humming.
+
+You begin to suspect the town was not built by hands. That it grew, the way the moss grew — that in a place this vast, this freshly lifted, this saturated with energy and water, organized construction is just another thing the world does, the way the rock fractures into clean angles. A crystal of iron and light, accreting on the side of a mountain, in equilibrium with the cloud.
+
+---
+
+The scale, finally, defies the eye. Walk the plateau for a day and the engine still descends below you into mist on every side; the cloud has its own weather, its own internal lightning that flickers without thunder you can distinguish from the engine-roar; the mist moves in slow continental currents and never thins, never parts to show you a horizon or a sun, only a diffuse even daylight that comes from no clear source and does not strengthen or fade. There is no morning here and no evening. There is the cold, the wet green, the weeping young stone, the empty lit town, and the engine that has always been roaring and will always be roaring, turning the water into cloud into water, holding the whole vast hollow place in a single unchanging breath that never finishes being drawn.
+
+You could stay a thousand years and find it exactly as you left it. That is the rule of the world: nothing here is going anywhere, and everything is working as hard as it can to keep it that way.

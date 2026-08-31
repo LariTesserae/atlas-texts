@@ -1,0 +1,25 @@
+# The Mirrors of Threl-Kesh
+
+The first thing you notice is the light—everywhere, piercing, overwhelming. It floods the vast plateau from no obvious source, as if the air itself has become luminous. This is Threl-Kesh, where light behaves as both wave and substance.
+
+The ancient plateau stretches beyond perception, its edges dissolved into a horizon that curves gently upward at its limits. Once, perhaps millions of years ago, this was a mountain range, but time has worn it down to a perfectly flat expanse of mirrorstone—a material that resembles obsidian but reflects with impossible clarity. The plateau's surface is cracked into hexagonal segments, some as wide as city blocks, others barely large enough to stand upon, creating a fractalized tessellation that extends in all directions.
+
+Between these segments run channels—narrow, geometric waterways that seem to defy gravity. The water flows not downhill but according to some pattern inscribed in the structure of the plateau itself. In some places it rises in thin columns before spreading into glistening sheets across the mirrorstone. In others, it collects in perfectly circular pools where it whirls in mathematically precise vortices. The water is everywhere but constrained, a liquid circuit board etched into the ancient stone.
+
+The cold is pervasive but peculiar—it doesn't bite but rather hums through your body, vibrating at frequencies that make your teeth ache and your vision blur momentarily. This is not the cold of absence but of presence—energy cycling at wavelengths beyond biological comfort.
+
+Vegetation is sparse but deliberate. Crystalline growths that might be called plants emerge at the intersections of water channels. They resemble coral formations made of translucent silicon, growing in slow, observable pulses. They don't photosynthesize—they photorefract, splitting the omnipresent light into spectra that dance across the plateau in dizzying patterns.
+
+The plateau is loud with sound that seems to have physical weight. There's the constant high-pitched resonance of the mirrorstone as it expands and contracts microscopically with temperature fluctuations. There's the percussive rhythm of water striking stone at precisely calculated intervals. And underneath it all, a bass hum that seems to emanate from the structure of the plateau itself, as if it were one massive instrument being played by forces you cannot see.
+
+Small creatures move through this landscape in abundance. They resemble insects but behave like schools of fish, flowing in tight geometric patterns that morph continuously. Their bodies are transparent save for a network of glowing filaments that pulse in synchronization. They appear to feed on the diffracted light itself, congregating where the crystal-plants cast their prismatic displays. Occasionally, larger creatures—something between salamander and bird—emerge from the water channels to prey on these swarms, their movements so swift they seem to teleport.
+
+Scattered across the plateau are structures that might be buildings or might be machines. They have no obvious entrances, no windows, no recognizable architectural elements. Instead, they appear as complex polyhedra made of the same mirrorstone as the ground, but angled to capture and redirect the omnipresent light. Some pulse with internal luminosity; others seem to bend space slightly around themselves, creating subtle distortions in the air.
+
+Most remarkable are the harvesters—devices floating three meters above the plateau's surface. They resemble inverted chandeliers, with hundreds of filaments dangling downward, each ending in a perfect sphere that never quite touches the ground. They drift slowly across the landscape, their filaments rippling in precise patterns. When they pass over water channels, the liquid rises to meet them in defiance of gravity. Where the harvesters have passed, the air seems different—thicker, more conductive to sound.
+
+The plateau is not static. The water channels rearrange themselves according to some vast algorithm, segments of mirrorstone rise or descend by fractions of millimeters, and occasionally—perhaps once every few hours—everything freezes for exactly seven seconds, including the light itself, creating a moment of absolute stillness that feels like the entire plateau taking a breath.
+
+There are no humans here, no evidence they ever existed. Yet the entire landscape feels designed, engineered with purpose beyond understanding. The technology at work operates at scales both vastly larger and infinitesimally smaller than human perception can fully grasp. This is a place where physical laws have been rewritten not through violation but through deeper understanding—a technology so advanced it appears indistinguishable from natural law.
+
+And all of it bathed in that relentless, sourceless light, reflecting endlessly across the mirrorstone until the entire plateau seems to hover between existence and pure energy, a liminal space where matter and information have become interchangeable.

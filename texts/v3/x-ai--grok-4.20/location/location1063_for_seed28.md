@@ -1,0 +1,24 @@
+The place is called the Hollow Choir.
+
+It is not a city in any natural sense. It is a single, self-contained architectural organism tucked inside the dry ribcage of something far older — a titanic, long-dead geological formation that resembles a colossal, fossilized sponge the size of a mountain range. The entire settlement exists in one enormous, sealed pocket-cavern bored through that ancient mineral corpse. There is no sky, yet the light is mercilessly bright: a cold, actinic glow radiates from millions of hairline fractures in the vaulted ceiling, as though the stone itself has been threaded with living glass that drinks some unknowable external radiance and vomits it back down in blinding sheets.
+
+Everything here is bone-dry. There has never been liquid water. Instead, the chemistry that sustains life is based on volatile aromatic aerosols and fine mineral dusts that drift in slow, perpetual convection currents. The air tastes of hot iron, myrrh, and ozone.
+
+Yet the vegetation is lush in its own alien fashion. Vast lattices of crystalline “plants” — called by the locals the Glassbriar and the Singing Reed — erupt from every surface in dense, feathery thickets. Their stalks are translucent, faceted, and resonate like struck tuning forks. They do not photosynthesize; they thermoacoustically harvest the temperature gradients between the searing upper vaults and the cooler stone below. Their “leaves” are vibrating membranes that shimmer in colors no wet-world plant would dare: scalding saffron, bruise-violet, acetylene green. When the hot updraft moves through them the entire cavern becomes a single deafening instrument.
+
+And the sound is almost intolerable.
+
+The Glassbriar and Singing Reed create a permanent, layered roar — a thousand overlapping chords, shrieks, and sub-bass drones that never resolve. The noise is so physically dense it feels like being inside a struck bell the size of a cathedral. Newcomers bleed from the ears within minutes. The inhabitants, born to it, have fused cartilage and modified ear-structures; they speak in sharp, clipped whistles that cut through the din like needles.
+
+The city itself is pressed into the negative spaces between these vibrating thickets. It is primitive in material but terrifyingly dense in organization: tier upon tier of pale salt-brick ziggurats, rope bridges spun from woven mineral fiber, ladders of fused bone, and spiraling tenements that look grown rather than built. Every structure is perforated with resonance holes so the music of the briars passes through them and is shaped. The city is literally played by the vegetation. Certain towers function as enormous organ pipes. Certain plazas are tuned to create standing waves that can levitate small objects if the wind is right.
+
+The scale is intimate despite the cavern’s size. Because the air is so empty of particulate matter and the vegetation grows in sparse, towering columns rather than carpets, the eye can see for kilometers between the crystalline trunks. Yet human life clings only to a few hundred meters of vertical and horizontal real estate. The rest is near-vacant volume — a hollow cathedral nave filled with blinding light, roaring music, and almost nothing else. A single person standing on a high balcony feels swallowed by emptiness even while the architectural clamor of the city presses in from all sides.
+
+Fauna is rare. What little exists is strange and mostly sessile. Long translucent “moths” made of silica lace drift on thermals, their wings generating additional tones that the priests try to interpret. Burrowing things like living corkscrews of horn occasionally surface, vibrate in sympathy with a particularly loud chord, then vanish again. There are no predators. There is only the Choir itself — the roaring, shining, crystal architecture that is simultaneously garden, city, and god.
+
+The erosion parameter has reached its final equilibrium: everything here has been shaped by three thousand years of constant vibration. Edges are rounded, surfaces are etched into fractal lace, bricks have grown together like fused teeth. The city is no longer being worn down; it is being tuned. Every new building is placed according to acoustic prophecy. The streets themselves have become instruments.
+
+It is warm — almost unpleasantly so — yet the heat feels clean, like standing inside a kiln that has learned to sing. The constant sound drives the temperature upward through sheer friction. Dust devils of glittering pollen spiral between the towers, catching the blinding light and turning into momentary, screaming angels of reflected glare before they dissolve again.
+
+This is not a place that tolerates visitors.  
+It either breaks them in the first hour or rewrites their bones so they can never truly leave. The Hollow Choir does not want to be quiet. It wants to be heard forever, even after every last singer has turned to ringing glass.

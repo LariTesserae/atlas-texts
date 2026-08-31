@@ -1,0 +1,23 @@
+Beneath a starless void, where clouds hang sullen and lightless over a continent with no edge, spreads a darkness the eye cannot pierce. Here, the ancient recipe for ‘land’ is almost unrecognizable—the world’s surface is not earth or rock, but an endless, continent-wide mass of living growth.
+
+**The terrain** is a dense, wet, and low-lying labyrinth, formed not by soil or stone but layers upon interwoven layers of colossal, pulsing plant-forms: bulbous, glimmerless bodies pressed together so tightly that to move between them would be to swim through slick, fibrous channels rife with cool mist and condensed droplets. Waxy cresses and unfurling petal-plates mesh overhead like endless cathedral vaults, their enormous, pallid fronds beaded with moisture, distilling a constant, silent rainfall down from the saturated air.
+
+**Materials** here are unfamiliar composites of toughness and sponge, neither wood nor flesh nor moss exactly, but botanic matter configured for continuous wetness and for supporting masses in tangled, self-sustaining tension. From capillary-thick tangles at the surface—an endless, yielding mat tens of meters thick—the whole biosphere is a three-dimensional web of living tissue, repleneshing itself in eternal equilibrium. There is no soil, only layers upon living layers: a pure plant-world whose substrate is itself factory and fortress, feeding on the mineral-laden liquid that seeps through its own living maze.
+
+**Atmosphere** is thick and humid, every exhalation heavier than the last. There is no true light—whatever luminescence exists is subdued, pulseless, perhaps a faint electric pallor emitted by certain root-buoys or leaf-organs deep within the mass. Warmth pervades, yet the temperature never shifts; it is as if thermodynamic balance has been perfectly negotiated between surface and cloud.
+
+And **sound**—silence reigns, but for the minute, almost static hush of water finding passage, a distant sighing as moisture condenses, rare pops as swelling seed-bodies split. Sound here is an internal affair, muffled and private, the noise of growth dampened by its own vastness.
+
+***Rules of the world*** are strict: nothing changes, or only at a pace invisible by any measure but geological. This is equilibrium with no disturbance, a conveyor-belt world where plant follows plant from germ to morph, but the system as a whole remains unaltered: no decay, only endless transformation, each link fully replaced in turn.
+
+**Ecology** cannot rely on animal life, for there is none. Pollination, movement, distribution—all is mediated by plants themselves, whose sensory organs are as strange as their forms. Leaves that sense the air’s gentle charge, root-tips that taste not just water but faint fluctuations in the planet’s magnetism; all serve the purpose of continuous stability. Reproduction is a slow matter of extrusion, grafting, silent swelling and slow union—an industrial-scale botanic choreography.
+
+Yet, despite the absence of intentional construction, there is industry here—at the level of planet-sized machinery encoded in living tissue. Giant, unlit vascular columns pump liquids, redistribute minerals, equalize warmth; great undulating membranes actuate at the scale of tectonic plates, redirecting the flow of subterranean rivers of sap and filtered salts. The ecosystem is a living factory, a self-tending apparatus, all driven by plant-minds, if there are such.
+
+**Erosion** is almost unknown—wherever new surfaces are exposed, they are instantly overgrown, cloaked in the soft order of new tendrils. The world feels both young—raw and stark and undecayed—and immortal, time fixed by the endless, slow urging of growth.
+
+**Strangeness** pervades: nothing is quite familiar. The dimensions are off—spatial distances lose meaning in the veiled dark, proportions altered by the ceaseless lamination of living panels, by the nested vaults of veined leaf and pulp. Sense of up or down erodes—a consequence, perhaps, of the faint bioluminescent pulses that travel here and there, showing no clear direction or rhythm.
+
+No animals have ever pattered, crawled, flitted, or sung here. No footfalls, no croaks or chirps or bells. Only endless presence—an unyielding, unlit vastness, still as a held breath, with all energy bound up in a green, wet, eternal machine.
+
+And so, in the planet-sized darkness, you might find yourself pressing a palm to a living wall slick with cool humidity, feeling the soft vibration of silent motive power thrumming beneath overlapping skins: a world not fallen into stillness, but become perpetual, inexhaustible life.

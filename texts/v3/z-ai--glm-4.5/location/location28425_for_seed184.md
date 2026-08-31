@@ -1,0 +1,25 @@
+The world here is not so much a place as a suspension—a warm, heavy pause in the deep dark.
+
+You are below the surface, perhaps hundreds of meters, though the pressure feels less like crushing weight and more like a constant, firm embrace. The water is not the clear, blue void of the open ocean, nor is it the turbid churn of a river. It is a dense, olive-drab medium, thick with particulate matter and microscopic life, a liquid fog that glows with a faint, sickly luminescence. It is warm, uncomfortably so, like the inside of a lung or a forgotten engine room. The warmth seeps into your bones, slowing your pulse, matching the torpid rhythm of the surroundings.
+
+This is the Sunken Gear-Deck.
+
+The "terrain" is entirely artificial, a landscape of riveted iron and brass that has settled into its own eroded geometry. It resembles the interior of a cathedral-sized clock, or perhaps a single, impossibly complex district of a city that was sunk whole. The floor is a grating of rusted steel, now buckled and warped, creating valleys and ridges no higher than a step. But the space is packed—saturated to the point of claustrophobia. There is no open water to swim through freely. Every cubic meter is occupied by a pipe, a conduit, a piston, or a trunk of vegetation.
+
+The scale is intimate. You could touch the walls on either side if they weren't choked with growth. It feels like a single, vast room, a "cathedral of industry" that has been sealed off from the rest of the world.
+
+The industrial element is undeniable, but it is fossilized. Massive pipes, thick as ancient sequoias, run vertically and horizontally, crisscrossing in a lattice that obscures the horizon. Giant gears, half the size of a house, sit frozen in mud, their teeth caked with silt. Valves the size of dinner tables are levered open, spilling not steam, but long, lazy ribbons of bubbles that rise with agonizing slowness.
+
+Here, the vegetation has taken command. The lushness is rank and aggressive. Great kelp-like fronds, black and rubbery, have fused with the copper wiring. They wrap around the pistons in tight, erotic embraces, their leaves broad and fleshy, absorbing the dim light. Moss grows in thick, velvet pillows over the control panels, obscuring the dials. It is a hydroponic paradise gone wrong; the plants are not just growing on the machines, they seem to have become the machinery. The vines pulse with a slow, rhythmic contraction, mimicking the flow of hydraulic fluid that once coursed through these metal veins.
+
+And yet, for all this life, the sound profile is near-zero. The roar of water currents is absent. The clang of machinery is nonexistent. The silence is absolute, a "heavy" silence that feels like a physical pressure. The only sounds are the internal ones: the slow, rhythmic *thrum-thrum* of your own heart, and the occasional, muffled *click* of a settling pipe or the soft *squish* of fronds rubbing against metal. It is a library silence, a tomb silence.
+
+Light is a scarce commodity. It comes from no sun. It emanates from the water itself—a weak, bioluminescent plankton that drifts like snow in the olive gloom—and from the occasional, dying electric bulb encased in thick glass, flickering with a faint amber pulse. Shadows are long and soft, blurring the line between the rusted hull of a generator and the dark hollow of a sea-cave.
+
+Fauna is rare, solitary, and strange. You might see a single fish, scaleless and pale, hovering near a valve. It is eyeless, sensing the heat of the water. It moves with a glacial slowness, flicking its tail once every minute. There are no schools of fish, no predators, no frantic darting. Life here is an afterthought, a sparse scattering of observers drifting through the ruins.
+
+The weirdness lies in the equilibrium. This place is not decaying in the traditional sense; it is *fermenting*. The erosion has stopped at a perfect point of balance. The rust is stable, the plants are fully grown but not invasive, the machinery is stopped but not destroyed. It is a system in stasis. The density creates a sense of a solid object; the water, the metal, and the vegetation are all so tightly packed that they appear to be a single, composite material.
+
+The dynamic of this world is painfully slow. Bubbles rise as if through syrup. A strand of kelp uncurling to reach a light source takes hours to complete the motion. The corrosion of a metal beam happens at a geologic pace, visible only if one were to wait centuries. Here, time does not flow; it oozes.
+
+To be here is to be inside a rusted, mechanical lung, filled with warm, dark fluid, overgrown with silent, black ferns, waiting for a gear to turn that never will. It is a place of immense, quiet density, a sunken factory where the only product left is the slow, patient generation of shadows.

@@ -1,0 +1,15 @@
+The Breathing Chamber sits high in the mountains, a natural cavity no larger than a cathedral's nave, where the world has achieved perfect industrial stasis through purely organic means.
+
+Steam rises from countless thermal vents that pockmark the chamber's floor—thousands of them, each no wider than a fist, releasing measured breaths of superheated vapor at precise intervals. The rock itself has been sculpted by millennia of this breathing into smooth, organic forms that resemble the internal architecture of lungs or the chambers of a heart. Every surface gleams with condensation that never quite becomes rain, perpetually beading and evaporating in an endless cycle.
+
+The heat is oppressive but stable, maintained by the geometric perfection of the vent system below. Each opening connects to vast geothermal networks that function like a natural engine, drawing cool air down through hidden shafts and expelling it as steam with clockwork regularity. The entire chamber thrums with this respiration—not quite sound, more a felt vibration in the humid air.
+
+Sparse vegetation clings to the few surfaces cool enough to support life: heat-blackened mosses that photosynthesize from the chamber's dim, steam-filtered light, and peculiar succulent vines that store condensation in translucent bladders. These plants grow in perfect spirals around each vent, their placement dictated by thermal gradients so consistent they might have been measured by instruments.
+
+The fauna here defies easy categorization. Creatures of living mercury slip between the vents, their bodies perfectly calibrated to the temperature differentials. They appear to be part organism, part thermal engine, harvesting energy from the heat gradients with specialized organs that tick and whir with mechanical precision. Clouds of metallic beetles hover in the steam columns, their wings beating in synchronized patterns that create standing waves in the vapor. They neither feed nor rest, existing in perpetual motion like components of an invisible machine.
+
+Time means nothing here. The same steam rises at the same rate it has for ten thousand years. The mercury-creatures follow identical paths their ancestors traced. Even the condensation droplets form and fall in patterns so regular they could serve as clocks. The chamber exists in a state of perfect thermodynamic equilibrium—a natural factory that produces nothing but its own continuation.
+
+The strangeness is in this very perfection. No volcanic chamber should maintain such precise conditions for so long. The creatures shouldn't move with such mechanical certainty. The integration of the biological and the thermal speaks to rules of nature that diverge from the familiar—as if someone discovered how to build an engine not from metal and coal, but from evolution and stone.
+
+In the perpetual twilight of steam and shadow, surrounded by the soft susurrus of endless ventilation, one could forget that time exists at all. The chamber breathes, the creatures process, the heat rises and falls, and nothing ever changes. It is industry without purpose, machinery without makers, a perfect system that exists solely to persist.

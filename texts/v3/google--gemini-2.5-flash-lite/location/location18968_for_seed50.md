@@ -1,0 +1,17 @@
+The world is a vast, high-altitude ocean, its surface lashed by winds that scream with the force of a thousand storms. The water, a swirling, turbulent mass tinged with a strange, bioluminescent green, presses down with an immense weight, even at this extreme elevation. This is not the ocean of a planet, but the ocean of a sky, a boundless expanse cradled in the upper reaches of a world that has long since shed its solid crust.
+
+Vegetation is a rarity here, mere whispers of life clinging to the few bare rocks that pierce the churning surface. These are not trees or grasses as we know them, but hardy, crystalline growths that refract the normal light into dazzling, ephemeral rainbows. They draw nourishment from the very water that threatens to drown them, their roots a network of delicate, ice-like filaments that anchor them to the unsubstantial earth.
+
+The temperature is persistently cool, a chilling embrace that seeps into the very marrow of existence. Yet, the constant dynamism of the environment, the relentless surge and pull of the watery tides, generates enough friction to keep the world from freezing entirely solid. This is a place of perpetual, chaotic motion, a tempestuous dance between liquid and atmosphere.
+
+The erosion here is not of rock and soil, but of potential, of nascent forms struggling to coalesce from the primordial soup. The very water is a canvas of constant creation and destruction, where islands of solidified mist rise and vanish in the blink of an eye. The terrain is a fluid thing, a constantly shifting tapestry of currents and eddies, where mountains of spray momentarily form before collapsing back into the abyssal depths.
+
+This is a world of immense scale, yet it feels strangely intimate, a pocket dimension of liquid chaos. The density is almost nonexistent, vast leagues of empty space separating the few scattered islands of existence. Structures, if they can be called that, are sparse and ephemeral – crude shelters woven from solidified vapor, or cairns of buoyant, porous stone. They are transient marks against the overwhelming void, fleeting testaments to a struggle against the elements.
+
+The technology is primitive, rooted in the manipulation of the ambient elemental forces. Tools are crafted from the naturally occurring crystalline vegetation or from the occasional denser fragments that drift up from the unfathomable depths. Fire is a forgotten concept; warmth is generated through bio-luminescent processes or trapped atmospheric heat.
+
+Fauna is rare, ghostly apparitions that flit through the watery expanse. These are creatures of pure energy, or beings adapted to the crushing pressures and chilling temperatures, their forms fluid and ever-changing. They communicate through pulses of light and resonant frequencies that vibrate through the water, their presence felt more than seen.
+
+The strangeness of this world is palpable – the inverted geology, the sky-ocean, the life that thrives in apparent defiance of all known laws. It is a place where the impossible is the norm, where the very fabric of reality seems to be in a constant state of flux.
+
+And the sound. The sound is deafening. The constant roar of the wind, the ceaseless crashing of waves, the low hum of primal energies – it all combines into a cacophony that assaults the senses, a testament to the raw, untamed power of this high-altitude ocean. It is a symphony of chaos, a deafening lullaby sung by a world in perpetual, turbulent creation.

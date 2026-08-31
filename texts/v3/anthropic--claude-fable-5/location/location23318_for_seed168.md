@@ -1,0 +1,41 @@
+**The Anvil Plateau**
+
+You come up onto it through a gap in the rim-rock, and the first thing you understand is that this place is *new*. Not young the way a forest is young — new the way a casting is new when the mold is cracked away. The plateau stands two and a half miles above whatever lies below the haze, and its stone has never been rained on. Not once. The edges of every outcrop are knife-clean, the fracture faces still carrying the conchoidal gloss of the moment they broke. Nothing here has been rounded. Nothing has been carried anywhere by anything. The geology simply arrived, recently, and stopped.
+
+The rock is a dark, fine-grained material shot through with veins of something paler — not quartz, exactly; it has a faint lamellar sheen, like mica that decided to become metal halfway through. Whole slabs of the plateau surface lie tilted at the angles they froze in, great rhomboid plates the size of city blocks, with seams between them you could lose a leg in. The seams exhale nothing. There is no steam here, no groundwater, no frost-wedging, none of the patient hydraulic machinery that takes a landscape apart. The plateau is dry the way the inside of a kiln is dry, and warm the same way — a steady, sourceless warmth rising through the soles of your feet, the residual heat of formation still working its way out after however many centuries.
+
+The light is generous and ordinary, a clear high-altitude brightness, the sun slightly white at this elevation. Shadows are hard-edged. Visibility runs to forty miles in every direction, and that is the second thing you understand: how *little* there is in all that distance, and how alive that little is.
+
+---
+
+**The flora**
+
+They stand far apart — sometimes a quarter mile between one and the next, sometimes more — so that each one reads less like a plant in a landscape and more like a monument with the landscape arranged around it. Botanists would fight over whether to call them plants at all. They are anhydrous. There is no sap in them, no xylem, no transpiration. What they have instead is *mechanism*.
+
+The common form — call it a millwort, because someone eventually will — rises ten to thirty feet from a root-collar of fused glassy material that grips the bare rock like poured slag. The trunk is segmented, and the segments *move*: slow rotary sections turning against one another with the gravity of a flywheel, perhaps one revolution per hour. The foliage, if that is the word, fans out at the top in broad lamellar vanes, deep green shading to oily blue-black, and the green is real chlorophyll-work — they are photosynthesizing, after a fashion, fixing carbon straight out of the thin warm air into solid stock. You can find the product if you look: at the base of each millwort, a small apron of extruded material, dark pellets and drawn filaments, deposited in a neat radial pattern over years. Feedstock. For what, the plateau does not say. Other millworts, presumably. The pellets are sometimes gone from older aprons, though nothing is ever seen taking them.
+
+Listen closely to one — you have to put your ear nearly against the trunk — and you hear the only sound the plateau makes: a faint internal *ticking-over*, a flywheel hum, the sound of small reciprocating parts grown from cellulose and silica running in perfect tolerance. Each plant is a factory of exactly one worker, which is also the factory, which is also the product. There are no smokestacks because nothing burns; the energy budget is all sunlight, and the heat of operation bleeds off through those broad vanes, which is partly what they are for. Stand downwind of a large one and you feel it: a column of air a few degrees warmer, faintly smelling of hot resin and powdered stone.
+
+Between the millworts, the ground vegetation — sparse, but lush where it occurs, in sudden dense islands. Belt-vines run across the bare slabs in long catenary lines, anchored at intervals to glassy pitons they secrete themselves, and the vines genuinely circulate, a surface layer creeping along their own length like a drive belt, ferrying grains of mineral dust from one anchor to the next at a pace of inches per day. Cushions of something like moss, except each "leaf" is a hinged plate of green enamel that tracks the sun in silent unison — a whole hollow full of them will turn together over the course of the morning, ten thousand tiny solar mirrors, without a whisper.
+
+No flowers. No seeds drifting. No pollinators, because there is nothing here with a nervous system — not an insect, not a bird, not so much as a mite in the moss-plates. Reproduction, if it happens, happens through the feedstock aprons, through some slow industrial exchange conducted at a tempo no visitor will ever witness.
+
+---
+
+**The shape of the region**
+
+The plateau is not one surface but several, stepped. To the north the land rises in three vast terraces, each riser a sheer face of that pale-veined rock two hundred feet high, unweathered, unclimbable, the strata in cross-section as crisp as the edge of a stacked deck of cards. The millworts grow denser along the terrace lips — they like the edges, the early sun — so each step of the land carries a thin green fringe visible from miles off, like solder along a seam.
+
+To the south the plateau frays into a field of *spires*: extrusions, hundreds of them, fingers of stone fifty to four hundred feet tall, pushed up from below and frozen mid-push. Some are still warm enough at the base to shimmer faintly. The spire field is the emptiest quarter of an empty place — almost nothing grows there yet, only a few pioneer belt-vines laying their first lines between the columns, surveyors staking out a city that will take ten thousand years to arrive.
+
+And at the center of everything, visible from anywhere on the plateau, the **Caldron**: not a crater but its opposite, a broad shallow dome a mile across where the crust is still rising, imperceptibly, a fraction of an inch a year. Its surface is patterned with hexagonal cooling-cracks so regular they look surveyed. Nothing grows on the Caldron. The millworts ring it at a respectful half-mile radius, all of them — and this is the detail that stays with you — *facing it*, their vane-crowns subtly oriented inward, the way sunflowers face the sun, except the Caldron emits no light. Only warmth. Perhaps that is all it is. Perhaps they are simply heat-tropic. The plateau offers no second opinion.
+
+---
+
+**Conditions**
+
+The silence is structural. With no water there is no trickle, no drip, no surf of leaves — the millwort vanes are too rigid to rustle; wind passing through them produces only a low aeolian tone, almost below hearing, one note, sustained. With no animals there is no call, no footfall but yours. The dominant sound over most of the plateau is your own pulse. When the wind dies entirely — and at this altitude it often does, for hours — you can stand in the middle of a forty-mile view and hear, very faintly, from a quarter mile off, the nearest millwort ticking over. It is the loneliest industrious sound in the world.
+
+Nothing here is going anywhere. That is the deepest strangeness, deeper than the machine-trees: the plateau is in equilibrium so complete it approaches the eerie. The plants run but do not visibly grow. The feedstock aprons accumulate and deplete in balance. The Caldron rises at the same rate the spires settle. No storm has ever crossed this place; the air is too dry to build one. No season changes the angle of operation enough to matter. A visitor returning after thirty years would find the same millworts in the same places, the belt-vines a few yards further along their surveyed lines, the fracture edges exactly as sharp.
+
+It is a landscape that was switched on rather than grown, and that runs without consuming itself — warm, bright, green at long intervals, immensely high, immensely quiet. A factory floor the size of a province, freshly poured, fully staffed by no one, in production forever, output unknown.

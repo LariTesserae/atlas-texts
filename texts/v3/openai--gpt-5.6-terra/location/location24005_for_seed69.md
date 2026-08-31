@@ -1,0 +1,39 @@
+The plateau has no true horizon. It rises in shelves and drowned terraces for hundreds of kilometers, a high country broad enough to generate its own thunderheads, its own river systems, its own climate of nightly condensation and slow, warm rain. At this elevation the air ought to be thin and cold, but it is neither. Heat seeps up from fractures in the black stone. Vapors climb out of gullies. The sky, invisible most of the time, presses close with wet cloud. Darkness is not simply the absence of day here; it is a material condition, a low ceiling of blue-black mist through which lamps, furnace mouths, and the pale bioluminescence of marsh life must negotiate.
+
+Water is everywhere without ever becoming a single dominant sea. It runs in rivulets along the edges of ancient basalt steps. It gathers in reed-choked basins and broad peat marshes. It drips from overhangs with the regularity of machinery. Whole cliffs sweat, their faces furred with moss and dripping ferns. In some valleys, rain strikes warm ground and immediately turns to steam; in others, cold runoff sinks through dense grass into an underground lattice of channels, leaving the surface spongy and trembling beneath a boot.
+
+The land has been worn into its present anatomy over a very long time. Its ravines are deep but rounded, its rock walls fluted and polished by generations of runoff. There are old landslides, now greened over; collapsed escarpments whose fallen blocks have become islands in forests; river-cut corridors so old that trees grow from the seams of their exposed geological layers. Nothing feels freshly broken. Even the violent places have learned how to endure themselves. Water has found every weakness, roots have occupied every crack, rust has painted every discarded object the color of old blood.
+
+Vegetation crowds the plateau wherever heat and water meet. Tall, black-stemmed reeds lean over canals and seep fields. Ferns grow larger than doors, their undersides silvered with moisture. Dense, low forests collect in sheltered folds of the ground: broad-leafed trees with wax-dark foliage, hanging lianas, trunks muffled by fungus and moss. Their roots form raised labyrinths above the wet soil. At night, many plants close or turn themselves toward heat. Some flower only when the industrial sirens sound, opening pale cups that vibrate in the noise and shed clouds of luminous pollen.
+
+The darkness has made the ecology inventive. Beetles with lantern-blue abdomens clatter beneath leaves. Long-necked marsh animals move through reed beds in herds, their skin carrying bands of reflective algae so that a distant group resembles a slow-moving chain of drowned stars. Small winged predators roost in the warm mouths of exhaust stacks and hunt by sensing vibration. In the forest, something calls with a sound like a saw dragged slowly through wet timber; something else answers from very far away, too deep to be an animal’s voice and too irregular to be machinery.
+
+There are animals in almost every layer of the place. Fish flash under black water in the drainage ditches. Crabs climb tree roots and pick at mineral deposits. Furred grazers browse the steam-fed grasslands where the plateau opens into broad slopes. Huge moths collect around floodlights, their wings patterned like maps of river deltas. At intervals, the mist is disturbed by the passage of something large, moving without visible urgency through the upper forest canopy or across the far marsh. Its footprints fill with warm water and remain faintly lit for hours.
+
+The industrial works are scattered rather than centralized. Their towers, pumping stations, rail heads, and processing sheds appear like isolated settlements of function, each occupying a piece of ground chosen by geology rather than convenience. A refinery might stand alone on a ridge above an enormous wetland, its red signal lamps blinking into mist. A cableway station may be anchored to a cliff where mineral-rich water pours from a fault. Narrow-gauge freight lines cross the country on raised embankments, disappearing into rain and returning miles later from another direction. The rails shine constantly, though no sun touches them.
+
+Most facilities are built of dark corrugated metal, concrete stained with algae, and heavy riveted steel. They have been adapted endlessly: roofs extended with tarpaulin, pipes wrapped in mossy insulation, generator houses elevated on stilts above marsh floods. Their windows are small and yellow. Their chimneys breathe white vapor. Power cables run between pylons that vanish upward into cloud, carrying current across distances too vast for the structures at either end to see one another.
+
+The industry seems to harvest not a single resource but the landscape’s persistence. Pumps draw hot mineral water from the stone. Turbines turn in pressure tunnels beneath the plateau. Great filter houses strain metallic silt from riverwater. In some districts, machines cultivate fungal mats in long heated galleries, their ventilation fans producing a constant low roar. Elsewhere, enormous cranes lift black, porous rock from sinkholes where the ground has opened and continues, slowly, to make more of itself.
+
+The noise is unceasing, though it changes by location. In the marshlands it is rain, insects, frogs, splashing bodies, and the wet snap of vegetation shifting under unseen weight. Around the works it becomes piston thud, belts, fans, rail wheels shrieking in curves, release valves screaming into the night. Thunder rolls along the escarpments and is held there, returned in layered echoes. Even the water is loud: gutters overflow, cascades strike sheet metal, underground channels boom below grates.
+
+Yet between these sounds come pockets of strange attention. A stopped train in a siding, its engines ticking as they cool. A small maintenance hut with one lamp burning and boots lined under the awning. A shrine assembled from broken gauges and polished stones beside a pipeline crossing. A row of abandoned workers’ houses half swallowed by tree roots, their roofs bright with moss, each front porch facing the same dark ravine.
+
+People, if they live here, do not appear to have conquered the plateau. They have learned its schedules. They move along lit rail corridors and cable routes. They mark safe ground with colored stakes, because a familiar meadow may become a sink overnight after prolonged rain. They wear bells or use low-frequency horns in the dense forest, not to scare animals away but to let the larger things know they are present. Water is collected from particular walls and never from others. Certain pools are left untouched, even by the factories, because their surfaces occasionally rise in a single clear swell despite no wind and no rain.
+
+There are rules embedded in the place, practical at first and then less so.
+
+Never camp below a warm cliff; the stone may begin to weep heavily before a slide.
+
+Never follow a light through reed fog unless it blinks in a human rhythm.
+
+When the transmission towers hum in unison, get off open water.
+
+If a rail line is singing but no train is scheduled, wait until the song stops.
+
+And after the deep call from the forest, all pumps are shut down for one hour. No one remembers who began this custom. No one argues with it.
+
+Above everything, cloud moves through the high dark country in immense, wet bodies. It catches on the plateau’s ridges, pours into valleys, and breaks apart around smokestacks. Sometimes lightning reveals the full scale of the land for an instant: wet terraces descending into black distance, a hundred pinpoints of industrial light, rivers like torn silver seams, forests massed in folds, and far beyond them another line of cliffs still rising.
+
+Then the darkness closes again, full of rain, engines, breath, and the patient work of a landscape that has existed long enough to incorporate every intrusion into its living machinery.

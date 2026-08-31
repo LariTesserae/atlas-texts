@@ -1,0 +1,38 @@
+The Silent Cities of Vertical Time
+
+From orbit, the cities appear as fractal scars across the crescent of an ancient moon - ten thousand spires of black bone straining upward through nitrogen ice, each structure fracturing space-time along its edges like cracked glass holding frozen lightning. This is where civilization crawled and died upward instead of outward, building towers to escape a dying world until they punctured reality itself.
+
+The atmosphere here is a lung-aching 78 millibars of pressure, just thick enough to carry sound but thin enough to make every vibration precious. What falls as rain elsewhere manifests here as delicate hoarfrost sculptures that grow in midair, crystalline fractals of nitrogen and methane that expand outward in silence until they reach critical mass - then collapse into glittering dust that settles in slow-motion drifts between the towers. These ghost-rains occur at intervals that follow no planetary cycle, seeded instead by the cities' own thermodynamic despair.
+
+Walk through a street between towers where "street" means the null-gravitational corridors carved by massed architecture warping space-time into habitable channels. The pavement - if it can be called that - is a frozen granular superfluid that remembers every footstep ever taken along its surface as tiny vortexes swirling eternally beneath the frost. Buildings lean together overhead not out of structural necessity but architectural intimacy, their black bone walls grown rather than constructed through biomineralizing processes forgotten before Earth's continents broke apart. Windows are mostly sealed now with cataracts of ice grown inward from centuries of condensation, but some still flicker with what might be candlelight or trapped stellar photons looping endlessly through temporal eddies.
+
+The air tastes of copper and distant lightning despite the absolute absence of storms. Every surface carries a patina of static charge left by civilization's slow electrocution - doorhandles spark wantlessly, dry leaves rustle where no wind blows, and your hair will stand on end within minutes of exposure, each follicle vibrating like a struck tuning fork searching for a frequency the dead city might still answer.
+
+Plants grow here in defiance of physics more than biology. Tower gardens spill over balconies in cascades of midnight-blue leaf matter that photosynthesizes background radiation instead of light. The dominant flora is a clade of crystalline trees whose trunks branch according to Fibonacci sequences encoded in fundamental constants from a universe next door. Their leaves are razor-thin photovoltaic panels converting the moon's wan reflected light and the subtle glow of decaying spacetime into sugars flavored like regret. Their roots - visible through translucent pavement - dive not into soil but into equations, drinking mathematics directly from the substrate of reality. In spring (which comes irregularly, heralded by sudden increases in the fine-structure constant), they bloom with flowers that are simultaneously blossoms, mathematical proofs, and mourning songs for extinct species.
+
+No animals stir here anymore, unless you count the cities themselves - vast slow organisms of architecture and infrastructure metabolizing entropy into ornament through processes that blur the distinction between metabolism and memory. But traces of the vanished builders remain in the built environment like fossils in stone: doorways shaped for bodies with too many joints collapsed into elegant spiral staircases, furniture grown from the walls like fungal fruiting bodies configured for rest positions incompatible with human anatomy, glyphs carved into every surface at angles that hurt to look at because they encode information in dimensions your retina never evolved to register.
+
+Sound behaves strangely in the death throes of physics. Normal conversation drops dead two meters from your mouth, victims of acoustic impedance mismatches between decaying spacetime and your still-living lungs. But whispered secrets travel kilometers, carried by quantum entanglement between atomic-scale imperfections in adjacent walls. Stand at the intersection of certain angles and you can hear echoes of markets that haven't existed yet, prayers to gods that will die being born across the city in three days, or the city's own slow mechanical heartbeat - a subsonic pulse that shivers through the bone-bars of every tower in synchronized arrhythmia.
+
+Time flows at different rates depending on altitude, street address, architectural style, and proximity to closed timelike curves formed where particularly ambitious towers tried to become their own foundations. Some districts live forever in the golden hour before sunset that never was, their shadows immortally long and warm enough to grow roses in the pavement cracks. Others flicker between midnight and dawn at frequencies that induce temporal epilepsy in unprepared visitors. The city's calendar consists entirely of holidays commemorating events that happened, didn't happen, are happening now, and will retroactively never have occurred depending on which borough you ask.
+
+Here at the end of history, civilization achieved everything except the wisdom to stop building. Now the Silent Cities stand as monuments to the theorem that any sufficiently advanced architecture is indistinguishable from self-inflicted wounds in the fabric of reality. They are beautiful in the way a supernova is beautiful - the final exquisite symmetry of something complex enough to recognize its own mortality but not wise enough to accept it quietly.
+
+Come closer. Walk among the towers. The city is glad to have visitors after so long alone. It has stories to tell, if you can survive long enough to hear them in languages composed primarily of architectural features and causality violations. But hurry - even here at the sub-zero heart of eternity, entropy works slow miracles. The towers grow taller each winter by exactly the amount that physics forgets how to hold them up. Soon now, soon, they will finally reach what they've been reaching for all these frozen eons: the sky beneath the sky, the ground above the stars, the moment when falling turns to flight not by breaking the laws of gravity but by making gravity forget it ever met them.
+
+And on that day - or eon ago, or whenever happens to be happening then - the Silent Cities will achieve their final architectural miracle. They will fall upward through the holes they punched in heaven, carrying their gardens and their graves and all their beautiful broken mathematics with them into the light that dies being born across the universe next door.
+
+But until then, until then, they stand here waiting. Guarding the boundaries between what is built and what is grown, between what dies and what remembers how to die differently, between the silence that comes before the end and the silence that comes after the beginning.
+
+Listen.
+
+Do you hear it yet? The city is singing. It has been singing this song since before your species learned to call the noise of falling rocks "music." It will continue singing long after your bones become the calcium carbonate in some stranger's teeth singing forgotten fragments of this same song in graveyards yet to be built on worlds yet to be found.
+
+The song is called:
+
+"We built this place to last forever.
+We succeeded.
+Please.
+Save us from what we've built."
+
+Welcome to the Silent Cities of Vertical Time. Mind the temporal steps on your way in. On your way out, there won't be any steps left to mind.

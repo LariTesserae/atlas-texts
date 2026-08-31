@@ -1,0 +1,45 @@
+The place is a small highland basin enclosed by walls.
+
+Not a valley, exactly—the word suggests distance, slopes, and some surviving intention of nature—but a single room in the mountains, perhaps no larger than a village square, raised above a sea of cloud. Its floor is made entirely of poured material: pale concrete, glazed ceramic, ribbed steel, and black rubber seams. There is no exposed soil. Wherever a root requires earth, earth has been manufactured for it in deep ceramic troughs, in sealed planting beds, in cavities behind the walls. The original mountain has been covered over so completely that the place feels less built upon stone than built in defiance of it.
+
+The enclosure is open to the sky, though the sky is seldom seen clearly. Warm vapor gathers here, caught by the high walls and the slow-turning fans mounted above them. Mist arrives in pale sheets, wetting every surface without ever quite becoming rain. Water beads on handrails, runs down the vertical faces of machinery, and trembles in the leaves. The air has the green, mineral smell of a greenhouse after a storm, overlaid by hot metal, wet concrete, and the faint medicinal scent of sterilizing fluid.
+
+At the center stands a narrow processing tower, no taller than a chapel, assembled from stacked tanks and maintenance platforms. Its pipes descend into the paving and emerge again at odd angles, carrying water from some hidden reservoir below. Every few minutes, a valve opens with a soft mechanical sigh. A transparent column fills with cloudy water, then clears as layers of filters turn inside it. The cleaned water spills into a runnel that crosses the floor, divides around the planting beds, reunites, and vanishes through a grated slot.
+
+The drainage channels are new enough that their edges are still sharp. They do not yet possess the softened, rounded character of old construction. The place is being eroded, but only just. Water has begun to make its decisions.
+
+A shallow groove is forming beneath a loading hatch. Mineral deposits have bloomed along the seams in delicate white fans. On the western wall, a sheet of green growth has taken hold where condensation falls most steadily; its lower margin is already creeping sideways, following the wetness rather than the masonry. In one corner, a small failure has opened between two slabs. There is no soil in it, only darkness and the glint of a buried pipe, but several fine roots have entered anyway. They press against the manufactured gap with patient, exploratory force.
+
+The vegetation is abundant, though carefully constrained. Ferns crowd the lower beds, their fronds overlapping until no pot or irrigation line remains visible. Broad-leaved vines climb the support columns and loop through cable trays. There are low trees with silver trunks and dense, glossy crowns, each one growing from a circular vat of black engineered soil. Moss carpets the undersides of stairs. Small red flowers open in the warm vapor and close whenever the pressure in the water system changes.
+
+Nothing grows randomly, but nothing remains fully obedient, either. The horticultural system prunes certain species with articulated shears and injects others with nutrients. A row of indicator lamps registers moisture, acidity, root pressure, and growth rate. Yet the plants continually find the unmonitored spaces: behind a panel, beneath a grate, inside an abandoned conduit. Their ecology is less a wilderness than a negotiation between living things and the machinery that has given them somewhere to live.
+
+The high elevation is present in the body. The light is ordinary daylight, bright but softened by mist, and the sun feels surprisingly close when it breaks through. Shadows are short and clean on the upper platforms. Beyond the enclosing parapet, clouds move below the site like a slow white landscape of their own. Occasionally the vapor thins enough to reveal distant black ridges, but they appear upside down or displaced by the refraction in the wet air. The basin seems to float above them.
+
+Warmth rises from grilles in the floor. It is not natural geothermal heat, though the pipes borrow heat from deep within the mountain. The vents keep the plants alive during cold nights and prevent the waterworks from freezing. Around them, the air shimmers faintly. Leaves nearest the grilles grow faster, paler, and larger than their counterparts elsewhere. Their veins are almost translucent.
+
+The machinery is industrial but subdued. There are no great engines, no deafening presses, no continuous roar. Instead, the installation communicates through small, persistent actions: a belt turning under a cover, a pump pulsing behind a wall, relays clicking in sequence, a fan adjusting its angle, the periodic hiss of pressure equalizing. The overall sound is quiet enough that individual drops can be heard striking the drainage channels.
+
+Sometimes the whole structure gives a low, almost musical vibration. This happens when the hidden turbines change load. The vibration passes through the paving and into the metal stems of the plants, making the leaves flicker without wind. In those moments the place seems to breathe through its infrastructure.
+
+There are few animals. A handful of pale insects live around the warmest lights, though their wings are too thin and their movements too deliberate to seem entirely ordinary. They gather in the same corners each evening, as if adhering to an invisible map. A small amphibian—perhaps a salamander, perhaps a thing produced by the wet filters—has made its home inside the overflow housing. It is rarely seen. Its presence is betrayed by a line of silver eggs that appears one morning in a clean section of pipe.
+
+No birds enter. The walls and systems are designed to exclude them. No large creature could cross the narrow service doors or find a place to rest. The few animals belong to the installation rather than visiting it; they occupy its seams, its drains, its warm cavities. Their scarcity makes each trace significant.
+
+The boundaries are close and unmistakable. A waist-high wall encloses the open side, topped with a series of blunt glass fins that collect water from passing cloud. On the other sides, pale panels rise vertically, their surfaces wet and faintly reflective. Some bear faded numbering and hazard symbols. Some have been obscured by vegetation. The walls do not feel defensive so much as unfinished—parts of a larger industrial body that has not yet decided whether this chamber is a factory, a garden, a laboratory, or a reservoir.
+
+There are rules here, but they are expressed through cycles rather than signs.
+
+Water must pass through the place in a particular order. It enters from above as condensation, is gathered in serrated gutters, filtered through the central tower, distributed to the growing beds, warmed beneath the paving, and finally returned below through the drains. Any water that lingers too long begins to turn dark. Any plant that grows across a sensor is cut back. Any pressure that rises beyond its limit opens a hidden vent, and the resulting mist erases the far walls for several minutes.
+
+Light also seems regulated. The daylight is natural, but the upper panels alter its intensity, dimming the chamber when the plants become overactive. At noon, a faint green cast passes across the floor. At dusk, the system does not illuminate the place so much as reveal what has been concealed: thin lines of blue light under the walkways, tiny status lamps among the roots, a red pulse deep in the drainage grates.
+
+The strange quality of the place lies in its nearly successful artificiality. It has been made to imitate a living highland wetland, but it has not copied nature so much as established a new set of conditions under which nature can begin again. The plants are real, the water is real, and the growth is real, yet all of them depend upon valves, schedules, fabricated soils, and surfaces that have never known a glacier or a fallen leaf.
+
+Still, the system is changing.
+
+A green film is spreading over the oldest tanks. Roots are thickening around the pipes. The channels are cutting themselves deeper by fractions of an inch. Condensation has begun to collect in places the engineers did not account for, and wherever water finds a new route, something follows it: moss, roots, mineral crust, a threadlike insect, a darkness beneath the paving.
+
+The basin is not ruined. It is not overgrown. It is at the beginning of becoming something other than what it was designed to be.
+
+Above the clouds, in warm wet air, the small constructed landscape works quietly through another cycle: gathering, filtering, feeding, draining, growing. Its machinery ticks. Its leaves stir. Beneath everything, the mountain waits behind its layers of concrete, steel, ceramic, and root.

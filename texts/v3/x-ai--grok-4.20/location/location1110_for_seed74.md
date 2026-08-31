@@ -1,0 +1,27 @@
+The place is called the Hollowroot.
+
+It is a single, self-contained grove-cathedral no larger than a modest town square, yet it feels far older and heavier than its boundaries suggest. Low elevation and cool air keep everything damp without ever letting it flood; moisture arrives as slow, bead-like condensation that forms along every surface and drips in deliberate, metronomic intervals. The rain, when it comes, is brief and vertical, almost courteous, then vanishes again into the sponge of living green.
+
+Everything here is plant. Not merely covered by plants, but made of them. The ground is not soil but a dense, felted mat of interwoven root and rhizome, thick enough to bounce slightly underfoot like living cork. From this living floor rise the structures: colossal, woody stems that have grown for centuries into the shapes of walls, arches, buttresses, and vaults. They are not carved; they were trained, or perhaps they chose these forms. The architecture is unmistakably urban in layout—narrow lanes, courtyards, stepped terraces, even the suggestion of balconies formed by outward-bulging fungal shelves—but every beam, every column, every roof is a single continuous organism. Where two stems meet they have grafted together so perfectly that the joint is smoother than any weld.
+
+The dominant species appears to be a slow, black-green relative of the banyan and the strangler fig, though its bark is strangely metallic and rings with a dull iron tone when struck. Its leaves are sparse, waxy, and the color of oxidized copper. They hang in loose curtains rather than dense canopies, allowing normal, slightly silvery daylight to filter through in cool shafts. Between the great trunks the air is mostly empty. The density is sparse; one can stand in clear patches ten or twelve meters across and see the next “building” rising like a cathedral pillar some distance away. This emptiness is deliberate. The plants have left breathing room, as though the grove understands the concept of street and square.
+
+Machinery lives inside the plants.
+
+Great iron pipes, blackened with age and verdigris, run through hollowed-out channels in the trunks like veins. Some of these pipes are clearly centuries old, bolted together with rivets the size of fists. Others look newer, coldly industrial. They carry water, steam, and something that smells faintly of ozone. Every so often a hidden bellows-heart deep inside a trunk contracts, and a low, bass thump travels through the root-floor. Valves sigh open somewhere out of sight. Condensate drips from brass spigots that have grown directly out of living wood, as though the tree itself decided to grow plumbing.
+
+The settlement is active, but its activity is patient. Root networks pulse visibly beneath translucent sections of bark, shifting nutrients and water in slow tides. High above, in the vaulted crook of two fused stems, an automated loom of vine and counterweighted branch clicks and resets, weaving new fiber into itself. Small clouds of midges drift in the shafts of light, but larger fauna is almost nonexistent. Once in a long while a pale, blind salamander the length of a forearm will surface from a water-filled knot-hole, gulp air, and slip back down. That is almost all the animal life you will see.
+
+The soundscape is mostly quiet, yet never silent. There is always the soft percussion of falling condensate—plick… plick… plick—on different resonant surfaces: hollow wood, taut leaf-skin, iron flange. Beneath that lies the constant low throb of the hidden engines, a heartbeat just below the threshold of hearing. Sometimes a valve releases pressure with a tired metallic sigh that travels along the pipe-veins for dozens of meters before fading.
+
+The weirdness reveals itself gradually.
+
+In certain intersections the architecture has grown wrong on purpose. A flight of root-stairs rises toward nothing, ending in a blank green wall that clearly once led somewhere. Elsewhere a courtyard is perfectly round, and if you stand at its exact center the sound of dripping condenses into a single clear tone that makes your teeth ache with recognition—though you cannot say of what. Some of the older trunks bear faint, repeated patterns in their bark that resemble schematic diagrams or printed circuit boards, as though the plant learned the shape of industry and then decided to wear it as a skin.
+
+Erosion here is not destruction but equilibrium. The plants have been growing, collapsing, regrowing, and re-grafting for so long that the entire grove has settled into a single continuous form. Broken pipes are simply overgrown and replaced by new vascular bundles. Collapsed vaults become fertile pits where new stems rise in deliberate columns. Nothing is ruins. Everything is in the middle of its next slow, deliberate metamorphosis.
+
+This is not a ruin overtaken by jungle, nor a city built from wood.
+
+It is a single vast organism that long ago decided to become a town, then industrialized itself, and has been quietly maintaining both identities ever since. It needs almost nothing from the outside world. It rains on itself. It powers itself. It repairs itself. It dreams, perhaps, in the slow language of root pressure and steam.
+
+And it is still watching you with ten thousand motionless copper-green leaves, waiting to see what you will grow into if left here long enough.

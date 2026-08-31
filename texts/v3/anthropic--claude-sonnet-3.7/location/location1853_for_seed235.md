@@ -1,0 +1,25 @@
+# The Kelp Towers
+
+The first thing that strikes you about the Kelp Towers is not that you're underwater, but that you're so high up while being underwater. The ocean here doesn't merely cover the land; it *is* the land, a vast liquid continent suspended miles above the planet's true surface, held aloft by forces no scholar has fully explained.
+
+From within this suspended sea, the Towers rise—vast vertical cities built from and through ancient kelp forests that have been growing, dying, fossilizing, and regrowing for millennia beyond counting. The kelp has achieved a state of near-stone, yet remains alive, a biological impossibility elsewhere but the defining feature of this realm.
+
+The soundscape is overwhelming. The constant, thunderous pressure of water against water creates a bass note that reverberates through your body. Atop this foundation builds the creaking of the ancient kelp stalks as they sway imperceptibly, the distant songs of the rare sea beasts who navigate by sound, and the constant tapping, scraping, and hammering of the Dwellers as they expand their city. The cacophony would drive you mad if not for the curious acoustic properties of the water here, which somehow make the deafening roar feel like a physical presence rather than an assault.
+
+The Kelp Towers stretch across an area that would encompass continents. Each "tower" is a metropolis unto itself, a kelp stalk the width of mountains, hollowed and carved into countless chambers, connected by a network of tunnels both natural and constructed. Between the major towers stretch neighborhoods of smaller stalks, bridges of woven plant matter, and the floating gardens where the Dwellers cultivate the luminous algae that provides their primary light source.
+
+The Dwellers themselves are few and far between—perhaps one for every cubic mile of city. They move slowly, deliberately, their bodies adapted to conserve energy in this high-pressure realm. Their technology is simple yet effective: tools of bone and stone, patiently crafted over decades, passed down through generations. They carve their homes with chisels that take lifetimes to wear down. They weave ropes from kelp fibers that strengthen rather than decay with age.
+
+The water itself has an unsettling quality—it's dense, almost gelatinous, moving in currents that follow patterns established when the world was young. These currents are the true architecture of this place, more fundamental than any physical construction. The Dwellers build in harmony with them, creating chambers where water spirals inward to create pressurized pockets, or outward to form spaces of relative calm.
+
+The temperature is pleasantly warm, heated by geothermal vents far below that send columns of warmer water rising through the kelp forests. These thermal highways are the main transit routes, allowing Dwellers to travel between towers by simply entering the flow and letting it carry them.
+
+Most disturbing to outside visitors is the way time itself seems to flow differently here. The water's density and the ancient, eroded nature of this ecosystem have created a place where change happens at a pace that makes glaciers seem hasty. The Dwellers measure their lives not in years but in degrees of change—how much a particular tunnel has widened, how far a particular garden has spread. A construction project might span fifteen generations, with each builder adding perhaps a single room in their lifetime.
+
+The fauna are rare but significant—massive filter-feeders that drift between the towers, occasionally attaching themselves to a kelp stalk for decades before moving on. The Dwellers neither hunt nor farm these creatures, instead maintaining a relationship of mutual respect. The beasts clean parasites from the kelp and provide waste that fertilizes the gardens, while the Dwellers ensure that the architecture of their city accommodates the creatures' migratory paths.
+
+At certain junctures in the kelp towers, chambers exist where the water thins enough that sound travels differently, creating acoustic anomalies where conversations can be held. These "speaking rooms" are the centers of Dweller governance and culture, where their patient, deliberate democracy unfolds through discussions that might last centuries.
+
+The strangest aspect of all is what lies at the very top of the tallest towers, where the kelp breaches the upper surface of this suspended ocean—not air, as one might expect, but another phase of matter entirely, neither gas nor liquid nor solid, a boundary layer that scholars from drier realms have no vocabulary to describe.
+
+This is a world of pressure and patience, of architecture measured in eons, of life that has found stability in what should be impossible conditions. The Kelp Towers have always been here, and as far as anyone can tell, they always will be.

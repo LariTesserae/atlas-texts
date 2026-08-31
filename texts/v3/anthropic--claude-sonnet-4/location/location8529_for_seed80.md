@@ -1,0 +1,19 @@
+In a shallow depression where ancient bedrock meets newer sediment, an extraordinary foundry has taken root. The place feels caught between states—not quite natural, not quite artificial, as if the earth itself were learning to manufacture.
+
+The terrain dips gently, no more than twenty feet below the surrounding scrubland, forming a natural amphitheater perhaps two hundred paces across. Here, countless small vents pierce the ground like metallic flowers, each no larger than a dinner plate but densely clustered in irregular patches. They exhale thin streams of vapor that smell of copper and ozone, the exhalations rhythmic but not quite synchronized—a breathing that belongs to no lung.
+
+From these vents emerge delicate structures that might be coral, might be machinery. Branching filaments of what looks like tarnished silver grow in spirals and fractals, some reaching waist-high before dissolving back into the mist. They form, shimmer with internal light, then collapse into puddles that the ground immediately reabsorbs. The process never stops—a constant, quiet fever of creation and dissolution.
+
+Moisture clings to everything. Not rain exactly, but a persistent condensation that beads on every surface, making the air taste metallic. Occasional actual droplets fall from nowhere, as if the vapor itself grows too heavy and surrenders to gravity. The few sparse plants—stunted sedges and peculiar succulents with copper-green leaves—seem to thrive on this strange precipitation, their roots visibly extending toward the nearest vents.
+
+The light here filters through the ever-present haze, creating a dim, opalescent quality that makes distances uncertain. Colors shift between pewter and amber, and sometimes the metallic growths catch what little brightness there is and throw it back in unexpected directions, creating brief constellations in the mist.
+
+The soundscape pulses with industrial whispers. Soft hissing from the vents, the barely audible tick and ping of cooling metal, occasional liquid gurgles from underground. Beneath it all runs a subsonic hum—not quite heard, more felt in the chest—as if vast machinery operated far below. Sometimes this background thrumming intensifies, and the rate of formation above accelerates correspondingly, the metallic forests blooming and withering faster, the mist thickening.
+
+Temperature hovers in that cool zone where breath just begins to show, perhaps fifty degrees, though proximity to active vents brings warm drafts that smell of foundries and sea spray. The air moves in complex currents, drawn down toward some vents, expelled from others, creating micro-weather systems within the depression.
+
+Animal life appears sporadically—small birds with an unusual tolerance for the metallic atmosphere, insects with shells that seem to incorporate the local minerals, occasional fox-like creatures that move through the maze of vents with surprising confidence. They all share a certain stillness when observed, as if pausing to listen to something humans cannot hear.
+
+At the depression's edges, scattered artifacts hint at previous inhabitants or perhaps researchers: a single concrete pad, weathered to roundness; fragments of pipe that might be archaeological or might have grown from the ground itself; wooden stakes with faded markings that could be survey markers or ritual objects.
+
+The entire place feels like a natural system learning to be technological, or perhaps technology learning to be natural. Raw earth shaped by forces that operate just outside familiar categories, creating something that exists in the margins between geology and industry, between growth and manufacture. The turbulent energy is not violent but relentless—a quiet storm of becoming that never quite resolves into any final form.

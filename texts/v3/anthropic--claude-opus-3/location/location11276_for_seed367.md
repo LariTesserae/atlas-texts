@@ -1,0 +1,11 @@
+In a secluded courtyard nestled within the heart of an ancient stone city, life flourishes in unexpected abundance. The space is small, no more than a dozen paces across, enclosed by high walls of weathered sandstone blocks fitted tightly together by the hands of craftsmen long since passed into memory. The architecture speaks of a primitive time, yet the builders' skill is evident in the sturdy construction that has endured countless centuries.
+
+The air within this hidden garden is warm and heavy with the earthy aroma of rich soil and decomposing vegetation. Sunlight filters down from a small square of brilliant blue sky overhead, its intensity diminished by the depth of the courtyard and the lush canopy of foliage that arches over most of the space.
+
+Everywhere, there is growth. Vines clamber up the rough stone walls, their tendrils probing between the blocks, seeking ever higher. Broad leaves of deep green mingle with delicate fronds and the bright petals of flowering plants in a riotous tapestry of life. The ground is carpeted in a dense layer of fallen leaves and twigs, dotted with clusters of mushrooms in shades of ivory and brown.
+
+The air hums with the droning of insects and the chittering of small creatures hidden among the leaves. Lizards dart across sun-drenched patches of stone, while beetles scuttle through the undergrowth. The fauna teems in this oasis, a raucous and bustling ecosystem thriving in defiance of the barren world beyond the city walls.
+
+At the center of the courtyard, a small spring wells up from a crack in the paved stones. The water is clear and sweet, a tiny miracle in this parched land. A worn basin, perhaps once a fountain, catches the modest flow, its sides stained with mosses and lichens in shades of green and gold. The soft burbling of the water provides a constant counterpoint to the rustling of leaves and the hum of insect life.
+
+Despite the vibrancy of the flora and fauna, there is a sense of ancientness here, a feeling that this tiny haven has persisted unchanged for longer than the city itself. The cycle of life and death plays out in the small space, the decay of fallen leaves nourishing the soil to support new growth in an endless progression. It is a timeless dance, one that will continue long after the last stones of the city have crumbled to dust.

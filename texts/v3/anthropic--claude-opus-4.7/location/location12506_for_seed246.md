@@ -1,0 +1,31 @@
+# The Worn City at Tenfold Ridge
+
+You come on it from below, climbing through a long damp pinescrub that gives no warning. The trees thin and the wind sharpens and there, set into the saddle between two ridges that have been worn down to nothing more than the rounded shoulders of something once mountainous, is a town.
+
+Or what was a town. What still is one, in the way that a hand stripped of its skin is still a hand.
+
+The first thing you notice is that it is loud. The wind comes up the valley and finds every opening, and every opening is shaped to sing. The buildings are stone — a soft gray stone, full of pores, the kind that takes a thousand years of weather and slowly becomes lace. The walls are still there. The roofs are mostly gone. What remains stands like the bones of a fish, archways and lintels and the ribs of vaulting, and the wind pulls long sustained notes from the doorless doorways and the empty windows. Lower tones from the broad halls. High shrieking whistles from narrow slots that were once arrow-loops or chimneys or something else entirely. The whole place sings, a chord that drifts and reorganizes itself with each gust, never quite resolving.
+
+It is cold here. Your breath shows. There is frost in the shadows that doesn't burn off, even at midday, because the sun in this season comes at a low angle and the buildings throw long blue stripes across the streets. The light itself is good — clear, a little thin from the altitude — so you can see everything. There is nothing dim about this place. It is simply emptied.
+
+The streets are wide for the size of the buildings, and the buildings are not many. Maybe forty structures, maybe sixty if you count the half-walls and foundations grassed over. They are laid out around a central square that holds nothing but a stone basin, cracked, half-full of rainwater and red moss. The roads between buildings are paved in the same soft stone, scalloped now into shallow bowls by the feet of whoever walked here long enough to wear stone like soap.
+
+Water comes through the city in small ways. There is no river. But the ridge above sweats — its rocks hold last week's rain and let it down in slow seeps, so that one wall of every northern building has a long dark stain and a beard of dripping moss. The streets shine in patches. Where the seeps gather, small flat pools form between paving stones, and these pools have grown reeds, and the reeds bend in the wind and add a dry rattling under the great organ-note of the empty halls.
+
+Vegetation has gotten into everything, but not riotously. A patient kind of green. Cushion plants like green stones in the corners of rooms. A single rowan grown up through the roofless choir of what might have been a meeting hall, its berries this time of year a vivid orange against the gray. Hard mosses, soft mosses, lichen in maps of yellow and rust. The lush is in the variety and the deep saturation of color, not in the volume — every surface is colonized, but nothing is overgrown. As though even the plants here have learned restraint.
+
+You can walk for a long time and see no animal. Then a pipit, very small, flicks from one wall to another and is gone. Then, much later, a hare standing in the middle of the square — gray-coated, watching you with the entire attention of its body, then back to feeding. There are droppings in some of the buildings that suggest a fox passes through. There is nothing larger. The valley does not support much. The fauna is so thinned-out it begins to feel ceremonial, each animal a visitation rather than a population.
+
+Here is what is strange.
+
+The doors. Where doors still hang — and a few do, blackened wood bound with corroded iron — they are not on hinges quite where you'd expect. Some open into walls. Some are set in pairs facing each other across a threshold of only a hand's width. You begin to suspect the doors are not architectural in purpose but something else, that the builders thought of doors the way we think of windows, as a way of framing rather than a way of passing.
+
+And the chord. The longer you stand in the square the more you feel that the song of the wind through the stones is not random. Certain notes return. Certain intervals. The town was tuned. Whoever built it shaped the openings to make this music, and when the wind blows from the south as it does this afternoon, the place plays a piece it was made to play. It is not a pretty piece. It is long and slow and full of held dissonances that take minutes to resolve. You suspect there are other pieces for other winds. You suspect there is one for the winter gales that you do not want to be present to hear.
+
+There are no tools. No pottery sherds, no metal beyond the door-bindings, no charcoal in any hearth — and you check; there are hearths, deep stone hollows in every house, but they are clean as if no fire was ever lit. Whoever lived here, if anyone lived here, did not eat cooked food or make pots or strike fire. The buildings are the only artifact. The buildings are the entire civilization.
+
+The erosion is the deepest thing about the place. The ridges that hold the town in their saddle have been ground down so far that they read less as mountains than as the long slumped shoulders of something kneeling. The stone of the buildings is rounded at every edge. Sills have become curves. Steps have become ramps. Carvings, if there ever were carvings, have softened into suggestions — a panel above one lintel might be a face, or a sun, or just the place where rain liked to fall for a few millennia. The whole town has the smoothness of a riverbed pebble. It feels not abandoned but completed. It has reached the form it was always traveling toward.
+
+Sit on the rim of the basin in the square. The wind shifts, the chord changes, modulates down a third, holds. A drop of water falls from somewhere above and strikes a paving stone with an audible tap that you somehow hear inside the larger sound. Cloud-shadow runs across the ridge and the light goes briefly bluer, then back. The hare is gone. Frost in the shadow of the bell-arch (no bell) is exactly as thick as it was an hour ago.
+
+Nothing here is dying. That phase is long over. What's happening now is slower and is the thing that comes after dying — the long bright musical settling of a place into precisely what it is.

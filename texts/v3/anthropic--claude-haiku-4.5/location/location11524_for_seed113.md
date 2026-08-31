@@ -1,0 +1,37 @@
+# The Sunken Quarters
+
+You descend through the access shaft—a fitted tube of something that isn't quite metal, warm to the touch and slightly yielding. The light dims incrementally, not in steps but in a continuous fade, as though the air itself is learning to absorb less. Your ears adjust first: a layered hum becomes audible around the 40-meter mark. It's not unpleasant. It sounds like the settling of enormous things.
+
+The cavern opens suddenly.
+
+It is not dark—that's the first surprise. A phosphorescent algae coats the upper reaches, dim but sufficient, casting everything in a jade-blue wash that makes depth ambiguous. The light pools and stagnates in places, pooling thickest where moisture collects on exposed surfaces. Other areas fall nearly to blackness, not because there's no light source, but because the air itself seems denser there, more absorptive.
+
+The settlement spreads horizontally across the cavern floor in neat, deliberate terraces. Buildings—and they are buildings, though not quite in the conventional sense—rise in clustered groups, each district separated from the next by channels of standing water. The structures themselves appear to be grown rather than built: surfaces are organic, semi-permeable membranes stretched over frameworks of something metallic and fine enough to be nearly invisible. The walls breathe. You can see it if you watch long enough—a slow, patient expansion and contraction, drawing moisture in, releasing it again. Some buildings are nearly translucent; you can see the intricate lattice of supporting structures within, glowing faintly with their own internal luminescence.
+
+Water is *everywhere*, but not in chaos.
+
+The channels follow rational geometry. Waterways cut the district into logical segments—residential terraces, what might be markets, storage areas arranged with computational precision. Yet the water itself moves with geological patience. It doesn't flow so much as *seep*—constantly, from above and below, from the porous boundaries of the cavern walls. Condensation beads on every surface. The air tastes mineral and faintly sweet, like water that's been underground long enough to forget the sun.
+
+The buildings nearest the water's edge show signs of recent emergence. Their foundations are sharp-edged, the geometry still clean and angular, the material not yet weathered into softness. But higher up the terraces, older structures—or perhaps just older sections of the same structures—have begun to adopt the landscape's patient distortion. Surfaces have curved. Edges have become suggestions rather than declarations.
+
+The hum you heard grows more distinct as you orient yourself. It comes from everywhere and nowhere: a product of the water systems, you think, or the machines that manage them. There are machines. You see them in glimpses—delicate articulated things mounted at intervals, their function obscure. They move with crystalline precision, adjusting valves that control flow, modulating the permeability of certain structural membranes. No two movements are identical, yet they feel choreographed, as though the entire cavern is a single organism running a slow algorithm.
+
+A *song* almost.
+
+The vegetation here shouldn't exist, but does. The architects of this place—and it was architected, you can sense that now—cultivated something. Gardens hang from the upper cavern walls on suspension systems: cascades of luminescent moss, fronds that pulse faintly with bioluminescent rhythm, root systems that drift in the saturated air like the hair of a drowning thing kept perpetually at the moment of sinking. They don't grow wild; they're maintained, pruned, shaped into forms that complement the geometry of the settlement below. The smallest garden is the size of a cathedral nave. The air circulating through them is warm—warmer than the ambient cavern, as though these growth chambers are generating their own heat.
+
+The settlement has boundaries. You see them now: the terraced construction rises in defined tiers until it simply *stops*, delineating where the city ends. Beyond that perimeter, the cavern extends into distance and darkness. That far side is unreachable from here—the cavern is vast enough that the opposite wall is only a suggestion, a shadow beyond the light's reach. But the emptiness is the point. The space *between* the settlement and that farther nothing is intentional. The city is deliberately small, deliberately contained, held apart from the larger geology by the clarity of its own boundaries.
+
+There is no one visible. No human figures in the streets—if they can be called streets, these narrow passages between membrane-buildings. No movement except the mechanical adjustments of the machines, the slow pulse of the vegetation, the perpetual seepage of water seeking its level. Yet the place feels inhabited. Recent. The terraces show signs of use: worn paths where liquid water has been walked through countless times, creating channels of greater flow. Deposits of mineral-rich sediment marking where people—or something people-shaped—have rested.
+
+The sound is constant now that you've stopped climbing. The hum subdivides as your ears adjust: a deep thrumming from some central mechanism below the visible terraces, a higher-pitched whistling as air moves through specialized passages in the buildings, the *tick* and *whisper* of the adjustment machines, and underneath it all, the sound of water. Not a roar. Not even a creek. But the sound of saturation—the patient, inexorable sound of a system perpetually at its moisture threshold.
+
+The architecture suggests this place was designed for a density of life it does not currently contain. Terraces could hold thousands. The water channels are sized for volume. The vegetation gardens suggest that eating was once a more substantial concern. But now, the emptiness is voluptuous. The space *breathes*. There's room for expansion or contraction, for the slow algorithms of maintenance to continue indefinitely, for the machines to keep adjusting, the moss to keep glowing, the water to keep seeping, with no more labor than the fundamental physics of the place demands.
+
+The light is dimmer toward the lower terraces—the phosphorescence less concentrated, the cavern floor lost in true shadow. But as your vision adjusts, you begin to see that there *is* more infrastructure below. Pipes, channels, collection systems. The entire cavern floor may be engineered, every surface intentional. The settlement sits *on* a machine, you realize. The whole cavern is the machine.
+
+And it's still running. The humming, the water systems, the machines making their periodic adjustments—it's all part of a process that continues regardless of visible inhabitants. The city maintains itself. Or itself is maintenance. Or is maintained by something you haven't yet perceived.
+
+The air tastes of mineral persistence. The warmth rises from below, steady and patient. The light pools and disperses across the membrane-buildings, through the hanging gardens, across the still surface of the water channels, creating paths of reflection that don't quite align with any single light source.
+
+The place is alive in a way that doesn't require animals. It is a system. It is a record. It is something that learned to breathe without lungs.

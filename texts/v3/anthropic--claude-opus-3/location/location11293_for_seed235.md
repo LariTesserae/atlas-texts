@@ -1,0 +1,9 @@
+In the hazy heat, a vast tiered city clings impossibly to the sheer face of a mile-high cliff, its towers and terraces carved directly into the weathered rock. Lush vegetation drapes from every balcony and ledge - trailing vines, clumps of broad-leafed plants, even small trees jutting at unlikely angles, roots snaking into crevices. 
+
+The air is thick with humidity, almost tangibly dense. Wisps of cloud thread between the soaring spires and across plazas suspended over dizzying drops. In places, the architecture seems to dissolve into mist, its edges losing definition. Perpetual waterfalls spill down the rock face, some diverted by aqueducts and channels into glittering webs.
+
+Sound is a constant physical pressure, an unrelenting roar of water, wind, and a deep groaning of tortured stone. Words are lost, thought itself is drowned. Shapes in the mist might be winged creatures or figments of sight, flickering at the periphery of vision.
+
+At times the city seems to warp and flow like a mirage, its geometry subtly mutable. Great spans of bridge shimmer and fade, towers melt upwards into spires, streets dive into plunging arcades. Shadows move contrary to the light. Stairs emerge from solid walls. The unseen but palpable presence of the inhabitants hovers like a held breath.
+
+And above it all looms the cliff's impassive face, ancient and unchanging. Unperturbed by the baffling organic metropolis crawling upon it, unaltered since the rock was thrust from the earth's womb, it stands, and it endures. But for how long - and what may change in a place unmoored from natural law - not even stone may know.

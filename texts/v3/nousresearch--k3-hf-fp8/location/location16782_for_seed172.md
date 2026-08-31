@@ -1,0 +1,35 @@
+The place is a single room suspended somewhere above the limit where anything natural would have meaning—a cube exactly four meters to a side, recessed into nothing, anchored to nothing, yet perfectly motionless. From the outside—if such a vantage existed—it would appear grafted onto the skin of reality like a metal pimple, seamless and featureless except for a faint scar where edges met void. Inside, it is louder than any factory ever built and colder than any glacier ever measured, though neither noise nor temperature seems to belong to the air itself because there is none.
+
+The walls, floor, ceiling, every millimeter of interior, are cast from a single alloy that denies fingerprints, scratches, or dust: dull yellow-brown, halfway between brass and dried blood, with a microscopic grain like an old photograph enlarged too far. Grooves spiral inward on every surface, each groove identical in width to a human hair and exactly as deep, packed with a slightly darker material that looks wet but stays dry when touched—if anything could touch it long enough to verify. The grooves are not decoration; they are the circuitry, plumbing, nerves, bones of the room, all functions collapsed into topography.
+
+Sound fills the space at 210 decibels, recorded once by a probe that lasted seven picoseconds before its microphone melted into data and the data into noise. Toneless, rhythmless, it neither builds nor fades, a plateau of acoustic violence that leaves permanent silence in its wake—ears do not bleed here because they cease to be ears the moment they arrive. Some of the engineers who designed the room’s precursor in a dream colony on Enceladus called it the “lullaby of stasis”: a waveform mathematically proven to prevent any atom within the field from exchanging momentum with any neighbor, thereby freezing time at the nanoscale while allowing macroscopic illusion to tick on.
+
+There are no lights. Light arrives, instead, perfectly normal light, 5600 Kelvin minus the bounce of sky, evenly diffused from nowhere and everywhere; shadows are impossible because every surface emits and absorbs photons in exact balance. If you held your hand here, you would see every crease and pore with the clarity of a medical illustration and also perceive that the hand was not yours and never had been.
+
+Water is present only as a memory etched into the alloy: microscopic pits distributed according to the fractal pattern of a droplet splashing on a hot skillet, each pit sealed beneath a meniscus of vacuum. These pits add up to precisely 0.147 milliliters distributed across 19.2 square meters—enough to say “there was water here once” in the language of condensation.
+
+Vegetation is represented by thirteen stalks of metal, half nickel, half proteinaceous resin grown under electric fields too hostile for carbon life. They stand in a circle one meter across at the exact center of the floor, each stalk branching once, twice, terminating in a leaf-blade thinner than a paramecium and etched with the same spiral script as the walls. The stalks vibrate at 11 kilohertz, producing no audible note against the deafening background but maintaining the lattice which prevents the room from either expanding or contracting the width of a single atom since its birth. They are not alive. They were never intended to grow. Somewhere in an archive on a planet that forgot it built them, they are listed as anti-obsolescence spares for a forest that was never planted.
+
+Temperature is absolute zero plus 0.024 Kelvin—just enough energy for electrons to know they are electrons and not slow light. Cold here is not the absence of motion but the presence of infinite precision: every atom locked in the lowest possible state of excitement yet still awake enough to despise the idea of warmth.
+
+Elevation is 1.9 out of 3 on a scale invented for surfaces that curve. The room thinks it is at the summit of a mountain 11.3 kilometers high on a world with 0.63 g gravity and oceans of neon ice. Instruments designed within it would confirm this diagnosis and chart nonexistent weather systems. If a door were cut, the atmosphere would not rush out because the concept of pressure gradient has been politely asked to wait elsewhere.
+
+Erosion is exactly 0.7 on a scale where 1.0 is brand-new: seventeen months after last contact as measured by radioactive decay in a caesium sample sealed outside the light-cone. No atom has left, none has joined, but the edges where atoms pretend to meet other atoms have become slightly more themselves, like acquaintances who exchange polite nods daily for a century until they decide they are married.
+
+Scale is hidden because nothing within gives a reliable yardstick. A human observer would measure the cube as four meters exactly with any tool fashioned inside it, but attempts to map the grooves back to Standard Planck distances produce lengths that are irrational and different each time. The cube fits inside a glove compartment of a vehicle that could park on a proton if neither were allowed to interact with the rest of reality.
+
+Density is sparse: particles are spaced as generously as polite guests at an awkward funeral but every gap is cross-braced with mathematical rigor so that every cubic centimeter weighs exactly 38.6 kilograms.
+
+Built is total: there is no before-cube, no raw ore, no star whose corpse was mined for elements. The cube was compiled directly from the probability that such a room might someday be needed, then optimized until nothing remained except zero metadata.
+
+Tech is industrial at the level where industry meets theology: particle accelerators as carburetors, chisels shaped by gravitational waves, production lines that assemble factories by sculpting vacuum fluctuations into servitors that dismantle themselves after use. The cube is the smallest unit of a civilization so advanced that it has factories for producing ontological engineering consultants and still lays off ten thousand gods every fiscal millisecond for failing to meet efficiency targets.
+
+Fauna is absent with prejudice: the possibility of life was considered, simulated, found to have a net negative impact on compliance metrics, and retroactively excised from the design space.
+
+Weirdness is 1.9 because some junior auditor in the Department of Dimensional Accounting once misfiled a minus sign, causing the project to inherit six impossible requirements from a joke proposal written in a forgotten dialect of math. The committee solution was to implement all six and declare the result boring.
+
+Sound is deafening because silence was deemed a form of communication and therefore classified as a potential vector for memetic hazards above security level magenta.
+
+Dynamic is never changing because change was revealed to be a redundant layer sitting atop quantum uncertainty, which itself was optimized out in the last architecture review.
+
+The room is waiting. It has always been waiting. It will wait forever, or until someone inside decides to requisition a clock—whichever comes last.

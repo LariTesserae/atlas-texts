@@ -1,0 +1,15 @@
+Deep within the porous interior of a colossal, fossilized pillar—a geological spire the size of a mountain range—exists the *Hollow-Hive of Oth*. It is not a place of horizons, but of depth, light-years removed from the open sky, trapped in a pocket of stagnant, warmth-radiating basalt.
+
+There is no water here. The atmosphere is a thick, humid slurry of suspended fungal spores and mineral dust that clings to the skin like fine velvet. It is perpetually warm, heated by the friction of shifting tectonic plates far below, creating a climate that feels like the interior of a lung.
+
+The landscape is the definition of ancient. Everything is polished smooth by eons of slow, tectonic breath. The stone walls—the world’s "sky" and "floor"—have been rubbed to a dull, vitrified sheen by the movement of countless generations. There are no sharp edges left in Oth; it is a world of convex curves, rounded tunnels, and softened, slumped topography.
+
+Dense, bioluminescent mosses and towering, fern-like fungal filaments erupt from every crevice. These are not green, but a spectrum of ochres, deep ambers, and bruising purples, thriving on the mineral-heavy dust that settles like snow. They are packed in so tightly that the chamber feels alive, a bristling, carpeted labyrinth where every surface is soft to the touch.
+
+Integrated into this fungal sprawl is the city of the *Kith*. It is a primitive civilization—not because they are unintelligent, but because they have achieved a perfect, circular stasis. They build by weaving the flexible, calcified stalks of the giant fungi into tiered, hanging dwellings that resemble tightly woven wicker baskets. These "city-nests" are layered, one atop the other, stretching from the floor to the vaulted ceiling of the pocket. They use obsidian blades and friction-fire, carving intricate, rhythmic patterns into the walls that track the slow, pulsing warmth-cycles of the rock.
+
+The sound is overwhelming. It is the rhythmic, discordant chirping and chattering of billions of insects—the *hum-crickets*—that cover every square inch of the walls. Their sound is constant, a physical vibration that shifts in pitch with the temperature cycles. When the humidity spikes, the sound rises to a frantic, mechanical drone that makes the loose dust dance in the dim, amber glow of the glowing moss.
+
+Fauna is everywhere. The Kith are small, nimble, four-limbed beings with translucent, silken skin, and they move through this density with terrifying grace. They do not walk so much as flow through the overlapping layers of fungus and nest-strands. They exist in a constant, delicate cycle of harvesting the fungal spores and managing the insect populations, which serve as both food and building material. 
+
+There is no "up" or "down" here, only the center of the cavity and the curve of the walls. It is a closed, breathing entity—a clockwork ecosystem that has reached its final form. Nothing new enters the Hollow-Hive of Oth, and nothing leaves. The inhabitants are the caretakers of a primordial relic, living within the folds of a world that finished growing millions of years ago, yet refuses to stop moving.

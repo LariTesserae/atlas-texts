@@ -1,0 +1,23 @@
+The place has no surface.
+
+You are inside a high, hidden chamber of the world, a single vast bubble of air suspended like a secret lung inside an endless column of cold, violent water. The chamber is not “underwater” in the usual sense; it is a pocket of atmosphere trapped at impossible elevation, cradled within the body of a newborn ocean that has only just begun to remember it is an ocean. Everything here feels embryonic and temporary, as though the planet is still deciding whether this place is allowed to exist.
+
+The water presses against the bubble from all sides with crushing, living force. It is not a calm sea. It is a vertical maelstrom. Titanic sheets and pillars of water churn and slam into one another in slow, apocalyptic ballet, forming temporary cliffs of liquid hundreds of meters tall that collapse, spin, and reform without pattern. The roar is beyond deafening; it is a physical presence that lives inside your bones. You do not hear the sound so much as you are unmade by it. The noise is so total that silence would feel like death.
+
+Yet within the bubble itself the air is strangely clear, lit by a cold, normal daylight that has no obvious source. The light arrives bruised and filtered, as though it has traveled through kilometers of water and glass before reaching you. It gives every object inside the pocket a hyper-real, almost painful sharpness.
+
+The floor (if it can be called a floor) is raw, newborn stone—black basaltic glass still cooling from whatever cataclysm birthed this cavity. It is jagged, unfinished, full of embryonic cracks that sometimes exhale thin, cold mist. The stone has not yet learned to be a mountain; it is still remembering how to be solid. Sparse clusters of pale, leathery vegetation cling to it in isolated patches—things that look half lichen, half anemone, breathing slowly through pore-like mouths. They are the only living color: faint lavender, bone white, the sickly green of deep-sea organisms that have never seen a sun.
+
+Scattered across this embryonic stone are small, primitive structures. Not ruins—more like trial runs. A single hand-hewn dolmen of dark rock no taller than your chest. A spiral of carved bone stakes driven into a crack. A low wall of carefully stacked slate that ends abruptly, as if its builder simply walked away mid-thought. These artifacts feel like the first hesitant sentences of a language the world is still inventing. Some of them are wrapped in tight coils of sinew or braided kelp rope, as though someone is trying to anchor ideas to the stone before the next convulsion erases them.
+
+The air itself is turbulent. Winds born of pressure differentials between the water walls and the pocket scream through the cavity in erratic, directionless gusts. They rise and fall like living things, sometimes forming momentary vortices that lift loose pebbles into slow, impossible orbits before smashing them against the rock.
+
+Fauna is rare but unforgettable when it appears. Every so often a pale, translucent creature the size of a horse drifts through the violent water just beyond the bubble’s skin. It has no eyes. Instead, long crystalline filaments trail from its body, vibrating in the deafening roar, “listening” to the chaos. Sometimes one of these creatures presses itself against the invisible boundary where water meets air. For a moment the membrane between worlds bows inward like a living drumhead, and you can see its heartbeat pulsing in slow, enormous waves. Then the water tears it away again.
+
+This is not a stable place. The bubble itself is dynamic, Solaris-like. Every few hours the walls shudder, the roar changes pitch, and a new fracture opens somewhere in the stone. Water may roar in for a terrifying minute, only to be violently expelled again as the pocket reasserts itself. New stone swells from below like black dough. Old stone collapses into the depths. The primitive artifacts are sometimes swallowed, sometimes lifted to new positions, as though the world is rearranging its own half-formed thoughts.
+
+There is a sense that you are standing inside the skull of something that has not yet been born. The deafening sound is its heartbeat. The cold, clear light is its dreaming. The scattered bone stakes and half-built dolmens are its first, tentative attempts to think.
+
+Stay too long and you begin to feel it thinking through you.
+
+The water outside never rests. The stone beneath your feet never finishes becoming stone. The pocket may collapse tomorrow, or it may remain for ten thousand years—both feel equally likely. This is a place that is still negotiating its own existence, and it does so at a volume that could shatter gods.

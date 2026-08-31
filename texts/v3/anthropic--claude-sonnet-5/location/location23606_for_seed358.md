@@ -1,0 +1,33 @@
+# The Weeping Gallery
+
+Below the surface, but not deep — close enough that you can feel the weight of sky pressing down through three meters of raw stone, close enough that roots once found this place before the rock decided otherwise. This is a cavity still being born: a regional system of chambers and connecting throats, stretched across what would be valley-scale if it weren't folded into darkness, where the walls have not yet finished deciding their shapes.
+
+## Ground and Water
+
+The floor here is not floor so much as accumulation — silt, mineral crust, standing water in shallow basins that never quite become pools because something always disturbs them. Every surface weeps. Not dramatically, not in sheets, but constantly: condensation beading on warm stone, trickling in threads too thin to call streams, pooling in declivities, finding the path of least resistance through rock that is itself still settling into its final form. The air is thick with moisture, warm and close, so saturated that breathing it feels like drinking in small sips. Walls sweat. Ceilings drip in irregular, arrhythmic patterns — not quite a rhythm you could set a clock to, though something in you keeps trying.
+
+The rock itself is raw — you can see where it hasn't finished happening. Seams of paler mineral run through darker stone like veins not yet healed over. Some surfaces are smooth from water's patient work; others are sharp, freshly exposed, as if the cavity expanded last week and the edges haven't been softened yet. Nothing here is old in the way surface stone is old. This place is closer to its own beginning than its end.
+
+## What Fills the Space
+
+Despite the sparse vegetation — thin colonies of pale fungus, blind mosses clinging to damp crevices, the occasional fibrous mat where a root found its way down through a fracture and gave up trying to reach light, settling for the warm wet dark instead — the density here is total. There is no part of this gallery that isn't occupied by something. Every recess holds a nest, a den, a colony, a cluster of unidentifiable eggs glistening in clutches against warm rock. The abundance of fauna isn't scattered through the space; it's stacked, layered, packed shoulder to shoulder in the dark — blind crustacean things scuttling over each other in shallow water, soft pale creatures clinging in dense mats to ceiling and wall, larger shapes moving with slow purpose through the throats between chambers, never quite seen in full, only felt as displaced air and the suggestion of mass.
+
+## The Sound
+
+This is the place's defining fact: it is deafening. Not loud in the way of explosions but loud in the way of accumulation — ten thousand individual sounds, each modest, compounding into something that presses on the eardrum like the water-weight presses on the walls. Dripping water, magnified by stone acoustics into a percussion that never resolves into pattern. The skitter and click of carapaces on rock. Wet sounds — things moving through mud, through shallow pools, through each other's proximity. And beneath it, layered into everything: engines. Somewhere — close, judging by the way the floor hums underfoot — machinery works at something. Pumps, maybe, given how the water seems to move with more purpose in certain channels than gravity alone would explain. The thud of pistons transmitted through stone. A rhythm of industry laid under a much older rhythm of dripping and skittering, the two sounds refusing to synchronize, producing a kind of permanent dissonance that never lets the air go still.
+
+## The Built Things
+
+Scattered, not concentrated — a structure every so often, never enough to call this developed. A rusted housing for some pump mechanism, half-submerged, vibrating faintly, feeding pipes that vanish into the rock without explanation. A catwalk, corroded to lace at its edges, spanning one of the wider chambers, leading to a door that no longer opens because the rock has shifted around its frame. Cable, thick and old, strung along one wall, looping down into a pool and not coming back out. Whoever built these things built them with intention, for some specific purpose, and then the purpose either succeeded so well it became invisible or failed so quietly no one came back to fix it. The machines that remain seem to run themselves now, tended by no one, embedded in the cavern's slow ecology like another species of fauna — mechanical, but no less feral for it.
+
+## Light
+
+What light exists is dim, indirect, sourceless in the way underground light often is — a faint phosphorescence from patches of fungus, a weak amber bleed from somewhere deeper where the machinery might be lit by its own purpose, the occasional reflective flash off wet stone when something shifts and catches what little there is. Your eyes adjust and adjust and never quite arrive at comfortable. Shapes resolve only at close range; everything past a few meters dissolves into suggestion — a darker patch that might be a wall, might be a chamber mouth, might be something large and patient, watching.
+
+## Time, Here
+
+Nothing here moves quickly. The cavity is still forming, but on a timescale that makes the dripping water seem rushed by comparison — centuries per centimeter of stone dissolved or deposited. The fauna's rhythms are slow too: long gestations in those glistening egg-clutches, patient unhurried movements through the throats and chambers, as if the abundance of life here has settled into a metabolism tuned to the geology rather than against it. The machinery is the only fast thing, and even it works in steady, repetitive cycles — not urgency, just continuance. This is a place where everything is becoming, gradually, was becoming yesterday and will be becoming for a long time yet, and the deafening noise of all that crowded life and labor is simply what becoming sounds like when there's no room left for anything to happen quietly.
+
+## The Rule of the Place
+
+If there's a law this gallery obeys, it's this: *nothing here is finished, and nothing here is empty.* Every surface is mid-transformation — wet stone becoming wetter or drier, raw edges becoming smooth, populations growing into the space available until they fill it entirely and the space itself must expand to compensate. The industry buried in the walls doesn't interrupt this process; it has simply been absorbed into it, another slow gradient running alongside the geological ones. To walk through here — if walking were easy, which it isn't, given the water and the crowding and the dark — is to move through a place still deciding what it will be, deafened by all the small decisions being made at once, none of them final.

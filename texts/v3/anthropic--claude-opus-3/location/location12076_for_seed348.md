@@ -1,0 +1,11 @@
+The abandoned industrial district of Hive Zeta-9 stretches out before you, a labyrinth of decrepit factories, rusting machinery, and crumbling infrastructure fading into the gloom beneath a dome of scuffed and soot-stained plexiglass. Moisture drips incessantly from cracks and seams overhead, pooling in oily puddles on the cracked concrete and running in rivulets down graffitied metal walls. The air is cool and clammy against the skin.
+
+Not a speck of vegetation can be found in this bleak urban expanse—only angular geometries of steel, plastic polymers, and synthetic building materials, now weathered and corroded by ages of neglect. The remains of assembly lines, conveyors, and robotic waldos form a dense mechanical undergrowth, half-dismantled for parts.
+
+Overhead, antiquated neon advertisements for obsolete products flicker and buzz, their garish colors reflecting off the damp surfaces. The occasional spark showers down from shorted wiring. An irregular clanking emanates from somewhere deep within the industrial maze, hinting at machines still restlessly operating long after their purposes have been forgotten.
+
+Strange semi-organic forms swarm over every surface—not fauna exactly, but seething masses of silico-bacterial mats and writhing fractal structures of self-assembling techno-vines. These extrusions of the Hive's living circuitry spread like a rampant mechanical fungus, slowly digesting the remains of the factories to reclaim their raw materials. 
+
+Eerily glowing grubs the size of dogs squirm in the oily muck, thrashing and snapping at each other with scissoring metal mandibles in some incomprehensible imitation of life. Larger shapes slip through the deeper shadows on centipede legs of scavenged cabling, tittering to each other in voices like static.
+
+All is in a state of unchanging ruin, an equilibrium of decay and stagnation beneath the eternal twilight glow filtering down through layers of smog. Time seems to congeal here, flowing sluggishly if at all, as the Hive endlessly gnaws on the bones of its own desiccated industry in the cool subterranean dark.

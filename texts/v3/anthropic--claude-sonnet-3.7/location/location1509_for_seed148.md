@@ -1,0 +1,29 @@
+# The Suspended Metropolis of Lacuna
+
+Here, the laws of physics are suggestions, not commands. The metropolis of Lacuna stretches across a vast negative space — a continental absence carved into reality itself. From certain vantage points, it appears as a sprawling urban network suspended in nothingness; from others, as holes punched through the fabric of existence.
+
+The city doesn't rest on land but rather hangs in a dimensional pocket that constantly rebuilds itself. Streets and avenues curve impossibly, sometimes folding back on themselves like paper origami that refuses to commit to a final form. Buildings rise from nothing, constructed of materials that haven't fully decided what they are — sometimes glassy and reflective, sometimes densely metallic, occasionally transparent or partially phased out of visibility.
+
+Moisture is omnipresent yet elusive. Water appears as globules that orbit architectural structures, as if caught in microscopic gravitational fields. Rain falls upward in some sectors, collecting in ceiling-pools that occasionally burst and shower pedestrians below. In other districts, narrow canals of water flow along impossible gradients, sometimes splitting into perfect droplets that hang suspended for hours before suddenly racing along their paths again.
+
+The ambient temperature is pleasantly warm, though heat distributes itself according to unfamiliar principles. Thermal pockets drift through the metropolis like invisible clouds, bringing moments of intense warmth followed by comfortable baseline temperatures. Workers in the industrial sectors have learned to predict these migrations, taking breaks when heat pools around their machinery.
+
+There is almost no vegetation. Instead, crystalline formations grow in place of what might be gardens or parks — mineral structures that catch light and water, refracting both in hypnotic patterns. These formations aren't alive by conventional definitions, yet they respond to environmental changes, sometimes growing or shrinking as conditions fluctuate, displaying behavior that mimics metabolism without biological processes.
+
+The whole expanse is in a state of embryonic development. New districts materialize at the periphery of perception, raw geometries settling into architectural forms as if reality is being sketched by an unseen hand. The older sections of Lacuna appear more stable, though even they occasionally undergo spontaneous reconstruction, buildings dismantling and reassembling themselves according to blueprints that exist in dimensions adjacent to our familiar three.
+
+Despite its vastness, Lacuna feels remarkably empty. Great distances separate clusters of construction, and traveling between districts means traversing near-void spaces where only occasional fragments of matter float — perhaps pieces of buildings that never fully manifested, or remnants of collapsed structures awaiting reintegration.
+
+The industrial heart of the city thrums with machinery operating on principles that defy conventional engineering. Factories produce objects that sometimes change their nature mid-assembly. Massive engines drive processes that appear to manipulate reality itself, sending visible ripples across the fabric of space when they cycle to maximum output. Most remarkable are the reality looms — towering mechanisms that weave raw possibility into semi-stable matter, their operators guiding the process with instruments that measure quantum fluctuation.
+
+Sound behaves strangely here. The industrial drone carries across impossible distances, somehow louder far away than up close. Conversations echo before words are spoken. In some districts, sound manifests visually as colored patterns in the air, while in others, it seems to take physical form — workers shape auditory emissions with specialized tools, molding noise into useful artifacts.
+
+The few fauna that exist in Lacuna have adapted to its peculiar conditions. Most notable are the phase beetles — insect-like creatures that can slip between dimensional states, appearing as solid entities one moment and translucent outlines the next. Larger creatures are rare but striking: the drift whales, enormous beings that swim through empty space as if it were an ocean, trailing condensation that forms the basis of the city's water cycle.
+
+Humans and humanoid beings inhabit this place, going about business with practiced nonchalance despite the reality breakdown around them. They've developed technologies to navigate the instability — dimensional anchors that prevent unintentional drift, probability compasses that point toward the most stable route between locations, and reality stabilizers worn as jewelry or implants.
+
+The weather of Lacuna doesn't follow from atmospheric conditions but from fluctuations in the underlying reality matrix. Storms manifest as visible distortions in space-time, with lightning that branches in four dimensions and thunder that arrives before the flash. During these events, the already tenuous rules of physics grow even less reliable, and residents secure themselves with tethers to prevent being swept into dimensional eddies.
+
+At the edges of this vast metropolitan non-space, new territories continuously emerge from nothingness, raw potential solidifying into extensions of the city. Construction crews work at these boundaries, not building with materials but rather guiding the emergence process, using specialized tools to coax coherent structures from quantum foam.
+
+This is Lacuna — a place where urbanization meets the unformed, where industry harnesses the malleability of an unfinished reality, and where the emptiness between things might be more significant than the things themselves.

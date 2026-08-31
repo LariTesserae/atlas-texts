@@ -1,0 +1,17 @@
+At first glance it looks impossible: a high, bright world that should be barren, yet is undeniably green.
+
+Not green like a wet valley. Green like oxidized copper, sage skin, silver-mint bloom—colors that live on dry surfaces. You stand on an uplifted continent of old stone, most of it above the line where clouds usually form. The air is thin and cool, the sun hard-edged and almost white. Shadows are sharp. Distances are huge. Ranges rise beyond ranges, each one worn down into patient forms: blunt ridges, long-backed mesas, amphitheaters carved by wind and frost rather than rivers. No flowing water threads the land. No lakes shine. No mud exists.
+
+And still, vegetation is everywhere.
+
+It grows in spaced dominions rather than carpets. Between living things lie broad reaches of pale gravel, salt-crusted flats, and dark volcanic plates. Then, abruptly, a stand of tall plume-plants begins—thousands of stalks, each many meters high, with layered fronds like folded glass. Their tissues are thick with waxes and mineral gels; they drink almost nothing liquid. At night, when temperature drops, they comb trace frost from the air and pry hydrogen from buried hydrated salts. Their roots are not delicate feeders but slow drills, splitting rock over centuries. From a distance these groves look lush, almost forested; from within, they are airy and cathedral-wide, each trunk separated from the next by open ground and light.
+
+The land has had a very long time to settle into itself. Every slope looks negotiated. Talus fans lie exactly where gravity wants them. Stone ribs are polished by abrasive wind into satin curves. Cliffs carry vertical gardens of clinging mats that have been growing, dying, and regrowing in the same seams for ages beyond counting. Erosion is not violent here; it is continuous. Grain by grain, face by face, the plateau reshapes itself without hurry.
+
+Because the scale is so large, the place makes its own weather despite its dryness. Morning is clear and cold. By midday, thermal winds rise along escarpments and move like invisible tides across whole provinces. Dust columns walk the flats in slow spirals. In late afternoon, high veils of ice-crystal haze may appear far overhead—never rain, just brief dimming and halos around the sun. Twilight is long, blue, and cold; nights fall silent enough that cooling rock can be heard ticking.
+
+Sound rarely carries life. No swarms, no choruses, no constant animal motion. Fauna exists, but sparsely: a glider that crosses kilometers without flapping, feeding on spore ribbons; a six-legged grazer that visits one grove every few days and vanishes into stone-colored distance; burrowers that surface only at dawn to collect fallen husks. Most of the time you hear wind skimming through hollow stems, the brittle click of seed-cases opening, and occasionally the dry clatter of a slope giving way.
+
+There are no structures, no roads, no cut marks, no right angles—nothing that suggests tools or plans. The only “architecture” is biological and geologic: buttressed roots gripping fractured basalt, fan-crowns arranged to shade their own young, ridge systems channeling moving air into cool pockets where life can persist. The rules of this world are strict but generous: moisture is rare, light is abundant, cold is survivable, and space is immense. Life responds not by crowding, but by mastering distance.
+
+So the landscape feels both empty and thriving. Vast quiet. Bright austerity. A dry high kingdom where living things learned to be lush without ever being wet.

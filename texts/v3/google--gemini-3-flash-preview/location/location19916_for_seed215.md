@@ -1,0 +1,21 @@
+The land here is not old enough to have crumbled. It is a world of sharp facets and unweathered obsidian, a plateau at a staggering altitude where the air is thin but heavy with moisture. This is an embryonic continent, a slab of the planet’s crust that has only recently—in geological terms—been thrust into the cold, bright upper atmosphere. Because the rock is so new, there is no soil, only the raw, black architecture of the basement stone, yet it is perpetually weeping.
+
+Water does not flow in rivers here; it bleeds from the rock. The high elevation traps passing clouds, which snag on the jagged, un-eroded peaks and dissolve into a constant, shimmering condensation. Every surface is slick. Every vertical face is a "weeping wall" where beads of water coalesce and drip with a rhythmic, percussive consistency. 
+
+This is the **High Nursery**.
+
+The scale of the landscape is so vast that the horizon ceases to be a line and becomes a curve of violet-tinted haze. Looking across the expanse, one sees the curvature of the world, punctuated by the "urban" clusters. These are not cities of brick and mortar, but gargantuan, crystalline lattices of post-physics engineering. They look like frozen lightning bolts or geometric nebulae, anchored into the fresh rock. Their technology operates on a level that bypasses mechanical friction; they hum with a deep, subsonic vibration that manages to be felt rather than heard, leaving the actual air quiet.
+
+The tech is "beyond-modern" in how it interacts with the ecology. These structures act as artificial lungs for the planet, drawing the excess moisture from the cold air and transmuted it into heat and nutrient-slurries that sustain the abundant fauna.
+
+The vegetation is sparse—mostly iridescent lichens and thin, wire-like reeds that grow in the crevices of the obsidian—but the animals are everywhere. Because the world is so new and the "cities" provide so much redirected energy, life has bypassed the slow crawl of forest-building and jumped straight to complex mobility. 
+
+Giant, translucent "skaters"—beings with spindly, multi-jointed legs tipped with hydrophobic pads—glide over the slick rock faces like water striders on a pond. They are the size of houses, navigating the vast distances between the technological hubs. Aerial leviathans, thin as ribbons and kilometers long, drift through the clouds, feeding on the high-density minerals suspended in the misty air. The ecosystem is in constant, predator-prey motion: small, quick-silver mammals dart between the shadows of the crystalline towers, hunted by silent, hawk-like shadows that use the city's own gravitational distortions to stoop at impossible speeds.
+
+The temperature is bitterly cold, a sharpness that would crack skin if not for the high humidity. The light is clear and solar-true, reflecting off the black glass of the ground and the prismatic facets of the buildings, creating a world of high-contrast silhouettes.
+
+Despite the activity, it is a quiet place. The sound is muffled by the constant shroud of mist and the sheer emptiness between the massive structures. You might hike for days across a single obsidian shelf, hearing nothing but the *tink-tink-tink* of condensation hitting rock and the occasional, distant boom of a ribbon-creature breaking the sound barrier miles above.
+
+There are rules here, dictated by the engineering of the towers. Gravity is not a constant; near the "urban" centers, it can be tilted or halved to allow for the movement of heavy materials or the nesting of great beasts. The world is under construction, not by nature alone, but by a logic that treats geology as a programmable substrate.
+
+It is a silent, wet, freezing frontier. A place where the planet is still cooling, yet the inhabitants are already living in the far future. You stand on a ledge of glass that has never known the touch of wind-blown sand, watching a herd of bioluminescent grazers leap across a chasm, while behind you, a spire of computational crystal silently rewrites the local weather patterns to ensure the rain never stops falling.

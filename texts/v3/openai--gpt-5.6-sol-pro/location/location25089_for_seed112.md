@@ -1,0 +1,43 @@
+At first it resembles a high desert under an unnaturally clear sky: a continent of pale shelves, long scarps, and open distances bright enough to erase depth. There are no rivers, lakes, snowfields, or traces of rain. The air is cool and extremely dry. It tastes of stone dust, resin, and ozone.
+
+Then the ground moves.
+
+The entire plateau is vegetable matter—not soil covered by plants, but a single, discontinuous botanical substrate many kilometers thick. Its oldest tissues have mineralized into chalk-white ridges and gray, cellular mesas. Younger layers remain flexible beneath them, slowly lifting and lowering whole tracts of country. What appears from a distance to be bare rock is compressed bark, dense as ceramic; the gravel is made of cast-off scales; the sand is pollen armored in glassy shells.
+
+Nothing grows thickly in the familiar sense. The distances are enormous and exposed. Individual trunks may stand fifty kilometers apart, leaving broad courts of brightness between them, but each trunk belongs to a root-and-rhizome system spanning provinces. Vegetation is total and density is low: one life spread thinly across a world.
+
+The great plants rise like weathered towers. Their bases are broad, folded buttresses whose channels have been polished by centuries of abrasive wind. Above, they divide into sparse crowns of black-green vanes, each vane kilometers long and thin enough to flex. The crowns do not make shade so much as moving eclipses. When one passes in front of the sun, a long blade of darkness travels across the plateau at startling speed, pursued by a silver flash as reflective undersides turn upward.
+
+No part of these organisms is soft. Water has almost no place here. Their chemistry runs on cold hydrocarbons, sulfur compounds, and liquefied gases drawn from deep pressure chambers. Their sap is a clear, volatile oil. Exposed to open air it boils away in seconds, leaving yellow crystals around wounds. Their growing tips are insulated in felted sheaths; their reproductive dust is metallic and clicks against stone-hard bark.
+
+The plateau’s elevation places it within the strongest upper winds. Air pours over its rims and across its interior without obstruction, accelerating through corridors between trunks. The result is continuous, overwhelming sound.
+
+The vanes roar like immense belts under tension. Hollow stalks pulse at infrasonic frequencies, beating the chest before the ear fully registers them. Dry seed capsules revolve in the wind, their toothed rims producing a shriek like circular saws. Along the ground, loose scales race in glittering sheets, hissing and clattering. Pressure vents open and close in distant root fields with concussive reports. Electrical charge accumulates across the fibrous surface and discharges between crowns in blue-white arcs, sharp enough to leave branching afterimages.
+
+Silence occurs only locally, usually just before something violent.
+
+The landscape has an industrial character despite containing no structure that was built. Evolution has arrived independently at turbines, refineries, pressure vessels, transmission lines, and assembly systems. Tall spindle-plants extract energy from the wind through rotating crowns. Their torque travels down braided vascular shafts into buried organs, where gases are compressed and chemical feedstocks separated. Ridge-long cords carry electrical potentials between colonies. At junctions, fleshy switch-knots swell or contract, routing current according to light, temperature, and stress.
+
+Elsewhere, low fields of hexagonal mouths sort windborne particles. Each mouth rejects unsuitable grains with a puff of gas and draws useful ones into chambers beneath the crust. Inside, enzymes and heat reduce them to carbon frameworks, salts, and conductive filaments. The waste emerges as identical dark pellets, accumulating in long, remarkably regular drifts. From above, these feeding grounds look like abandoned industrial estates, though there are no roads, walls, tools, or hands—only repeated biological processes operating at continental scale.
+
+The system is ancient. Its forms have settled into balance with constant abrasion. Wind has rounded the exposed bark-mesas and carved deep flutes into the great trunks. Dead vascular cables cross ravines like fossil ropes, slowly being worn through strand by strand. The plateau’s margins shed enormous plates into the low void beyond. Yet erosion is not merely destruction here. The living substrate anticipates it. New fibers grow along prevailing stress lines; brittle surfaces are laid down where the wind needs to strip material away; spores germinate best in fresh scars. The shape of the country is maintained by losing it.
+
+This equilibrium does not make the place calm.
+
+Growth comes in surges. A pressure change may wake a dormant tract thousands of square kilometers across. The pale crust buckles. Ridges split with reports like artillery. Flexible red tissue rises through the cracks and unfolds into temporary fins, fans, and funnels. For several hours the whole tract becomes a churning field of machinery-like organs, trapping light, sorting dust, mating by electrical contact, and producing clouds of hard spores. Then the volatile sap is withdrawn. The fins bleach, stiffen, and break apart in the wind. By the next bright cycle the region has become open desert again, except that its horizon has shifted.
+
+Fauna is abundant but seldom obvious against this scale. Most animals live inside the plant-world rather than upon it. They travel through ventilation canals, graze conductive films from buried cavities, or nest in warm reaction chambers. On the surface, small six-legged runners move in dark streams along bark fissures. Their polished shells protect them from desiccation, and their feet end in magnetic hooks that keep them from being blown away. They communicate by drumming on the substrate; millions together produce a fine vibration beneath the larger roar.
+
+Larger creatures appear as solitary moving forms in the open spaces. Sailbacks unfold rigid membranes and let themselves be hurled from ridge to ridge. Herds of pale borers follow the slow migration of chemical warmth belowground, cutting circular wells through dead crust to reach fresh tissue. Flat-bodied scavengers hide under cast scales and emerge after electrical storms to consume the charred edges of crowns. Predators hunt mainly by sensing changes in vibration. They crouch motionless for days, indistinguishable from knots of bark, then cross kilometers in a series of wind-assisted leaps.
+
+Nothing drinks. Animals obtain solvent and fuel from plant oils, storing them in sealed bladders. Their breath is valuable and often recaptured through layered throat sacs. Blood spilled in the open foams, crystallizes, and blows away.
+
+The sky is usually fierce with light. The thin high air does little to soften the sun, and every pale surface returns its glare. Shadows are blue-black and precise. Dust storms do occur, but they are composed less of mineral dust than of spores, fibers, shell fragments, and microscopic blades shed by the living ground. Such storms can turn the sky copper or green. They move like walls, loud even by the standards of the plateau, electrically alive and full of animals riding the turbulence.
+
+At night the cold deepens quickly. The wind does not stop. Root lines become visible as dim networks beneath translucent crust, carrying amber pulses from storage organs to active crowns. Vast areas brighten and fade in sequence, not quite rhythmically. Seen from a height, the continent resembles an enormous circuit thinking slowly under its own weather.
+
+There are no paths because no repeated passage remains fixed for long. There are no ruins because nothing here has ever needed to build outside itself. Shelter, engine, factory, road, and landscape are functions of the same old life. Even the empty spaces are part of its anatomy: clearances reserved for wind, light, dispersal, and the fall of crowns.
+
+Its governing rule is exposure. Anything that cannot harden, anchor, flex, or be replaced is removed. Its second rule is motion: energy must pass through—wind into torque, light into charge, tissue into dust, dust into tissue again. The plateau persists not by resisting turbulence but by making turbulence productive.
+
+Across the bright distances, the crowns continue to turn. The ground swells beneath its mineral hide. Herds vanish into the glare. Somewhere beyond the visible horizon, a mature pressure organ opens, and several seconds later its detonation arrives through the living continent—first as a tremor underfoot, then as a wall of sound rolling through the wind.

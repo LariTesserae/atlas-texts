@@ -1,0 +1,26 @@
+**The Verdant Spine**  
+
+Perched in a highland valley that stretches like a forgotten seam between distant peaks, the landscape of the Verdant Spine breathes with a slow, deliberate pulse. The elevation here—1.5 on the scale—lifts the air into a warm, humid haze (temperature 1.8), where breath mists faintly even in daylight. The terrain is a paradox: a place where water and plant matter conspire to both construct and consume the land itself.  
+
+**Water & Atmosphere**  
+Water seeps from everywhere. The bedrock, a porous stone that weeps steadily, releases streams that carve shallow gullies before pooling into marshes of glassy black water. These pools reflect the sky in distorted fragments, their surfaces broken by the ripples of unseen life. Mist clings to the land like a second skin, condensing on leaves and pooling in hollows. In the early hours, the air thrums with the *plink* of droplets falling from overhanging fronds into still pools, a sound that merges with the deeper, resonant *thrum* emanating from the earth itself—a low-frequency vibration from water moving through subterranean aquifers.  
+
+**Vegetation as Architecture**  
+Plants here are not mere growths but builders. Towering *lignum spires*—trees with trunks as wide as houses, their bark etched into spiral patterns—rise like living cathedrals. Their branches fuse into vaulted canopies, their leaves broad and waxy, filtering the light into a perpetual emerald dimness. Vines, thick as pythons, dangle from these structures, weaving into bridges or nets that hum in the wind. The ground is carpeted not with grass but with a spongy layer of *moss-lichen*, which emits a faint phosphorescence at dusk, turning the valley into a constellation of stars trapped beneath feet.  
+
+But the true marvels are the *hollowbacks*—trees whose trunks have been colonized by symbiotic fungi, their interiors hollowed into chambers. These serve as dwellings, their walls lined with a velvety moss that muffles sound and regulates temperature. The structures are grown, not built, yet they form a network of living rooms, corridors, and towers that shift subtly over decades as roots and fungi collaborate to reshape them.  
+
+**The Constructed Wild**  
+The "built" here is total (2.8), yet no tool has ever touched it. The landscape is a monument built by roots and time. Terraced hillsides are held in place by the entangled roots of *anchorvines*, whose thick, woody tendrils grip the earth like fingers. Waterfalls tumble over cliffs of *sedimentstone*, a rock that forms when mineral-rich runoff hardens into layered sheets, each stratum a ghost of past floods. These cliffs are pocked with caves, their entrances framed by curtains of *weeping moss* that drip ceaselessly.  
+
+In the valley’s heart lies the **Rootsea**, a marsh where the ground is a mosaic of partially submerged tree trunks and floating islands of peat. Here, the water is so saturated with decomposing vegetation that it supports a floating ecosystem: *lilypads* the size of horses drift lazily, their undersides host to colonies of tiny, skittering creatures. The Rootsea’s air is thick with the smell of loam and something sweeter, like rotting fruit, a scent that clings to skin and clothes.  
+
+**Unnatural Stability & Strange Ecology**  
+The dynamic here is frozen (0.5)—a state of perpetual equilibrium. The temperature rarely fluctuates, the water never dries, and the plants grow with glacial slowness, their changes imperceptible to all but the oldest hollowbacks. This stillness breeds oddities. The *echo leaves* of certain shrubs vibrate in the wind, creating harmonies that shift with the breeze. At night, the *glowmoss* that carpets the ground pulses faintly, as though breathing, while the roots of the lignum spires tap out slow, rhythmic patterns in the soil—a language of growth and nutrient-seeking that the sparse fauna (1.3) seems to interpret instinctively.  
+
+The few fauna present are relics: *mist moths* with wings like stained glass, which flutter through the air in synchronized swarms, and *rootskitterers*, blind, eel-like creatures that burrow through the moss-lichen, aerating it. Their presence is rare yet critical, as their movements trigger chemical reactions in the soil that sustain the glowmoss and anchorvines.  
+
+**Sound & Scale**  
+The sound (2.0) is constant: a blend of water, wind, and the creaking of the living architecture. The valley’s scale (1.8)—town or valley-sized—feels both intimate and vast. From the edge of the Rootsea, the lignum spires recede into a haze of mist, their canopy forming a jagged horizon. Yet within the marsh, the world contracts to the space between two floating lilypads, where the water’s surface ripples with forgotten reflections.  
+
+This is a place where life writes the rules, where the boundary between organism and environment dissolves into a green, humid dream of roots and rain. The Verdant Spine does not merely exist—it *becomes*, slowly, imperially, a testament to the absurd, beautiful logic of a world where everything is alive, and everything is made.

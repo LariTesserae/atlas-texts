@@ -1,0 +1,19 @@
+The Breathing Deep
+
+You descend through veils of living water, each membrane a universe thick. This is not an ocean as you know oceans—here, water exists in states that defy naming. Some layers flow upward in spiraling rivers, braiding through denser currents that cascade down. Others hang suspended like vast jellyfish made of pure liquid, pulsing with internal tides that have nothing to do with any moon.
+
+The extreme elevation reveals itself not as height but as *depth between depths*. You float in a column of water that extends both infinitely up and impossibly down, yet somehow you can perceive distant surfaces in all directions—surfaces that shouldn't exist in a fully submerged world. These are not boundaries but inversions, places where water becomes so dense it mirrors itself, creating pockets of anti-water that still drown.
+
+Through the dim, sourceless illumination that suffuses everything, you see the vegetation: colossal kelp-analogues that grow in perfect spirals, each frond the size of a redwood, swaying to rhythms that have nothing to do with current. They're not rooted in any seafloor—instead, they anchor to nodes of crystallized sound that float freely through the waters. The plants themselves are hollow, their interiors vast empty chambers where the water refuses to enter, creating cathedral spaces of nothingness bordered by translucent green walls.
+
+The warmth here doesn't come from above. It radiates from the water itself, which generates heat through some process of constant transformation. You can feel it—the water touching your skin is always becoming something else, shifting between states of matter that shouldn't exist. Sometimes it's lighter than air while still remaining liquid. Sometimes it's so heavy that light bends around it.
+
+And the sound—the sound is everything. It's not the muffled quietness of normal underwater spaces. Here, the water *amplifies*. Every movement creates cascading harmonics that build and build until they become visible, rushing past as geometric forms of pure acoustic energy. The great kelp-things boom like organ pipes. Unseen creatures sing in frequencies that turn the water solid for moments at a time. The sound has color here, bleeding aurora patterns through the dim light.
+
+The fauna exists in the spaces between spaces. You glimpse them not as bodies but as distortions—places where the water forgets how to be water. A school of something passes, and in their wake, the liquid briefly becomes breathable, forcing your lungs to adjust frantically between states. Massive forms drift in the far distance, so large they have their own weather systems of impossible rain falling upward through the water around them.
+
+Reality stutters constantly. You'll be swimming forward and find yourself swimming through your own past, meeting the turbulence of your previous passage coming from ahead. Time eddies and pools. Some of the vegetation grows backward into its own seeds. The fauna age and youth simultaneously, existing as probability clouds of every stage of their lifecycle at once.
+
+The turbulence is not chaotic—it's *too ordered*, following patterns that hurt to perceive. Vast gyres of water spin in dimensions that shouldn't exist, creating whirlpools that pull in five directions at once. Storm-systems of pure thought rage through the medium, leaving behind patches where the water remembers being air, being stone, being fire.
+
+This is not a place that was flooded. This is a place where flooding is a constant state of becoming—where the concept of "submerged" breaks down because there is no memory of ever being dry. The water here is not covering something else. The water here is the fundamental substance of reality, and everything else—the kelp, the creatures, even you—are just temporary knots in its flow, moments where it dreams itself into form before dissolving back into the roaring silence of the deep.

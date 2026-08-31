@@ -1,0 +1,29 @@
+The water here is not an environment; it is a weight, a thick and oily medium the color of bruised chicory. It is warm—bordering on hot—heated from below by the restless, cracking skin of a young seabed. At this depth, the pressure should be immense, but the water behaves with a strange, lazy viscosity, more like liquified starch or warm grease than sea. It does not flow so much as it shudders.
+
+There is no sky, only the shifting, heavy ceiling of this endless broth. The floor of the basin is low, flat, and terrible in its sharpness. It is a landscape made of yesterday’s basalt, cooled so rapidly by the dark water that it has shattered into millions of obsidian needles, slick vitreous sheets, and razor-edged shelves. There are no rounded pebbles, no soft silt dunes, no signs of the slow, grinding patience of age. Everything is sharp enough to cut, fresh from the planet’s gut, colored in shades of pitch, soot, and wet charcoal.
+
+Through this forest of glass rises a green so dense it is suffocating. 
+
+It is a botanical world, but it is not silent. It is a world of screaming vegetable flesh. Huge, tuberous bulbs the size of steamships cling to the sharp basalt with thick, roots like braided copper wire. From these bulbs sprout ribbed, rubbery ribbons of kelp-like flora that do not drift; they writhe. They grow with a terrifying, visible speed—inches per minute—their cellular walls popping and clicking with wet, woody snaps as they expand. They choke the water, filling every cubic foot with a tangle of green-black cables, hairy fronds, and swollen, gas-filled bladders that hiss as they leak oily methane into the brine. 
+
+There are no fish. No crabs crawl among the obsidian shards; no pale worms burrow in the scarce mud; no jellies pulse in the dark. The biological energy of this basin has been entirely diverted into the plants. They are the only living things, and they are hungry only for room, expanding until they crush one another into a sour, fermenting mulch that dissolves back into the warm gravy of the sea.
+
+And threaded through this green chaos is the heavy iron of an inexplicable industry.
+
+Far from being a pristine wilderness, the basin is littered with scattered, massive monuments of cast iron and corroded bronze. These are not ruins; they are active, laboring things. Great, soot-streaked cylinders—stretching hundreds of feet into the dim green murk—plunge up and down with a slow, hydraulic rhythm. They are driven by steam generated from the volcanic floor, venting white clouds of superheated water that cause the surrounding kelp to curl, blister, and boil. Massive, rust-caked gears, forty feet across, turn lazily against the resistance of the thick water, their teeth grinding together with a sound that travels through the bones of anything near them. 
+
+The sound is absolute. It is a deafening, multi-layered roar that never abates. The sea conducts it perfectly: the deep, seismic *thrum-thrum-thrum* of the iron plungers; the high-voltage *shriek* of copper cables that snake through the weed forests, throwing off pale, sputtering blue sparks; the whistling hiss of volcanic vents; and the ceaseless, tearing sound of the hyper-fertile vegetation ripping itself apart as it grows too fast for its own stalks to support. To be here is to be inside the throat of a working engine.
+
+And yet, the engine makes nothing. The pipes simply pump the warm, thick water from one side of a basalt ridge to the other. The gears turn other gears that end in blind rock.
+
+Here, reality has begun to fray at the seams, unraveling under the pressure of the noise and the growth. 
+
+The laws of fluids are inconsistent. Every few hundred yards, one encounters "dry bubbles"—perfectly spherical pockets of absolute vacuum or bone-dry, dusty air, ten or twenty feet wide, that hang suspended in the water like glass marbles. Inside these bubbles, the basalt floor is dry, and the severed ends of kelp stalks hang frozen at the damp margins, unable to cross the threshold. Some of these air-pockets contain impossible things: a stack of dry, yellowed ledger sheets that do not burn despite the heat; or a heavy brass pendulum, swinging in a perfect arc, ticking with a dry, metallic click that is completely swallowed by the roar of the water outside.
+
+In other places, the gravity of the water reverses. Currents do not rise because they are warm; they fall in heavy, localized cataracts, like underwater waterfalls of thick, dark grease, pouring downward into the volcanic rifts with a sucking, gurgling howl. 
+
+The light is dim, a guttering, low-wattage existence. It comes from three sources: the dull, red-orange glow of the lava oozing through the sharp basalt cracks; the eerie, cold bioluminescence of the giant plant-bulbs, which pulse with a sickly, yellow-green light; and the occasional, blinding blue flash of a severed industrial cable shorting out against the wet, mineral-rich fronds. These flashes cast long, jerking shadows through the dense forest of weed, momentarily revealing the titanic silhouettes of the iron towers before the thick, dark water swallows them once more.
+
+Everything is in transition. A steel gantry, newly crystallized from the mineral-heavy brine, rises sixty feet in an hour, its girders sharp and clean; by evening, the hyper-growth of the kelp has wrapped its iron bars, squeezed them until they buckle, and dragged the entire structure down into a venting thermal crack where it melts back into the earth. 
+
+There is no silence here. There is no rest. There is only the hot, blind, deafening churn of a world that is being built and demolished by its own furious juices, minute by minute, under a weight of dark water that never moves.

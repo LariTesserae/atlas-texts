@@ -1,0 +1,15 @@
+Deep beneath the crust, in a lightless, pressurized cavity roughly the size of a municipal water reservoir, lies the Sub-Strata Foundry. It is not an excavation in the traditional sense; it is a bruised, weeping blister in the planet’s mantle.
+
+The atmosphere here is a suffocating, hyper-saturated steam. The humidity is absolute—the air does not merely carry water; it is a heavy, warm suspension of mineral-slicked vapor that clings to every surface. The heat is constant and oppressive, radiating from the raw, uncooled rock walls that seem to still be cooling from some primordial cataclysm.
+
+Infrastructure has been forcibly integrated into the weeping geography. Rather than clear the stone, the inhabitants—or perhaps the mechanisms—have built *into* the damp, raw basalt. There are tiered scaffolding structures made of oxidized iron and black polymer that cling to the walls like barnacles. These structures are utilitarian and industrial: rhythmic, low-frequency hums emanate from brass-valved pipe nodes that distribute pressurized coolant through the cavern. The sound is a dense, throbbing industrial heartbeat, punctuated by the sharp, wet *hiss* of steam escaping into the humid dark.
+
+The ecology is entirely biological-industrial. Because the scale is confined, every square inch of the iron framework is choked with a persistent, thriving biomass. These are not plants, but bioluminescent, heat-loving fungi and chitinous, translucent slime-molds that feed on the mineral runoff. They are everywhere—dense, pulsing colonies of pale, rubbery stalks that cluster around the warmth of the steam vents.
+
+This is an "under-construction" world. The geology is raw; the rock walls are jagged, unweathered, and bruised with streaks of manganese and copper. You can see where the foundry meets the raw earth—a terrifying, embryonic seam where the machine architecture is literally pressing itself into the soft, shifting sediment of the earth's innards. 
+
+Navigation is difficult. You move between scattered iron platforms—each a room-sized island—connected by narrow, slick grates that vibrate with the rhythmic thrum of the subterranean engines. Below the grates, there is no floor, only a dark, simmering marsh of runoff, bubbling slowly, creating a thick, condensing fog that swallows your knees. 
+
+There is a sense here that the "city" is still being printed into existence. One can watch, over long, agonizing hours, as the weeping rocks swell and push against the rigid, unyielding black steel of the supports. A slow, grinding friction exists between the organic pressure of the earth and the mechanical resolve of the Foundry. 
+
+The light is poor, provided only by the dim, sickly-green luminescence of the vast, clustered fungal colonies and the occasional amber blink of a monitoring gauge. It is a loud, crowded, and wet place, a cramped engine room for a world that has not yet finished cooling. You feel watched not by eyes, but by the myriad, rhythmic vibrations of the pipes and the slow, blind growth of the slime that maps the temperature gradients of your own skin.

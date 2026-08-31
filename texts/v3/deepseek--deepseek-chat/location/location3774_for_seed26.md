@@ -1,0 +1,11 @@
+**The Dripping Foundries of Vorth-Kal**  
+
+Beneath the surface of the world, in a cavern vast enough to swallow cities, the air hums with the deep, resonant thrum of industry. The ceiling is a weeping expanse of slick black rock, studded with stalactites that glisten with perpetual condensation. Water seeps down their lengths in slow, fat droplets, falling into shallow pools that ripple endlessly across the rusted metal floors. The ground is a maze of grates and riveted plating, pocked with drains that gurgle as they struggle to keep up with the ceaseless trickle from above.  
+
+The cavern is a sprawl of towering, blocky structures—foundries, their chimneys belching sluggish coils of smoke that cling to the damp air. The buildings are all sharp angles and riveted seams, their surfaces streaked with mineral deposits where the dripping water has etched pale, branching veins into the metal. The light here is dim, cast by flickering arc-lamps that buzz and sputter, their glow reflecting weakly off the wet surfaces. Shadows stretch long and liquid, pooling in the gaps between machines.  
+
+Vegetation is scarce—only patches of pale, rubbery lichen cling to the edges of pipes, their surfaces slick with moisture. Occasionally, a thin, root-like vine snakes up from a crack in the flooring, probing blindly for light that never comes. The air smells of rust and ozone, of hot metal cooling in the damp.  
+
+There is life here, but it is sparse and strange. Blind, chitinous things scuttle along the edges of the foundries, their shells clicking against the metal. Larger shapes move in the deeper shadows—something with too many legs, something that shudders as it breathes. The soundscape is dominated by the groan of pistons, the hiss of steam, the distant clang of metal on metal. But beneath it all, there is the constant, patient drip of water, eating away at the edges of the world.  
+
+This is a place where industry has conquered nature, but nature is winning its revenge by inches, in slow erosion. The machines still turn, the furnaces still burn, but the water is always there, always seeping, always waiting.

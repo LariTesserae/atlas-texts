@@ -1,0 +1,23 @@
+The air in this place draftless, parched, and thick with the smell of baked tallow and warm zinc. It is a subterranean gallery, deep beneath some forgotten crust, shaped like a cathedral but squeezed to the density of a warehouse floor. 
+
+There is no water here. The tongue dries to the roof of the mouth within moments; skin feels instantly paper-dry, yet coated in a micro-thin film of graphite dust and machine grease. Instead of moisture, a fine, yellow-gray powder of sulfur and pulverized slate hangs suspended in the warm, dead air. The temperature is that of an engine room left running at a steady, feverish eighty-five degrees—not enough to scorch, but enough to keep everything in a state of dry, dilated expectation.
+
+The walls are composed of black, glass-sharp basalt. The rock is young—geologically fresh, with jagged, razor-like cleavages and jagged ridges that have never known the softening fingers of rain, wind, or ice. These stone teeth frame a space crammed nearly to capacity. It is a landscape built of interference: one cannot look three yards in any direction without their vision striking a hanging cluster of copper cables, a stack of ceramic insulators, or the rhythmic, reciprocating elbow of a steel piston.
+
+Through this maze of sharp stone and heavy gray iron, the hand of an ancient, industrial hand is scattered. There are low, concrete blocks where heavy dynamos are bolted down, their green paint long dried to a lizard-skin crust. Overhead, copper busbars run in parallel lines, disappearing into the dark, serrated vaults of the ceiling. This technology is massive, mechanical, and loud. 
+
+The sound is a solid, towering presence. It does not fluctuate. There is a deep, bone-rattling sixty-cycle hum from buried transformer banks that vibrates through the soles of the feet. Interlocking with this bass drone is the frantic, dry *titter-titter-clack* of thousands of relay switches and the heavy, slow *shhh-tock* of a giant horizontal slide-valve that moves six inches ice-left, six inches ice-right, every four seconds. It has done this for ten thousand years. It will do this for ten thousand more. 
+
+In this dry, hot womb, life is crowded and frantic, yet entirely trapped in stasis.
+
+Vegetation is scarce, consisting only of "static-moss"—brittle, hair-like fibers of dull silver that grow in tufts along the live electrical conduits. They do not photosynthesize; they feed on the inductive leakages of the high-voltage lines, shivering whenever a surge passes through the copper beneath them. They are dry as tinder, rustling like dry corn husks when brushed.
+
+But if the plants are quiet, the fauna are a swarming, overwhelming host. They are dry-bodied, non-aqueous organisms whose shells are made of a dense, natural horn resembling dark tortoiseshell and brass solder. They do not drink; they ingest the oily grease that weeps from the machine joints and the sulfurous dust that falls from the ceiling. They are called abacus-crabs. Thousands of them, the size of pocket watches, cling to the hanging wire harnesses. They do not crawl randomly; they slide along the copper lines in tight, rhythmic rows like beads on a counting frame, their dry legs making a constant *clitter-clack* that mimics the clicking of the electrical relays. 
+
+Beneath them, larger, multi-segmented "piston-ticks" nestle in the crevices where the iron struts meet the basalt. They are flat, chitinous plates that slowly expand and contract in time with the engines, breathing in the dry, greasy air and exhaling a faint, blue haze of ozone. 
+
+The light here is dim and unchanging. There are no lamps, only the dull, cherry-red glow of resistance coils heating the air, the sputtering orange flicker of vacuum tubes nested deep in iron housings, and the occasional, sharp blue snap of a spark-gap discharge jumping between two copper spheres. The shadows are long, sharp-edged, and never move, because the sparks and the tubes are fixed in their brackets.
+
+Nothing here is born, and nothing dies in the common sense. If an abacus-crab stops moving, its dry shell is eventually ground down by the vibrations into a fine polishing powder that lubricates the very wires its descendants slide upon. The machine parts do not wear out; in this waterless, oxygen-poor vault, there is no rust, no oxidation, no rot. The metal parts have worn each other down to a perfect, frictionless fit, and now they glide past one another in a perpetual, unyielding equilibrium. 
+
+It is a world without seasons, without night, without mornings. It is a tiny, loud, densely packed box of warm stone and hot iron, humming its single, unchanging note in the deep dark of the world.

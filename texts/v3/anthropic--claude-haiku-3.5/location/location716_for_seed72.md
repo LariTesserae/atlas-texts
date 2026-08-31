@@ -1,0 +1,11 @@
+The landscape unfolds beneath the surface, a subterranean urban ecosystem where water permeates everything, condensing on every possible surface. It's a humid, hot realm of industrial caverns and wet machinery, where the boundaries between constructed space and natural formation blur into a single breathing organism.
+
+Imagine a vast underground chamber - not quite a city, but more of a dense industrial grove - where mechanical structures rise like strange botanical forms from a perpetually damp substrate. The walls weep continuously, not with water alone, but with a kind of technological perspiration: condensation from massive heat-generating machines, cooling systems that never fully rest, the constant exhalation of industrial processes.
+
+The fauna dominates this space - not traditional animals, but something between biological entities and mechanical constructs. They move through the wet corridors with overwhelming presence, their movements creating a constant loud background noise of clicks, hydraulic hisses, and rhythmic mechanical pulses. These creatures seem to be both workers and inhabitants, their bodies adapted to this dim, wet, hot environment with a strange organic-industrial symbiosis.
+
+Sparse vegetation clings to the moisture-rich surfaces - more like fungal networks or bio-mechanical growths than traditional plants. They pulse with slow metabolic rhythms, expanding and contracting in gradual cycles that match the patient breathing of the entire underground system.
+
+The urban infrastructure here is layered and complex, but not chaotic. Each mechanical structure seems precisely positioned, each water channel deliberately routed. The entire space feels like an embryonic geological formation - not fully formed, but actively becoming. Surfaces are still emerging, technologies are still finding their final configurations, the entire ecosystem is in a constant state of proto-construction.
+
+Electrified conduits trace paths like root systems. Steam rises in constant exhalations. The boundaries between machine, water, living thing, and geological formation have dissolved into a single humid, hot, slowly transforming environment.

@@ -1,0 +1,15 @@
+A city of bamboo and living wood rises from the mountainside, its terraces following the natural contours of the slope. The structures seem to have grown here rather than being built - which, in a way, they have. Generation after generation of inhabitants have guided the growth of enormous bamboo clusters, weaving the living stalks into walls and archways, binding them with vines that have lignified into permanent bonds. These techniques are ancient, passed down through families who spend decades shaping single structures.
+
+The air is thick and warm, carrying a perpetual moisture that beads on every surface. Water seeps from the mountain itself through thousands of tiny springs, collected in an intricate network of ceramic channels that wind through the city. The sound of flowing water is ever-present but gentle, more felt than heard - a background whisper that seems to emerge from the earth itself.
+
+The city is spread thin across the mountainside, each structure given space to breathe and grow. Between the bamboo buildings, carefully tended gardens cascade down terraced slopes, their patterns reflecting the same organic geometry as the architecture above. Steam rises constantly from these gardens, creating a perpetual morning-like atmosphere even in full daylight.
+
+What's most striking is the stillness. Despite its size - stretching perhaps two miles across the mountain face - the city feels like a place in meditation. The absence of animals is notable; no birds call, no insects hum. The only movement comes from the occasional inhabitant moving deliberately along the raised walkways that connect the structures, or from the endless slow dance of water and mist.
+
+The light here takes on a peculiar quality, filtered through both the ever-present moisture and the translucent walls of the bamboo structures. It creates a diffuse, omnidirectional glow that seems to emanate from everywhere and nowhere at once. Shadows are soft, edges gentle.
+
+Looking closer, you can see the sophisticated simplicity of the water management system. Every building, every terrace, is part of a vast hydraulic network. The ceramic channels are unglazed, allowing some water to seep through, feeding the bamboo and other vegetation. Nothing is wasted - even the mist that condenses on the bamboo is collected and redirected.
+
+The city has achieved a kind of perfect stasis - not dead, but unchanging in its living state. The bamboo grows exactly as fast as it's trimmed back, the water flows in perfect circulation, the gardens yield steady harvests. It's as if the entire settlement has found its ideal form and simply... remained there, like a breath held in perfect balance.
+
+At the edges of the city, the managed bamboo forests gradually blend into the natural growth of the mountainside, making it impossible to say exactly where the built environment ends and the natural world begins. This ambiguity seems intentional - a reflection of the city's fundamental philosophy of guided growth rather than imposed construction.

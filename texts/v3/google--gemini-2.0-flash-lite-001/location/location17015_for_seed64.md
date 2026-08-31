@@ -1,0 +1,13 @@
+The air here is thin, tasting of iron and something else, almost floral. It's a taste, though, more than a smell, clinging to the inside of my cheeks. I'm standing in a cavern, a pocket of the world carved into something much larger. I can feel the hugeness of whatever *contains* this place, a solid pressure that doesn't yield but doesn't crush. 
+
+The immediate space is a riot of life. Twisted, gnarled trees, their bark a deep, bruise-purple, fill the space. They grow impossibly close together, their branches interlocked, forming a cage that lets in hardly any light. What little light there is comes from below, from glowing fungi that sprout in the soil, casting the cavern in an eerie, cool luminescence. The "soil" itself is strange. It’s not dirt, or earth, but a compacted mineral, a dark, granular substance that crunches underfoot. It’s dry, not dusty, but more like a finely ground ore.
+
+There's no water. None that I can see, anyhow. The vegetation survives by some other means. The purple trees seem to drink the light itself, drawing sustenance from it, converting it to fuel. Here and there, glowing, bioluminescent flowers bloom in the fungal undergrowth. They pulse with a soft, inner light.
+
+The temperature is cool, a comfortable chill that doesn't prickle or bite. It feels old, ancient. The carved walls of the cavern are bare stone, marked with the slow, patient work of time but also scarred by some force that has not entirely settled. They glisten faintly with the same faint luminescence as the fungi. Signs of the "industrial" are scattered among the natural growth. Small, metal structures, no bigger than a person, are scattered throughout the cavern. They're corroded, and broken, though still retain traces of their original purpose. They look like the remnants of some bygone industrial process.
+
+The density here is extreme. Every space is filled. The trees, their branches, the fungi and flowers, the fallen detritus of metal and rock. It's a claustrophobic beauty, a world packed into its corners, overflowing. A harsh, metallic hum echoes through the space, a deep thrumming that seems to emanate from the very walls, and from inside the metal structures. The sound is loud, and constant.
+
+There's a subtle, unsettling stillness to it all. The fungal blooms pulse, the metallic hum vibrates, but nothing *moves*. The life here seems utterly, unnaturally stable. 
+
+There are no animals here; it's a world seemingly just for plants and machines. The weirdness comes from their strange marriage. The machinery functions as a kind of metabolism for the vegetation, feeding it, sustaining it, channeling the dim light into a never-changing equilibrium.

@@ -1,0 +1,30 @@
+# The Lattice
+
+The place is not a valley, not a canyon, but a **basin of weeping stone**, a low-lying bowl of land no larger than a compact hamlet, its boundaries defined by sheer, dark cliffs that rise only twenty yards high—yet they feel immense, for the basin is fully occupied, packed so tight there is no breath of open space. *That* is the density: a saturation of presence, but not of life. The vegetation is sparse—mere ghost-moss clinging to damp faces, tufts of copper-hued lichen that weep a slow, clear fluid—but the surface is **crammed** with other things.
+
+**Terrain & Materials:**  
+The erosion is young, fierce. The basin floor is a mosaic of fresh, sharp-edged sedimentary plates, like broken slate laid by a giant’s hand, separated by channels of silty water no wider than a wrist. The stone is dark, almost black, but shot through with veins of milky quartz that gleam when the light is right. It is a landscape of **geological adolescence**: faults are visible as hairline cracks weeping steady droplets; monolithic slabs lean at impossible angles, held in place by the water’s own tension. There are no rounded hills, only facets and clefts.
+
+**Water:**  
+It is everywhere and nowhere. The water is not in rivers but in a **permeating presence**. It seeps from the rock itself—steady, rhythmic drips from a thousand points. Pools of absolute stillness collect in the stone’s depressions, reflecting the bruised, low-hanging fog. Shallow streams, no deeper than an inch, braid across the floor, their courses shifting with each condensation cycle. The air is cool and thick with mist that condenses on every surface, then rolls in slow, dense waves down the basin walls. The sound is not of rushing water, but of **counting drops**: *plip… plip… plip…* in irregular polyrhythms, a liquid metronome.
+
+**Built & Human Presence:**  
+Urban, but not as one knows it. There are no towers, no streets of cobble or brick. The settlement is a **woven tissue of engineered bio-mineral growth**. The people—thin, damp-skinned, with wide, quiet eyes—do not build; they *cultivate*. They tend fungal-reef structures that rise in porous, honeycombed towers, gluing stone fragments with secreted amber-like resins. Bridges are spun from a resilient, silvery lichen-cord, anchored into living rock. Homes are integrated into the cliff faces, grown from symbiotic molds that mineralize as they age, becoming part of the stone. There is no metal, no pottery—only worked bone, chipped obsidian, and the grown architecture. The density is human: platforms, drying racks, bed-niches, shrines—all fitted into every available niche, stacked where the cliff allows, built out over the water on slender fungal stilts. There is no waste; everything is recycled back into the lattice.
+
+**Atmosphere & Light:**  
+Light is normal, but diffused. The mist and the high cliffs mute the sun to a permanent, shadowless **dull gold**. Colors are desaturated: the stone is black and gray, the lichen is mustard and rust, the water is seamless mercury. There is no vibrant green—only the sparse, thirsty grey-greens of lithophilic life. The air is cool, damp, still in the basins, but a gentle, cold breath always sighs down from the cliff-tops, carrying the scent of wet stone, ozone, and a faint, sweet rot.
+
+**Ecology & Weirdness:**  
+Fauna is rare, and what exists is *off*. Tiny, six-legged skitterslimes glide over the water’s surface, their bodies translucent, showing slow, rotating gut-crystals. Blind, soft-shelled crustaceans filter the pools. But the **weirdness** lives in the **symbiosis**. The people and their structures are part of a larger, slow metabolism. The fungal towers respire slightly, exhaling warm, dry air at night. The quartz veins in the stone are said to grow, imperceptibly, over generations. Some deep pools are said to hum at a frequency you feel in your teeth, not your ears. The “active” dynamic is not predator-prey, but **geobiological negotiation**: the settlement shifts as the stone shifts, as new weeping cracks open and old ones seal. They migrate platforms, re-root growth-habitats, adapt to the basin’s slow, tectonic breathing.
+
+**Sound:**  
+Mostly quiet, but layered with **micro-sounds**. The water’s plip-plip. The soft,Velcro-like tear of lichen-cord as it dries. The low, foundational **groan** of the basin as thermal expansion shifts the great slabs—a sound felt in the bones more than heard. Occasionally, a high, crystalline *ting* when a quartz vein expands just so. Human voices are hushed, conversations short and practical, because the landscape seems to listen.
+
+**Rules of the World:**  
+1. **Water is the architect**. It carves, it supports, it is the medium of life and slowly the medium of stone.
+2. **Growth is the only construction**. To force a shape from inert material is taboo; you must persuade a living system to take it.
+3. **Everything is part of the lattice**. To remove a stone is to unweave the basin. To harm the moss is to starve the air of humidity.
+4. **Time is stratigraphic**. History is not in books but in the layers of fungal towers, in the memory of the stone.
+
+**Emergent Whole:**  
+The Lattice is a place where civilization is a **geological event** as much as a social one. It is a human fungus, a damp-culture thriving in a young, water-saturated basin, utterly integrated with a terrain that is both prison and provider. The density is suffocating yet organized; the sparseness of green makes the man-made bio-structures bloom all the more strangely. It is quiet, cool, wet, and profoundly *occupied*—not by noise or numbers, but by presence, woven tight with stone and water and slow time. The weirdness is not in monsters, but in the **conscious negotiation with stone**, the sense that the basin itself has a will, and the people are its attentive, ephemeral cells.

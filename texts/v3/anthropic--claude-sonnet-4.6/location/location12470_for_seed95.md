@@ -1,0 +1,65 @@
+# The Worn Table
+
+---
+
+The land has run out of ambition. That is the first thing you understand, arriving here — not that it is barren, not that it is exhausted, but that it has already become completely what it is, and there is nothing left to become. The plateau extends in every direction past the reliable limit of the eye, a surface so old it has forgotten the shape it began with. Once, very long ago, this was something with a profile — ridgelines, perhaps, or a basin, or the shoulder of a vast range. Now it is simply *here*, worn into a tabletop by erosions so slow and thorough that they constitute a kind of geological patience bordering on philosophy. The rock underfoot is exposed in places, and it is smooth in the way that only eons produce: not polished, not worked, but *resolved*. Matte, pale ochre-grey, warm to the touch in the afternoon, radiating stored heat back into the air at your ankles like something half-alive.
+
+Stand still and you will feel the scale. It is not comfortable. There are no walls, no slopes to orient by — the horizon simply exists in a great full circle, slightly hazy with warm air, slightly below you, the plateau surface tilting by perhaps half a degree in any direction you choose and never arriving at an edge you can see. You are, in a sense, standing at the top of the world, except the top has been sanded flat and left in the sun for so long that even calling it a summit feels inaccurate. It is more like a remnant. A remaining.
+
+---
+
+The warmth here is specific. It is not oppressive. There is elevation enough that the heat never pools, never thickens into the subtropical weight you feel lower down. Instead, it is a thin warmth, solar and direct, the sun doing most of the work without much atmosphere to help it. Your skin is aware of it differently than ordinary heat — more like irradiation than immersion, a warmth coming from one direction and not wrapping around. The shadows, where you find them, are genuinely cooler and you move between the two states as you walk, between bake and relief. The air at this altitude has a faint cleanness, almost mineral, the kind that occurs above the altitude where most things rot.
+
+Twice a week, or thereabouts — there is no one here to keep records — cloud systems drag themselves up from the lowlands and deposit rain, brief and specific. Not storms. The rain that falls on the plateau arrives as a kind of steady serious fact, not dramatic, perhaps forty minutes of gray-silver light and drops that are large and infrequent at first and then simply *there*, everywhere, gentle. It pools in the hollows of the old stone, fills the low depressions in the hardpan, gathers in the places where ancient fractures have created catch-basins no deeper than your palm. These small reservoirs persist for days. Then they skin over with concentration, then they go dry and leave white mineral traces at the edges, like tide-marks on a shrinking sea. There are hundreds of them, maybe thousands, scattered across the plateau — you learn to read the terrain by the whitish rings, the old-water-stains, that cluster everywhere underfoot. The whole surface is legible if you know the language, and the language is: *water was here, and then it wasn't, and then it was again.*
+
+A few low, wide places hold more permanently — not ponds, precisely, more like wide mats of condensation and slow seepage, a few centimeters of water moving nowhere in particular over a broad flat area. You would not call these wetlands. You would not call them anything with confidence. They are somewhere between puddle and ephemeral lake, and they change with the week.
+
+---
+
+The vegetation that persists here has made a separate peace with scarcity. It is sparse in the sense of being widely spaced, not in the sense of being desperate. Each plant has established its position, sent roots down through the cracks in the old stone, and declared a kind of local sovereignty over the water below and the minerals around. They do not compete in the way you expect plants to compete. There is no jostling. Everything is too far from everything else for that. 
+
+Closest to the catch-basins, where the moisture lingers: low cushion-mats of something succulent and grey-green, arranged in circles and ovals that follow the water's edge. They are dense within themselves, tightly packed stems pressing together, and from a short distance they look like patches of moss or lichen but from close up they are individual small entities, a thousand of them per square meter, each one complete. They trap condensation. They are old, these mats — the outer rings of the larger ones may have been growing for centuries, expanding outward at a rate you couldn't measure without instruments and time.
+
+Between the basins, the rock is not bare. Look closely and there is a crust — biological, dark grey and rust-red in the dry, blackening when the rain comes, then drying again to something that looks almost painted on. Cryptobiotic, this crust; or something like it. It is alive at the level where alive begins to become difficult to distinguish from geological. It does not move. It does not grow visibly. But it processes things, slowly, and it cements the soil in a way that makes the whole plateau's surface something more than dead rock: it is a kind of living skin pulled tight over stone, ancient and fragile underfoot, though it recovers from being crushed in time.
+
+Here and there — rarely enough that encountering one is a small event — a shrub. Low, wide, thorned, growing with its center empty so that it looks like a crown or a trap. Grey-green leaves the size of a thumbnail, resin-scented when you push your hand through them, hot to the touch from absorbed light. Some of these shrubs are very old. The branches near the center are thick and dark and hardened to near-stone, and the newest growth at the tips is thin and almost silver. Between these shrubs, the grasses: not grass in thick bunches but the individual narrow kind, rust-yellow or pale gold depending on the sun, growing in ones and twos from the rock cracks with the absolute assurance of things that know they will not be removed.
+
+---
+
+And yet: the density. This is the strange arithmetic of the plateau. There is not much *here*, and yet there are too many *things*. 
+
+The fauna does not follow the vegetation's logic of spacing. The fauna has claimed this place entire, in layers, stacked from the surface up.
+
+Begin below: the stone is not stone all the way through. It is stone on the outside and hollow in ways that don't reveal themselves until something moves. Lizards emerge from gaps you didn't see. Not one lizard — many, each one warming on a surface, still as figures painted on a mural until they move, and their movement is so sudden and complete that you lose them immediately. They are pale, the same ochre-grey as the rock, and it is not coincidence. After a time you begin to count — this surface, this one-hundred-square-meter area of flat warm rock — and you reach twelve before you give up and understand you are standing in the center of something. The lizards watch you with the extraordinary patience of ectotherms, who are never in a hurry because hurry is a warm-blooded luxury.
+
+At the level of the shrubs: birds. There are insects — you feel them more than see them, small and fast, drawn to the moisture-mats, drawn to the resins, drawn to each other — and wherever there are insects, birds follow the logic of food. Small birds, quick and brown, flitting between the shrubs in trajectories that look random until you watch long enough to perceive the structure. They are not singing. That is important. The plateau is mostly quiet, and the birds contribute to the quiet rather than breaking it: short chips, contact calls, the briefest of notes, then silence. It is the sound of birds managing information rather than broadcasting it.
+
+Above the plateau surface: raptors. At any given moment, without looking for them, you will find three or four. They are large. They ride the thermals that come up from the heated rock, circling in wide arcs, slow enough that you can track them through a full orbit. They scan the cushion-mats and the rock-surfaces and the catch-basins and they see everything. They see the lizards. They see you. They make no sound that carries to ground level. They are simply present, a top layer, a supervision, moving in patient circles over the quiet world below.
+
+The strangest density is not any of these. It is the things you cannot immediately categorize. There are structures in the biological crust that pulse very slightly when you watch them — not with movement but with the slow optical shift of growth or breathing, the kind of thing that might be imagination but might not. There are marks on some of the rocks that could be lichen-colonies, abstract oranges and whites, arranged in patterns too symmetrical to explain without effort. There is the matter of the burrows: the plateau is full of them, small circular holes in the hardpan, but nothing emerges from them in daylight, and you cannot determine with confidence what made them, how many there are, or how deep they go.
+
+---
+
+Someone was here. Not recently.
+
+The evidence is not architecture, exactly. There are gatherings of stone — uprights, or what were uprights, leaning now or entirely fallen, assembled in arrangements that distinguish themselves from random accumulation only when you stand at the right angle in the right light. Late afternoon does it best: the low sun casts long shadows from even low stones, and in those shadows you can read intention. A circle here. There. Not large — five or six meters across. Old enough that the cryptobiotic crust has grown over the base of the stones and in some places begun to reclaim them.
+
+There is one thing that is not a stone arrangement. It is a hollow in the rock, roughly rectangular, roughly the size of someone lying down, smoothed at the edges in a way that suggests either water or hands, and you cannot tell which. Nothing grows in it. Animals avoid it — the lizards, who are everywhere, are not on the surrounding rock. This is noticed.
+
+No tools. No bone. No thread or fiber or wood. Whatever was here left only the stones out of place and the hollow, and those could be interpreted as natural with some interpretive effort, but you do not entirely believe the interpretation.
+
+---
+
+The sound environment is best described as an active silence. You know silence from enclosed spaces — anechoic, absorptive, the silence that comes when sound is prevented. This is different. This is the silence of a large open system in which sound is produced continuously at low levels, each sound canceling or overlapping or simply being absorbed by the distance before it arrives. Wind through the shrub-thorns: almost nothing. The very occasional soft knock of a pebble falling somewhere. The thin insect-hum that you stop noticing within minutes the way you stop noticing your own heartbeat. A raptor's wings adjusting above you, if you happen to be beneath when it turns — a soft wump of displaced air, once. Sometimes, briefly, after the rain, a frog somewhere in a catch-basin, three or four calls, then done.
+
+The silence is not the silence of absence. It is the silence of a very large ongoing thing happening slowly, so slowly that most of its processes fall below the threshold of your auditory resolution. You are hearing the pauses between events in a system whose events are measured in seasons and decades rather than seconds.
+
+---
+
+There is a quality to the light in the later part of the day that changes the plateau's terms. The haze thickens slightly as the sun descends, and the light becomes amber, then deeper, and the worn rock surface — which by day is pale and flat — begins to show its true topology. Every small irregularity casts a shadow. The ancient landscape, which seemed featureless at noon, is suddenly revealed as a surface of extraordinary subtle complexity: a million small depressions and rises, the accumulated record of a billion years of slowly going-gentle, reading now as a low-contrast topographic map across which the light moves like a tide.
+
+The lizards disappear into their gaps. The raptors come lower, make a last circuit, depart. Something begins to move in the burrows.
+
+The plateau at dusk is the same place it was at noon but it has different terms for occupancy. The warmth stored in the rock releases into the night air. The stars, at this elevation, in this dryness, are overwhelming — not strange exactly, but so numerous and so present that the sky becomes a kind of terrain of its own, and the plateau becomes a surface between two infinities, an old flat thing balanced between the ground and the stars, populated by breathing things, marked by the memory of hands.
+
+It has been here longer than the concept of *old* really covers. It will be here after you. It is complete.

@@ -1,0 +1,21 @@
+# The Dripping Heights of Terrafauna
+
+From the ridgeline, the Metropolitan Shelf stretches beyond sight—a vast urban plateau carved into the mountainside, its edges dropping into mist-filled chasms. The air is warm and heavy with moisture, condensing on every surface until the entire city seems to weep. This is no mere settlement but a continental expanse, a civilization sprawled across connected mountain plateaus that has evolved over millennia.
+
+The most striking feature is the complete absence of vegetation. Where one might expect trees or gardens, countless varieties of creatures have claimed every niche. The Shelf's inhabitants long ago engineered animals to serve functions plants once did: filter-feeders that purify the ever-present moisture, bioluminescent creatures affixed to walls like living lanterns, colonies of symbiotic fauna that form protective barriers around dwellings.
+
+Water is omnipresent yet controlled. It seeps from the porous stone underfoot, trickles down channeled walls, and forms rivulets that flow through the cityscape in carefully engineered aqueducts. The constant moisture has rounded every edge of the ancient metropolis; nothing here is sharp or new. Buildings, some thirty stories tall, have been sculpted by centuries of flowing water into curved, organic forms despite their industrial origins.
+
+The soundscape is a constant symphony: the melodic tapping of water droplets on metal, the low hum of steam-powered factories, and the overwhelming chorus of animal sounds—chirps, calls, buzzing, and mysterious clicks from creatures that fill every crevice of urban life. The denizens have adapted; they speak loudly, their languages incorporating sounds that rise above the background cacophony.
+
+Weathered copper domes and spires reach upward from massive structures built of a curious composite—a manufactured stone embedded with the calcified remains of creatures long extinct. Every building, every boulevard shows evidence of countless generations of habitation and adaptation. Nothing appears to have been built within the last century, yet everything functions in its evolved purpose.
+
+Transportation occurs via an elaborate network of cable cars suspended between districts, powered by massive steam engines that drone continuously. The steam mingles with the natural mist, creating a perpetual haze that diffuses the abundant sunlight into a warm glow. At intervals, the mist thins, revealing the true scale of this place—plateau after plateau of developed mountainside stretching to the horizon.
+
+What makes the Heights truly unusual is the integration of its fauna into every aspect of infrastructure. Specialized creatures serve as living components of the industrial machinery—muscular beasts that turn wheels, heat-resistant amphibians that regulate boiler temperatures, colonies of tiny flying insects that clean the intricate mechanisms of clockwork devices. Some buildings appear to breathe, their walls lined with creatures that expand and contract in slow, rhythmic patterns.
+
+Massive cisterns dot the cityscape, their surfaces rippling with the movement of aquatic creatures bred to maintain water quality. These reservoirs feed the industrial heart of the Heights—factories where skilled artisans work alongside trained animals to produce goods traded across the entire mountain range.
+
+The residents themselves—humanoid but adapted to this environment with slightly webbed fingers and water-resistant skin—move with unhurried purpose. Their culture has embraced the slow timeline of their world, where changes occur gradually across generations. Nothing here is rushed; even industry operates at a measured pace, the heavy machinery turning with deliberate, powerful strokes.
+
+Time in the Dripping Heights is measured not by seasons but by the slow migration patterns of the enormous airborne creatures that occasionally cast shadows across entire districts. The city breathes, ages, and transforms at the pace of erosion—a living monument to adaptation in a world where animals, not plants, form the foundation of all life.

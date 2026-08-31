@@ -1,0 +1,15 @@
+In the perpetual greenhouse heat, the Living City breathes. Not metaphorically - its "buildings" are truly respiring organisms, vast colonial plants that have evolved or been coaxed into architectural forms over centuries. Their translucent tissues filter the intense sunlight into a green-gold glow that fills the humid air.
+
+The city follows the shallow contours of an ancient river delta, now a vast wet plain where groundwater seeps perpetually to the surface. The plant-structures stand on root-pillar networks that keep them above the saturated soil, creating a mid-level canopy city with sheltered spaces below. Water moves constantly through the living walls and ceilings - not dripping, but flowing through specialized vascular tissues that maintain the city's hydration against the relentless heat.
+
+Between the major plant-structures, wide spaces allow for air flow and light penetration. These gaps are not empty though - they pulse with the movement of the aerofauna, creatures somewhere between birds and insects but truly neither. They move in near-silence, communicating through subtle color changes in their translucent wings and bodies. Their movements create gentle currents in the thick, humid air.
+
+The "streets" below are actually elevated pathways of living tissue, like fallen branches that refused to die, instead growing into their new horizontal position. They wind between pools of clear groundwater that reflect the green-gold light from above. Small creatures - unclassifiable in Earth terms - move between water and air, leaving barely a ripple.
+
+Everything here exists in a state of controlled growth rather than stasis. The plant-buildings slowly extend new chambers while allowing others to be reabsorbed. The aerofauna tend to the growth patterns, their movements and feeding habits helping to shape the living architecture. It's a city that grows rather than one that was built, following patterns established so long ago that their origins are lost to time.
+
+The heat is ever-present but not oppressive - the entire ecosystem has evolved to use it, to channel it into growth and movement. At times, parts of the city itself seem to shimmer and shift in the heat-haze, and it becomes difficult to distinguish where one organism ends and another begins.
+
+In the deeper pools, bioluminescent creatures create complex patterns that seem almost like writing, though whether they're communicating or simply existing remains a mystery. Their soft light combines with the filtered sunlight from above to create an ever-changing play of light and shadow across the living surfaces.
+
+The whole place operates on biological time - slow but never still, quiet but full of life, strange but following its own internal logic. Even the air feels alive, thick with spores and the exhaled moisture of countless living things, all participating in cycles of growth and change that have been running smoothly since long before anyone was here to observe them.

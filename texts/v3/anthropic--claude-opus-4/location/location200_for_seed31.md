@@ -1,0 +1,19 @@
+The plateau city spreads across wet volcanic stone, its buildings rising from pools of collected rainwater that never quite evaporate in the warm, humid air. This young landscape emerged from the earth perhaps only centuries ago—the basalt still sharp-edged and unweathered, creating natural cisterns and channels where water gathers in perfectly geometric pools.
+
+Stone towers stand widely spaced, each one carved directly from the volcanic substrate rather than built upon it. The masons work with bronze chisels and water-driven grinding wheels, following the natural columnar jointing of the basalt to create structures that seem half-formed by nature, half-revealed by human hands. Between the towers, broad causeways arch over the shallow water, their surfaces worn smooth by generations of bare feet but still showing the crisp tool marks of their making.
+
+The lushness here is strange—not tropical abundance but something more selective. Thick mats of moss carpet every horizontal surface, drinking the perpetual moisture from the air. Ferns unfurl from cracks in the stone, their fronds reaching enormous size in the stillness. Certain flowering vines have learned to root in the moss itself, creating hanging gardens that drape between buildings, their blooms opening only during the frequent afternoon rains.
+
+No birds sing here. No insects hum. The only sounds are the soft drip of condensation from stone edges and the occasional splash of a water-collection wheel turning in its channel. The silence feels deliberate, as if the city were built to exclude all but human life—though even human voices carry poorly in the thick air, muffled by moisture and moss.
+
+The settlement extends across perhaps three miles of plateau, but the humid air creates walls of mist at irregular intervals, making the full scope impossible to grasp at once. You might walk from one district to another and find it transformed by fog into an entirely different place—the same black stone and green growth rearranged into new configurations by the shifting walls of vapor.
+
+Water moves through the city in careful channels, collected from the frequent rains and the weeping stones—certain areas of the plateau naturally condense moisture from the air, creating permanent springs that feed the canal system. The builders learned to read these water-stones early, placing their most important structures near the most reliable sources.
+
+At the plateau's edges, the young cliffs drop sharply away, still showing the fresh fracture patterns of their recent uplift. Water spills over these edges in thin veils, dissipating into mist before reaching whatever lies below. The city-builders have carved viewing platforms at these precipices, though the warm updrafts carry so much moisture that the view is often obscured, showing only the tops of clouds below.
+
+Time moves strangely here. The moss grows at its single pace. The water wheels turn their eternal rotations. The bronze tools wear down and are reforged in the same patterns. New buildings emerge from the stone, but they follow the templates laid down by the first builders, as if the city were not growing but simply becoming more completely itself—revealing what was always waiting in the volcanic rock.
+
+The warmth never varies, held in equilibrium by the altitude and the moisture. Dawn and dusk pass in subtle gradations of pearl-gray light. Even the rains come with clockwork regularity, beginning precisely when the afternoon air can hold no more water, ending when the stones have drunk their fill. 
+
+In the sparse spaces between structures, the black stone lies naked and streaming, too hot from the trapped volcanic memory to support even moss. These zones of barren rock create natural boundaries between districts, crossed only by the arching bridges that leap from one moss-soft area to the next. The city breathes through these empty spaces, drawing air up from the unseen lands below.

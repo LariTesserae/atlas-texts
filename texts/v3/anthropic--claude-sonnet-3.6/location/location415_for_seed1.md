@@ -1,0 +1,15 @@
+In the perpetual twilight, the ground writhes. Not metaphorically - the surface is a continuous mass of transparent creatures, their bodies refracting what little light filters through the low-hanging mist. They flow like liquid glass, merging and separating in endless patterns, their internal organs visible as darker shapes drifting within. The cold makes their movements sluggish but never still.
+
+The landscape extends for miles in gentle undulations, ancient hills worn nearly flat. Every surface is covered in the glass-creatures, layers deep, moving in slow currents like a living sea. Where they pile highest, their combined weight liquefies the bottom layers, creating deep pools of creature-melt that gleam with internal bioluminescence. The melt eventually re-forms into new entities, maintaining the endless cycle.
+
+Water is everywhere but never pure - it exists in a halfway state between liquid and living tissue. It seeps up from beneath, mingles with the creature-mass, becomes part of their bodies, then condenses from the saturated air to begin again. The boundary between organism and environment has long since dissolved.
+
+The sound is constant: a deep bass thrumming from the creature-mass's movement, overlaid with the higher-pitched tones of their bodies sliding against each other - somewhere between wet glass and singing crystal. When they merge or split, they emit sharp harmonic notes that echo across the plain. The acoustic properties of their transparent forms create complex standing waves, turning the entire landscape into an instrument played by their endless motion.
+
+The air itself seems uncertain of its nature. Patches randomly crystallize into geometric patterns that shatter and reform elsewhere. Light bends unpredictably, creating false horizons and impossible reflections. Sometimes the creatures' movements synchronize into vast shapes that momentarily impose a higher order on reality before dissolving back into chaos.
+
+There are no plants, no structures, nothing but the glass-creatures and their melt-pools. Yet the landscape hums with industrial energy - not from machines, but from the creatures' own biological processes. They generate heat and light and motion with an efficiency that suggests optimization over eons. Their bodies contain structures like circuit boards and gears, visible through their transparent flesh - evolution or design having arrived at mechanical solutions through biological means.
+
+At irregular intervals, large sections of the creature-mass suddenly go dark and still, as if powered down. These dead zones migrate across the landscape in predictable patterns, like rolling blackouts in a power grid. The creatures seem to accept these cycles, flowing around the affected areas until activity resumes.
+
+The cold air carries particles that might be snow, might be fragments of crystallized time, might be the exhaled thoughts of the glass-creatures themselves. They accumulate nowhere, dissolving on contact with any surface, adding their substance to the endless cycle of transformation that defines this place.

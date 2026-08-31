@@ -1,0 +1,13 @@
+Water moves through this place in channels cut into stone-polymer composite, the channels wide enough to stand in but shallow, maybe a meter deep, with flow that sounds louder than it appears — a constant rushing that fills the corridors and collides with itself at junction nodes. The sound has no rhythm to learn. It simply persists, and the tunnels propagate it.
+
+The walls weep. Moisture condenses on every surface, not in drips but in sheets that run continuously, feeding the channels. This is not leakage — it is architecture. The condensation is collected, channeled, recirculated. The air is thick with it, warm, the warmth coming from somewhere below or from the machinery that pulses in the walls, unseen but felt as a vibration in the palms. The wetness is intentional. The place is a living part of some water management system.
+
+Vegetation clings to the channel edges — not wild growth but ordered, systematic. Algae cultures in long transparent tubes that line the channel walls, bright green, photosynthesizing under dim bioluminescent strips. Fungal lattices mounted on the ceiling in geometric patterns, pale and branching, feeding on something in the water, converting it, processing it. Root structures that snake through the composite stone, not destroying it but interlacing with it — engineered symbiosis. The plants are everywhere but sparse enough that the spaces between them feel vast. A greenhouse designed to be mostly greenhouse.
+
+No animal life. The place was not made for animals. The vegetation operates without pollinators, without decomposition chains, without anything that moves on its own. The plants grow, process, are harvested or processed by other systems — but nothing breathes here except the water and the machines.
+
+The space is urban in structure: corridors, junction chambers, access nodes, maintenance alcoves. But it is empty of use. The infrastructure goes somewhere, does something, but the place itself is transition space — the guts of something larger, not the thing itself. Built surfaces are sharp-edged, precise, but the edges are fresh. Erosion marks appear where water hits hardest, where the air moves fastest. A year old, or a thousand, but still young. Still becoming.
+
+Light is dim — bioluminescent algae, occasional strips of cold blue-white, emergency markers that pulse at irregular intervals. Enough to see the channels, the walls, the shapes. Not enough to feel lit.
+
+The warmth, the wet, the sound, the emptiness. A machine organ, running. No one home.

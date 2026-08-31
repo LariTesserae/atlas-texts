@@ -1,0 +1,24 @@
+The place is called the Underforge.
+
+You descend through a narrow throat of fresh volcanic fracture, the rock still sharp enough to cut your palms if you brace wrong. After forty meters the fissure opens sideways into a low, vaulted chamber no larger than a modest cathedral. Everything here is simultaneously ancient and newborn: the stone itself is only a few centuries old, born in a single cataclysmic steam explosion that tore a pocket open between two deeper lava tubes. The wound has never healed. It still breathes.
+
+The air is hot, wet, and heavy, like the inside of a blacksmith’s lung. Condensation beads on every surface and falls in slow, irregular drops that strike iron and stone with soft metallic ticks. There is no true river, only a thousand braided trickles that ooze from the fractured ceiling, run along pipes, pool in rusted gutters, then vanish again into drains that lead deeper. The moisture never quite becomes rain and never quite dries; it simply cycles, sweating and recondensing in the heat.
+
+The Underforge is dense with industry, yet strangely quiet.
+
+Hundreds of black iron machines—some no taller than a man, others the size of locomotives—stand shoulder to shoulder, layered in three or four haphazard tiers connected by catwalks, spiral staircases, and chain hoists that have not moved in decades. Boilers the color of dried blood crouch beside orphaned turbines. Brass pipes thick as a man’s thigh snake between them, sweating rivulets that hiss where they touch superheated metal. Every surface is encrusted with mineral flowers: delicate orange needles of iron oxide, translucent blue-green blooms of copper sulfate, white crusts of sulfur. The deposition is so rapid that new crystals visibly lengthen while you watch, a slow, vegetable growth of rust and salt.
+
+There is no animal life. Not a single insect, not even the blind white millipedes that usually colonize such depths. The heat and the constant low-level emission of volcanic gases have rendered the air sterile. Only machines and minerals remain.
+
+Light is scarce. A few industrial lamps still burn—filthy glass bulbs glowing dull orange behind wire cages—but most have failed. What illumination exists comes from within the stone itself: veins of fluorescent minerals pulse a faint, sick magnesium green where geothermal fluids seep through freshly opened cracks. The light is never enough to see clearly by. Every shape remains half-guessed. The machines look like sleeping beasts. The dripping sounds arrive from impossible directions.
+
+The Underforge is still being born. Fresh fissures open every few years with a sound like a distant cannon shot, releasing new gusts of steam and new trickles of mineral-rich water. When that happens the entire dense thicket of machinery seems to shudder in sympathy; loose chains sway, condensers tick faster, pressure valves sigh as if in relief. The place is technically “urban” in the density of its construction, yet it has never known a single human inhabitant. It is a city built by geological accident and then colonized by its own infrastructure, an industrial fossil that keeps metabolizing long after its makers vanished.
+
+The dominant sound is the wet metronome of falling drops—hundreds of them, each with its own pitch depending on whether it strikes iron, ceramic, or pooled water. Beneath that lies a constant low industrial respiration: the faint creak of expanding metal, the occasional sigh of escaping steam, the distant gurgle of pumps that still run on residual geothermal pressure. Every few minutes a deeper note arrives, a subsonic thump from somewhere far below, as if the earth itself is clearing its throat.
+
+Nothing here is soft. The geometry is all fresh fracture planes, sharp rebar, broken gear teeth, and angular mineral spurs. The heat makes the air waver; distances feel unreliable. You can stand in one spot and feel three different temperatures on your face at once—scorching from a nearby boiler, lukewarm from a dripping pipe, and a strange cool draft that slides out of a crack no wider than a finger.
+
+The Underforge does not want you. It tolerates you the way stone tolerates lichen. Walk carefully between the sweating machines, past the slow-growing crystal gardens, beneath the dripping vaults. Every surface is either burning hot or slick with condensation. There is nowhere truly dry, nowhere truly safe, and nowhere that does not feel as though it was made yesterday and may be unmade tomorrow.
+
+This is a young wound in the world that has learned to run itself like a city.  
+It has not yet decided whether it is dying or being born.

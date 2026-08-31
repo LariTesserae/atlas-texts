@@ -1,0 +1,13 @@
+The plateau is immense, high and cold and dark. It stretches flatly, horizonlost, to a point where landscape becomes suggestion and finally conjecture. Water has gathered here—not as pools or rivers, but dewlike, condensed upon surfaces, frozen in black sheens. It beads across the built landscape, a rime of captured cold.
+
+For this is a place of construction: mineral-built, raised high into thin air, after some event or circumstance long silenced. Buildings take forms hinted at rather than declared—foundations, partial walls, vast paved courtyards open to the sky. There is no plant life: no trees, no scrub, no lichen, just the perfect and constant negation of life.
+
+Above, the light is near-absence. A dim, likeneon glow simulates illumination, bleeding from occasional fixtures or the built environment itself, painting everything in cold phosphorescence. It barely penetrates.
+
+In the near-darkness and the chill, something moves. Animals—or things that are animal-adjacent—are everywhere. Their bodies cluster tightly in the streets, spill over debris, coat buildings. They shift with sluggish purpose, slow-moving creatures that suggest vast, cold-blooded life emerging gradually from embryonic states—a world's half-completed becoming. This is not a place you would walk through easily. It is crowded; the air vibrated with the sounds of overlapping presences.
+
+Here is the weird, the deeply unusual—a high, cold, wet, dark cityscape of half-finished structures rife with complex motion, built things, and inhabitants whose existence defies easy labels. Their sounds are loud here: the crunch of stone underfoot or the rasp of bodies sliding against each other, the moist slap of flesh against stone, the scraping of claw against rock.
+
+What dwells here? Not plant nor easily recognized animal, but something else entirely—a dense, overlapping throng of presences that suggest life in its rawest, most mineral forms, as if the city itself has come alive. Their movements are slow—a symphony conducted over geological time. Rules here seem to emerge from deep within the landscape itself: water nears the surface, but never quite achieves life.
+
+And the built things *themselves* seem to be changing slowly, as if in response to pressures still at work below the landscape. They bulge where water gathers, dissolve into rubble where rain has had its way, incorporate the creatures that dwell within their forms. As if this place were not a single moment in time, but many moments, many eras, existing simultaneously. A very slow-forming world, and in its own way, beautiful.

@@ -1,0 +1,19 @@
+The air here is a thick, warm soup of unspent storms. At a low elevation, perhaps a reclaimed seabed or a sinking basin, the world is defined by a heavy, vertical wetness. It does not rain in drops; rather, the atmosphere simply surrenders its moisture in a constant, silent transition from gas to liquid. Every surface—the sharp-edged stones, the rusted iron, the skin of the creatures—carries a shimmering coat of condensate that never dries.
+
+The terrain is geologically infant, characterized by jagged, obsidian-like ridges and steep-walled gullies that have not yet been smoothed by the eons. These "young" rocks are cold to the touch despite the ambient warmth, and they jut out of the rising water table like the teeth of a growing machine. 
+
+Light does not exist here. The value is a true zero. Vision is a forgotten sense, replaced by an intricate, tactile density. The world is crowded—not with people, but with *presences*. There is a high volume of matter per cubic meter: hanging cables, dangling sensory filaments from ceiling-dwelling organisms, and the hulking, unmoving shapes of industrial husks. You navigate by touch and by the heavy, humid pressure of objects near your skin.
+
+The technology of this place is industrial, yet it has been overtaken by a slow, biological patience. Massive, electrified copper coils—large as cathedrals—hum with a low-frequency power that provides no light, only heat. These are the hearts of the landscape, scattered at vast intervals across the marshy plains. They are the "built" elements: great, boxy factories with no walls, only skeletal frameworks of girders that groan under the weight of the humidity. These machines are still running, performing some inscrutable, automated task—perhaps refining the very silt of the basin—but they move with such agonizing slowness that a piston may take a decade to complete its stroke.
+
+Vegetation is a secondary thought here. There are no leaves, only sparse, calcified reeds that grow in clusters around the heat-wells of the idling engines. They are brittle and snap like glass if brushed. 
+
+But the fauna—the fauna is staggering. The darkness is teeming. 
+
+Because there is no light, the animals have evolved into forms of pure vibration and heat-sense. Soft-bodied, multi-limbed things the size of oxen cling to the undersides of the industrial girders. They do not scuttle; they drift. They move through the dense air and the knee-deep water with a fluid, gelatinous grace. Their skin is porous, drinking the moisture from the air. You can hear them, not through vocalizations, but through the sound of their movement: the rhythmic *slap-squelch* of suction-cup feet on wet metal, the wet rustle of sensory whiskers brushing against the obsidian ridges.
+
+The "weirdness" of this place manifests as a breakdown of spatial logic. Because there is no visual horizon to anchor the mind, the "open" scale of the landscape feels paradoxical. You might walk for miles in a straight line through the marsh, feeling the vastness of the basin, only to reach out and find your hand touching the same rusted valve you passed hours ago. The geography is recursive. The industrial sounds—the deep, sub-bass thrum of the coils—do not fade with distance; they stay at a constant, intimate volume, as if the air itself is the speaker.
+
+Gravity feels thick, influenced by the density of the presences around you. The water near the surface doesn't always flow downhill; sometimes it climbs the sides of the sharp rocks in slow, defying films, drawn toward the heat of the slumbering machines. 
+
+It is a world of "heavy quiet." The only noises are the ambient thrum of the industry, the dripping of condensate, and the occasional, distant *crack* of a young ridge fracturing under its own thermal expansion. It is a warm, dark, crowded womb of iron and silt, where the machines are the gods, the animals are the worshippers, and time has curled up to sleep in the mud.

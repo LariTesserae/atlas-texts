@@ -1,0 +1,27 @@
+# The Cinder Embassy
+
+Begin with altitude. You are higher than anything that should hold a city — somewhere past the threshold where mountains thin into the merely vertical, where rock forgets to be horizontal. The summit isn't a peak so much as a fresh wound: a spire of black glass and unweathered basalt that erupted recently, in the slow sense of the word. The edges are still sharp enough to cut light. Faces shear and gleam like something just broken from a larger piece. The geology hasn't decided yet what shape it wants to settle into.
+
+Heat radiates from below. Not volcanic exactly — something deeper, more refined, as though the mountain has a managed core. The stone is hot to the touch at first, then strangely cool a few centimeters down, as though the temperature is being *held* rather than expressed. Walking surfaces are warm through the soles. The air at this altitude should be freezing; instead it sits at the temperature of an unopened oven, dry enough to crack lips, with the metallic sweetness of mineral steam.
+
+Now the settlement. It clings to the spire in small terraces and threaded passageways — not a city by population but by *organization*. Perhaps two hundred structures distributed across kilometers of vertical face, connected by walkways so thin and dark they look drawn rather than built. Most of the buildings are empty. Most have been empty for a long time. The architecture is layered: an older stratum of fitted dark stone, a middle stratum of something ceramic and seamless, and a newest stratum that doesn't quite resolve to the eye — surfaces that seem to be there mainly as a courtesy, planes that catch shadow but not quite light. The newest buildings hum faintly when you stand inside them, and the hum carries information you can almost parse.
+
+The technology is the strangest feature. Threading through the settlement are conduits — thumb-thick, matte, slightly cool — that don't appear to carry anything but on which condensation continuously beads and rolls upward. This is where the moisture comes from. The conduits exhale water in patient cycles, never enough to pool, always enough to wet a palm pressed flat against stone. Small basins at intersections collect droplets that, when they accumulate past a certain mass, flicker out of existence. The whole system is a hydrology of forgetting.
+
+There is no plant life. There is no animal life either, in the conventional sense — though if you watch the damp stones long enough, you see the rust-colored crusts shift position. Not growing. Migrating. Slow as minute hands. A kind of mineral lichen, perhaps, or something between chemistry and intention. They cluster wherever the conduits weep most often, and disperse from anywhere a person has recently stood.
+
+Light is low and indirect. The sky overhead is the deep indigo of true altitude, with stars visible even at midday — but the light on the spire itself comes from below, a sourceless amber glow that seems to leak from joints in the stone. It pulses on a slow respiratory rhythm: brighten over a count of forty, dim over a count of sixty. Shadows accordingly breathe. There is no fixed direction of "down-lit" or "up-lit"; the geometry of shadow keeps revising itself, and after an hour of watching, you realize the building edges aren't quite the same as they were.
+
+Sound is sparse. The wind at this height should be brutal, but isn't — something deflects it, and what reaches the terraces is a thin, filtered whisper, more felt than heard. Beneath that, the conduit-hum. Occasionally a sound like a distant bell being slowly *unrung* — a tone that begins fully formed and resolves backward into silence over several minutes. No one rings it. It happens perhaps three times a day.
+
+The rules of this place, as best I can articulate them:
+
+Water arrives where attention rests. Stand still and your hands grow damp. Walk continuously and the air dries.
+
+The rust-lichens avoid recent presence and seek recent absence. A room left alone for a day will be patterned with their slow drift. A room occupied will be bare.
+
+The buildings remember occupants longer than they remember themselves. Many doorways open onto interiors that no longer correspond to their exteriors — smaller, or angled, or simply not there in the way they should be. The oldest stratum is the most reliable. The newest stratum cannot be entered at all by most visitors; it can only be stood adjacent to, while it hums its almost-language.
+
+This is not a ruin. It is an embassy of some kind — a place built recently, by someone or something, at the precise altitude where atmosphere thins enough that *contact* becomes possible. The emptiness isn't abandonment; it's protocol. The settlement is sized for occasional, careful meeting. Whoever built it expected few visitors and prepared accordingly: water enough for thirst, warmth enough for survival, light enough to see by, and a quiet vast enough that any conversation held here would be heard with great attention by whatever is listening from the other side.
+
+You arrive. The conduits begin to weep a little more generously. The lichens, where you cannot see them, are already retreating from the room that will be yours.

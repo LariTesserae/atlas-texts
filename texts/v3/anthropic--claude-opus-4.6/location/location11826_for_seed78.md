@@ -1,0 +1,59 @@
+# The Canopy Plateau
+
+---
+
+It begins with sound. Before you understand where you are, you hear the place thinking.
+
+A low groan — wood flexing under its own continental weight — rolls from somewhere impossibly far to your left, crosses beneath your feet with a vibration you feel in your teeth, and continues eastward for what must be thirty seconds before it fades into the dark. Then another, different pitch, from above and behind. Then the staccato pop-pop-pop of bark splitting along a growth seam a quarter mile away, sharp as gunshots in the cold air. The forest is growing, and growing is loud work.
+
+---
+
+You are standing on wood. Not a floor, not a platform — a living surface. Beneath your boots the grain is tight and pale, slightly damp, cool to the touch, and it stretches in every direction farther than you can see, which isn't far, because there is almost no light. You are on the upper canopy of something that has no meaningful comparison in any forest you know. This is a plateau, a high plain, and the plain is alive. It is made of interlocked crowns — millions of them, maybe billions — trees whose tops have grown together so thoroughly over such a span of time that the canopy itself has become terrain. Soil has gathered in the crevices where branches merge. Moss and lichen form a continuous carpet over the braided wood. In places the canopy has sagged and filled with collected rainwater, forming shallow dark pools you can hear but not see. In other places it has bulged upward where something underneath is still pushing, still reaching, and these gentle rises form hills on the living plain, hills that shift over the course of years, that trade positions with valleys on a schedule set by growth and rot and the politics of root systems miles below.
+
+The elevation is real. You are high — thousands of feet above whatever ground exists beneath this organism. The air is thin and cold, cold enough that your breath comes out in a pale cloud you can barely see against the darkness, cold enough that the moisture on the canopy surface has crystallized in places into a fine rime of frost that crunches underfoot. The trees that form this surface are adapted to altitude in ways that would confuse a botanist. Their wood is dense and dark, full of resins that don't freeze, and their bark is thick and corky, insulating the living cambium beneath from temperatures that would kill any normal broadleaf. But they aren't conifers. They're something else — something that decided, perhaps a hundred thousand years ago, to simply keep going up.
+
+---
+
+The darkness is not total. That's important to understand. If it were total you'd be blind and this would be a different place. Instead there is a persistent, sourceless dimness — the kind of light that exists inside a closed mouth. Part of it is the sky, which is overcast always, a low deck of cloud that the canopy plateau nearly reaches and in places penetrates, so that you might walk for hours across the moss-plain and then find yourself ascending a gentle swell and passing through a cold wet layer of fog and emerging — not into sunlight, but into a slightly less profound darkness above the clouds, where the sky is a marginally paler shade of charcoal and you can see the next bank of cloud rolling in from the west like a slow gray tide.
+
+The other source of light is the moss itself. Not bioluminescence exactly — more like a phosphorescence, a stored glow, something the moss absorbed during some brighter epoch and is now spending, frugally, over centuries. It gives the surface of the canopy a faint greenish-gray cast, enough to see the texture of the ground beneath you, enough to make out shapes at maybe twenty feet. Beyond that, everything dissolves into a darkness that *sounds* populated.
+
+---
+
+And it is populated. The fauna here has adapted to a world that is functionally a high-altitude grassland, except the grass is moss and the ground is wood and the ground is alive and the ground is a mile above the actual ground. Things move across the canopy surface in the dark.
+
+The most common sound, after the wood-groans, is clicking. Rapid, arrhythmic clicking, like someone running a stick along a fence at varying speeds — this is echolocation, used by creatures you almost never see clearly. They are warm-blooded, about the size of large cats, low-slung, with wide flat feet adapted to gripping the uneven canopy surface. They travel in loose groups of four to seven. You hear them pass nearby sometimes: the clicking intensifies, overlapping as multiple individuals scan the same space, and then there's a burst of movement — claws on bark, a huffing exhalation, something heavy landing fifteen feet away — and then the clicking recedes. They are predators. They hunt something.
+
+What they hunt makes a different sound. A long, wavering tone, almost musical, rising from the pools of collected water that dot the canopy surface. These are amphibians of a kind — cold-tolerant, the size of small dogs, with translucent skin that shows the dark blood moving beneath. They breathe through their skin and they sing through resonating chambers in their skulls and their songs carry for miles across the flat dark plain. On a still night — and the nights are long here, the days barely distinguishable — you can hear dozens of them, a chorus without harmony, each voice in its own key and its own rhythm, filling the cold air with a sound like a pipe organ being played by the wind. When the clickers find them, the singing stops in a specific spot and doesn't resume. But it never stops everywhere at once. The ecology is in balance, or something close enough.
+
+There are other things. Insects — large ones, slow-moving in the cold, their wings making a papery rustle as they navigate by some sense you can't identify. Colonies of something that lives in the bark itself, visible only as patterns of tiny holes in the wood surface, each hole exhaling a faint warmth. Twice you might hear a much larger sound — a deep, resonant boom from far away, like a drum the size of a building, and the canopy shudders faintly beneath you, and you don't know what made it and you don't walk in that direction.
+
+---
+
+The structures. They exist. Scattered across the canopy plain like cairns in a moorland, you encounter them every few hours of walking.
+
+They are small — rarely taller than a person, rarely wider than the span of your arms. They are made of wood, because wood is the only material here. Pieces of branch, cut or broken, lashed together with cordage made from bark fiber. Some are shelters — low domes, moss-chinked, with openings that face away from the prevailing wind. Inside you might find a stone tool, chipped from some material that doesn't come from here (carried up from below? traded? inherited?), or a bundle of dried moss arranged with obvious intent, or marks carved into the floor-wood, deep enough that the tree has grown scar tissue around them, which means they are old, very old, and the tree has been slowly trying to digest them.
+
+Other structures are less explicable. Frames — open rectangles of lashed wood, standing upright, positioned at the edges of the canopy pools. They frame nothing. They face the dark water. Some have objects suspended in their centers: a knotted length of cord, a smooth stone, a small cage woven from green withes containing something that might once have been alive. These feel like instruments of some kind, though whether for measurement or worship or communication you cannot determine.
+
+The builders. You don't see them. You hear them — or you hear something that might be them. Occasionally, at the edge of audibility, beneath the wood-groans and the singing and the clicking, there is a rhythmic tapping. Deliberate. Patterned. It comes from below the canopy surface, from the interior of the forest-mass, transmitted through the wood itself like a telegraph through a cable. It doesn't repeat on a schedule you can decode. It might be language. It might be construction. It might be the sound of someone, miles away and fathoms deep in the wooden dark, driving a hand-carved wedge into a branch to widen a living space by another inch.
+
+Whatever they are, they live inside the canopy, not on top of it. The surface structures are outposts, boundary markers, offerings — places where the interior world meets the exterior dark. You are walking on their ceiling.
+
+---
+
+The dynamism of this place is slow by human standards but continuous and powerful. The canopy is not static terrain. It breathes. Across a span of weeks you would see the surface change — a hill subsiding as the tree beneath it loses its crown war with neighbors, a new pool forming as a section of canopy sags under accumulated frost-weight, a ridge appearing where two growth fronts collide and force each other upward. The wood groans mark these events. Each one is a small tectonic announcement: something shifted, something yielded, something won.
+
+Weather cycles across the canopy plateau like weather across any vast high plain. The clouds lower and lift. Fog rolls in banks. Rain comes in brief, cold bursts — never heavy, never sustained, but frequent enough that the moss stays damp and the pools refill. Occasionally the rain crystallizes into sleet that ticks against the bark-surface like thrown gravel, and the amphibians go silent, and the clickers retreat to sheltered hollows, and the canopy-plain becomes a dark, empty, percussive expanse of ice-glazed wood stretching beyond comprehension.
+
+And then it passes, and the singing starts again from the far pools, one voice and then another, and the clicking resumes, and the wood groans its deep slow adjustments, and you walk on across a world that is one living thing pretending to be a landscape, or a landscape in the process of becoming one living thing, and in the cold dim phosphorescent dark you cannot tell the difference, and it doesn't matter, because the place is what it is regardless of what you call it.
+
+---
+
+The emptiness is the strangest part. For all its life, for all its sound, the canopy plateau is *open*. Vast open space in every direction, the moss-plain rolling away into invisible distance, the sky low and close and featureless. Nothing blocks your line of sight except the darkness itself. The animals are sparse — you hear far more than you see, and what you hear is spread across such distance that the space between sounds becomes a kind of silence, a silence that isn't quiet but is *empty*, the way a cathedral is empty even when the organ is playing. You can walk for an hour and encounter nothing but moss and wood and cold air and the distant chorus of the pool-singers. The place has the population of a desert and the voice of a sea.
+
+It is, in its way, a young place. The canopy locked together only recently — recently in the timescale of this organism, which might mean centuries or might mean millennia. The features of the surface are sharp, not yet smoothed by the slow grinding of growth against growth. The pools have clean edges. The hills are steep-sided. The bark surface where it's exposed shows fresh growth rings, pale and tight. This is a new landscape, still figuring out its own geography, still negotiating the terms of its own existence. The trees below are ancient. The plateau they've made is not. It's a young plain on an old forest's back, and it's still settling, still finding its shape, and every groan you hear is part of that conversation.
+
+You keep walking. The cold is steady. The light is barely there. Something large clicks nearby and moves away. The wood shifts under your feet by a degree so small you might have imagined it.
+
+You didn't imagine it.

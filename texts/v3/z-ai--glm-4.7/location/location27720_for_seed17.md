@@ -1,0 +1,19 @@
+The world is a suspension, a planet-sized flask of hyper-clear, freezing fluid.
+
+There is no surface to speak of, at least not one that distinguishes itself from the whole. The "sky" is merely the upper reaches of a liquid column that extends downwards for thousands of miles. It is not water as we know it; it is thinner, distilled, lacking the salinity or murk of terrestrial oceans. It possesses the clarity of glass, so pure that looking out feels like looking into an infinite lens. Light penetrates everywhere here—normal, white, indifferent daylight—bouncing off the suspended particulate matter of the deep, illuminating a void that is terrifyingly open.
+
+This is a vertical world. The Elevation is defined by massive, jagged spires of basalt and obsidian that thrust upward from the unknowable depths. Because the Erosion is Young, these formations are knife-sharp. They have not been smoothed by the caress of currents or the tumble of sediment. They are fresh wounds in the crust, black glass walls towering thousands of feet high, clustering in ranges that look like the dropped spears of titans. Between these peaks, the vast emptiness yawns.
+
+The Density is near-zero. You can float for days and see nothing but the open, cold blue and the distant, needle-like silhouette of a mountain range miles away. The silence of the visual space is absolute, a crushing vacuum of visual stimuli, but this is a lie.
+
+The Sound is Deafening.
+
+It is a paradox of physics. The landscape is Never Changing—a frozen equilibrium where the currents are locked in perpetual, unyielding loops—but the roar is constant. It is a low-frequency, bone-shaking thrum that vibrates through the liquid and the stone alike. It is the sound of the planetary machinery. The world does not drift; it churns in place.
+
+Scattered across this vast, empty theater are the Built remnants, the Tech. They are solitary, industrial monoliths. They do not look like cities; they look like engines. Huge, rusted platforms the size of continents cling to the sides of the sharp mountains, or hang suspended in the open liquid by colossal chains that vanish into the abyss. They are factories of a sort, though their product is not material. They vent great, boiling clouds of superheated fluid that rise through the cold water only to condense and vanish, cycling the medium in a closed loop. Their pistons hammer with a rhythm that matches the heartbeat of the planet, creating the deafening roar that saturates the environment.
+
+There is no Vegetation. No kelp forests drape the sharp obsidian cliffs; no algae stains the crystal water. It is a mineral world. The only color comes from the stone—black, grey, and the bruised purples of oxidation—and the amber warning lights of the industrial rigs.
+
+Yet, there is Fauna, and they are Abundant in a way that defies the emptiness. They are large, solitary things. They resemble manta rays or eels, but evolved from heavy, cartilaginous stuff, their skin thick as armor to withstand the pressure and the noise. They do not school; to school is to be vulnerable. They swim the endless open highways between the mountains, navigating by the vibration of the industrial rigs. They are sleek, sharp-edged creatures to match the young erosion of the world, gliding through the clear fluid with a slow, majestic lethargy. They ignore the observers, focused only on the hum of the deep engines.
+
+The temperature is biting, just at the point where liquid wants to become ice. The cold slows the blood, making movement deliberate. The combination of the cold and the deafening, unchanging roar creates a trance-like state. It is a world of industrial stasis. The machines pump, the water hums, the mountains stand sharp and black, and the great beasts circle endlessly in the crystal dark. It is a place that has already finished happening, yet continues to roar with the effort of existing.

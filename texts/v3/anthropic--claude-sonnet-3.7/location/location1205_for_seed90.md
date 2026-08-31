@@ -1,0 +1,19 @@
+# The Seethe-Below
+
+A hidden grotto, sunken beneath an ancient forest—perhaps a glacial scar from an age before memory—where the ceiling of tangled roots has captured darkness for ten thousand years. The hollow is small, no wider than the span of twenty paces, a perfect rounded bowl worn by waters long since vanished or transformed.
+
+The floor is impossibly smooth stone, polished to a mirror finish by some lost river that once spiraled here, leaving behind concentric rings still faintly visible beneath the moss. Occasional droplets fall from the canopy of roots above, landing with precise timing, always in the same places. These drops don't splash but sink *into* the stone as if it were liquid, creating rippling disturbances that never quite fade.
+
+Fungi are the true masters here. Not the simple mushrooms of the world above, but elaborate, architectural structures that grow in impossible geometries. Some resemble miniature cathedrals with glowing blue veins tracing their translucent flesh. Others spiral in fractal patterns that seem to continue inward forever, drawing the eye into dizzying depth within a structure no larger than a fist. The larger specimens pulse with bio-luminescence—a gentle, cool light that reveals the grotto in momentary flashes before fading again.
+
+Between these fungi stretches an intricate web of mycelium, silvery threads that occasionally spark with silent electrical discharges. The threads connect everything in the hollow, from moss patches to the pool at the center, a relationship so ancient and established that distinctions between organisms have begun to blur.
+
+The pool itself is small and perfectly circular, its water black and utterly still. Peer into it, and your reflection might blink back at you a moment before you do, or it might be replaced entirely by something with too many eyes. Sometimes objects appear in the reflection that aren't present in the grotto—impossible to tell if they are memories, futures, or things that exist in some adjacent reality.
+
+The most unsettling presence is the fauna. They move through the darkness between the luminescent pulses—hundreds of them, ranging from fingernail-sized to hand-span creatures. None resemble anything from the world above. Some appear to be composed entirely of tiny mouths. Others move by constantly turning themselves inside out. Many seem to exist partially in other spaces, their bodies cutting off abruptly at impossible angles before continuing a few inches away.
+
+These creatures communicate through modulations of the grotto's near-silence—subtle variations in the ambient hush that form patterns just below the threshold of conscious recognition. The entire ecosystem seems to operate through this silent language, a conversation so ancient it has worn smooth the very stone.
+
+The air feels dense with potential, as if reality here has been worn thin by age. Sometimes a creature will move in a way that momentarily leaves a smear of itself across space, and occasionally two identical fungi will occupy the same point without touching. The normal rules of space and time feel more like suggestions here, bent by the sheer weight of biological processes that have continued uninterrupted since the world was young.
+
+To enter the Seethe-Below is to become part of its ancient conversation. Stand too long, and the boundary between visitor and place begins to blur. Your thoughts might appear as tiny luminescent spores drifting from your fingertips, or your shadow might linger in places you've already left. Many who find this place never return to the world above—not because they cannot, but because they no longer remember the difference.

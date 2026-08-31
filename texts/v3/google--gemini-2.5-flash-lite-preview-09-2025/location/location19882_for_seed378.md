@@ -1,0 +1,29 @@
+The air here is thick, not with humidity in the conventional sense, but with the close presence of near-boiling atmospheric moisture, a constant, shimmering veil that refracts the light into painful brilliance. This is the **Calcined Mire**, a high, exposed plateau where the geology seems to rebel against its own stability.
+
+**Terrain and Water:**
+The elevation is significant, placing this region above the most predictable weather systems, yet the water parameter (2.3) suggests immersion. This is not a landscape of rivers or lakes, but of pervasive, pressurized dampness. The terrain is layered, built up over epochs of geothermal activity and mineral deposition. Massive, stepped terraces of pale, chalky aggregate rise from the gloom, perpetually weeping. Water does not pool here; it flows *through* the substrate. Deep fissure-cracks, wide enough to swallow a vehicle whole, bleed superheated steam and mineral-rich brine to the surface. The ground itself feels spongiform beneath the crust—a saturated matrix of fine, oxidized salts and silicate dust, perpetually saturated from below by aquifers heated far beneath the crust by deep industrial heat siphons.
+
+**Vegetation and Materials:**
+The complete absence of recognizable vegetation (0.2) is stark. There are no greens, no browns, only shades of bone-white, rust-red, and an unnerving, slick, oily black where hydrothermal vents have recently cooled. The terrain is composed of **Geopolymer Bricks** and **Sintered Salt-Plates**. These are not natural formations, but the calcified runoff and infrastructure of a previous epoch—a long-abandoned industrial complex built straight atop a volcanic hot zone. The materials are porous yet incredibly hard, resembling ancient, cracked roofing tiles extruded from the earth itself.
+
+**Temperature and Light:**
+The heat (2.9) is oppressive and pervasive. It radiates up from the saline stone underfoot and down from the blinding sky. The light (2.6) is a relentless, white glare, occasionally punctuated by prismatic halos caused by the dense, superheated water vapor clinging to every surface. There are no shadows of substance, only diffused, milky gradations of brightness. Survival mandates specialized shielding just to perceive the environment without immediate dermal damage.
+
+**Scale and Density:**
+This place extends for leagues (Scale 2.0), a vast, ruined geometry stretching toward the horizon where the heat haze merges earth and sky. Yet, it is sparse (0.7) in terms of immediate obstructions. The industrial ruins are vast, suggesting a massive population once existed, but what remains are colossal, spaced-out mechanisms—the skeletal remains of cooling towers, immense, corroded pipes that snake across the plateau like petrified sea serpents, and the foundations of structures that dwarf modern estimations.
+
+**Built Environment and Tech:**
+The density of the *built* environment (1.7) is confusingly high despite the low density of visible objects. The settlement is a ghost city dissolved into its foundation. Massive, cubic structures—the remnants of processing plants—have slumped, their ferro-silicate skeletons sinking into the saline mire. The technology (1.7) is archaic but powerful—relics of immense, energy-intensive operations. One can discern the faint, rhythmic *thrum* of long-dormant magnetic levitation rails buried beneath the strata, or the slow, agonizing groan of massive, pressure-release valves on subterranean systems that may still be pressurized after millennia.
+
+**Atmosphere and Sound:**
+The quiet (0.1) is perhaps the most unsettling feature. In such a hot, wet, volcanically active region, noise should be mandatory—the hiss of steam, the crackle of thermal expansion. Instead, the atmosphere seems to *absorb* sound. The only discernible audible input is the faint, rhythmic **drip-hiss**—the sound of superheated condensate vaporizing instantly upon contact with slightly cooler mineral formations, an omnipresent, low-frequency sigh that never resolves into distinct sounds.
+
+**Fauna and Weirdness:**
+The high fauna count (2.1) is the source of the strangeness (1.5). There are no animals with recognizable morphology. The 'fauna' are **Crystalline Metabolites**—biological processes that utilize the abundant heat and mineral water in ways that bypass organic chemistry entirely.
+
+Dotting the landscape are slow-moving agglomerations of bright orange and acid-yellow structures. These are not plants; they are colonies of self-assembling, fractal silicates that 'grow' by drawing complex metallic ions from the weeping rock face. They shift, very slowly, over the course of hours, exhibiting clear, if deeply alien, predator-prey dynamics. A cluster of deeper-black, glassy pillars might slowly expand across a patch of the white salt crust, seemingly absorbing the mineral resources necessary for the orange crystalline forms to propagate.
+
+The rules of this world are dictated by thermodynamics and resource partitioning among non-carbon-based life. Everything that moves, moves with geological deliberation. The 'air' is often laced with microscopic motes of highly conductive metal dust, giving a slight, unsettling static charge to anything that brushes against the atmosphere.
+
+**Dynamic:**
+The landscape is active (1.5) in a geological sense. Every few hours, a pressure wave rips through the heat haze, momentarily clearing the steam and revealing the deeper layers of the ruined infrastructure—a massive, corroded conduit, perhaps, or the sheer drop-off into a thermal chasm. These moments are transient, fading as the atmospheric saturation reasserts itself, ensuring the Calcined Mire remains a world perpetually on the verge of boiling itself away, yet sustained by the very heat that threatens to unmake it. It is a high-altitude industrial graveyard constantly weeping its own remains.

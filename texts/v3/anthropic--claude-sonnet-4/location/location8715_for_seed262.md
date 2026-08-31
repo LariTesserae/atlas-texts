@@ -1,0 +1,21 @@
+**The Hollowed Quarter**
+
+Beneath the cobbled streets of the old merchant district, where the city's foundations have slowly sunk into what was once marshland, lies a realm that should not exist—yet pulses with undeniable presence.
+
+The Hollowed Quarter sprawls through a network of interconnected cellars, crypts, and half-flooded basements that have somehow expanded beyond their original boundaries. Stone walls weep constantly, not from simple seepage but from an atmospheric pressure that seems to wring moisture from the very air itself. The dampness is pervasive—it beads on rough-hewn stone, pools in the mortared joints between ancient bricks, and forms rivulets that trace impossible geometries down surfaces that bend subtly away from euclidean expectation.
+
+Water accumulates in shallow basins carved directly into bedrock, though no one remembers cutting them. The liquid moves sluggishly between chambers through channels that shift their depth and direction according to rhythms measured in weeks rather than tides. Sometimes the water reflects torchlight normally; other times it shows rooms that exist three levels higher, or glimpses of sky that cannot penetrate this deep.
+
+Sparse vegetation clings to existence here—pale fungi that fruit from wall cracks in coral-like formations, and thin runners of some vine-like growth that seems more sinew than plant. These growths appear randomly, separated by vast stretches of bare stone, yet they pulse faintly with bioluminescence that provides the only natural light in this buried realm.
+
+The architecture is a palimpsest of construction techniques. Foundation stones from the original marsh-shore settlement support rough masonry work, which in turn bears more refined stonework added as the city grew above. But the craftsmanship grows stranger the deeper one ventures. Tool marks become increasingly primitive, even crude, as if successive generations of builders were forgetting their skills. Chisels gave way to hammers, hammers to bare stones, until the deepest chambers show walls that appear to have been scraped hollow by fingernails or worn smooth by countless hands.
+
+Sound behaves strangely here. Conversations in distant chambers arrive as clear whispers, while footsteps directly overhead thunder like avalanches. The water's dripping creates rhythmic compositions that seem almost musical—too complex for randomness, yet following no pattern human ears can fully parse. Sometimes voices join this percussion, though whether they belong to the scattered inhabitants or emerge from the stones themselves remains unclear.
+
+The few people who dwell here move with deliberate slowness, as if the thick air resists sudden motion. They tend small forges that burn driftwood and debris, crafting simple tools and implements with techniques their great-grandparents would recognize. Their settlements cluster around natural springs or particularly stable architectural features, but they maintain respectful distances from one another, as if crowding might disturb whatever delicate equilibrium keeps this place stable.
+
+Animals are uncommon visitors—occasional rats or small birds that somehow find their way down through cracks and gratings. But they behave oddly, often moving in perfect straight lines regardless of obstacles, or gathering in small groups to stare fixedly at blank walls for hours before dispersing. Sometimes tracks appear in the perpetual mud that belong to no recognizable creature.
+
+Time moves differently in different chambers. A conversation begun in one room might conclude in another to find that hours have passed, or that words spoken minutes ago have somehow preceded the speakers into their destination. Residents learn to account for this temporal drift, leaving messages for themselves and accepting that causality here follows older, more fluid rules.
+
+The Quarter expands slowly. New chambers appear not through excavation but through a gradual softening of reality at its edges. Walls thin and become permeable; spaces that should be solid stone reveal themselves as navigable volumes. The boundary between built and natural grows increasingly meaningless as the place shapes itself according to logics that predate human settlement—yet somehow accommodate it with patient, alien hospitality.

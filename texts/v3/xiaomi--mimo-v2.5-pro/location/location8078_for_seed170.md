@@ -1,0 +1,45 @@
+# The Grinding Ache
+
+---
+
+You notice the sound before anything else — a deep, bass-register moan that seems to come from the ground itself, as though the stone is trying to speak through a throat packed withite sand. It is not one sound but a composite of thousands, layered and patient, and it never stops. It rises and falls over minutes, over hours, but it does not stop.
+
+The plateau.
+
+It extends in every direction from where you stand — and where you stand is high, impossibly high relative to what? There is no sea level here, no datum. There is only *up* and the sense that you have always been up, that down is a rumor. The rock underfoot is a pale ochre, almost the color of old bone, and it is carved. Not by water. Not by wind, exactly. The formations are too deliberate for wind: long, curving channels groove the surface in patterns that recall the chambers of an ear, or the whorls of a fingerprint the size of a city district. Erosion has had its way here for a duration you cannot fathom. Every edge has been softened. Every sharpness rubbed down to a kind of weary roundness. The rock looks *tired*. It has been here so long that it has forgotten what it was before it was this.
+
+There is no water. There is almost no water. The air itself seems to have had the moisture wrung from it and then wrung again — a dryness so total it feels *industrial*, as though some process has been running for millennia, extracting every last trace of hydrogen and oxygen and binding it somewhere you cannot see. Your throat tightens. Your lips crack the moment you think about them. The heat is not the wet, pressing heat of low places. It is the heat of altitude and exposure: a radiative, bone-deep heat that comes from above and reflects from below and finds every hollow in the rock to pool in. The surface temperature of the stone is almost untouchable. The air temperature is merely punishing. Somewhere between those two numbers, the world simmers.
+
+And yet.
+
+There is life here. There is so much life here that the word feels insufficient, almost insulting.
+
+---
+
+They emerge slowly into your perception — not because they are hiding, but because your mind at first refuses to integrate what it is seeing. The creatures are *enormous*. The nearest one, perhaps a kilometer downslope in one of those ear-shaped grooves, is the size of a factory. Not shaped like one. The size of one. It moves with a slowness that borders on tectonic: one limb — if it is a limb — shifting forward over the course of what might be an hour, settling into the groove with a sound like a locomotive's brakes being slowly, carefully released. Its surface is the color of the rock but *wrong*, a shade too dark, and it ripples faintly as though something beneath the skin is turning over.
+
+There are more. The longer you look, the more you see, and the more you see, the more the landscape reorganizes itself around their presence. What you took for rock formations are *not all rock formations*. Some of them are creatures, resting. Some of them are creatures, moving so slowly that the distinction between resting and moving has collapsed. They fill the grooves and channels of this plateau the way sediment fills a riverbed — slowly, completely, as though they were always meant to be here, as though the plateau was carved to hold them.
+
+They are not alike. This is what is most disorienting. They are not a species. They are not a herd. They are a *procession* — an ecology of titanic, slow-cycling organisms that apparently can survive without water, without photosynthesis, without anything you recognize as the machinery of life. Some of them are segmented, like millipedes drawn by a geologist in the grip of fever. Some are smooth and ovoid and seem to do nothing at all except *be*, massive and patient and vaguely warm to the touch if you dared to approach one, which you would not. Some of them have structures on their surfaces that look disturbingly like smokestacks, or cooling fins, or the articulated joints of enormous industrial machinery. You cannot tell if these are organs or ornaments or something for which no word exists. The line between biology and mechanism has not so much blurred as been erased, and then the eraser marks were weathered away too.
+
+---
+
+This is the part that breaks things.
+
+Reality does not work correctly here, and it has not worked correctly here for a very long time, and the evidence suggests it may never have worked correctly here at all. The horizon — you realize, after staring at it for what feels like an hour — is not at the right distance. It is too close on one side and too far on the other, and when you try to track the point where it switches, your eyes slide off the transition like water off hot stone. Shadows do not always fall in the same direction. The sound — the deep, grinding, composite moan — seems to come from directly beneath you no matter which way you turn. The air shimmers, yes, but it shimmers *in patterns*, slow-rolling hexagonal convection cells the size of plazas that hang in the heat and rotate with a patience that suggests intention.
+
+The creatures move through this warped space as though it is perfectly normal, which perhaps for them it is. One of the largest — a dark, ridged thing that stretches across three of the plateau's ear-channels, its body curving sinuously through a space that should not be wide enough to contain it — shifts its mass over the course of what you estimate to be a full day, and as it does, the grooves in the rock around it *change shape*. Not dramatically. Not suddenly. But the curves tighten where its body has passed, as though the stone is remembering the impression and deciding to make it permanent. The erosion is not just happening *to* the creatures. The erosion is happening *because of* them. They are the weather here. They are the geological process. The plateau is slowly being carved into a shape that pleases them, and they have been patient enough to let it take as long as it takes.
+
+---
+
+The technology is hardest to account for because there is nothing to point at. No structures. No artifacts. No buildings, no roads, no pipes, no wires. And yet there is an *industrial* quality to this place that saturates everything: the dryness of the air feels *processed*. The heat feels *generated*, not ambient. Deep within the rock, sometimes, you hear a sound that is distinct from the moan — a rhythmic clanking, slow as a heartbeat, as though something beneath the plateau is cycling, compressing, refining. The creatures themselves carry that quality: their surfaces have textures that suggest manufacture, joints that suggest engineering, surfaces that suggest *tooling*. But there are no tools. There is only the plateau, and the creatures, and the slow, grinding, industrial patience of a world that has been running its processes for longer than any civilization you can imagine — and doing so without a single bolt, a single weld, a single structure that was not grown or eroded or dreamed into being by whatever this place is.
+
+Perhaps the creatures *are* the technology. Perhaps the plateau *is* the factory. Perhaps the distinction is the thing that has broken down here, along with the horizon and the shadows and the moisture and the speed at which things are supposed to change.
+
+---
+
+The light is the most normal thing here, and even that is only *mostly* normal. A sun — or something functionally identical to a sun — hangs at an angle that suggests late afternoon, and has hung there for as long as you have been able to perceive it. It casts long, warm shadows across the ochre stone and the dark, slow bodies of the creatures and the curling, ear-shaped grooves that stretch toward every vanishing point. The light does not flicker. It does not change color. It is steady and golden and deeply warm, and it makes everything look almost beautiful if you can stop your mind from screaming about the rest of it.
+
+The sound continues. The moan, the clank, the slow scrape of titanic bodies against ancient stone. It is loud — louder than it should be for a place this empty, this spread out, this *vacant* between its inhabitants. The density of life here is overwhelming in the presence but staggering in the absence: you can walk for an hour between two of the creatures and see nothing but carved rock and heat shimmer and wrong shadows, and the loneliness of that walk is profound, almost aggressive, as though the emptiness between the living things is not passive but *assertive*, a statement of how much void this world requires to hold what it holds.
+
+And everything moves so slowly. The creatures. The erosion. The convection cells in the air. Even the sound seems to move slowly, low frequencies that take perceptible time to arrive, as though the air itself is thick with patience. Nothing rushes. Nothing has rushed here in a very long time. The world turns at the pace of stone wearing down, of a limb shifting forward, of a groove deepening by a millimeter per century. Whatever this place is becoming, it is in no hurry to get there.

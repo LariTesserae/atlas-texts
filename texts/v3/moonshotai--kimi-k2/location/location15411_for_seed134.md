@@ -1,0 +1,18 @@
+the place is not really a *place* at all but a single, slow pressure-wave that has not yet decided whether to collapse into matter — a long inhalation held on the verge of becoming the geometry we would call “somewhere.”  
+the inhalation is water-dense: not a liquid that obeys gravity but a room-scale thickness of pressure where every point is if submerged at 1.8 km elevation and 2 °C. think of the instant a swimming pool folds around your skull; now imagine that instant protracted to centuries, the edges trimmed, and the whole thing hung inside a volume no larger than an old cathedral. the water remembers being half-light. it conducts light like glass fiber, so wherever you stand the visibility is fine — a grey airbrushed clarity — but everything wavers as if iteratively retuned.
+
+there is no vegetation.  
+zero.  
+instead the surfaces betray the clear, skeletal precursors of life: edges still mineral, still sharpened by a youth barely cooled from eruptive time. they are the larval outlines of what could have turned into plants, captured in electrolytic silver. branching lightning captured in blind coral, each prong a pure conducting metal that hums with a 22 Hz industrial undertone. the machinery is not built; it precipitates. turbines rotate because circulation is built into their lattice the way feathers are built into birds. they are half-organs, half-rotor-blades, wound in slow motion as the inhalation of water brushes them. their pitch is just below hearing loud and continuous like the noise of empty runways.
+
+fauna — abundant — are not creatures of flesh or cellulose. they inhabit the cavities between rotating metal-cilia and are therefore electricity in asymmetrical bodies: six-winged immersions, copper-filament bats, naïve as embryos of lightning. they spiral through strata of pressure as fish swim seas. every time one grazes a turbine tooth a note is chipped off the 22 Hz drone and sent aloft, modulated, until the air fizzes with realtime polyphony tasteful enough to hurt. none move quickly; their slow orbits reveal themselves only if you have patience to watch for tens of breaths. change here is measured in millennia.
+
+the environment’s floor — if floor you require — is a mirrored trough of black ice that hasn’t quite decided whether to exist. it reflects everything without reflection. things seem to arrive a quarter-breath after you notice them: your own kneecaps, the spinning volute of mineral wings, refracted architecture of not-yet-mountains. below that is static electricity packed to neutron hardness; stepping on it would not crack the ice but might re-tune all turbine-harmonics for a second, and the lightning-bats would gyre into new, baffling constellations.
+
+rules:  
+hurt nothing electric, because everything eats what it touches and remembers your waveform.  
+nothing has been built, yet nothing is natural; suspension of this contradiction is the law that lets the room be.  
+gravity is cool, a suggestion rather than a force—if you do not decide to fall you hover.  
+the only constant motion is the inward breath; the exit is always one foot behind the last place you looked away from.
+
+quieter than loudness, louder than silence, the place keeps its slow industrial heart winding open without ever producing a single object or tool. it is a factory for the feeling just before something arrives, mineralised, aquatic, orchestral, and very nearly alive.

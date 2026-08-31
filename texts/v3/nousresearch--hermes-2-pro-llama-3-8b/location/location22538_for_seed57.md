@@ -1,0 +1,13 @@
+In the depths of the Zothar galaxy, lying beneath the cold surface of the planet Zorblatt, a secret landscape thrives. This hidden world is submerged, enveloped by a thick, dark ocean that engulfs its terrain in perpetual, ethereal twilight. Water pervades every inch, wrapping around the landscape like a glove and creating a web of interconnected seas, lakes, rivers, and coves. Walls of rain fall intermittently, drenching the landscape further and saturating all life.
+
+The vegetation here is lush, growing in clusters that defy logic, nourishing themselves on the minerals and nutrients filtered down from the rare and inconsistent rainfall. The plants are capable of photosynthesis, but they bloom silently in the darkness, their vivid colors swallowed by the dark water and shadows. The plants extend their roots and tendrils deep into the ocean floor, feeding on the minerals and nutrients that have settled there.
+
+The landscape is low-lying, with gentle slopes leading to the murky water. Erosion is young, with fresh, recently emerged features creating an intimate connection with the slow-moving, gradual cycles of the world. Sharp-edged formations and ever-changing landscapes offer a sense of young dynamics, with features vanishing or emerging suddenly in this ever-shifting wilderness.
+
+This pocket-scale world is packed with life, every nook and cranny occupied by something - plants, animals, or mysterious formations. There is no space between them, no room for disconnection. The isolation of this sub-aquatic world has birthed a diverse and teeming ecology, with creatures that have adapted to the unique conditions.
+
+Scattered across the landscape are faint, subtle signs of the creatures that once lived here. Small structures, partial remains, and occasional artifacts hint at a complex past, now lost to the dark, encroaching waters. The inhabitants of this landscape have left no tools or technology behind, no proof of their existence except the silent whispers and echoes of their past lives.
+
+As the sun rarely breaches the waters above, the landscape is perpetually shrouded in darkness, broken up only by the faintest glimmers of light filtering through gaps in the water. Waist-deep in a reality so strange it could break down even the toughest minds, the landscape hums with an eerie, otherworldly ambiance. In this hidden, immersive world, deep-sea noises, coupled with the soft whispers of the omnipresent water, create a soothing, spiritual symphony.
+
+The dynamic of Zorblatt's submerged world is slow, with change happening across long durations. Gradual and gentle processes govern the landscape, allowing it to continue its mysterious, enchanting lifecycle in the depths of the galaxy.

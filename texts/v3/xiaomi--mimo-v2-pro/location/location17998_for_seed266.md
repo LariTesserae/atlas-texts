@@ -1,0 +1,91 @@
+# The Aultic Shelves
+
+Imagine a world that never learned to flow.
+
+---
+
+## The Form
+
+The planet — if it is a planet; its inhabitants use the word *Ault*, which means something closer to "expanse" — is dominated by a single geologic feature repeated at titanic scale: **shelves**. Flat-topped plateaus of compressed mineral strata, each one rising between two and eleven kilometers above the next, stacked and staggered like the broken architecture of a god who lost interest halfway through. The shelves extend laterally for hundreds or thousands of kilometers, their edges carved by millennia of thermal wind into smooth, sweeping undercuts — curves like the interiors of immense bowls, polished to a matte sheen that catches the warm light in pale rose and dull ochre.
+
+There is no ocean between them. There is no river at their base. The lowlands — the *interstitials* — are broad, flat basins ofite salt anditeiteite crushed regite, dusted over and over with theite sediment of everything that has ever worn away. The color down here is a muted peach-grey, the texture almostite powderediteiteiteiteiteiteiteiteiteiteiteiteite. Sorry. The texture isiteiteite almostite likeiteiteiteiteiteite talcumite.
+
+Let me try again.
+
+The texture down here is talc-soft, a flour-fine powder ofiteiteiteiteiteite compressediteite calcium silicate and broken-down feldspar that rises in lazy curtains when the rare gust crosses the basin floor. It settles on everything. It is warm underfoot — not scorching, but a persistent, body-heat warmth, as though the ground itself is running a low fever. The ambient temperature hovers around 38 to 44 degrees Celsius, moderated somewhat at altitude, intensified in the basin floors where heat pools like something viscous.
+
+The light comes from a single large, pale-yellow star, far enough away to feel polite about its output. Normal daylight here — not harsh, not dim. Shadows are soft-edged. The sky is a washed amber near the horizon, deepening to a thin, greyish blue at zenith. There is very little moisture in the atmosphere. Clouds are rare and strange when they appear: high, thin veils ofiteite mineral dust lofted to the upper troposphere, catching light in ways that make them look like smears ofiteiteiteite bronze against the blue. The people here call them *gildings*, and they consider them lucky.
+
+---
+
+## The Water Problem (and What Replaced It)
+
+There is no standing water on the Ault. No lakes, no rivers, no rain. The deep geology holds trace amounts of hydrated mineral locked in subsurface strata, and the industrial settlements extract what little they can through thermal fracturing — but it is a rationed, precious substance, measured in milliliters per person per cycle, supplemented by reclaimed metabolic moisture.
+
+And yet things live here. Things *thrive* here.
+
+The metabolic basis of life on the Ault is not aqueous. It is **lithic**. The dominant biochemistry runs on a slow, warm, mineral-redox cycle: deep thermal gradients in the rock drive chemical reactions across gradient zones in the upper crust, and organisms tap into these reactions the way terrestrial life taps into photosynthesis or chemosynthesis. The energy currency is not ATP dissolved in water but a kind of charge-cycling through mineral-lattice structures — a biochemistry of crystal, of silicate chain, of ion exchange through solid-state channels that terrestrial science would barely recognize as metabolism.
+
+Water exists here only as a contaminant, a metabolic byproduct, a trace solvent that some of the more exotic organisms use internally but none require. The dominant fauna excreteiteiteiteiteiteiteite dry mineral powder. They breathe thermal differential. They drinkite stone.
+
+---
+
+## The Fauna
+
+They are abundant. They are everywhere. And they are **quiet**.
+
+The Ault's animals — and the word *animal* is a courtesy, a borrowed frame for something that defies the taxonomy — come in several broad castes, none of which would look right on Earth.
+
+**Scrabblers** are the most common. These range from hand-sized to roughly the dimensions of a large dog, though their proportions are wrong by any terrestrial standard: low-slung, many-legged (six to sixteen, depending on species), with broad, flat bodies that press against the warm rock like living shingles. Their integument isiteiteiteite aiteiteite layered mineral composite — imagineiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteite aiteiteiteiteiteiteiteiteite shell ofiteiteiteite compressed calcium-silicate tile, dull grey to burnt sienna, that grows in overlapping plates which are themselves colonized by microorganisms. They scrape the rock surface with hardened mouthparts, ingesting the mineral-rich upper crust and processing it for its thermodynamic gradient. They do not chew. They *fuse* — pressing their ventral surfaces against the stone and slowly, over hours, absorbing the reactive upper layers into their own bodies. When they move, which is seldom, they produce a soft, dry, *scritching* sound, like sandpaper on bone. Mostly they sit still. The world asks nothing faster of them.
+
+**Long-Forms** are the grazers of the interstitial basins — elongated, segmented creatures that move in slow undulation through the powder-fine regolith, filteringiteiteiteiteiteiteiteiteiteiteite mineral grains through internal cascade-systems. They can reach fifteen meters in length but are rarely more than thirty centimeters in diameter. Imagine a millipede the length of a city bus, moving at the speed of a minute hand. Their passage leaves shallow furrows in the dust that persist for years, and these furrows — *long-marks* — become pathways for smaller creatures, road networks built by the simple fact of one organism's patient transit. When a long-form dies, its mineral-laden body becomes a ridge in the landscape, a faint berm that catches wind and accumulates dust and, over centuries, becomes part of the geology.
+
+**Shriek-Eels** are the closest thing to apex predators, though *predation* here is a glacial affair. They are tubular, sinuous, about two to four meters long, with smooth, glassy integument — volcanic glass, dark and iridescent — and they hunt by thermal sense, detecting the faint heat signatures of other organisms against the background warmth of the stone. They do not chase. They *approach*, over the course of hours or days, positioning themselves along thermal gradients until their prey is within range of the lunge — a sudden, startlingly fast movement that lasts less than a second, during which the eel wraps around its target and initiates a rapid ion-exchange that strips the prey's mineral lattice and incorporates it. The name *shriek-eel* comes from the sound the prey makes during this process: a high, thin, resonant tone produced by the rapid vibration of mineral plates under stress. It is one of the few sharp sounds on the Ault, and it carries far in the thin, dry air. Settlement children learn to recognize it. It is the sound of something ending.
+
+**Ventspiders** — and I use the word *spider* loosely, very loosely, as loosely as possible — are large (leg-span up to two meters), slow, and sessile for most of their lives. They anchor themselves over subsurface thermal vents and extend root-like pedipalps into shallow bore-holes, feeding directly on the geochemical gradient. They are, in a sense, the Ault's answer to plants — though they are motile when young, and even adults can slowly relocate over the course of months if their vent cools. Their bodies are matte black, calcium-carbonite composite, hunched and angular, and they are covered in fine, rigid filaments that collect mineral dust and, somehow, transduce faint static charges from the atmosphere. At certain times of day, when the light is low and the air is still, you can see faint coronas of static discharge playing across a ventspider's back — tiny, silent sparks, like heat lightning caught in amber.
+
+There are hundreds of other species — symbiotes, parasites, filter-feeders of atmospheric mineral aerosol, creatures that live their entire lives inside the body cavities of long-forms, organisms so slow and so mineral-integrated that the question of whether they are alive or geological becomes a matter of philosophical tradition rather than empirical fact. The Ault is *full*. It is richly, strangely, quietly alive. It is just alive on terms that do not require water, or chlorophyll, or speed, or sound.
+
+---
+
+## The Settlements
+
+People live here. They have lived here for a long time.
+
+The settlements cling to the shelves — always on the shelf tops, never in the basins. This is practical as much as cultural: the basin floors collect heat, dust, and slow-moving fauna in densities that make habitation uncomfortable, while the shelf tops offer elevation, wind, marginally cooler temperatures, and — crucially — access to the compressed mineral strata that serve as both building material and industrial feedstock.
+
+The cities are **carved** more than they are built. The primary construction material is the shelf-stone itself — a dense, warm-toned mineral composite that takes precise cuts and holds them for centuries with minimal erosion. The aesthetic is monolithic and ancient even when the structure is new: long, low buildings with thick walls, flat roofs used as gathering spaces and thermal collectors, narrow streets that channel the persistent warm wind into usable ventilation corridors. The color palette isite the stone's own palette — rose, ochre, pale grey, burnt cream — with occasional darker accents where volcanic glass has been cut and inlaid for decorative or functional purposes.
+
+The largest settlement on the mapped shelves is **Torrin**, built along the edge of the Third Western Shelf, a city of perhaps forty thousand people spread across twelve kilometers of shelf-top. It has the quality of a long, thin ribbon laid along the cliff edge — one row of buildings deep on the basin-facing side, where the view is vast and the winds are strongest, and three or four rows deep on the interior, where the city backs against a weathered scarp of older stone.
+
+Torrin's industry is **mineral processing** — extracting useful compounds from the shelf-stone through thermal fracturing, chemical leaching (using non-aqueous solvents, primarily a class of molten salt mixtures refined on-site), and mechanical reduction. The processed minerals are used for construction, for the fabrication of the lattice-metals that serve as the Ault's primary structural and conductive material, and — most valuably — for **metabolic substrate**, a manufactured mineral compound that can be consumed by humans to supplement the meager diet available from the local fauna. (People eat scrabblers. It is not delicious. It is gritty, mineral-heavy, and deeply sustaining in a way that has nothing to pleasure and everything to survival. The preparation involves slow thermal processing that drives off excess silicates and concentrates the usable ion-cycling compounds. It tastes like warm chalk and copper. People eat it twice a day and do not complain.)
+
+The industrial quarter of Torrin is dominated by **furnaces** — tall, narrow structures that burn a locally refined mineral fuel in a low-oxygen environment, producing the sustained high temperatures needed for thermal processing. The furnaces run continuously, their output modulated over days rather than hours, and they produce a faint, low, almost subsonic hum that is the closest thing Torrin has to a constant urban sound. If you stand in the industrial quarter at night — when the light is amber-dark and the air cools by two or three degrees and the static sparks on the ventspiders in the nearby scarp are visible as faint, drifting coronae — the hum is in your chest more than your ears. It is the sound of a city metabolizing stone.
+
+The city has **power infrastructure**: a network of thermal-gradient generators that exploit the temperature differential between the warm shelf surface and the cooler deep stone, supplemented by chemical cells that store energy from the furnaces' excess heat. Electricity here is low-voltage, steady, and used primarily for lighting, communication, and the mechanical systems that drive the processing plants. The technology is mature, reliable, and not particularly ambitious. It works. It has worked for a long time. The Ault does not reward ambition. It rewards patience.
+
+---
+
+## The Atmosphere of the Place
+
+The air is warm and dry and faintly mineral-tasting. It carries a fine dust that settles on everything — on skin, on cloth, on the surfaces of buildings, in the creases of machinery. Residents develop a characteristic texture to their skin over time: a faint,iteiteiteiteiteiteiteiteiteiteiteiteite smooth mineral sheen, as though they have been lightly glazed. Eyes are protected by fitted goggles with mineral-glass lenses, worn habitually outdoors. The dust is not toxic — it is largely calcium silicate, inert anditeiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteiteite — but it is persistent, and over years it works its way into everything, smoothing edges, filling gaps, settling into the body's creases like a slow, patient sediment.
+
+The light at midday is bright but not brutal — the atmosphere's mineral haze scatters it into something diffuse and even, a warm, golden-white illumination that flattens shadows and makes distances hard to judge. In the mornings and evenings, when the star is low, the light goes amber, then copper, then a deep, bruised rose that makes the shelf-stone glow like embers. At true night — which is long, since the planet's rotation is slow — the sky clears of haze and the stars are sharp and numerous. The Milky Way equivalent here is broad and bright, bisected by a faint dark band that is, in fact, a dense mineral-dust ring in planetary orbit, a remnant of some ancient collision or eruption, too thin to see by day but visible at night as an absence of light, a gash across the starfield.
+
+Sounds carry far in the dry air. The scrabblers' scritching, the rare shriek-eel kill, the low furnace-hum of Torrin, the distant crack of thermal stress in cooling shelf-stone at night — these are the soundscape, sparse and intermittent, separated by long silences that are not empty but *patient*, filled with the slow, subsonic pulse of a world whose processes operate on timescales that human hearing cannot register.
+
+---
+
+## Deep Time and the Rules of the World
+
+The Ault is **old**. Not old in the way that Earth's mountains are old — worn and recycled and reformed in geological cycles. Old in the way that a thing is old when it has found its state and settled into it and *stayed*. The shelves have not changed their essential character in recorded history, and the geological record — read in the compressed strata like the pages of a book written in mineral — suggests they have been broadly the same for hundreds of millions of years. Erosion happens, but slowly, at the pace of thermal wind and rare seismic adjustment. The shapes are established. The forms are *weathered*, rounded, smoothed — not sharp, not young, not restless. The world has the quality of something that finished becoming what it was going to be a long time ago and has since been engaged in a long, graceful, almost meditative process of wearing down toward some final, smooth, heat-death equilibrium that will not arrive for eons yet.
+
+Change here is **gradual**. Seasons barely exist — the planet's axial tilt is minimal, and its orbit is nearly circular. Weather, in the terrestrial sense, is almost absent. There are no storms. There is wind — persistent, warm, mineral-laden wind that blows across the shelf tops from the basin side, driven by thermal convection, steady and slow and laden with dust. There are rare events: a shelf-edge collapse, a subsurface thermal shift that redirects a vent and starves a colony of ventspiders over the course of a decade, a dust-gilding high in the atmosphere that persists for a season and dims the light to something softer and stranger. But these are exceptions. The rule is patience. The rule is slow.
+
+The **weirdness** is not loud. It does not announce itself. It is in the biochemistry — in the fact that life here runs on stone and heat and ion-exchange and does not care about water. It is in the fauna's pace — the slow, deliberate, almost geological quality of Aultic life, where a predator's hunt takes days and a grazer's lifetime transit across a basin leaves a permanent mark in the landscape. It is in the settlements' relationship to their material — the way Torrin is carved *from* the world rather than placed *on* it, the way its inhabitants eat processed stone and wear dust-glazed skin and listen to the subsonic hum of furnaces that metabolize the earth. It is in the sky — the mineral haze, the dust-ring, the static sparks on the ventspiders' backs. It is in the silence, the vast, warm, patient silence of a world that has never learned to rush.
+
+---
+
+## What It Feels Like
+
+To stand on the edge of the Third Western Shelf at dusk, looking out over the basin — the vast, peach-grey expanse of interstitial floor stretching to the distant, hazy line of the next shelf, kilometers away and kilometers high, its edge a smooth, dark curve against the copper sky — is to feel very small and very warm and very still. The wind is at your back, pressing the fine dust against your clothes, your goggles, the mineral sheen on your skin. Behind you, Torrin's furnaces hum at the threshold of hearing. Ahead, the basin is empty and vast and faintly luminous with the reflected last light, and somewhere out there a long-form is making its way across the dust, leaving a furrow that will outlast you, and a ventspider is catching static from the cooling air, and a scrabbler is pressed against a warm stone, fusing with the earth, and the world is going on the way it has always gone on — slowly, strangely, abundantly, and without the slightest interest in whether you understand it.

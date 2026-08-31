@@ -1,0 +1,9 @@
+Across the vast expanse of a planet-wide ocean, floating cities rise above the unceasing walls of rain. Torrential downpours pummel the chill waters, the sound a deafening roar broken only by gargantuan waves crashing against the cyclopean pylons and structures that support these scattered outposts of life.
+
+Beneath the wind-whipped surface, schools of bioluminescent fish flash and pulse, casting an eerie shifting light show visible from the reinforced crystal viewing bays of the floating cities. Stranger creatures also lurk in the lightless abyssal depths, pale and alien things drifting on deep currents. The bones of long-dead leviathans occasionally break the surface like jagged islands before their brittle forms dissolve back into the grey froth.
+
+High above, immense cumulonimbus thunderheads loom, crackling with lightning. Their scale dwarfs the cities below, crackling auroras of electricity dancing between them in the thin cold air. Winged creatures ride the storm fronts, translucent forms barely visible against the bruise-dark sky.
+
+The floating cities are industrial marvels, built in ages past from now-forgotten technologies. Rain-slicked metal and composite domes cluster around soaring towers studded with pulsing lights to ward off the eternal storm. Chugging engines thrum deep in their hearts, powering shield-like umbrellas that repel the lashing rain. Windmills spin furiously in the gales.  
+
+A few determined gardens peek out from beneath arched protective glass, but no other green exists in this world - just endless water, flickering lightning, and these lonely strongholds hovering between raging sea and sky. Their inhabitants gaze out at the unearthly seascape, feeling the tremors of the waves even through thick armored hulls. They dream of clear skies and solid ground, only faded myths passed down from their distant ancestors before the Drowning.

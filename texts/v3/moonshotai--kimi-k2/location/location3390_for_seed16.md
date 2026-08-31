@@ -1,0 +1,25 @@
+First you taste the heat: a dry, metallic tang that settles on the tongue like powdered iron.  
+It is not the heat of sun—there is no sun here—but of something deeper, a subterranean bloom that never learned the word “cool.”
+
+The place is a single room, yet the word “room” feels dishonest. It is a hollowed pocket the size of a modest plaza, quarried out of a planet-wide seam of graphite. From outside—if there were an outside—it would look like a blister on the inner cheek of the world. Inside, it behaves like a city that never got past the idea of itself.
+
+No water has ever visited; the concept is absent, not even a ghost of thirst. Instead the air itself is a coolant of dusted carbon, so finely milled it hovers like fog. Each breath leaves a soft black film on teeth and lips, a second skeleton of grime. The dimness is not darkness but “pre-light,” a charcoal luminescence exhaled by the walls. Every surface is faceted, catching this native glow and handing it on, so the chamber seems lit by thousands of dull, black candles burning backwards.
+
+Vegetation—lush, impossibly—has learned to divorce itself from water. The plants are glass-blown vines: transparent tubes whose sap is molten sulfur, sluggishly circulating. Their leaves are flakes of mica the width of fingernails, hinged like butterfly wings. They open and close with audible snaps, a constant castanet accompaniment that makes the air loud even though nothing moves more than a thumb’s breadth at a time. When a mica-leaf shuts, it screeches, a brief keen of mineral friction; ten thousand leaves screech in overlapping waves, so the micro-city sings itself an endless metallic aria.
+
+Elevation is low—geologically cowed. The floor is a single slab of compressed ash, level as a sacrament, but fissured by thermal breathing. Every few minutes the slab sighs: a hairline crack forks, utters a click, and exhales a breath hotter than the last. Through those cracks the vines plunge their glassy roots to sip the heat directly, converting temperature into growth the way ordinary flora convert light.
+
+Density is near-void: between each vine lies an acre of air. Yet the city is urban—urban in plan, not in populace. Low walls of vitrified soot outline where avenues intend to go. Door-shaped holes open onto nothing, framing more hot graphite night. Stairs climb halfway and break, confident somebody will finish them later. Everything is hand-tooled; no wheel, no lathe, only the patient picking of obsidian chisels whose edges are renewed by rubbing them against the singing leaves. The built environment is a diagram of manners without guests, a courteous geometry waiting for citizens who never arrived.
+
+Scale remains pocketed. If you walk twenty minutes in any direction you meet yourself arriving, as though the graphite blister were folded through its own thickness. This is not a metaphor; space here has accepted a crease. Travellers who circle the perimeter find their own footprints overlaying their start point, but the footprints are always slightly older, as though the loop prefers you second-hand.
+
+Fauna is vetoed. No crawler, no mite, no itinerant spore. Life is strictly vegetal and mineral negotiating one treaty. Yet the system is restless—dynamic as a storm. Heat migrates in tides: a pulse leaves the floor, crosses the chamber, climbs the vines, and drains through the ceiling blister into whatever mantle lies above. The graphite contracts and expands by the width of a thought, so every half-hour the entire city creaks like a wooden ship. Snap, creak, screech: the soundtrack of a lively geology.
+
+Weirdness: occasionally a vine overheats and its sulfur sap puffs into a perfect glass bubble. The bubble rises, not like a balloon but like a slow thought, until it grazes a soot vault. There it sticks, hardens, and becomes a lens. Through that lens the pre-light refracts into a single, focused stripe—a dim laser that etches the opposite wall with a hair-fine calligraphy. Over centuries these lines accumulate into texts no one reads, palimpsests of heat-written nonsense that nonetheless look deliberate, as if the chamber keeps a diary in a language only temperature understands.
+
+Rules:  
+1. Nothing liquid may exist; everything dewpoints are forbidden entry.  
+2. Motion larger than a vine’s snap is taxed by friction: the air itself thickens around swiftness, so running is impossible; even a brisk walk becomes a wade through black, invisible syrup.  
+3. To leave you must gift a layer of yourself—skin cells, a breath’s moisture, a memory of water—rendered down into graphite to widen the blister. The place grows by abandonment, not by arrival.
+
+Stand still long enough and you will feel the pre-light etch the inside of your shadow, sketching an outline you will never see. The city does not want you, but it is polite: it will keep your outline anyway, another hollow citizen in its thriving population of almost-nobodies, rattling loudly in the hot, waterless, lush and excitable night.

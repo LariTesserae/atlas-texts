@@ -1,0 +1,27 @@
+There's a city the size of a thumbnail, and you are inside it.
+
+Not looking down at it from above — inside it, at its own scale, which is the only honest way to be anywhere. The hidden parameter insists on this. Whatever vast room or cupped palm or seam in the rock contains this place, you don't get to see the walls. The world is exactly as large as the city, and the city is small, and so the world is small, and complete.
+
+It sits high. You know this not from any view — there is no view, the horizon is close and curved like the inside of a bowl — but from the cold, the thin clean ache of it, and from the way water behaves. Up here the air can't hold much. It keeps letting go. Moisture condenses out of nothing onto every surface, beads on the rooftops, runs in threads down the cold faces of the buildings and pools in the low streets. The whole place is always faintly weeping. Wet to the touch, slick underfoot, a sheen on everything that catches the light.
+
+And there is light — ordinary light, daylight-grade, coming from no sun I can find. It arrives even and soft, the way light does on an overcast morning, falling on a town that nobody built by hand.
+
+Because the buildings did not grow and were not laid brick by brick. They were *resolved.* That's the closest word. The technology here is past the point of tools; it works at the level where matter is just standing instructions, and someone wrote the city the way you'd state a theorem. The towers are made of something between basalt and glass — dark, vitreous, sharp-cornered. Young rock, freshly settled. The edges haven't been touched by time. No rounding, no rubble, no soft shoulders of weathering. Corners you could cut yourself on. Faces flat as cleaved crystal. The erosion is just beginning to take, here and there: a hairline of dissolution where the weeping water has run the same path for long enough to whiten the stone. The first fingerprints of age, and very few of them.
+
+There is no green. Not anywhere. No moss in the wet seams, no lichen on the north faces, none of the patient colonization that water and stone usually invite. The mineral world is sterile and stays sterile — or nearly. If you look closely at the standing pools, at the places where condensation gathers and lingers, there's the faintest darkening. Not plants. Something simpler and undecided, a film, a chemistry that hasn't yet committed to being alive. Pre-life. The conditions are right and the world is just sitting at the edge of the question without answering it.
+
+The city is sparse. This is what makes it strange to walk through. A tower, then a long emptiness — a plaza of bare wet stone wide enough to feel like absence — then another tower. Construction everywhere but scattered, low-saturation, more void than form. The builders had no shortage of room and used it the way a careful sentence uses silence. You stand in one of the empty squares and the buildings around you are far apart and very precise and entirely indifferent to your presence.
+
+It is mostly quiet. The loudest thing is water: the irregular tick and patter of condensation falling, drop by drop, from edges and overhangs, and the thin continuous trickle of it finding the gutters. Underneath, sometimes, a deeper sound — a slow structural tone, very low, that comes up through your feet more than your ears. The city doing something. Adjusting. The technology never quite stops running.
+
+That's the dynamic part, and it's everywhere once you notice it. The place is sterile but it is not still. The buildings shift — not as you watch, but if you look away and look back, a face has re-aligned, an angle has opened. The condensation cycles: gathering, falling, pooling, and then the pools draw down and thin and the surfaces dry for a while before the weeping begins again. There are weather-fronts inside this thumbnail-sized world, fogs that roll through the empty plazas and lift. The whole micro-environment breathes on some patient schedule, processes layered on processes, a clockwork that happens to have no living thing inside it.
+
+Almost none.
+
+Fauna is rare here, but not zero. Twice, maybe, in a long walk, you'll see one — and it's hard to say what they are. Something the size of a fist, dark, moving between the towers, leaving wet tracks that erase themselves as the condensation refills them. They don't seem to feed; there's nothing to feed on. They patrol, perhaps. Or they are part of the machinery, sent out by the city to test its own surfaces, to read the temperature, to log the slow whitening of the stone. They don't acknowledge you. When you turn to look directly, they've already gone around a corner that, you realize, is sharper than it was.
+
+The rules of this world are few and strict. Water arrives from the air and returns to it. Stone is stated and holds its shape until restated. Nothing rots, because nothing lives; nothing lives, because nothing has yet been permitted to. The cold keeps everything honest. The light comes from the agreement of the place to be seen.
+
+And it is small. That's the thing you keep returning to. For all its towers and weather and patient machinery, you could cup it in two hands if you were ever allowed to stand outside it — which you aren't. You're in it. The curved near horizon, the wet black glass, the dripping, the far apart silent buildings, the one small thing crossing a plaza on errands you'll never understand.
+
+A whole high cold city, sealed in its bead of condensation, running perfectly, for no one.

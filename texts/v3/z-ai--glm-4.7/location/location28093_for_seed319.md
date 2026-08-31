@@ -1,0 +1,23 @@
+The first thing you notice is not the view, but the vibration. It is a constant, low-frequency thrum that sits in the teeth and shakes the fluid of the inner ear. The sound is deafening, a wall of acoustic pressure, yet it possesses a strange, monotonous quality—a single, sustained chord of industrial noise that has been playing for so long it has ceased to be noise and has become, simply, the atmosphere.
+
+You are standing on the High Rust, a vast, elevated plateau that stretches out to the horizon. The elevation is significant here; the air is thin and warm, circulating slowly in a thick, humid haze. This is a warm place, a tropical heat trapped at altitude, creating a perpetual greenhouse effect.
+
+The landscape is urban in the way a skeleton is a body: the infrastructure is massive, scaled for beings or purposes long gone, but the population density is virtually zero. It is a ghost city of industry.
+
+Spread across the plateau are the Condensers. They are titanic structures, conglomerations of iron, copper, and concrete that rise like artificial mesas. Because the erosion is established and settled, these sharp, angular edifices have been worn down by centuries of dripping water. The metal is not shiny; it is coated in a thick, velvety patina of orange and turquoise oxidation. The buildings look like geological formations, as if the earth itself decided to grow skyscrapers.
+
+Water is the dominant element here, scoring a 1.8 on the scale, manifesting as a relentless, heavy dampness. The atmosphere is supersaturated. Warm moisture condenses on every cold surface, creating a world that weeps. Giant droplets of water form on the undersides of the massive industrial girders and hang there, swelling like heavy fruit before plummeting fifty feet to the ground. The sound of a billion droplets hitting the metal grating below adds a high-hat hiss to the deep, bass-heavy thrum of the machines.
+
+Between the great Condensers, the ground is a mixture of cracked concrete and hard-packed laterite. Vegetation is incredibly sparse (0.6). There is no grass, no trees, nothing that requires soil or nurturing. The only life is a grey, lichen-like mold that clings to the shady sides of the pipes, pulsating slowly in the dim light. It does not photosynthesize; it seems to feed on the vibration and the metallic dust.
+
+Fauna is rare (0.8). You might occasionally see a "Spindle," a flightless, stork-like creature with feathers made of thin aluminum strips, picking at the lichen. They move with jerky, hesitant motions, their heads cocked as if listening to a frequency different from the roar that engulfs everything else. They do not call out; there is no point in singing here.
+
+The light is normal, a warm, hazy sunlight that filters through the constant mist, casting long, soft shadows that barely move. This contributes to the sense that time is slow (0.9 dynamic). Nothing happens quickly here. The great pistons of the Condensers move with glacial lethargy, a single stroke taking perhaps an hour. It is a landscape of patience, of processes that span epochs rather than hours.
+
+The "Weirdness" (1.6) lies in the relationship between the water and the machines. The pipes do not leak; they weep intentionally. The entire complex appears to be a massive, hydrological engine designed to wring moisture out of the air and pump it deep into the earth, or perhaps back into the sky. But the logic of the system is alien. The pipes loop back on themselves in impossible geometries, defying gravity, flowing upward in slow, thick slurries of grey water.
+
+The "Urban" nature (2.5) is evident in the grid. Beneath the grating you walk on, a deeper level of the city is visible through the rusted holes—a labyrinth of tunnels and gears submerged in dark, still water. The density is sparse (1.2) in terms of structures, but the infrastructure is incredibly dense; every square inch of the visible strata is layered with conduits, valves, and gauges, most of which have fused into a solid mass of brass and rust.
+
+You walk for miles. The roar never ceases. It becomes a kind of silence inside your head. The warm water drips down your neck, tasting of iron and old dust. You realize that this place is not broken. It is functioning exactly as it was designed to do. It is a machine for preserving the wetness, for maintaining the humidity, for humming a deep note into the void, waiting for something that has not yet arrived to hear it.
+
+The wind picks up slightly, rushing through the hollow skeletons of the cooling towers, creating a mournful, fluted melody that weaves in and out of the industrial thrum. It is a lonely sound, the only organic thing in a world of metal, water, and slow, grinding time.

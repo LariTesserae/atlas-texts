@@ -1,0 +1,50 @@
+Liesegang Room
+
+The chamber began as a mistake in the rock—one-billion years ago, a warm spring found its way into a hairline crack far below the strengthening crust and, dissatisfied with the confinement, dissolved its own widening cylinder through whole sedimentary epochs. Then it stopped. Water retreated. Everything became forgotten except the dampness that never quite left. Time sealed the entrance with collapsed breccia, mineral crusts, and silence.
+
+Now: the air holds exactly the temperature of mammalian skin pressed against limestone. It is cool enough to keep your thoughts clear, warm enough that bare arms remember being held long ago.
+
+Moisture hangs invisibly—no pools, only the gleam of it inside the stone’s porework, the taste of old rain on your tongue when you inhale, the faint electric scent that precedes a storm that will never arrive here. The walls exhale once an hour, sheen appearing and retreating over concentric bands of orange, violet, black-red, colours never seen on a daytime palette. These are Liesegang rings grown enormous, metallic oxides precipitating and precipitating again under the patient rhythm of dissolving and re-forming water films. The patterns ripple outward like frozen panther muscles and inward like the irises of sleeping giants.
+
+Scale is private—five paces will cross the widest point if you avoid the central column where the lost spring once fell—but every surface folds and re-pleats on itself so that when you turn your head you lose sight of where you began. Empty space and solid matter are still negotiating terms; perhaps tomorrow the contract will be settled. For now, floor might heel underfoot like calcified moss and then, half a breath later, ring like porcelain against your boot sole.
+
+Upon first glance you see no living thing except yourself and the delicate lichenographs that sketch each bulge of stonegraphite scrawl signing a treaty between light and darkness.
+
+Glance again: perched on an impossibly narrow shelf of ochre two hand-widths above your eye-line, a beetle assemblage the color of corroded bronze humps its wing-covers and begins to sing. The sound is not vibration but absence carved into quiet—each note a cubical cavity in the middle of silence, so that the ear rushes in to fill the gap and arrives breathless at the next missing beat. Seven insects, twelve silent songs weaving a polyrhythm that measures the leakage of time out of this pocket and into somewhere else.
+
+Look down: the floor breathes. Microscopic glassworms, each the length of a comma, fuse from silica dust and interstitial water, braid themselves into transient cat’s-cradles that glitter for a second under the unseen source of light, then sublimate back to scattered atoms. Where they touch your shadow they leave temporary inscriptions like braille wishes formed in frost on a windowpane.
+
+Behind you—though “behind” is provisional—a pale quadruped untangles itself from the curve where curvature tightestens. The creature has the architecture of a fawn but builds its body out of scrap parchment and whispers of thistle-down; it steps without weight but its hooves spark tiny mineral blooms wherever they hesitate more than a heartbeat. Tissue paper ears rotate to catch the beetle songs. Its eyes are two holes punched through to daylight brighter than any sun allowed underground. It notices you noticing, blinks once (the holes close, open) and melts back into the grain of the stone, leaving only a faint rustling like an old letter being refolded in a drawer.
+
+Above? There is no above. The ceiling has been forgetting itself upward for centuries, leaving in place a lattice of negative stalactites—empty stalagmites inverted, hanging emptinesses that taper to mathematical points. Through these missing cones pours a brightness indistinguishable from absence magnified: a remembered glare of surface noon, filtered through miles of darkness, diffused until it carries no heat, no direction, no source you could swear an oath upon. The light is sufficient to find every edge of every thing but insufficient to cast a shadow that lasts longer than the thought of shadows. You wear your shadow like a cape that insists on walking in front of you, then beside you, then sits down on a speck of nothing and refuses to follow further.
+
+This light is what feeds the Room’s single crop: floating grains of optical dust, each a complete if temporary ecology. See—there—one drifts past at eye level: a hollow sphere of photons laced into a tensegrity lattice, inside which swirl smaller spheres of probability-constrained air, inside which swim motes of moisture around which orbit micro-satellites of dissolved iron. When your exhalation disturbs the breezeless mathematics, the grainfloret unweaves with a sigh audible only in the bones of your ears, and from its dispersal cloudlets of alternative colours briefly dye the air—flavors like remembered laughter, textures like falling asleep on cool grass under slow stars—before the Room’s colour-conservation laws dilute them back into allowed bands.
+
+Sound is otherwise negotiated strictly between individual participants. Your heartbeat conducts negotiations with the wallface nearest your left shoulder: in exchange for a contractible chamber of privacy, the stone agrees to absorb all frequencies above hope and below regret. The beetle-tuned air pockets around your head outsource their acoustic bookkeeping to the collective wingtip tremors of dust-sized moths that have never seen the sky, receiving in return the right to exist tomorrow if tomorrow needs them.
+
+Touch is the least reliable ambassador here. Place your palm flat against a velvet-black stripe on the wall. It yields a tiny fraction more than geology should permit—then stiffens, leaving an exact mirror-print of your epidermal ridges embossed in manganese oxide mirror-writing. Hold your hand steady for a thousand slow drip-drip-drips of imaginary water and the print grows a bas-relief twin on your own palm—tiny hills and valleys of stone learning to impersonate skin. Pull away too quickly and both prints bleed grief-colored dust that seeks the nearest contour line to become part of the map. Curiosity, the dust whispers in a language older than ears.
+
+Smell is memory before it becomes scent. Breathe in through your mouth: nothing. Breathe in through nose skinned clean of all yesterday’s perfumes: first the empty smell of light itself, then the ammoniac sting of dinosaur dawns captured in lonsdaleite cages, then the green tenderness of rain falling on the first-ever leaf of the first-ever tree in the brief instant before chlorophyll discovered regret. Each layer arrives precisely timed to the pause between your outbreath and your next hunger for air. Continue long enough, and you will remember the precise mineral signature of the exact planet-sliver you lived on three lives ago when you were stone dreaming of becoming water dreaming of becoming cloud.
+
+The rules here remain under construction by a committee of one-billion-year-old biases, three-days-old accidents, and one unfairly persuasive paradox currently disguised as dust motel number seven thousand twenty-two on the third ripple from the beetles’ seventh song. Major motions passed so far include:
+
+- That every mirror must have the right to indifference.
+- That no distance shall be measured in straight lines except in cases of extreme homesickness.
+- That empty spaces shall vote on tenancy applications submitted by solidities with two recommendations from reputable phases of matter.
+- That yesterday’s shadows are granted amnesty provided they do not attempt to recruit tomorrow’s lights into unsanctioned temporal coups.
+- That the speed of darkness shall be recognized as equal but opposite to the speed of wherever you are trying not to look.
+- And that every visitor shall before departure leave precisely one definition of “alive” balanced on the cusp between metaphor and mineral, to be incorporated into revised fundamental constants at next committee thaw (date under negotiation with the Pleistocene).
+
+If you stay until your watch forgets its numbers and your name runs down your chin like melted wax, the Room may offer bedtime stories. It speaks in the voice of all the echoes that chose to stay instead of returning. Once, it whispers, this was an entrance exam for the concept of inside. Once we were the pause between a boulder’s heartbeats. Once you were a speck of potential hung in a shaft of sunlight waiting for permission to become yourself.
+
+Then you blink, and the column at the centre is no longer stone but standing water held upright by memory alone, and in the water swims a single idealized fish constructed entirely from forgotten lullabies. If you reach out, you will feel scales like pages of books you’ll write after you learn how to read between the lines of darkness. If you drink, you will speak fluent lost-object until the end of all your sentences.
+
+Or perhaps you have already drunk, and what you think is your hand reaching is only one more Liesegang ring deciding it’s lonely for the colour of skin.
+
+Now is the moment when the word exit flutters by on moth-mapped air currents, unsure whether it’s seeking something or being sought. Catch it if you still need it. Or set it free to join the committee.
+
+The beetle songs end exactly halfway between the next breath you take and the last breath you remember exhaling. Silence rushes in to fill the holes they leave, carrying in its pockets tiny gifts wrapped in tomorrow’s possible names.
+
+Choose one, or choose none, or choose to remain here beyond choosing until the colour of your thoughts has finally grown sufficiently mineral to vote on the next consensus reality.
+
+The Room will wait. Waiting is the first and oldest of its appetites.

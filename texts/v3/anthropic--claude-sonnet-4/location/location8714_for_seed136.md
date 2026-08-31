@@ -1,0 +1,17 @@
+The Synthesis Gardens sprawl across a shallow basin where an ancient salt lake once lay, its crystalline bed now buried beneath centuries of engineered growth. What began as humanity's last agricultural experiment has become something far stranger—a living city where the boundary between plant and machine dissolved long ago.
+
+Massive trunk-towers rise from the pale, mineral-crusted ground, their bark ribbed with copper conduits and fiber-optic veins that pulse with soft bioluminescence. These are not trees as nature once knew them, but hybrid organisms—part sequoia, part server farm, part atmospheric processor. Their hollow cores house spinning turbines that convert the slow circulation of sap into electrical current, powering the dense network of settlements nested in their branches.
+
+The air carries a peculiar coolness, as if filtered through living lungs. Between the great trunks, smaller plant-structures form a dense understory of purpose: fungal computing clusters that process the city's data through mycelial networks, vine-cables thick as pythons that carry power and information between districts, and photosynthetic panels that unfurl like enormous leaves to track the wan light filtering through the canopy above.
+
+The settlements themselves grow rather than being built. Residential pods bulge from branch-junctions like woody galls, their walls breathing slowly as chlorophyll-infused surfaces convert ambient light into warmth. Workshop spaces hang in gossamer webs of modified spider-silk, where artisans tend to machines that seem more cultivated than manufactured—devices that sprout new components seasonally, that require pruning rather than repair.
+
+No animals move through this space, yet it pulses with constant, subtle activity. The great trunks creak and sway though no wind touches them, responding to hydraulic pressures deep in their root-systems. Somewhere in the distance, a mechanical rhythm thrums—not quite heartbeat, not quite engine—as vast processing organs buried in the trunk-cores work to maintain the delicate chemical balances that keep this hybrid ecosystem alive.
+
+The silence is profound but not empty. It's the silence of a vast organism focused on growth, punctuated by soft hydraulic sighs, the whisper of data flowing through living conduits, and the occasional crystalline chime when mineral deposits in the old lakebed shift under the weight of expanding root-networks.
+
+Strange fruits dangle from the lower branches—not food, but tools and components in their larval stages, slowly ripening into useful objects. A bicycle wheel wrapped in bark, still soft to the touch. Solar collectors that breathe like sleeping cats. Communication devices that look like seed pods and probably are.
+
+The horizon shimmers where the Gardens meet the raw salt flats beyond, a boundary marked by experimental growths—pioneer species designed to slowly convert the sterile mineral expanse into more Garden. They advance at geological pace, these border-plants, their progress measured in decades rather than seasons, transforming salt into soil grain by grain.
+
+This is a place where evolution was hijacked and acceleration was tamed, where the frenetic pace of industrial growth was channeled into something that breathes, something that builds itself, something that grows cities the way a forest grows trees—inevitably, organically, with a patience that spans centuries.

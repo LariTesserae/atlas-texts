@@ -1,0 +1,23 @@
+The world does not appear so much as a landscape as a raw, colossal workshop where the *idea* of geology is being vigorously assembled.
+
+The air is thick, not humid, but dense with superheated, pulverized minerals—a fine, ochre dust that rarely settles, kept perpetually aloft by the heat and the sheer scale of its own creation. This heat is intense (2.7/3), the kind that doesn't just warm the skin, but seems to be actively re-calibrating the atomic structure of anything exposed.
+
+The ground beneath is a confusion of textures, a zone of near-zero erosion (0.2/3). It is not rock; it is *un-rock*. Great, steaming scabs of newly precipitated silicate rise in slow, agonizing folds, dripping not water, but viscous, metallic compounds that cool instantly into fractal, razor-sharp filigree. Massive planar sheets, still faintly glowing from internal thermal stress, jut upward at impossible angles, suggesting a world that is currently being unfolded from a point source.
+
+This is a high elevation place (2.1/3), though the reference point for 'ground' is debatable. One feels precarious, perpetually looking *down* into gulfs of hazy, particulate atmosphere that seem to absorb light rather than reflect it.
+
+The water parameter is almost absent (0.5/3), yet the lushness (1.8/3) is undeniable. Life here is purely mineral-mechanical. The vegetation is not cellulose or chlorophyll, but intricate, slow-growing crystalline structures that have mastered the extraction of energy directly from the rising thermal vents and ambient electromagnetic fields. These growths—which resemble bizarrely complex, towering chandeliers made of bismuth and spun copper—are the color of verdigris, rust, and deep sapphire, their surfaces humming audibly on frequencies too low to be properly heard. They are sparse (0.7/3), scattered across the baking plains like accidental sculptures, spaced impossibly far apart, each isolated biological matrix requiring vast tracts of high-energy mineral substrate to sustain its slow, metabolic thrum.
+
+The density of *things* is low, but the density of *forces* is overwhelming.
+
+The strangest aspect is the technology embedded within the emerging landscape (Tech: 2.4/3, Built: 0.4/3). There are no constructed buildings, but the geology itself seems mechanized. Great, monolithic pylons of perfectly machined obsidian rise hundreds of meters, not built by hand, but extruded directly from the pressurized crust, their surfaces intricately engraved with circuits that glow with captive electrical current. These function as gigantic heat sinks and induction coils, drawing raw energy from the planet’s core and channeling it into the sparse, thriving crystalline flora. The entire environment feels like the exhaust manifold of a continental-scale engine that is currently running at low idle.
+
+The atmosphere is mostly quiet (1.2/3), dominated by the slow, rhythmic expansion and contraction of the superheated substrata—a deep, subsonic *thump-sigh* that speaks of geological time being compressed. Occasionally, an electrical discharge, too powerful to be lightning, arcs silently across a distant gorge, briefly illuminating cavern systems that appear to be packed with slow-moving, heavy clockwork mechanisms, their purpose utterly opaque.
+
+And yet, it is the total breakdown of reality (Weirdness: 2.8/3) that defines the experience.
+
+This is a 'pocket-scale' environment (0.4/3), deliberately contained, perhaps an isolated test zone or a dimensional fold. The edges of the visible domain shimmer, distorting light paths in ways that defy optics. Looking directly at the horizon often results in temporal feedback; one might see the current view, but overlaid with echoes from a thousand years prior—the same raw minerals, just arranged differently, vibrating slightly out of phase.
+
+The slow dynamic (0.9/3) is misleading. While major geological events are patient, within the sparse vegetation, processes are occurring that violate local causality. A crystalline spire, observed for one standard cycle, advances its metallic growth by a meter, but the mass required for that meter seems to have been *borrowed* from a point ten kilometers away, leaving behind a ghostly, shallow depression where the material had been. Nothing is fixed; everything is borrowed, exchanged, or momentarily manifested according to a logic known only to the underlying machinery of this hot, high, dry formation.
+
+It is a landscape not of things, but of *processes* playing out simultaneously on different planes of existence, heated by an unnatural furnace, and haunted by the ghosts of its own raw materials.

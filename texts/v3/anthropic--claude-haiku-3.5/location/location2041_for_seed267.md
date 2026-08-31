@@ -1,0 +1,11 @@
+The Condensate Ranges rise like a fractured spine of stone, their edges still raw and unsanded by time. These are young mountains, thrust upward by recent tectonic nudges, their granite faces still crisp with original chisel-marks from geological birth. The stone looks almost unfinished — sharp-edged plateaus and knife-thin ridgelines that haven't yet surrendered to softening.
+
+Moisture doesn't flow here so much as condense. Thin mists curl around stone shoulders in the early mornings, beading on rock surfaces and collecting in shallow stone basins. These are not rivers, but capillary networks — water gathering in temporary pools, quickly evaporating under the warm ambient temperature. The landscape breathes humidity rather than streaming it.
+
+Massive greenhouse-like structures punctuate the mountain valleys — industrial assemblages of curved glass and steel infrastructure, their shapes organic yet mechanized. They're processing facilities, but for what is unclear: perhaps extracting minerals from stone, or cultivating some engineered vegetation that requires precise environmental control. Their surfaces reflect the pale warmth, creating secondary landscapes of light and refraction.
+
+Vegetation grows not in forests, but in deliberate clusters. Engineered plants with broad, waxy leaves cluster around the moisture-capture zones, their root systems visible and complex — more like technological networks than organic growth. They're a vivid green-blue, almost metallic in their precision, positioned to maximize water absorption from the intermittent atmospheric moisture.
+
+The soundscape is subdued: a low industrial hum from the distant processing centers, occasional clicks and shifts from the greenhouse membranes expanding and contracting, the soft whisper of condensation gathering and dispersing. It's a landscape of patience and subtle movement, where change happens in increments too small for immediate perception.
+
+Weird details emerge: some rock formations seem slightly... off. Surfaces that catch light at strange angles. Mineral deposits that pulse with a barely-perceptible rhythm. The entire range feels like a living system only partially understood, its strangeness lurking just beneath apparent rationality.

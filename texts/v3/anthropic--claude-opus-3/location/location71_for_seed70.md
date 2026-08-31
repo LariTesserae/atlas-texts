@@ -1,0 +1,11 @@
+High in the canopy of an immense rainforest, a strange and lush world thrives. The trees tower hundreds of feet into the air, their trunks immense, gnarled and ancient. Their verdant crowns weave together to form a dense living ceiling that filters the sun's rays into an emerald glow.
+
+Nearly every inch of space is occupied by rampant plant life. Moss blankets the tree limbs. Vines and lianas drape and curl through the branches like serpents. Epiphytes burst from crevices - orchids, bromeliads, ferns, all competing for precious light and anchoring. The air is thick and soupy, laden with moisture and the heady perfume of blossoms. 
+
+And yet, this realm is more water than air. The ceaseless rain pools in tank-like bromeliads, in cupped leaves and knotholes, forming countless scattered ponds in the sky. Rivulets flow along branches and down trunks in spiralling paths to join greater streams that crisscross the forest floor far below. In some places, the deluge from neighboring trees converges to form small, plummeting waterfalls that vanish into the misty depths.
+
+Life here has adapted to the aquatic nature of this environment in strange ways. Mosses and lichens grow submerged on the bark. Tadpoles dart between bromeliads. Translucent arboreal crabs scuttle along the branches, sifting floating detritus. Silvery fish flit through the larger pools. Rarely glimpsed, shimmering cephalopod-like creatures drift through the air, tentacles trailing.
+
+The animals are few but marvelous. Tiny iridescent tree frogs cling to leaves. Gaudy snails navigate the vines, rasping algae with glassy, neon-banded shells. Insects swarm in clouds - some with delicate, transparent wings adapted to shed water; others armored like tanks to walk submerged along the bottom of pools. 
+
+Despite the occasional birdcall or whooping of distant primates, a primordial hush envelops this elevated world muffled by curtains of rain. Time seems languid here. The forest breathes and sways ponderously in vast, slow cycles as old as the earth. This place is a glimpse into a past epoch, before humans, a reminder of the living world's endless forms of expression, ceaselessly morphing into new structures, new niches, and new improbable, majestic forms.

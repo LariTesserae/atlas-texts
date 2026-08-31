@@ -1,0 +1,23 @@
+You are beneath the skin of something that has not finished deciding to be a world.
+
+The elevation is low—not deep in the manner of buried tombs, but subcutaneous: just under a translucent crust of half-solid mineral that acts as ceiling rather than sky. The space opens into a valley, regional in scale, a basin stretching for miles in every direction before haze and rising heat swallow the edges. There is no horizon line, only the gradual dissolution of form into thick, warm air.
+
+This is a place of emergence, not erosion. The geology is embryonic, raw, undeveloped—rock that behaves like tissue still knitting itself together. The floor is not flat but a dense field of ridges and spires in constant negotiation with their own solidity: some remain pliable, warm to the touch like wax held near a flame; others crystallize in sudden, brittle exuberance, then soften and collapse back into the substrate. Layers press near-touching, saturated, a high-density mineral ecology where every surface touches another in crowded, unfinished intimacy.
+
+The temperature is bodily—around 2.1, persistently warm, not scorching but insistent, as if the air itself circulates through a sleeping organism. Moisture comes intermittently, not in rivers but in breath: condensation beading on the ridges in thick droplets, occasional thin rain falling from thermal seams in the ceiling crust, temporary pools gathering in shallow depressions only to vanish when the ground heaves and reopens its mouth. The water tastes of iron and old heat.
+
+Light is the strangest convention here. There is no star, no sun, yet illumination is normal—diffuse, milky, casting real shadows. It filters through the translucent mineral membrane overhead and glows from the thermal veins threading the walls, creating an eerie daylight quality underground. You can see clearly, and that clarity feels wrong, like noon inside a womb.
+
+There are no plants. The world is mineral, fungal only in the faintest, thread-thin traces—pale mycelium clinging to the undersides of temporarily stable outcroppings, feeding on sulfur. Life here does not grow upward in green ambition. Instead, the fauna is overwhelming.
+
+The air is dense with it—not a scattered presence but a saturation. Small, hard-shelled organisms fill the volume: crusted in silica or chitin, they move in turbulent clouds, chittering and clicking in constant, loud conversation. The ground crawls with them; they swarm over the ridges, feed on mineral dust and one another, and exist in such numbers that they form a living fog that parts and closes around any intrusion. They seem to anticipate the chaos—shifting in waves seconds before a spire collapses or a fissure opens, as if turbulence is not an obstacle but a language they speak fluently. Every cubic meter holds thousands; the density is near-overwhelming, layered, near-touching.
+
+Sound is loud—1.6, constant. The crack of crystal deciding to be a crystal. The hiss of steam escaping newborn fractures. The collective noise of the fauna, a continuous mechanical rustle like dry rain on stone. Warm air rushes through nascent caverns, carrying minerals and scent. It is the sound of construction and destruction happening simultaneously.
+
+Weirdness is present but restrained—around 1.3, just enough to unsettle. The rock sometimes extends its growth in patterns too regular for pure chaos, reaching upward in spirals that mimic intention without achieving design. The fauna’s anticipation borders on precognition. The water pools in shapes that briefly hold before the world forgets them.
+
+Built presence is scattered, primitive. Small cairns of raw stacked stone, hand-shaped without metal—simple tools, perhaps pre-metal scrapers, left in hollows. Partial shelters built against more stable ridges, now half-buried by fresh mineral growth. Faint marks carved into walls: attempts to map, to claim, to remember. They speak of brief, interrupted presence—someone or something tried to live here, tried to build, but the turbulence outpaced them. The artifacts feel recent and already fossilized.
+
+The dynamic is extreme—2.9, turbulent, hyperactive, Solaris-like in its refusal to hold form. Nothing lasts. A path is a wall within minutes; a shelter becomes rubble, then part of a new pillar. The world is in storm-state, an anthill of creation—chaotic, unstable, loud, warm, damp, overwhelmingly alive with non-plant, non-green presence, strange in its coherence, and utterly, beautifully unfinished.
+
+You stand in a valley that is still being born, surrounded by swarms that thrive on that birth, under a false daylight that reveals everything and explains nothing. The ground shifts. The air hums. The rock decides.

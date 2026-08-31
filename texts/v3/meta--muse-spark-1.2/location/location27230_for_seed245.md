@@ -1,0 +1,35 @@
+It is hot in the dimness.
+
+Not a bright desert heat, but a low, trapped, respiratory heat. The kind that collects under a lid. The sky, if it can be called a sky, is not a sky at all but a ceiling - vast and close at once - a dome or shell that goes on to every horizon until it curves out of sight and comes back again on the other side of the world. It is matte black and iron-red, unlit, low, perhaps only a few hundred meters up at its lowest sag, and it sweats.
+
+The whole world sweats.
+
+That is the water here. It does not rain so much as it condenses. The heat below meets the cooler mass of the ceiling above, and the air, saturated and heavy and still, precipitates itself. Droplets form on the underside of the world-roof in beads the size of fists, swell, shiver, and fall in slow, straight lines through the hot, dim air. They hit hot stone and instantly begin to steam, or they gather in the seams. Every surface weeps. The rocks themselves weep - because they are not rocks.
+
+Nothing here is natural. There is no substrate beneath the built. The ground is laid.
+
+You are standing on a plain that has no end, and the plain is floor and road and courtyard and foundation all at once, made of the same thing. Huge blocks, each one the size of a house, or a field, cut from a dark, porous basalt-like material that is still warm from being quarried. You can see the marks on them. This is primitive work. No machine made these. Each block is hammer-dressed, pocked with the precise, overlapping craters of stone mauls. Each carries the shallow scoop where a fiber sling sat, where many hands pulled. The chisel slips are still there, unweathered. The corners are still sharp.
+
+The erosion here has not yet begun. This place is embryonic. It is under construction, or it has just been constructed, and the wind and water have not yet had time to soften anything. The edges bite. The channels cut for water are too perfect, right-angled, and mostly empty, waiting for a river that hasn't learned to meander. The world is raw geology, but raw *made* geology, like a kiln that was opened too early.
+
+And it is vast beyond coherence. The plain of blocks extends until the curvature of the ceiling and the haze of steam eat the distance. It is large enough to have its own weather, and it does: slow convective cells moving in the dim, carrying the condensed fall from one region to another. Far away, you can see the weather happening as a darker column of falling water, a kilometers-wide pillar of condensation rain that never touches ground, evaporating halfway down into a veil.
+
+Scattered across this plain are the Presences. That is the only word for them, because they are not buildings and not ruins. They are structures in the simple sense: piles, platforms, enclosures, terraces, walls that start and do not finish. Ziggurats that are only three courses high and a mile long. Long, low walls that run for a day's walk and then stop in a clean, hammered face. Deep rectilinear pits, perfectly square, filled to the brim with hot, still water that reflects the dark ceiling without ripple. One on the horizon. Another half-seen in the haze to the south. The density is sparse. For every structure there are emptinesses of empty floor so large you lose your sense of scale, until you realize the tiny black speck you thought was a stone near your foot is actually another terrace a kilometer away.
+
+They were made by hands. You can tell. No cranes, no welds, no glass, no metal that you can find. The ramps are earthen. The scaffolds, where they remain, are lashed together from some fibrous mineral cord and poles of the same basalt. Ladders lean where they were left. Bowls of stone tools sit filled with condensation water. But the builders are not here. No animal life moves. No insect hums. Nothing has colonized the weeping stone. The vegetation parameter is zero - not even lichen has taken hold. The heat and wet should be fecund. It is sterile. Any biology would be an intrusion; what grows here instead is a thin mineral bloom - a white or rust efflorescence that crusts in the mortarless joints between blocks and tastes of salt and iron, that spreads in fractal ferns and then flakes off when the block beneath it shifts.
+
+And the blocks shift. Often.
+
+This is the turbulent part. The world is not stable, though it is quiet. The dynamic is not in sound but in rearrangement. You will stand and watch a wall a long way off - and it will *decide* to be somewhere else. Not fall. Not crumble. It will smear. The reality here is thin. The weirdness is not decorative; it is structural. Geometry is observed only when something is looking directly at it. Out of the corner of your eye, a right angle will relax into an obtuse angle, a flat plain will develop a shallow, impossible bowl where water now runs uphill toward its center before the bowl inverts and becomes a hill. A ziggurat will have seven sides when you glance, then five when you count.
+
+If you walk toward one of the scattered platforms, the distance will not compress linearly. You will walk for an hour and it will still be the same size, then you will take three more steps and suddenly its wall is towering over you, its hammer marks each as big as your head, weeping hot water into a trough at your feet. The ceiling above does the same - sometimes so low you feel you could reach it if you climbed the rubble pile, sometimes receding into a vaulted darkness where the condensation-fall turns to distant stars.
+
+The rules, such as they are:
+
+1. Everything is made, but nothing is finished, and nothing stays made.
+2. Water appears from the air, not from a source. It runs in the channels that were made for it, but it also runs up them when the geometry inverts.
+3. Heat is constant, dim light is constant. The light has no source. It is the faint incandescence of the stone itself, of the ceiling's dull red, of the steam refracting it. There are no shadows because there is no sun. There are only deeper dims.
+4. Sound does not carry. The world is too vast and too porous. A block falling - and blocks do fall, tipped by a sudden softening of gravity on one edge - makes a sound like a distant throat clearing, muffled by steam. The loudest thing is the dripping. The endless, arrhythmic ticking of condensation striking stone, and the hiss when it lands. Otherwise, quiet. A quiet so complete you hear the blood in your ears, and then, faintly, the creak of the world's floor adjusting its weight on whatever is below it.
+5. Time is shallow. Because erosion has not happened, you cannot tell age. A freshly struck flake of basalt could be a minute old or a hundred years old. They look the same. The only clock is the drip and the sudden, silent rearrangements.
+
+If you stay long enough you begin to notice that the water in the square pits is perfectly still, no matter how turbulent the air. And if you look into it, the reflection does not show the ceiling. It shows another plain, inverted, built of the same blocks, also wet, also dim, with its own distant platforms - and on that plain, very far away, a figure standing and looking down at you.

@@ -1,0 +1,67 @@
+# The Spires of the Drowned Plateau
+
+---
+
+## The World
+
+There is almost no land.
+
+What maps survive — stitched on treated gut, stored in sealed clay jars — show a world of water. Oceans of it. Not merely deep but *total*, a planetary skin of warm brine broken only by the youngest mountains on earth: the Thalassic Spires, a volcanic archipelago that has been rising for perhaps three centuries and has not yet finished being born. The peaks are jagged, dark, almost raw to the touch — basalt and obsidian and unweathered pumice that still holds the heat of its making. They are tall. Some reach two thousand meters above sea level, and nearly all of that height is submerged. What breaches the surface is a narrow crown: sheer-sided, steaming, fractured with vents that exhale sulfurous breath into a sky that is already more cloud than atmosphere.
+
+The water is warm — nearly bath-warm at the surface, warmer still near the hydrothermal seeps that lace the submerged flanks. It is thick with dissolved minerals, faintly alkaline, tasting of iron and salt and something older, volcanic. Visibility beneath the surface is poor. The water carries a permanent particulate haze — fine ash, bacterial blooms, precipitates of calcium and silica — so that the deep is a blue-brown murk lit from above by a sun that rarely shows its full face. Most days the sky is a sealed lid of grey-white cloud, pressing down, merging indistinguishably with the mist that rises off the sea. The light that reaches the surface is diffused, flattened, a perpetual overcast that makes it hard to tell where morning ends and evening begins. On the rare clearings, the sun punches through in columns that hit the water and scatter into green-gold shafts that vanish after thirty meters.
+
+---
+
+## The Peaks
+
+Each Spire is different, but they share a family resemblance: narrow summits, often less than a few hundred meters across, dropping away on all sides in broken walls of columnar basalt and pillow lava formations still textured with their underwater origins. The rock is dark — charcoal, deep umber, the black of fresh obsidian flows — and where it has not yet been colonized, it gleams wet. There has been almost no weathering. The edges of the stone are sharp. You can cut yourself simply leaning against a wall. Gullies that will one day be valleys are currently just fractures, barely two meters wide, their floors choked with rubble that has not yet been carried anywhere because the rain, when it comes, simply soaks into the porous rock or runs straight down into the sea.
+
+And yet, even here, on stone that is younger than most human generations, life has arrived.
+
+---
+
+## The Vegetation
+
+It is warm, and it is wet, and the mineral-rich spray from the sea feeds everything. The vegetation on the Spires is astonishingly lush for ground so young and so steep. It begins at the waterline — not gently, but with a fury. Coral-algae mats that have adapted to brief submersion cling to the lower rocks in knotted, rubbery shelves, lime-green and rust-red, pulsing faintly with bioluminescence at night. Above them, a band of salt-tolerant succulents and creeping ferns takes hold in every crack, their roots threading into crevices with muscular patience, cracking the basalt slowly, slowly — the first agents of erosion in a world that has almost none.
+
+Higher up, where the spray thins and the rain becomes the primary water source, the growth becomes almost aggressive. Broad-leafed trees with dark, waxy foliage and pale, spongy trunks rise from pockets of soil that are really just compressed layers of their own fallen leaves and the bodies of generations of moss. These trees are not old — none of them more than a century or two — but they grow fast in the warmth and the mineral-rich air, and they lean, always leaning, because the wind that wraps the Spires comes predominantly from one direction and has bent them permanently, their canopies forming horizontal banners of green that trail long aerial roots like the rigging of old ships. Between them, in the humid understory, ferns grow taller than people, and epiphytic mosses coat every surface so thickly that the rock beneath is invisible. The air smells of chlorophyll, wet stone, and sulfur — always the sulfur, a faint eggy sweetness that you stop noticing after a day but never truly forget.
+
+The strangeness of the vegetation is in its *speed*. These plants grow fast and die fast. The soil is thin and nutrient-poor, so the ecosystem has developed a furious recycling rate: fallen trees rot within a single season, consumed by fungal blooms that erupt overnight in pale, luminous shelves, and the released nutrients are immediately absorbed by new growth pushing up through the corpse of the old. The forest floor is not a floor but a slow-moving river of decomposition, always sinking, always being renewed. Step on it and your foot may plunge knee-deep into soft, warm, living rot that smells not unpleasantly of fermentation.
+
+---
+
+## The Settlements
+
+People live here. Not many, and not comfortably, but they live here.
+
+The communities of the Spires — perhaps two thousand individuals spread across a dozen peaks — build in a style dictated entirely by the geometry of the rock. There is almost no flat ground. Construction clings to cliff faces, tucks into fracture-caves, spans chasms on platforms of lashed wood and woven-fiber rope. The primary building material is wood — the fast-growing Spire trees, harvested green and shaped with stone adzes and obsidian blades — supplemented with coral-stone, a cement-like material made by mixing the lower-zone coral-algae with volcanic ash and seawater, which sets hard in the humidity and can be molded before it dries. Structures are organic, irregular, following the contours of the rock. A home might be a single room carved into a basalt overhang, its front wall a lattice of pale wood, its back wall the living rock, damp and warm to the touch. Or it might be a platform cantilevered out over the void, fifteen hundred meters above the sea, swaying gently in the updraft, the sound of the surf far below arriving as a low, continuous, almost subsonic rumble that you feel in your chest more than hear with your ears.
+
+The settlements are dense in the way that cliff-nesting colonies are dense — stacked, layered, connected by rope bridges and carved staircases and, in some places, by tunnels bored through the narrowest spines of rock. They have the look of things that grew rather than were planned: a tangle of paths, roofs at unexpected angles, windows that open onto other windows across gaps of only an arm's length. Smoke from cooking fires — fueled by dried moss and slow-burning driftwood gathered from the waterline — drifts through the canopy and mingles with the ever-present mist, giving the upper Spires a hazy, layered quality, as if the settlements are not quite solid.
+
+Technology is simple. Stone tools, bone needles, obsidian edges. Fire is kept burning in communal hearths tended continuously, because starting a new fire from scratch in the damp air is an arduous process involving friction drills and carefully dried tinder stored in sealed bamboo-like tubes. The people weave fabric from the inner bark of the broad-leafed trees — a rough, strong, naturally water-resistant textile that they also use for sails on the small outrigger canoes they paddle between Spires when the sea is calm. They fish, of course, but the waters around the Spires are strangely poor in large fauna; the warm, mineral-heavy water supports vast bacterial and planktonic blooms but seems to suppress larger life. What fish there are tend to be small, translucent, and oddly shaped — deep-water species driven upward by some thermal anomaly, gasping in the warm surface layers, easy to catch with hand-nets but not particularly nourishing. The people rely more on the vegetation: the spongy tree-pith, roasted; the fern-fronds, boiled twice to remove bitterness; the fungal shelves, dried and ground into a flour that makes a dense, faintly sweet flatbread.
+
+---
+
+## What It Feels Like to Be There
+
+It is quiet in the way that high places above water are quiet, but the quiet is *textured*. There is always the distant surf, a low breathing sound. There is the drip of condensation — the air is so humid that water beads on every surface, and the constant patter of droplets falling from leaves and moss is like a very slow, very soft rain that never ends. Occasionally a stone will crack somewhere deep in the Spire's body — thermal stress, the rock still cooling and contracting — a sound like a muffled gunshot that reverberates through the structure and makes the hanging platforms sway. People look up. Then they go back to what they were doing. This happens often enough that it has a name, though the name varies from Spire to Spire.
+
+The dimness is pervasive. The cloud cover rarely breaks. The vegetation filters what light remains. Even at midday, the interior of the forest is twilit, and the settlements, nested beneath their canopy roofs, are lit primarily by the soft glow of bioluminescent mosses cultivated in hanging bowls — a pale green-gold light, steady but faint, just enough to work by. At night, the darkness is almost total. The sea below becomes a black void. The Spires become silhouettes. The only lights are the scattered moss-glow of the settlements and, sometimes, far out on the water, the faint phosphorescence of the plankton blooms — a cold, blue-white shimmer on the waves that the people call *the floor of the sky* because on moonless nights it is genuinely difficult to tell which direction is up.
+
+Time moves slowly here. The Spires are still rising, but by amounts measurable only across generations — a hand-span per year, perhaps less. The vegetation is fast but cycles within itself, turning over without apparent drama. The settlements change slowly; there is no surplus of materials, no wealth to accumulate, no population pressure to drive expansion. Life is repetitive, intimate, small-scale. A person born on the Eastern Spire of the Kathai chain might live their entire life within a vertical territory of three hundred meters and know every handhold, every fruiting cycle of every fungal shelf, every current pattern in the waters below. Knowledge accumulates — this is not ignorance, not stagnation — but it accumulates the way sediment accumulates: invisibly, year by year, layer by layer, until someone looks down and realizes the ground beneath them has changed.
+
+---
+
+## The Fauna
+
+There is not much. The warm, mineral-heavy waters do not support the kind of food chains that produce large animals. What lives on the Spires themselves are small: pale, long-legged spiders that build webs between the aerial tree-roots, catching tiny winged insects that ride the updrafts. A species of gecko, translucent-skinned, that lives in the moss and eats the insects that eat the moss. Small birds — really more like large bats in their habits, though they are birds — that roost in the upper canopy and dive through the mist to snatch plankton-organisms from the surface of the sea. They are rarely seen; they are heard more often, a sharp, two-note call that carries far in the damp air and is the closest thing to birdsong the Spires produce. The people keep no domesticated animals. There is nothing here to domesticate.
+
+In the water, though — in the water there are hints of something larger. The thermal vents that lace the submerged flanks of the Spires support chemosynthetic ecosystems of considerable complexity: tube-worms, blind crabs, bacterial mats that grow in structures resembling coral but made of something stranger, something that might be silicon-laced rather than calcium-based. Divers — and there are divers, young people mostly, who descend on breath-holds along guide-ropes to harvest the tube-worms for their tough, fibrous casings — report seeing things in the deeper murk. Shadows. Shapes that do not correspond to any known organism. Nothing has ever attacked a diver. Nothing has ever been clearly seen. But the divers come back quiet, and some of them stop diving, and they do not say exactly why.
+
+---
+
+## Rules of the World
+
+The water is not receding. The Spires are rising, yes, but the water is also rising — thermal expansion, perhaps, or the slow exhalation of gases from the volcanic systems below, or simply the accumulated rainfall of a world with a water cycle operating at a pace and intensity that would be unrecognizable to anyone from a drier epoch. The net result is stasis: the peaks grow taller at roughly the same rate the sea climbs, and so the amount of dry land in the world remains roughly constant — which is to say, almost none. This is not a world going somewhere. It is a world in a *condition*. A equilibrium, perhaps temporary, perhaps permanent, between the upward thrust of stone and the downward press of water.
+
+The people of the Spires do not think of themselves as living on islands. They think of themselves as living *at the surface* — on the thin, precarious boundary between the deep and the sky. Their mythology is vertical, not horizontal. The dead are given to the sea. The newborn are held up to the clouds. The present — the narrow ledge of now — is where everything important happens, and it is exactly as wide as a body, exactly as long as a life, and there is nothing beyond it in any direction but water or air.

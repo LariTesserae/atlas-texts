@@ -1,0 +1,23 @@
+The place is called the **Weeping Kiln**.
+
+It is a high, cold, cathedral-sized basin cupped inside a ring of ancient black basalt cliffs that have been weathered into soft, almost fleshy curves by millennia of water and wind. The cliffs themselves are not dry stone; every surface is damp, every crevice and pore steadily weeping clear, ice-cold water. The water does not fall in dramatic cascades but emerges as a constant slow exhalation, beading, trickling, condensing, dripping. The air itself is saturated; breath becomes visible the moment it leaves your mouth and hangs there like pale moss before drifting upward.
+
+Despite the elevation and the cold, the basin is violently, almost indecently bright. A single shaft of uncompromising white sunlight drops through a circular aperture high in the eastern cliff wall and strikes the center of the Kiln like a spear. The light is so intense it feels solid. Every droplet of water hanging in the air catches it and turns into a floating constellation of white fire. The entire space glitters as though filled with glass needles.
+
+There is almost no soil. Vegetation is limited to sparse, hardy black mosses and pale, rubbery lichens that grow in dense overlapping scales across every wet surface, giving the rock the appearance of living hide. Here and there, small stands of stunted, bone-white trees—crooked, leafless, their branches braided together like nervous fingers—huddle against the cliffs in tight, defensive groves no larger than a cottage.
+
+The true density of the place is not in its plants but in its life and its motion.
+
+Hundreds of thousands of small, quick creatures move through the glittering air and across the weeping stone in layered, overlapping torrents. Most are insectile or arachnid in silhouette but behave more like flocks of starlings or schools of fish. They form living braids and lattices that constantly unravel and re-weave themselves. Some are translucent as ice; others are mirror-bright and reflect the single shaft of light in moving shards. Their wings and legs make almost no sound—only a faint, rapid clicking like distant hail on glass.
+
+The settlement itself is carved directly into the weeping rock. Primitive stonework—nothing more advanced than chisel, lever, and rope—has turned natural ledges and cavities into a dense, vertical town of perhaps four hundred souls. Houses, bridges, ladders, granaries, and shrines are all built of the same black basalt, now furred with moss and running with water. Every roof is a shallow basin that collects the constant drizzle and channels it into communal cisterns. The architecture is cramped, overlapping, almost coral-like; new rooms and stairways have been added wherever a ledge offered itself, so the whole town feels like a single continuous organism grown rather than built.
+
+The people move in near silence. Their voices rarely rise above a murmur. Instead the dominant sound is the endless soft percussion of water: dripping, trickling, spattering, hissing where it strikes hot stone. For there is heat here too, in places. Beneath the basin lies an ancient geothermal wound. In certain hours the ground itself chooses to breathe scalding vapor through fissures, creating sudden white plumes that collide with the cold weeping water and birth turbulent, short-lived clouds. These clouds swirl violently for minutes, then collapse back into drizzle. The townsfolk treat these exhalations as both blessing and hazard; they dry cloth, power simple water-lifts, scald the unwary, and are said to carry voices from somewhere deeper.
+
+The strangest feature is the Kiln’s memory.
+
+Every surface that stays wet long enough begins, eventually, to remember. Faces, tools, animals, entire buildings that no longer exist slowly emerge in low relief from the black rock—formed not by carving but by differential mineral deposition guided, it seems, by the creatures that live here. The insects and glittering swarms appear to farm these memories, tending certain patches, abandoning others. No one is sure whether the town is growing the rock or the rock is growing the town. New houses are sometimes found already half-formed in the cliff, as though the stone had been expecting them.
+
+The overall effect is one of turbulent, saturated stillness. Everything is moving—water, light, swarms, vapor, memory—yet the overwhelming impression is of a held breath. A bright, freezing, dripping cathedral-sized womb where the world is slowly, chaotically, and without haste deciding what it will become next.
+
+And always, beneath the quiet clicking of countless feet and the soft weeping of the stone, there is the sense that the place is watching itself be watched.

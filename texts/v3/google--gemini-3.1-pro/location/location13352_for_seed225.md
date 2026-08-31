@@ -1,0 +1,23 @@
+To descend into this space is to be swallowed by a sun. 
+
+Despite lying buried beneath a thick stratum of earth, the cavern is awash in blinding, shadowless daylight. The ceiling, hundreds of feet above, is less a roof than a massive, unbroken lens of clear selenite crystal. It captures the blistering glare from the surface above, diffusing and magnifying it until the interior of this subterranean cathedral glows with a brilliant, pearlescent white. You must squint against the sheer purity of the radiance. 
+
+The chamber itself is a single, immense pocket—a hollow geode on an architectural scale. But for all its size, the most profound feature of the cavern is its emptiness. The center of the room is a sheer, dizzying void. Standing on the smooth rim of the entry ledge, you look out into thousands of cubic feet of nothing but brilliantly illuminated air. It is a profoundly uncrowded space, vast enough to swallow echoes, defined mostly by the distances between things.
+
+The air inside the hollow is heavy, holding a humid, incubated warmth. It acts like a subterranean greenhouse. Condensation is the only weather here. Water vapor, drawn up from a deep, unseen aquifer far below, hits the slightly cooler crystalline ceiling and beads into heavy droplets. Plump and glittering in the stark light, these droplets hold on as long as physics allows, before letting go. *Plink.* The falling drops trace long, agonizingly slow arcs through the bright void, shattering silently on the slick stone far below. 
+
+Over millions of years, this gentle, persistent rain has sculpted the cavern into a masterpiece of established erosion. There are no jagged edges here, no rubble, no raw breaks. Every surface of the limestone walls resembles melted wax or draped silk. The stone has flowed and settled into smooth, undulating curves, perfectly at peace with the moisture that patiently remakes it. 
+
+Where the condensation streaks down the pale walls, sparse vegetation takes hold. They are strange, specialized things—flat, star-shaped rosettes of a deep, bruised violet, clinging tightly to the wet rock. They cast no shade and boast no leaves, acting more like fungal sponges than true plants. Occasionally, a single, pale, hair-like root will droop from the ceiling, dangling fifty feet into the empty air to siphon moisture as it falls.
+
+However, while the vegetation is sparse, the void is swimming with life. This deeply strange ecology is airborne. Hundreds of drifting, buoyant organisms inhabit the empty airspace of the cavern, moving with the agonizing slowness of dust motes caught in a sunbeam. They resemble floating polyps or translucent gas-bladders, their bodies the size of a human torso but appearing weightless. They navigate the blinding light with lazy, undulating skirts of gossamer tissue, filtering the thick, damp air for invisible spores and microscopic droplets of water. Alongside them weave pale, sun-bleached creatures resembling a cross between a moth and a gecko, gliding on wide webs of skin between the walls and the drifting polyps. 
+
+Despite the abundance of life, the chamber remains draped in a heavy, almost sacred quiet. The floating polyps have no vocal cords, and the gliding creatures move on muffled air currents. The only sounds are the occasional soft, wet impact of water hitting stone, and the leathery rustle of a wing—distant and muted in the vastness.
+
+Down here, time feels arrested. It is a landscape of minimal flux, dominated by the patient accumulation of dew and the imperceptible, crawling drift of the aerial fauna. 
+
+Yet, along the smooth lip of the natural ledges, there are signs that this bright, silent world is visited. There are no buildings, no stairs cleanly carved into the rock, no fire pits to stain the pristine white walls with soot. But there are traces. 
+
+Resting in a depression of smooth calcite lies a coiled net woven from twisted, fibrous roots, weighed down along its edges with carefully polished, thumb-sized stones. Beside it sits a throwing stick—a beautifully curved length of smooth, yellowed bone, polished by the oils of a human hand. Small, razor-sharp flakes of knapped obsidian have been wedged strategically into tiny natural fissures in the rock wall, serving as temporary footholds for a climber to lean out over the glowing abyss. 
+
+Whoever comes here leaves only these quiet, primitive markers of their passing. They descend into the brilliant, hollow earth, hand-over-hand, armed with bone and stone, waiting patiently on the damp ledges to cast their nets into the void and harvest the slow-drifting ghosts of the deep air. Then they depart, leaving the cathedral to its endless brightness, its warm, thick breath, and the slow beat of the falling water.

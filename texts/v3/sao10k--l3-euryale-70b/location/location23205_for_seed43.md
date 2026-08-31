@@ -1,0 +1,11 @@
+A vast network of interconnected caverns and tunnels stretches far below the earth's surface, a subterranean labyrinth lit by phosphorescent fungal growths clinging to the damp stone walls. The air is damp and musty, thick with the scent of mold and animal musk. Occasional dripping echoes through the passages.
+
+Elevated platforms and ladders of crudely worked logs and interwoven vines connect the caverns, allowing passage to the arboreal inhabitants. Strange constructions of hide, twine, and mortared stone nestle in the recesses of the cavern walls - crude dwellings, ritual spaces, granaries, arms and craftworks. Rude carvings scar the walls - signs, simple decorations, the marks of old wet-go·ges. Pools of still water glimmer in some of the deeper caverns.
+
+The tunnels snake between the bedrock, some finally opening into bubble-chambers of trapped air, lush with pale fungal, dewy moss and creeping tuborous roots suspended in tangled webs of spun silken threads. Gigantic horned toadstools and gelatinous growths of pale transluscent fungi smoother fallen log platforms, and spill in bulbous fungal bloating out from crannies and goat-head weirddrop repaired someone sited studdle into nooks.
+
+Wreeching cheers and animal skreiks echo in the dimness, counterpointed by the susurrus of many voices in ritual chant and whispers, celebration and conjuration, raucous hymns and pentelicking ululations of hexspringing. Churning skirls and yells fade past foldings of damp air and stone. Subterranean bats and blindfaced molepups rusht out of warmer crevices as the fungal lights dance. Somewhere beneath, guppyfilter flatlings sp celularhomogenillate belowdamp and ludivariant rootmass. The air churns and eddies­"?
+
+Slipgourdustrilations and tuddlesqueeze reverberate thinly through the tunnels again. Someone divests it druff setdroptcan from an outcropping. Where the air is freshest, curtains of kitefrondves impale off underside wia dadocht. Waietting sprtches cling to ther specialicon from wumansitter fossiliments. The aurawrinwoirths crackle genuwhip-patterns. WraithstrateEns of spilinearhing faeys greet dermamber lacking light.
+
+... [cannot interpret further]

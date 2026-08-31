@@ -1,0 +1,19 @@
+This is the **Sump of the Iron Chrysalids**, a claustrophobic, low-lying basin that feels less like a geography and more like the inside of a rusted, leaking watch whose mainspring has snapped.
+
+The landscape is a tabletop of oxidized steel plates, pockmarked by geological-scale corrosion. There is no soil here, only layers of sedimentary grit—crushed ferrite and silicate dust—that have settled into the seams of the industrial floor. Above, the sky is a permanent, vaulted gray, pressing down on the basin like a heavy factory roof, casting a flat, diffuse luminescence that never shifts, never dims, and never yields to sunset.
+
+Water exists here as a constant, weeping nuisance. It does not rain; instead, the world sweats. Thick, oily droplets of condensation bead on the undersides of great, rusted cantilevers and drip with rhythmic, mechanical precision into shallow basins. These pools are stagnant, iridescent with chemical films that shimmer even when undisturbed. The water is thick, tasting of copper and stagnant ozone.
+
+The silence is impossible here. Because the world is "never-changing," the soundscape is locked into an eternal, deafening loop. There is the groan of massive hydraulic pistons that have been stuck in mid-cycle for centuries, emitting a low-frequency hum that vibrates in the marrow of one’s bones. Everywhere, there is the screech of metal-on-metal—a high, lonely keen of wind forcing itself through gaps in the iron architecture.
+
+But it is the fauna that redefines this space. The Sump is swarming, crawling, and vibrating with life—if it can be called that.
+
+The creatures here are not organic in any sense we recognize. They are modular, scuttling arrangements of brass gears, rubber gaskets, and twitching, translucent membranes that pulse with biological electricity. They are everywhere: thousands of crab-like scavengers with glass-lens eyes, darting between pools; tethered, swaying things that hang from the rafters of the basin like pendulums, clicking rhythmically; and vast, sedentary entities that appear to be part of the floor itself, until they rotate a heavy, metallic limb to snap at a passing mist-particle.
+
+The "urban" density is deceptive. While there are clearly defined alleys, plazas, and scaffolding towers that suggest a city of millions, it is a city of skeletons. The infrastructure is layered—a labyrinth of catwalks and conduit pipes meant to convey steam and power—but the power is trapped in a state of eternal glitch. Pipes hiss steam into the cool air, heating the dampness into greasy clouds that coat everything in a slick, dark patina.
+
+There is no growth. You will search in vain for a sprout, a spore, or a lichen. The only "foliage" is the crystalline frost of salts that grow on the cooling vents, jagged white efflorescences that look like fragile, geometric ferns.
+
+Time has lost its forward arrow here. The debris of the industrial process—bent copper wiring, shattered ceramic insulators, tangled lengths of oily cable—lies exactly where it fell ten thousand years ago. A pile of rusted cogwheels sits beside a pool from which a thousand small, mechanical eyes watch the threshold of movement, waiting for a trigger that will never come. Even the water droplets fall at fixed intervals, a precise metronome for a world that has reached final, heavy equilibrium.
+
+You are standing in the center of a machine that is perpetually crashing, forever caught in the very first second of its own breakdown, surrounded by a civilization of clockwork creatures that have forgotten the purpose of the structures they inhabit, yet continue to maintain them with terrifying, obsessive noise.

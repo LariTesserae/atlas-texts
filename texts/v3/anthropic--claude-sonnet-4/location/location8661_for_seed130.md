@@ -1,0 +1,15 @@
+In the heart of an ancient greenhouse, long forgotten and overgrown, reality bends like heated glass.
+
+The structure itself has become indistinguishable from the forest it once contained. Wrought iron ribs curve overhead, but they are no longer metal—they have become the woody stems of impossible climbing vines that spiral upward in perfect mathematical helixes. The glass panes between them are living membranes, translucent leaf-tissue that breathes moisture in and out with the rhythm of photosynthesis. Water beads and runs in channels that were once window frames but are now the hollow stems of enormous pitcher plants.
+
+This pocket realm exists in permanent near-saturation. The air itself seems to sweat, and every surface weeps gentle streams. Moss carpets have grown so thick they form spongy platforms at various heights, connected by root-bridges and vine-walkways that creak softly under their own living weight. The ground—if ground it still is—consists of layered mats of decomposing and regenerating plant matter, soft as mattresses, warm with the heat of countless tiny decay-cycles.
+
+But the plants here follow rules that shift when observed too closely. A fern uncurls its frond, and for a moment the spiral becomes a staircase you could climb, if you were small enough, if size mattered here the way it should. Hanging gardens dangle at eye level, their roots forming curtains that part to reveal glimpses of the same space from impossible angles—as if the greenhouse curves back on itself through dimensions that shouldn't exist.
+
+The sound is a constant gentle susurrus: dripping, growing, the whisper-crack of expanding stems, the soft percussion of water droplets finding new leaves. Occasionally, something small moves through the understory—perhaps a salamander navigating between worlds, or a beetle that exists only on Tuesdays. These creatures seem more like punctuation marks in the landscape's sentence than independent beings.
+
+The light filters through the living glass-leaves in constantly shifting patterns of green and gold, creating pockets of brightness that move like slow water across the moss floors. Shadows behave strangely here—sometimes preceding the objects that cast them, sometimes lingering after their owners have moved on.
+
+Every tool used to build this place has been absorbed, transformed, metabolized. A watering can has become a gourd-vine that pours itself in endless loops. Garden stakes have grown into bamboo that remembers being planted in rows. The very concept of "built" and "natural" has composted down into something richer and more complex.
+
+In the deepest corner, where the ceiling/canopy is lowest, water pools in what might once have been a potting bench but now resembles a altar made of living wood. Here, the boundary between plant and place becomes thinnest, and visitors sometimes report seeing their own reflection looking back from within the grain of the wood itself, breathing with the breath of trees.

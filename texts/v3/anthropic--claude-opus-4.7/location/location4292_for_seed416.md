@@ -1,0 +1,25 @@
+# The Kiln-Warren
+
+Somewhere below a surface that may or may not exist, there is a room the size of a large kitchen, and in that room it is always just after the forge has been banked for the night.
+
+The walls are built. That is the first thing to understand — there is no stone here that wasn't laid, no floor that wasn't poured. The makers used a ceramic that reads, to the hand, like fired clay, but it holds heat the way a star's core holds heat: patiently, without losing any of it. Put your palm against the wall and your palm will cook before the wall cools by a degree. The ceiling is low enough that a standing human would stoop. The floor is tiled in hexagons the color of dried blood, each tile warm enough to blister bare skin, and between the tiles run hairline channels where something — not quite water, not quite mercury — moves in slow arterial pulses, brightening faintly when it flows.
+
+It is dark. Not the dark of a closed eye but the dark of a place that has simply never been asked to be lit. What vision exists here is infrared and convective: you see by the shape of heat leaving things. The walls glow dimly to that sense, banked coals behind a grate. The floor glows brighter. The ceiling is cooler and recedes into a kind of negative sky.
+
+And the ceiling is where most of the fauna lives.
+
+They hang in clusters, near-touching, layered two and three deep — small creatures the size of a thumb-joint, with bodies of what looks like folded foil and legs like filament. They are not alive in any sense a biologist would accept. They are not alive in any sense a biologist would refuse, either. They respire heat: they drink the temperature differential between floor and ceiling, and in drinking it they keep the room from ever reaching equilibrium. If they ever stopped, the whole pocket would settle to a uniform scalding and everything in it would end, including them. So they do not stop. They shimmer constantly, a slow collective breathing, and the sound of it — when there is sound — is the sound of a page being turned very slowly in another room.
+
+Larger things move along the floor. Six or seven of them, it's hard to count because they pass behind each other in the channels. They are lozenge-shaped, flat, and they graze the hot-metal liquid in the hexagon-seams, taking it up and laying it down again a few tiles over, redistributing heat by a logic that has the look of purpose but might only be the look. When two of them meet at a junction one always gives way. There is a hierarchy. No one made the hierarchy; it emerged, the way erosion-patterns emerge, and it has been in place long enough to count as geology.
+
+The dampness is in the corners.
+
+Where the walls meet the floor at the room's four angles, condensation gathers — the liquid-metal-stuff cooling just enough at the seams to bead. These beads are the only place in the warren that isn't hot enough to kill. They are the watering holes. The ceiling-things cannot descend that far without losing buoyancy; the floor-things cannot enter the corners without risking the cold. So the corners are neutral ground, and in the corners a third kind of creature lives: soft, slow, almost pre-biological, something like a drop of oil that has learned to be hungry. They do nothing but drink at the seams and occasionally divide.
+
+The rules of the place:
+
+Heat is currency. Heat is information. Heat is the only weather. There is a cycle — the thinker notices it only after long attention — where every several hours (by some outside measure; there is no inside measure) the floor pulses a degree warmer and the ceiling-fauna quicken, and the lozenges on the floor migrate toward the center, and for a span of minutes the room comes as close to loud as it ever comes: a susurrus of foil, a whispering of liquid metal in the channels, a soft tick from the walls as the ceramic adjusts. Then the pulse passes and everything returns to its slow breathing.
+
+Nothing here was grown. Everything here was made. But it was made long enough ago that the difference has stopped mattering: the fauna reproduce, the fluid erodes its channels infinitesimally deeper each cycle, the hierarchy of the lozenges refines itself generation over generation. The makers, whoever they were, built a pocket and filled it and sealed it, and what they built has been living in itself — if that's the word — for a duration that the walls, warm and patient, are not in any hurry to disclose.
+
+If you were small enough to enter, and engineered enough to survive it, you would find it companionable. The dark would not feel empty. The near-silence would not feel like absence. You would feel, instead, that you had stepped into a slow furnace full of small attentive lives, each of them doing the one thing that keeps the others possible, and none of them in any particular hurry, because the room has been like this for a very long time and intends, as far as it intends anything, to go on.

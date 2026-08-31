@@ -1,0 +1,15 @@
+In the shallow basin of what might once have been an impact crater, the colony spreads like a living thing - though no plant has ever grown here. The structures rise from the bedrock in sweeping curves of calcium and silica, drawn up from underground aquifers by the countless tiny filter-feeders that built this place grain by grain over centuries.
+
+The air is cool and thick with moisture, gathering in beads on every surface before running in rivulets down the smooth mineral walls. These streams trace patterns like neural pathways through the settlement, feeding the pool-chambers where new builders congregate to extend the city's reach. Their work is methodical, unhurried - each new addition taking shape over weeks or months as they extract dissolved minerals from the water.
+
+Bright sunlight floods the basin, reflecting off the pale structures and the countless water droplets to create a permanent rainbow haze. The builders themselves are sensitive to this light, their translucent bodies refracting it in complex patterns that seem to serve as a form of communication across the colony.
+
+The sound is constant - a background chorus of liquid movement through countless channels, overlaid with the resonant tones of the builders' bodies vibrating against their mineral constructions. These vibrations carry messages through the colony's framework, coordinating their endless slow dance of construction.
+
+While no plants grow here, the city teems with life. Flying creatures nest in the higher reaches of the structures, their wings adapted to cut through the moisture-heavy air. Smaller animals dart through the water channels, feeding on the mineral-rich films that develop on the walls. Larger beasts lumber through the wide thoroughfares between structures, their feet adapted to grip the perpetually wet surfaces.
+
+The architecture seems to follow rules that aren't quite human - angles that shift unexpectedly, passages that curve according to some alien geometry. Yet there's an organic logic to it all, like the inside of a seashell scaled up to city size. The structures don't seem built so much as grown, each new addition emerging from and responding to what came before.
+
+At the edges of the settlement, new structures are just beginning to rise from the bedrock - pale nubs of mineral that will, over years, stretch upward to join their older siblings. The boundary between built and unbuilt space is soft, gradual, marked by increasing concentrations of the builders' preliminary workings - test structures and abandoned experiments that dot the landscape like strange sculptures.
+
+The water that flows through everything carries more than just minerals - it carries information, chemical signals, tiny particles of the builders themselves. Every drop that falls or flows or condenses is part of the colony's slow metabolism, its gradual thinking, its century-scale dreams of what it might become.

@@ -1,0 +1,15 @@
+In the hollow heart of an ancient meteorite crater, worn nearly flat over eons, dark moss grows in perfect hexagonal patterns. The crater's rim has softened to merely suggest its cosmic origin - less a wall than a subtle change in the air's weight, a circular threshold where sounds begin to fade.
+
+The moss extends precisely to the crater's edge. Each hexagon is identical, about the width of two outstretched arms. In the dim perpetual twilight, the deep green patches pulse with bioluminescent rhythm - not light exactly, but a kind of anti-shadow that makes the spaces between them seem darker.
+
+Water accumulates in the geometric seams between moss sections, not as standing pools but as a network of moisture that moves with glacial slowness, following paths that rearrange themselves every few hours. The liquid has the viscosity of honey but the clarity of spring water. Small creatures - if they can be called creatures - emerge from and dissolve back into this fluid network. They have the visual texture of soap bubbles but move with apparent purpose, leaving no trail, making no sound.
+
+These entities seem to tend the moss, though it's unclear if they're separate organisms or extensions of the same system. They gather at the intersections of hexagons, performing intricate exchanges that resemble a cross between pollination and binary computation. Their movements follow patterns that almost resolve into meaning before shifting into new configurations.
+
+The air is cool and still, heavy with spores or particles that hang suspended like stars. These specks neither fall nor float upward, but occasionally blink in and out of existence. Time feels uncertain here - minutes might be centuries, or vice versa. The entire crater operates like a single organism, or perhaps a single thought slowly contemplating itself.
+
+At regular intervals, larger forms coalesce from the ambient matter - transparent arthropods the size of horses, assembled from the suspended particles and the geometric logic of the place. They move with impossible grace across the moss, their many legs never disturbing the hexagonal boundaries. They appear to be hunting the bubble-creatures, or perhaps herding them, but both predator and prey dissipate before any contact is made, like waves interfering with each other.
+
+The silence is total but somehow active - not an absence of sound but a presence of something that occupies the same sensory space as sound. It feels like listening to a conversation in a language that exists outside of time.
+
+No human artifacts mar this place, though it's unclear whether it's truly natural or if it's artificial in some way that transcends human concepts of construction. The crater feels less like a location and more like a theorem expressing itself through biology, or a thought experiment that gained independence from any thinker.

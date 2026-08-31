@@ -1,0 +1,15 @@
+A grotto of ice crystals breathes. Not with life - there is no life here - but with the slow pulse of pressure and temperature that causes the crystalline chambers to flex and whisper. The space is cathedral-like but more organic in its geometries, as if grown rather than built, though no plant could survive in this perpetual winter.
+
+The main chamber rises perhaps forty feet, its walls an interlocking maze of hexagonal ice columns and translucent mineral veins. Bright light floods through the ice from above, creating ever-shifting patterns as it refracts through countless facets. This illumination comes from an unseen source - perhaps a high mountain sun, perhaps something stranger - and brings no warmth with it.
+
+Small rivulets of supercooled water trace paths through the ice, moving with impossible slowness, leaving behind new crystal formations as they flow. The water seems to defy normal physics, remaining liquid well below freezing while simultaneously building delicate ice structures that branch like coral or circuit boards.
+
+The floor is a complex topography of raised crystal platforms and shallow depressions filled with perfectly still pools. The pools reflect the crystalline ceiling, creating a disorienting mirror effect that makes it difficult to judge scale or direction. Occasionally, a drop of water falls from above with a musical ping that reverberates through the chamber's natural acoustics.
+
+Scattered throughout are curious artifacts - simple tools and vessels made of some dark metal that seems to neither frost over nor conduct the intense cold. They rest in niches or balanced on crystal outcrops, placed with evident purpose by unknown hands. Some bear geometric engravings that echo the natural crystal patterns surrounding them.
+
+The air itself feels thick with suspended ice particles, creating occasional rainbow refractions when they catch the light just so. There's a constant but subtle movement to the atmosphere - gentle currents that carry whispers of sound as the ice shifts and settles.
+
+At irregular intervals, deeper sounds emerge from the surrounding rock - not quite groans, not quite music - as immense pressures in the mountain above translate into vibrations that travel through the crystal matrix of the grotto. These sounds seem to trigger subtle changes in the flow patterns of the supercooled water, suggesting some complex relationship between sound, pressure, and the ongoing formation of the space.
+
+The overall impression is of a place that, while lifeless, is far from static - a complex system of physical processes creating something that almost mimics biological growth and decay, but through entirely mineral means. It feels ancient yet active, mysterious yet governed by some underlying logic, if only one could perceive it fully.

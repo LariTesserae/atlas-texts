@@ -1,0 +1,13 @@
+Through a narrow crevice in ancient limestone, warm air rises thick with chittering echoes. The passage opens to a cathedral-chamber deep within the mountain, its walls worn glass-smooth by eons of thermal currents. Here, in this hidden world, the very rock seems alive - glistening with condensation that beads and runs in precise channels, carved over millennia by the patience of water and the countless tiny feet that follow these liquid paths.
+
+The chamber is a vertical city of mud-and-silk architecture, built by generations of cave swiftlets whose nests cling to the walls in dense, irregular tiers. But the birds are only the most visible architects - every surface teems with life adapted to this perpetual twilight. Bioluminescent fungi trace lazy spirals across the ceiling, their soft blue-green light reflecting in thousands of compound eyes. Cave crickets larger than human hands move in coordinated waves across the walls, their antennae sampling the humid air for signals only they can read.
+
+The floor is a maze of stepped pools, each no wider than a few paces, fed by the eternal drip-drip-drip from above. In these pools, blind white crustaceans tend gardens of filamentous algae, their movements creating complex ripple-patterns that bounce off the chamber walls. The water is tepid, warmed by the same geothermal processes that drive the chamber's constant upward air current.
+
+Between the pools, mounds of guano support their own baroque ecosystems - colonies of iridescent beetles roll perfect spheres of it into chambers they've excavated in the softer limestone, while thread-thin worms weave silver nets between the mounds to catch falling insects.
+
+The air moves constantly - not just up, but in complex eddies created by the thermal gradients and the beating of countless wings. This movement carries with it a symphony of sounds: the crystalline ping of water drops, the rustle and scrape of chitin on stone, the soft whirr of wings, and beneath it all, a deep harmonic thrumming that seems to emanate from the rock itself - perhaps the mountain's heart, perhaps something else entirely.
+
+At irregular intervals, the entire chamber seems to pulse with activity - waves of movement rippling through the various populations in response to cues too subtle for human senses. Swiftlets swarm in tight spirals, crickets migrate en masse to new territories, and the very air seems to shimmer with the wings of countless small moths.
+
+This is a place of perpetual twilight and constant motion, where the boundary between built and grown has blurred over eons into something entirely other. The rock itself has been transformed by its inhabitants into a living architecture, as much hive as cave, as much city as ecosystem.

@@ -1,0 +1,33 @@
+Low. Everything here is low.
+
+Not low like a valley — there are no mountains to make a valley. Low like a world that has settled. Like a continent that took a deep breath and exhaled and never inhaled again. The horizon doesn't recede so much as it gives up. You can see weather being born fifty kilometers away and still be able to tell it's happening at eye level.
+
+It's warm. Not desert warm, not jungle warm. Stone-in-the-sun warm. The air holds you. At noon the flat light makes everything the exact color it is, which is a strange mercy here, because there is too much of everything to afford any haze or romance.
+
+The ground is not ground. Or, it was, a very long time ago. Now it's city, but city in the way a reef is city — built on its own dead and its own living until you can't tell which is which. Basalt-concrete that was poured so long ago it has become geology, ceramic tiles the size of plazas, carbon-black struts grown like crystals between them, salt-stained alloy. Everything is weathered. Not ruined — established. Rounded at the corners by a million bare feet and wheels and water. There are no straight lines left that aren't being actively maintained by something that cares about straight lines. And something always cares, for a little while.
+
+There are no plants. Not a blade, not a lichen, not a green smear. This is a mineral world that forgot how to do chlorophyll, or decided it was inefficient. The surfaces are too busy, too hot, too constantly repackaged for anything to root. No soil, anywhere, ever. Only dust that is powdered city, and water.
+
+Because it is wet. Not ocean-wet. The sea is somewhere far beyond the low city, or under it, or both. Here wet means the whole place weeps. The warm air hits the cooler mass of lower levels and condenses, ceaselessly. Every underside drips. Every vertical face sweats dark streaks. Water gathers on every ledge and falls again. Shafts and gutters and throats built into the city — or grown into it — run full, brown-white, roaring. After rain — and it rains somewhere over the city every hour, because a city this big makes its own fronts and its own thunderheads — the upper terraces become a shallow, inch-deep mirror that drains sideways into a thousand mouths all at once.
+
+It should be a swamp. It wants to be a swamp. Low places between structures hold permanently, tepid pools with no algae in them, just mineral film, just water so clear you can see the wiring underneath. The edge of the city is a marsh where the city thins — not into countryside, there is no countryside — but into its own drowned foundations, pylons and causeways standing in warm, knee-deep water for a thousand kilometers until they finally surrender.
+
+And it is packed.
+
+There is no empty lot here. No abandoned block. No room between presences. A new structure does not replace an old one; it grows in the seam of the old ones, in the half-meter between a wall and a pumping column, extruding a shopfront, a home, a shrine, a machine you don't have a name for. Then that gets packed too. The city is fully occupied in three dimensions. Scaffolding is permanent and it is itself inhabited. Bridges contain alleys which contain stalls which contain people sleeping on top of one another under humming tarps. The density isn't crushing, it's just complete. Like a beehive made out of a million different species of bee who all agreed to keep building.
+
+Which brings you to the sound. You have to hear it to understand the density. It never, ever stops. Water roaring down chutes. Air being pulled through cooling veins the size of subway tunnels, a low organ-tone moan. Chatter — human, near-human, machine, animal — in a hundred languages and no language, all talking at once, haggling, laughing, warning. The click and scrape and patter of claws and feet and wheels and hooves on wet ceramic. The high whine of fabricators. The clank of something enormous shifting its weight two streets over. It is physically loud. You feel it in your molars. If you stop to listen to any one thing, another five fill in behind it. People here learn to shout without shouting, to read lips, to use hands.
+
+Because there is fauna. God, there is so much life. No plants to anchor a food chain, so it eats the city itself. Or eats what eats the city.
+
+The things that flash overhead — you call them birds but their wings buzz like overheated drones, their feathers are frayed solar film. They drink condensation off ledges in flocks that black the gutter-light. Underfoot, crabs the size of dogs — jointed, mottled, clearly not crabs, clearly not machines — scrape mineral crust from the pooling water and convert it into something. White rats with translucent skin run in rivers along pipes, carrying scraps of protein grown in vats deeper down. Insects you can't count, because they are sometimes insects and sometimes a cloud of black, glittering builders that dissolve a wall and rebuild it two inches to the left while you watch. And people, of course — so many people, in every modification and age, packed shoulder to shoulder, always moving.
+
+The city moves faster than people do. That's the rule here.
+
+This is not a place that was built and then lived in. It is being built while it is being lived in, at a frantic, joyous, anthill pitch. A wall flowers open into a market because enough feet wore a path there. A street closes because a root of living infrastructure swells up and seals it and everyone just... goes around, or climbs over, arguing all the while. Tiny assembler swarms, hazes in the warm wet air, lay down new lattices that sing as they cool. In the distance, a tower that was there this morning is not there now — not collapsed, just unknit, its materials already half-reassigned into five smaller things that are already crowded.
+
+It is beyond modern. You can see it in the way gravity seems negotiable when a heavy loader steps off a ledge to save time and lands lightly. In the way a whole block seems to exist a fraction out of phase, to make room for more blocks behind it. In the way water climbs uphill, obediently, through invisible straws, to weep again from a ceiling that has never been dry.
+
+And still, for all its impossible engineering, it looks ordinary in the flat normal daylight. Warm stone wet with water. Crowds. Laughter and shouting you can't make out. The smell of hot mineral and hot bodies and clean rain.
+
+You stand on a low rise that is a roof that is a street that is a dam, water sheeting over your shoes, deafened by the living roar of a place too big to be a city and too full to be anything else, and somewhere under your feet, something new is already packing itself into existence.

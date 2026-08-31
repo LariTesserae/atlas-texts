@@ -1,0 +1,17 @@
+You have to crawl to find it, pressing your cheek into the cool, pulverized grit of a trench that shouldn’t exist. Above, the world is a sun-bleached expanse of nothing, but here, in a limestone fissure no wider than a crawlspace, the "Gear-Garden" is in full, feverish bloom.
+
+The scale is intensely intimate. You are lying in a chamber roughly the size of a shipping container, but the density is suffocatingly high. Every square inch of the porous, chalky stone is colonized. This is a landscape of "industrial biology"—a place where the gap between a machine and a succulent has been erased.
+
+The floor is a mosaic of damp, dark silt, kept perpetually weeping by condensation that drips from the ceiling’s jagged, newly-formed stalactites. These aren't natural stone; they are calcified copper-wire drippings, sharp and un-eroded, still glistening with a thin, conductive slime. 
+
+There is no soil here, only *residue*. The vegetation is sparse but aggressive: pale, translucent mosses that pulse with a faint, rhythmic bio-electroluminescence, acting as the nervous system for the space. They wrap around rusted gear-teeth that sprout from the walls like fungal shelf-growth. These gears don't turn on their own; they are moved by slow, deliberate biological forces—the contraction of thick, fleshy fibers that bridge the rock faces like muscular cables.
+
+The fauna is unexpectedly abundant. You share this pocket-world with swarms of "tinker-mites"—pale, bioluminescent insects with mandibles shaped like tiny needle-nose pliers. They aren't interested in your skin; they are obsessed with the maintenance of the mechanism. You watch, breathless, as a cluster of them scuttles over a discarded copper circuit board, meticulously cleaning the dust from its traces with their antennae, their movements frantic and precise. 
+
+The sound is a low, rhythmic thrum—not the roar of a factory, but the labored, wet heartbeat of a machine that is also a lung. *Hiss. Click-skitter. Drip.*
+
+There is a sense of desperate, young urgency here. This environment is an "emergency ecosystem," a byproduct of some larger, failed project of industry that has been swallowed by the earth and rebranded by biology. Everything is functioning, yet nothing makes *functional* sense. A bronze piston, long severed from its engine, serves as a nesting chamber for a colony of glowing slugs; their slime, thick and oily, lubricates the rusting cylinder to keep it from seizing.
+
+The heat is a steady, humid warmth, pressing against your skin like a fevered palm. Occasionally, a fine, warm mist drifts down from the ceiling—a byproduct of the chemical reactions happening behind the limestone walls—and coats everything in a layer of silvery dew. 
+
+In this packed, hidden room, the boundary between the *made* and the *grown* has vanished. You are not witnessing a ruin; you are witnessing an adaptation. Everything is working, everything is eating, everything is vibrating in a cramped, electrical harmony. You feel the constant pressure of a thousand tiny, mechanized intent-cycles occurring around you, each one a gear, a spark, or a bite, weaving together to keep this tiny, weird heart beating under the weight of the indifferent, dry plains above.

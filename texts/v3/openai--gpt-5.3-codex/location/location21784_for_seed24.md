@@ -1,0 +1,15 @@
+It sits in a shallow basin, almost perfectly self-contained, as if the land has exhaled and then held its breath for a very long time.
+
+The place is small enough to understand in one slow walk: a bowl of ground perhaps a few hundred paces across, ringed by low, worn rises of stone. Nothing dramatic. No cliffs, no towers, no canyons—just subdued relief, old and settled. The edges have been rounded by ages of dry wind, their profiles softened into patient curves. The floor is mostly hardpan and mineral crust: pale clay, powdery salts, and patches of dark volcanic rock that surface like old bone through skin.
+
+There is almost no water here in any useful sense. No streambeds with promise in them, no damp seams under stone, no standing pools. If moisture arrives at all, it does so as thin vapor in the air, immediately claimed by salts and by the few rooted things that can take it. The soil has a brittle look, broken into shallow polygons and flakes. Step on it and it does not sink—it chips.
+
+Warmth lives in the ground more than in the sky. Even in darkness, the basin feels like a room that has kept heat from an earlier day and refuses to give it up. The air is not hot enough to shimmer, but it is never cool. It brushes the skin dry and close, with none of the softness that humidity brings.
+
+Light is scarce. Not pitch black, but near it: a perpetual late-twilight or moonless-night quality, where edges exist before colors do. The sky above is a heavy dimness, perhaps veiled by high dust or cloud, giving no clean sun and little starlight. In this low light, the basin reads in values of charcoal, rust, and bone. You navigate by silhouette and texture.
+
+Life is present, but reluctantly. Sparse vegetation appears as isolated clumps with large intervals of emptiness between them: low saltbush forms, thorned stems, mats of gray-green succulence close to the ground, and occasional wiry shoots pushing from cracks where a little mineral dust has gathered. Nothing lush, nothing vertical. Plants keep to themselves, each with a private radius of survival. There are no animals—no tracks, no burrows, no droppings, no wingbeats, no insect hum. The ecology is simple enough to sketch: stone, dust, heat, darkness, rooted persistence.
+
+Because nothing hunts and nothing flees, the silence is unusually complete. Sound comes from matter, not life: a faint scrape of grains sliding downslope, a dry rattle when a stem flexes, the tiny ticking pop of mineral crust relaxing. Wind, when it moves, moves lightly and evenly, as if careful not to disturb an old arrangement.
+
+And that is the strongest rule of this place: it is in equilibrium. Not dead, not sterile, just resolved. Erosion has already done its shaping; weather now only maintains. Change exists on scales too long to witness. A stone you place today will look intentionally placed years later, because almost nothing here is eager to move. The basin feels less like an event and more like a condition—warm, dark, spare, and enduring in exactly the form it has chosen.

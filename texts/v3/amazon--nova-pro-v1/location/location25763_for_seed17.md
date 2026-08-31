@@ -1,0 +1,15 @@
+In the vast, waterlogged expanse of Aquaforis, colossal waves surge relentlessly, crashing against jagged, mineral-encrusted peaks that pierce the surface like ancient teeth. The world here is primarily submerged, with water filling every crevice, shaping the terrain into an ever-shifting maze of channels, caverns, and deep trenches. The water, dense with suspended particulates, takes on a thick, syrupy quality, allowing only rays of light to filter through in ghostly beams.
+
+At the heart of Aquaforis, massive industrial complexes dot the landscape, remnants of a civilization that once thrived amidst the aquatic chaos. These structures, half-drowned and covered in barnacles and coral, stand as silent sentinels to a time long past. Rusted machinery churns with a constant, low-pitched hum, a vestige of automated systems that continue to function in a never-ending cycle of purpose.
+
+The cold is palpable, biting through even the thickest insulation. Icicles hang precariously from the mineral cliffs, and frozen waterfalls glisten under the sparse light. The temperature, while not extreme, is enough to remind any visitor that this is a world unfriendly to the unprepared.
+
+Despite the lack of plant life, the environment is not barren. Strange, bioluminescent organisms cling to the industrial ruins and the raw mineral surfaces. These creatures, a mix of fungal and simpler forms, emit a soft, eerie glow, casting an otherworldly light across the submerged ruins. They thrive in the nutrient-rich waters, forming the basis of a unique, post-life ecology.
+
+Fauna abounds, adapting to the harsh conditions. Massive, eel-like creatures with segmented bodies glide through the water, their phosphorescent trails lighting their paths. Predatory fish, with razor-sharp teeth and bioluminescent eyes, stalk their prey with deadly efficiency. Even deeper, in the blackest trenches, giant crustaceans scuttle along the bedrock, their carapaces shimmering with iridescence.
+
+The sound is a ceaseless roar, a cacophony of water crashing against rock, the groan of old metal, and the hum of perpetual machinery. It is a world where silence is a stranger, and the ear must adjust to the constant din. The soundscape is punctuated by the shrieks of aquatic predators and the creak of ancient, submerged structures straining under the weight of centuries.
+
+Despite the dynamic nature of the waters, the landscape itself remains locked in a strange equilibrium. The forces of erosion and deposition cancel each other out, leaving the terrain in a stasis of early formation. Sharp features dominate, with minimal smoothing by time, giving the place a raw, untamed feel.
+
+In Aquaforis, the rules of the world are set by the ceaseless water and the relentless march of industrial decay. It is a place where the past and present collide, creating a landscape that is both hauntingly beautiful and perilously unforgiving.

@@ -1,0 +1,35 @@
+They call it the Empty Ocean, but that’s a lie. There’s nothing empty about a place that sings in seventeen harmonics every time the tide turns.  
+
+I drift through it now—no up, no down—inside a cathedral corridor of fused concrete and salt-stained steel that has never seen the sky. The water is everywhere: pressed into every seam, packed so tight it has become the medium of sound itself. My exhalations leave silver bubbles that rise, wobble, flatten against the ceiling, and are re-absorbed, like the ocean is too polite to let anything escape.  
+
+The temperature is the cool of a forgotten mortuary slab. It saps the heat straight out of thought. When I press my palm to the wall the surface is slick with bio-film: a transparent, almost-plant sheet, one cell thick, that has colonised every synthetic plane. It photosynthesises by starlight—except here there are no stars, only the sodium-orange bloom of sodium-iodide lamps bolted every forty metres. They glow like captive suns inside enormous wire cages so the current won’t tear them away.  
+
+Sparse vegetation: the same film, plus drifting ribbons of kelp-analog that learned to use ferrous oxide instead of magnesium. Green rust. They flutter like damaged flags, trailing filaments that snag on rivet heads and keep the walls stitched together.  
+
+Elevation zero. We are below everything; above us the weight of a planet-sized shell that was poured in one continuous pour a geological heartbeat ago. The architects wanted to trap an ocean between two skins of artificial crust, an internal sea wrapped in manufactured lithosphere. They succeeded. Gravity is negotiable here—less a law than a suggestion. In places it points sideways; in others it reverses for metres at a stretch, so schools of chrome-yellow fish arc through corridors upside-down, unconcerned.  
+
+Erosion is young—raw edges everywhere. The aggregate they used was quarried from lunar basalt and it drinks water greedily, swelling, spalling off blunt glassy shards that litter the tunnels like caltrops. These shards are the only sand we have; currents roll them in slow-motion storms that blast-clean the walls and keep the surfaces bright. It feels as though the place was finished yesterday and is already impatient to become something else.  
+
+Scale is impossible. I have swum for three shifts and the compass in my skull says the corridor still points the same way, yet every kilometre the diameter widens by a factor of root-two, as if the whole ocean were a logarithmic spiral uncoiling through the planet’s manufactured mantle. I pass cargo ports large enough to dock asteroids, dry-dock caverns so wide their opposite walls generate separate weather systems: rains of cold condensation that never reach this side, microscopic cyclones that wander like confused sheep.  
+
+Density is almost nothing. You can go an hour and count on one hand the things that aren’t yourself: one drifting maintenance drone, its hull bored by oxide-kelp; one school of those yellow fish flicking their chrome tails; one distant thrum. Beyond that—water, walls, light cones, absence.  
+
+Built, they said, to last a million years; and so it is total, absolute. Every atom under my borrowed fins is engineered: the wall alloys tuned to flex a few microns with every pressure pulse so fatigue cracks never nucleate; the lamps that dim and brighten in twenty-six-hour cycles to let the bio-film rest; the ceiling grooves cast like vinyl to channel vortices away from the mating flanges. There is no “natural” anywhere—only an original blueprint and whatever has happened since.  
+
+Tech is early-industrial, brutal, scaled to civic. I hear it before I see it: the groan of triple-expansion steam pistons inside a bulkhead, pushing a ram that keeps the corridor oval against the planet’s own squeeze. Every stroke ends in a thunderclap exhalation that blasts bubbles the size of houses down the corridor, bubbles that implode with a whipcrack slap heard three valleys away. That is the loudest of the sounds, but there are others: the sough of kelp on steel, the yap of sonar pingers nailed every hectometre, the ultrasonic squeal of micro-dolphins hunting. They eat rust; their teeth are files.  
+
+Fauna are abundant but monastic in variety. Besides the yellow fish and the filing-dolphins there are glass eels that braid themselves into living ropes and lever open maintenance hatches to steal the warm lubricant; mats of white flatworms that tile the floor like moving porcelain; and—rumour says—one apex thing big enough to gulp whole airlocks, something that began as a maintenance bot and grew a stomach. Life here feeds on electricity, on heat, on iron, on sound. Everything is scarce except water, so the food web is a lattice of efficiencies.  
+
+Dynamic is relentless. Tidal pressure pulses—planet-mass squeezing the outer shell—create interior surges that reverse every nine hours. During the changeover, gravity gradients slip their anchors; doors designed to open outward suddenly open inward; whole districts invert. The chrome fish ride the surge like an elevator, mouths open to strain plankton churn. Spores released at peak flow colonise new corridors; eels tie themselves into stronger cables; the filing-dolphin chorus speeds up two whole tones. Then the back-surge and everything tilts again.  
+
+I have seen zero weather of the ordinary sky kind, but here is weather of a different grammar: pressure fronts that migrate at walking pace, carrying their own micro-climates of temperature and taste; bubble-storms that rain upward; silence-corners where sound is vacuumed into a drain and you can hear your own blood blooming.  
+
+Weirdness is almost nil. It is all logical, all explicable: engineers with too much planet and too much time poured an ocean inside a shell, walked away, left the pumps and the gravity mesh and the kelp to negotiate a future. The wonder is not that it is strange, but that it is so relentlessly sensible.  
+
+I log this on a slate of compressed rust. When my air fouls I swap tanks at the next station; the algae scrubber inside the mouthpiece was grown on the very wallfilm I swam past. The cycle is closed, perfect, austere.  
+
+And yet—tonight the lamps have gone a degree redder, the dolphins sing flatter, the surge arrives three minutes early. Somewhere the million-year blueprint is shearing. Somewhere a fleck of genuine oceanic planet—an unpaid bill of physics—has come due. The corridor widens faster than root-two now; I can taste metal fatigue like copper pennies on the back of my tongue.  
+
+The Empty Ocean is about to remember it is only an ocean after all: immense, patient, able to wait until every rivet sighs open. When that happens the water will not rush out; the sky will not rush in. The water will simply stay, indifferent, vast, and the walls will become silt, and the silt will become hills under kilometres of it, and the chrome-yellow fish will keep turning their effortless circuits, and the filing-dolphins will still file, though on what I cannot guess.  
+
+But until then we swim, we rust, we sing.

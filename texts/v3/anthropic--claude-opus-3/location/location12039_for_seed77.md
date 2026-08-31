@@ -1,0 +1,9 @@
+A vast expanse stretches to the horizon, a patchwork of low, rocky hills and flat, barren plains, all baked under the relentless heat of an oversized sun. Though the scale is planetary, the landscape feels strangely embryonic, raw and unfinished, as if only recently cooled from some primordial crucible.
+
+The ground is a mosaic of igneous rock, basaltic slabs cracked and fissured, interspersed with fields of coarse, dark sand. Pockets of moisture collect in shadowed crevices and depressions, fed by scant rains and heavy dews that quickly evaporate in the searing daytime temperatures. These meager oases support isolated clumps of vegetation — hardy, scrubby plants with succulent leaves and deep, searching roots.  
+
+Across this landscape, strange structures rise at intervals, jutting incongruously from the naked rock. Cyclopean pylons, towering walls, sprawling platforms — an architecture both megalithic and modular, assembled from hexagonal basalt columns and huge, precisely-machined blocks of darker stone. The scale suggests engineering on a planetary scale, but the construction seems curiously haphazard, many edifices half-collapsed or incomplete, like the abandoned projects of some absentee deity.
+
+No animal calls or insect drones disturb the heavy stillness. The only sounds are the low moan of wind over stone, the crack and rumble of settling rocks, and a deep, pulsing hum that seems to emanate from beneath the ground itself, rising at times to a bone-rattling crescendo before subsiding again into inaudibility.  
+
+The light has a thin, attenuated quality, washing the contours of stone in stark contrasts of blinding brightness and inky shadow. Across the immense dome of the sky, clouds boil up and dissipate in accelerated timelapses, and the shadows of vast, translucent forms can occasionally be glimpsed, scudding between the sun and the silent, lifeless earth below.

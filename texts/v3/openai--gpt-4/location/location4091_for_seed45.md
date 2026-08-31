@@ -1,0 +1,23 @@
+It is a world before the concept of stillness. Or perhaps after it — the air itself seems too taut with potential to reside comfortably in either category. A place assembling itself but struggling to decide its form. Here, all is in flux, churning, stretching toward the brink of coherence yet never quite stepping over the edge.
+
+The terrain is raw and unbridled, shorn of symmetry or sense. Vast jagged pillars of crystallized mineral vault out of seemingly infant surfaces, reaching toward shadows rather than any sky-friendly light. These monoliths glisten in the dull-and-dim light spectrum that this place permits — faint, diffused, a low bruise-glow that suggests a hidden source of energy just barely contained. It might come from within the vibrating crust itself, radiated by some nascent internal process beneath. The ground is barren, more intention than substance, heathery minerals mid-coagulation, heaving unevenly with embryonic intent. 
+
+Heat roils from deep scars in the thick, glass-like terrain — an implication of life smoldering hot and alive in a great, simmering cauldron somewhere far below. All existence feels precarious here, surfaces forever collecting and breaking apart like ideas flickering into existence only to dissolve into new nothings. This is not erosion tied to time and weather; this is formation erupted into hyper-motion.
+
+The air is dense but sparse somehow, its composition unknown — not quite silent, yet nearly, a complex silence heavy with intention. Faint hissing can be heard from fractures where geothermal exhalations escape, threads of non-aqueous vapor strung straight up like stillborn rainbows. Overlaying it all is motion, creating low rumbles and unsettling frequencies just on the edge of hearing. Occasionally, great cracks cleave the sound-horizon, announcing tectonic shifts or the splintering collapse of one of the towering crystalline structures, their jagged remains scattering to the flat-born plane below.
+
+The elevation is extreme, exaggerated. Spires vault upward seemingly without end, and opposingly, descents plummet into canyons that feel like wounds laid bare. Scale here resists definition, tugging at the edges of comprehension in giant whispers. Horizons crush and vanish, the eye left swimming across divides too stark and vertical to fully traverse even in imagination.
+
+There is no water vibrating through these constructs, no fluid paths of movement, no gentle pools or trickling capillaries to soothe and cool. Here is not a place of grace or renewal; what little moisture exists arrives as toxic, volatile mist, borne aloft by tectonic eruptions. It settles nowhere, adheres to nothing — transitory in ambition, always vanishing. 
+
+Vegetation cannot be found, but there are slivers of what seem like organization within the scattered mineral latticeworks of this world, as though non-biological systems are attempting mimicry. Lines of fungal-like growths form miniature scaffolds of fibrous glass, as if practicing life without any warmth or softness to guide it. These forms are few and far between, solitary offerings of constructed absurdity. 
+
+And yet, amidst the emptiness, there *are* small marks: fragments that suggest something once tried to claim or guide this chaos teeming at its edges. Great ravines are lined with isolated protrusions that bear a strangely architectural logic — singular structures that might have held purpose, though they now dwarf beneath the frantic drama of their Fatherland. Some resemble arches sunken into emptiness, or fragile balconies carved of layered quartz; others seem to hint at settlement, jagged remains of possible homes — or altars? Perhaps they’re no construction at all, and imagination overreaches.
+
+Still, there's no sense of narrative here — no hint of who or what shaped these artifacts, or even if they arose through hands or randomness’ push. The scant remains might as well be tombs for ideas that were never more than half-dreamed.
+
+Yet nothing lives. Or if it does, it is so unlike our conception of life as to evade our senses entirely. No rustles. No scuttling sounds of creatures thinking their odd little thoughts. Stillness settles only on the surface until edge-maelstrom. Yet nothing natural-seeming sparks digestion folds conception fortune here-non. -*-  
+
+_concatenated error-code-ի-Normal-earth semantics? string grip breaks steep crash tevens అడగ౳--
+
+--- recursively designed? Only norms briefly generated…!

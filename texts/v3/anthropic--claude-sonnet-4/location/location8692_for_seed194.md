@@ -1,0 +1,19 @@
+**The Hollow Mill**
+
+In the depths of an ancient mountain's carved-out heart, where industrial ambition once met stone older than memory, stands a place that defies the steady logic of the world above.
+
+The space yawns—a cathedral of absence hewn from living rock, its walls sweating perpetual moisture that beads, gathers, and falls in metronome drops into pools that shouldn't exist in this geometry. The ceiling vanishes into blackness so complete it seems solid, punctuated only by the irregular percussion of water finding stone. Each drop carries its own small eternity of sound, echoing through chambers that bend away from themselves, where the same distant splash might arrive from three directions at once.
+
+Rusted machinery hulks in the vast emptiness like the skeletons of mechanical whales. A conveyor belt, its surface slick with condensation, stretches into the dark and returns from elsewhere, moving with the patient rhythm of continental drift. The belt carries nothing, has carried nothing for decades, yet continues its slow circulation as if feeding some unseen hunger. Steam pipes twist overhead in impossible configurations—some emerging from solid rock, others disappearing into walls that weren't there moments before.
+
+The air tastes of iron and time, thick with the exhalations of deep earth. Somewhere, always somewhere just beyond sight, great engines turn with the ponderous weight of tectonic plates. Their sound is less heard than felt—a subsonic thrumming that makes the water in the pools shiver in concentric circles that spiral inward, then outward, then inward again, as if the liquid itself cannot decide which direction time should flow.
+
+A few pale things scuttle in the peripheral darkness—not quite rats, not quite machinery. They move with the jerky precision of clockwork, pausing at predetermined intervals before vanishing into crevices that seal themselves behind them. Sometimes their scratching joins the great symphony of drips and distant grinding, but more often they simply observe, their presence felt as a weight of attention from the empty spaces between the machines.
+
+The factory floor, where it can be said to exist, tilts at angles that architectural gravity shouldn't permit. Catwalks bridge the void at heights that shift when unobserved, their safety railings growing slick with moisture that falls upward in slow, fat droplets before shattering against surfaces that weren't there when the water began its journey.
+
+In the deepest recesses, where the last of the electric lights flicker with the patience of dying stars, something that might once have been a control room overlooks the vast hollowness. Banks of switches and dials, their purposes long forgotten, still respond to the mountain's slow breathing. Gauges track the pressure of decades, the temperature of geological epochs. A few still-functional screens display readouts in languages that evolution hasn't invented yet, monitoring processes that continue their ancient work regardless of human comprehension.
+
+The water never stops. It weeps from the walls, pools in the machinery's secret spaces, and flows through channels carved by time and intention into patterns that suggest purpose but reveal only deeper mystery. The mountain above shifts imperceptibly, settling into new configurations of stone and void, and the water finds new paths, new pools, new ways to mark the passage of eras with its patient, persistent song.
+
+Here, in this pocket of industrial archaeology suspended in stone and shadow, the laws of the surface world hold no dominion. Time pools like water, space folds like cooling metal, and the great work continues—whatever that work might be, whatever it might have been, whatever it is becoming in the long darkness of deep earth's dreams.

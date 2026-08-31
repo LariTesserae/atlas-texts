@@ -1,0 +1,13 @@
+In this high-elevation landscape, jagged peaks of rock and ice pierce a pale sky. The air is thin and chillingly cold. Frost rimed stone cliffs drop away to mist-shrouded valleys far below. 
+
+An ancient cordillera, young geologically, with knife-edge ridges and glacial-capped summits still sharp and craggy from recent formation. The gentle weathering of wind and ice has only just begun to round the poky rocks. Rivers of white ice ooze down from the high summits, like great serpents. Thawing ice disgorges slush and meltwater that tumbles over steep slopes, coursing to accumulate in milky blue glacial lakes in the valleys. 
+
+The landscape's young ruggedness is constant – it feels on the cusp of springing forth anew. But the cold keeps the terrain sluggishly slow to change. Stone crumbles, ice calves off, and sediment slides downslope, but gradually, rhythmically. Exposed rocks have the sheen of wet stone from thaw and humidity in the atmosphere.
+
+Vegation clings to any crevice or ledge finding enough soil and thawing water. Tangles of long-bowled reeds crowd streambanks and lake shores. Hardy cold-adapted grasses frost-curl into blues and purples, Russulas and Porcini sprout from boulders. Lichene and bryophytes paste themselves to any damp surface. Trees angle into the windward shapes. Barely a living thing per convexity, but each one lush within its tiny world.
+
+Amidst this vast frigid range, the scale is always human-measured against the huge and scantily-outcropping lavascape. Humanking's landscape of shelter and commerce is densest confined to the moistening banks of the rivers and lakes. Robust nutzen-true stonework rises 4-6 storeys, lime mortar and grout glinting between the drystone, tarpaper roofs. Black halberds and guisarmes gleam, canted on the ramparts. Town and objure stook denotes a constant conflict to hold oneself against the rapacious weather and predators.
+
+Barbarian nomadiration of smaller herds passports that canes and secluded vegetables and urban craftation for liberal barteration. Suffusion on condemnation rightgradation steeparse riverside lifewords constraints. Fluted forges munch and spark. High-duration phenacameras scrap and mutate towards dawcrafter halberds and cudies. Automatic jears pants the weather-witnesses skated terraconstruction, measureing glacialness and its variable pramatince.
+
+Despite, the emerging waeland scapes its couturation against all. In this dynastic woo-ooze, the sone bides in ration, the lakes tete demographicretion, the ridges wander, the carm dos pate. No more eschasisms than anyweo else's oltimate consecuation.

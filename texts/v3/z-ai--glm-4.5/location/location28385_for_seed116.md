@@ -1,0 +1,30 @@
+The world here is not a horizon, but a column.
+
+It is a vertical cylinder, a solitary suspension of warm, dense water enclosed within walls of ribbed, perforated metal. This is the "Hydraulic Stomach" of an architecture too vast to comprehend, a single intake valve in a machine the size of a planet. The scale is intimate only in comparison to the structure that houses it; to the observer swimming inside, it is a bottomless, topless cathedral of liquid.
+
+**The Water and the Warmth**
+The water is heavy, a viscous saline solution that feels more like amniotic fluid than ocean. It is uniformly warm (2.0/3), holding the heat of ancient engines bleeding through the outer hull. This warmth creates a thick, tangible haze—a suspended fog of particulate matter and micro-organisms that glows under the industrial lights filtering down from above. There is no thermocline, no cold shock, just a suffocating, tropical embrace that extends infinitely in both directions. The pressure changes with depth, but the warmth remains constant, a stew of life incubating in a metal canister.
+
+**The Terrain: Built and Eroded**
+There is no stone here, no continental shelf. The "terrain" is entirely constructed (2.7/3), a sheer shaft of riveted iron and ceramcrete. Yet, time has performed a miracle of geology. The erosion (2.8/3) is so advanced, so ancient, that the artificial has become indistinguishable from the natural. Centuries of constant water pressure and chemical leakage have smoothed the sharp angles of the rivets into rounded bumps. Rust has sloughed off in great sheets, piling up on the narrow catwalks that spiral the inner wall to create a sediment of red-orange dust. The metal walls are no longer grey; they are crusted with a hard, calcified patina, a coral-like armor grown directly from the industry. It looks like a cliff face, but if you scratch it, your nail hits steel.
+
+**Extreme Elevation in a Small Space**
+The elevation (2.9/3) is dizzying. The shaft is impossibly tall, a straight shot falling away into darkness below and rising toward a distant, piercing circle of fluorescence above. Swimming upward feels like a pilgrimage to the surface of a alien sun; swimming downward is a descent into the bowels of the earth. Despite this extreme verticality, the environment is a hidden pocket (0.2/3)—a singular, self-contained room. It is a micro-ocean, a jar of preserved life on a shelf in a factory that has long since ceased its production.
+
+**Vegetation: The Lush Sparsity**
+The vegetation (2.2/3) is aggressively lush, yet paradoxically sparse in distribution (0.8/3). The plants do not form a continuous forest; instead, they claim territory in massive, solitary colonies. Imagine a single, gargantuan fern-like organism anchoring itself to a rusted girder fifty feet up, its fronds trailing down like a weeping willow made of green kelp and copper wire. Between these colossi, the water is empty, clear save for the drifting haze. You swim through vast, open cathedral naves of water, punctuated suddenly by a wall of tangled, bio-luminescent moss that vibrates with the current. It is a garden designed by a minimalist with a heavy hand—few features, but each one is overwhelming in its vitality.
+
+**Ecology and Fauna**
+Life is abundant (1.7/3), darting through the gaps in the green. The fauna has adapted to the industrial substrate. Schools of small, silver fish hang in the water like suspended mercury; they have flat, hammer-like heads designed to pry into the cracks between metal plates to feed on the algae growing there. Larger creatures—slow, turtle-like beasts with shells made of discarded rubber and plastic—glide ponderously along the catwalks, grazing on the calcified rust.
+
+The interactions are active (2.1/3). There is a rhythm here: a sudden scattering of fish as a shadow moves, the slow churn of a water-activated turbine midway up the shaft creating a vortex that pulls the floating fronds into a spiral dance. It is a predator-prey ecosystem, but one that is contained, looping endlessly in the vertical dark.
+
+**Industry and Sound**
+The defining feature of this place is the noise (2.1/3). It is loud, a constant, industrial symphony. The groaning of the massive outer hull as it shifts under its own weight sounds like the singing of a whale. Water gushes through hidden intake pipes with a roar that vibrates in your chest cavity. Metallic pings and echoes ring out constantly—the sound of loose rivets falling miles down to strike the lower decks. It is the sound of a living machine, a factory breathing in its sleep.
+
+The technology (1.9/3) is evident in the lighting. Long strips of incandescent bulbs run vertically along the walls, spaced far apart. They flicker with a normal, steady light (1.6/3), but the water distorts the beams, casting shifting, lattice-like shadows across the vegetation. In places, the lights have failed, leaving pockets of absolute blackness where the weirdness (1.8/3) breeds—glows-in-the-dark fungi that cling to the cables, pulsing in time with the hum of the machinery.
+
+**The Atmosphere**
+To be here is to be inside a lung. You are suspended in the amniotic fluid of a dead god. The air, if you could reach the distant surface miles above, would be toxic, but here in the warm, wet dark, there is a strange peace. It is a place of recycling and decay, where the refuse of industry has been colonized by the relentless force of biology. The extreme walls that tower above and below do not feel claustrophobic; rather, they feel protective. This is a bunker of life, a hidden pocket where the world has been boiled down to its essentials: water, light, metal, and the hunger to grow.
+
+You float in the warm current, listening to the metal groan, watching the silver fish dart between the rusted ribs of a giant turbine that has not turned in a thousand years. It is a room, a tank, a world—small enough to be forgotten, large enough to get lost in forever.

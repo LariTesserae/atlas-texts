@@ -1,0 +1,23 @@
+To find this place, you must look down. It exists in the negative space of a vast, barren plain, concealed within a sunken, steep-walled fracture no larger than a wide amphitheater. It is a pocket world, a deep bowl carved into the bedrock, shaded by the lip of the earth above but still entirely flooded by normal, unclouded daylight that drops straight down like a physical weight.
+
+The first thing that hits you is the sound. It is a deafening, continuous roar—a dry, abrasive cacophony like a hundred gravel crushers working in unison, layered over the frantic, high-pitch hiss of a million snapping wires. Before you even see the floor of the bowl, the vibration travels up the smoothed rock walls and buzzes in your teeth. 
+
+The air is distinctly cool, carrying a biting chill, but it is entirely devoid of moisture. There is no water here, and there never has been. The atmosphere smells of spent ozone, crushed flint, and raw, sanded iron. 
+
+When you look over the lip of the depression, the floor below appears at first to be a boiling liquid. It is not. It is life.
+
+The density of fauna in this enclosed basin is visually staggering. A sweeping, tessellated tide of armor-plated organisms blankets the ground, layering themselves three or four deep. They are articulated creatures, roughly the size of a human fist, resembling a cross between a horseshoe crab and a heavy-duty relay switch. Their carapaces are muted brass and dull iron-gray, polished to a mirror shine by endless friction against one another. There rests not a single blade of grass, no fungal bloom, no soft biological matter at all. This is an ecosystem of silica, copper, and chitin, driven by non-aqueous chemistry and a frantic, unending biological engine.
+
+They move in roaring, chaotic currents. The ground they scramble over is an ancient, pulverized dust, worn down over unimaginable eons to a powder so fine it behaves like a dry fluid. When a wave of the creatures banks sharply, the dust splashes. The erosion here is in its final, most absolute stage. The rock walls are scooped and smoothed into glass-like perfection, entirely shaped by millions of years of abrasive winds and the endless, scratching tide of the swarm's tungsten-hard claws.
+
+Protruding from the living, churning carpet are the scattered remnants of deep-time industry. Half-buried in the dust are immense, heavily worn cylinders, the stumps of thick pneumatic pipes, and heavily corroded flywheels. Though their original sharp edges have been filed down to smooth, organic-looking mounds by time and the scraping fauna, they are not dead. 
+
+Every few seconds, a massive, eroded iron piston heaves upward from the dust, trembling with a mechanized *thunk-whine*, before slamming back down into a recessed slot. Nearby, a buried engine block hums with a low, vibrating electrified pulse, shaking the dust into geometric cymatic patterns. These artifacts are scattered and few, but they anchor the entire ecology of the bowl. 
+
+The space is locked in a hyper-active, violent equilibrium. The creatures are drawn to the industrial remnants. They swarm the base of a thumping pneumatic ram, piling over one another in a frantic frenzy. When the ram descends, it crushes hundreds of the creatures into a shower of bright metallic sparks and dry, crystalline dust. But this is not an accident—it is a localized life-cycle. 
+
+The shattered remnants behind the ram are immediately cannibalized by the surrounding swarm. The creatures use the ancient machinery to crack open older, hardened members of their horde who have grown too heavily armored to molt, recycling the dense mineral wealth of their bodies. They feast on the pulverized metallic dust, filtering it through grinding mandibles, and absorb the raw static electricity bleeding from the ancient engine blocks to charge their dry, silicon-based internal systems.
+
+As the creatures feed, mate, and die in their millions, their ceaseless movement kicks up a fine, shimmering haze of metallic grit into the cool air. The bright, steady sunlight catches the particulate cloud, casting a glitter over the writhing brass-colored sea. 
+
+There is a terrifying intimacy to the space. You could throw a stone across the width of this hidden basin, yet it contains a density of action that rivals an entire continent. Predator and prey are the same species; life and industrial demolition mirror each other perfectly. The ancient pistons grind, the cool wind circles the lip of the bowl, and the deafening, clattering roar of billions of legs goes on chewing through the dust, settled into perfect, mechanized eternity.

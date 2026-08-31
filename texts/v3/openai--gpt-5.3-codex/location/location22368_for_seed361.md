@@ -1,0 +1,23 @@
+You find it by accident because it is smaller than weather.
+
+Up on a high, old shoulder of mountain—where whole ranges have already worn themselves into broad-backed stone—there is a fold in the rock no wider than a village square. From above it looks like a crack darkened by moss. Step into it, and the temperature lifts around you as if you crossed an invisible curtain. Warm air sits in the hollow, held by stone polished over eras into smooth concavity, a basin that remembers water even when it is dry.
+
+Nothing here is dramatic in shape. That is the age showing. The cliffs are not jagged; they are rounded, thinned, patient. Every edge has been negotiated by time. Channels run down them like old handwriting, carved by rains that no longer fall in torrents, only in regular, brief bursts. Moisture beads on shaded faces at dawn and dusk, collecting in shallow cups, root-knots, and ceramic-looking mineral blisters. There are no streams, only intervals of water: puddles, drips, condensate curtains under ledges, sudden rain that arrives in hot sheets and is gone in minutes.
+
+Because of that rhythm, the vegetation grows in islands, each island luxuriant. Ferns the color of oxidized copper spill from wet seams. Thick-leafed climbing plants make ladders between boulders. Small trees with braided trunks grow wherever three conditions coincide—shade, a depression for moisture, and one of the old devices still breathing under the soil. Between these green clusters: exposed stone, warm gravel, open ground. Lushness and emptiness alternate every few steps. You are never in a forest, but never entirely out of one either.
+
+The devices are easy to miss until you learn the geometry. A ring half-buried in lichen that remains always cool. A column of matte black material, no higher than your hip, with no seam and no weathering despite impossible age. Thin filaments inside cracks that glint at noon and vanish at any other angle. They are ruins only in the sense that nobody built them recently. They still function. They condense water from passing air. They release nutrients in pulses. They shift local gravity by fractions too small to feel directly but large enough to guide falling seeds, spores, and eggs toward safe hollows. This little basin is not natural-versus-artificial; it is an old treaty between erosion and engineering so advanced it has become geology.
+
+The fauna makes that obvious before your eyes do. The place is loud in layers: wingbeats like rain on canvas, chirring from rock vents, clicking colonies inside bark tubes, amphibians barking from puddles that did not exist an hour ago, and above it all, the rotating call of six-throated gliders circling the thermal over the basin. There are too many bodies for the size of the place, but not too many at once in one spot. The ecosystem runs on rapid attendance. Things arrive, feed, breed, and depart along precise schedules tied to humidity pulses and device cycles. At noon the cavity can seem almost empty; ten minutes into a rainburst it becomes a moving tapestry.
+
+Some animals are only strange until you watch long enough. Ribbon lizards spread translucent side-fins to drink condensation directly from fog. Beetles with mirrored carapaces angle themselves to flash coded light at pollinators. Nesting birds line their cups with conductive fibers harvested from old tech filaments, incubating eggs with tiny stolen heat gradients. A dominant predator—cat-sized, jointed like an arthropod but furred like a mammal—hunts by detecting the electromagnetic jitter of nervous systems. Prey species counter by freezing in synchronized stillness, entire patches of life falling silent in an instant, then erupting again when danger passes.
+
+The rules of the world here are local and strict:
+
+- Water appears in pulses, not in permanence.
+- Shade is currency.
+- Anything that hums is either dangerous or essential.
+- Bare rock is not dead ground; it is future ground waiting for the next moisture event.
+- Life does not spread evenly—it queues, surges, empties, and returns.
+
+In ordinary daylight, nothing glows unnaturally, no permanent neon, no theatrical sky. That makes the strangeness stronger. You can see clearly. You can name things. Yet every hour the basin rearranges itself through motion—animals cycling through, leaves turning to trap vapor, hidden machines tuning invisible fields. It feels less like standing in a landscape than standing inside a very old instrument, still playing, quietly indifferent to whether anyone is there to hear it.

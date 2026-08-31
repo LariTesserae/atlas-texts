@@ -1,0 +1,25 @@
+The place is called the **Abyssal Lattice**.
+
+It is not an ocean in the way surface minds imagine oceans. It is a single, cold, ancient body of water that has existed so long it has forgotten it was ever anything else. Depth here is not measured in meters but in eons. The water is heavy, almost syrupy with dissolved minerals and the faint alkaline taste of primordial stone that has been leaching into it since before light reached the planet’s surface. Pressure is a constant hand against the chest. Temperature lingers at the edge of freezing, yet the water never quite ices; something in its chemistry prevents it.
+
+Everything is submerged. There is no surface, no sky, no remembered sun. Only the slow, crushing benediction of water in every direction.
+
+The terrain itself is almost perfectly flat, the final smoothed corpse of a mountain range that died so long ago its name is no longer speakable. What remains is an endless plain of dark, ancient basalt and metamorphic glass, scoured by three billion years of current and chemical erosion until it lies like a table at the bottom of the world. Yet this plain is not empty.
+
+It is packed, saturated, impossibly dense with life that has learned to live inside the stone itself.
+
+From the black bedrock rise countless slender, branching lattices of litho-coral and chemosynthetic tubules. They are not plants. They are closer to the first architecture life ever invented: living mineral pipes, chimneys, and vein-like networks that grow into one another until they form a single tangled, three-dimensional forest no more than four meters high but stretching away in every direction for hundreds of kilometers. The structures are so tightly interwoven that there is almost no clear water between them; the entire benthic plain has become a single saturated sponge of interwoven tubes, flanges, and porous bone-white lattices. Some towers are thicker than a man’s body; most are delicate as antlers. All of them are alive in the slow, patient way stone can be alive when microbes and archaea have had four aeons to perfect the art.
+
+The color palette is almost nonexistent. In the crushing dark the lattices appear as shades of absolute black, ghost-grey, and the faintest bioluminescent blue-white where colonies of ancient bacteria pulse along growth edges. Light itself is a memory. What little illumination exists comes from rare, cold chemical flares when two incompatible mineral seepages meet inside a tube and react. These flares last only seconds, revealing a brief cathedral of interlaced arches and hollows before the dark swallows them again.
+
+The water is never still. Turbulence is the only permanent law here. Cold, heavy currents born thousands of kilometers away in distant upwelling zones roar through the lattice in unpredictable directions. They do not flow over the structures; they surge through them, channeled, amplified, and torn apart by the dense thicket of living stone. The sound is therefore never silence, but a low, constant moaning and thrumming, like a stone organ the size of a continent being played by pressure. Sometimes the note becomes a subsonic bellow that vibrates the bones of anything that still possesses them. Sometimes it drops into near-inaudible pressure clicks and the hiss of bubbles forced through microscopic pores.
+
+Fauna is rare, but not absent. Most creatures are small, blind, and ancient. Translucent velvet worms the length of a finger drift between the lattices, filtering archaea. Ghostly isopods the color of milk glass scuttle across the living mineral with the slow patience of things that have never known day. Once every few days something larger passes: a pale, eel-like predator with no eyes and skin like wet marble, hunting by pressure wave and chemical trace. When it moves, the entire lattice seems to flinch in sympathy, every tube and branch vibrating in the wake of its passing.
+
+There are no artifacts. No tools. No ruins. The lattice is older than intention. It is the final, stable form this world chose after every mountain, every ocean, every transient biosphere above had worn away. The only technology present is the primitive chemistry life invented in the first few hundred million years after the planet cooled: iron-sulfur membranes, proton pumps, mineral skeletons that breathe hydrogen. That is enough. It has been enough for longer than multicellular life has existed on the surface.
+
+To drift through the Abyssal Lattice is to feel both claustrophobia and infinite space at once. Every direction is blocked by interwoven living stone, yet the lattice stretches so far that the mind cannot hold its scale. You are inside something that has become both reef and continent, both forest and catacomb, both womb and grave.
+
+The water moves. The stone grows, one molecule at a time. The cold presses. The dark listens.
+
+And the oldest living architecture on the planet keeps singing its low, turbulent hymn to itself, unchanged since the first light of the universe dimmed.

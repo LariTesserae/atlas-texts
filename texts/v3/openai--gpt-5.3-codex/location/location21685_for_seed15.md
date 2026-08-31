@@ -1,0 +1,23 @@
+You find it by stepping down through a hatch in the floor of a dry building, then descending a stair that smells of wet clay and sun-heated rope. The stair ends abruptly at waterline. Below that line, the world is all masonry and water.
+
+It is a cistern-city reduced to one room: a hidden basin, not large in map terms, but complete in itself. Every surface has been made by hands. The floor is paved in fitted stone slabs; the walls are straight and jointed; even the pillars are stacked from drum-cut blocks and sealed with lime. There is no exposed earth, no roots breaking through, no cave roughness. You can run your palm along a wall and feel tool marks still crisp in places, as if this place was finished recently and has only just begun to age.
+
+Most of the room is submerged. Warm water fills it almost to the ceiling, leaving only a narrow breathing gallery around the upper rim where workers can move. The basin below is clear enough near the top to show descending steps and ledges, then deepens into a bright blue-green blur. Light reaches farther than you expect. Above, narrow roof slits and mirrored boards angle daylight down in hard shafts, and white plaster throws it back. Underwater, everything is luminous: stone edges glow, suspended grit flashes, rope shadows sway across submerged stairs.
+
+The loudness is immediate and constant. Water enters from three clay-mouthed chutes set high on one wall, each chute fed from rain catchments above ground. The inflow falls in thick, uninterrupted ropes, striking the surface with a pounding hiss. On the opposite wall, sluice gates of timber and bronze pegs release water in pulses, each opening producing a deep gulp and then a rushing draw. Every sound multiplies in the chamber. Splash becomes thunder. A dropped tool rings three times. Voices are short because long speech gets shredded by echo and runoff.
+
+Nothing swims here. No fish, no insects skimming, no frogs finding a corner. The water is too managed, too regularly shifted. Yet life is present in thin, deliberate patches. In joints between upper stones, mats of pale green moss cling where spray keeps them wet. On two floating reed frames, someone has tied bundles of watercress and a few broad-leafed marsh plants; they drift slowly on tether cords, leaves bright and clean. At one end of the gallery, shallow troughs hold mud imported from elsewhere, and in that mud stand sparse rows of young rushes. They are not wild growth but maintained growth—food, fiber, filter. A garden reduced to function.
+
+Because the place is warm, every wet surface smells active: mineral, lime, damp straw, a faint sweetness from the plants. The air sits heavy but moving. Heat does not come from fire; it comes from water that has traveled over sunlit roofs and through dark channels all day. Condensation beads on beams and drips back, adding its own light percussion to the larger noise.
+
+The basin is busy even when empty of people. Water level rises and falls by the hour. Floating markers slide up and down carved measure lines. Sediment settles on lower steps, then is stirred and drawn out when gates are opened. New erosion has started where flow is strongest: sharp channels cut into plaster lips, clean-edged scallops in still-young mortar, corners beginning to round but not yet softened. It is the first chapter of weathering, readable in a single glance.
+
+The technology is straightforward and tactile. No hidden pumps, no valves you cannot understand. Levers, wedges, counterweights of stone, braided-fiber gaskets, clay pipes, wooden racks for lifting gate boards. A person with a hammer, knife, and patience can repair almost everything here. That simplicity gives the room a rule-bound clarity:
+
+- Water must always be moving somewhere.
+- Every inflow has a matching outflow.
+- Surfaces are kept smooth where hands and feet work, rough where grip is needed.
+- Plants are permitted only where they serve filtration or binding.
+- Anything that decays is removed before it clouds the basin.
+
+So the place feels less like ruin and more like an organ—wet, bright, loud, and purposeful—hidden under ordinary ground. Above, people walk streets and courtyards unaware that just below their soles a warm artificial sea is being directed by rope, stone, and habit. The chamber is intimate enough to know by memory, yet complete enough to feel like a world: a made under-land where water is the weather, the terrain, and the work.

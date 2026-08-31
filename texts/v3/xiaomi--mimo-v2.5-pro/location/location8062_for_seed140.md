@@ -1,0 +1,71 @@
+# The Hollow of Aran
+
+---
+
+You cannot see the walls at first. That is the first and most total fact of the place: there is no light. Not dim light, not the gray suggestion of a cloudy day — there is *nothing*. The darkness has weight here. It presses against the eyes the way deep water presses against the chest. Your pupils do their work and find nothing to gather.
+
+But you can *feel* the walls, once you've stood still long enough. A faint pressure of reflected sound. A change in the way the air moves. You are inside something.
+
+## The Shape
+
+The Hollow of Aran is a natural depression in an ancient highland — a collapsed volcanic structure, perhaps, though its origins are so far past that even the geologists who eventually study such things disagree on whether it was ever volcanic at all. The enclosing walls have eroded across timescales that strain language. They are rounded now, gentle, slumped like the shoulders of something that fell asleep standing up and has not moved in a hundred million years. The rim still rises high enough — and the elevation of the plateau is sufficient — that the interior floor sits permanently below the cloud ceiling. The clouds here are not weather. They are *place*. They are the sky of the Hollow, and they do not break.
+
+The floor of the Hollow is perhaps three hundred meters across. Cathedral-scale. A grove wrapped in stone. You could walk its breadth in fifteen minutes if the footing were kind, but the footing is not kind.
+
+## The Water
+
+The rock weeps. That is the word for it, and no other word will do. Seeps emerge from the eroded basalt — or whatever the substrate is; it is mineral-dark, dense, and older than it has any right to be — not as streams or springs but as a general *exhalation* of moisture. The entire floor is saturated. Water stands in shallow pools that have no clear boundary between them, connected by capillary networks in the soil, by thin sheets that slide over stone so gradually they register more as texture than flow. The air itself is wet. Condensation beads on every surface — every leaf, every stone, every exposed structure that remains. You feel it on your face, on your hands. It is warm condensation, almost body-temperature, and it does not evaporate. It simply accumulates until it falls.
+
+The sound of water is everywhere and nowhere specific. Dripping, yes — from a thousand surfaces, each droplet finding its way down from moss-tip to pool to soaking earth — but also a low, continuous *seeping* sound that is less heard than felt in the sternum. The acoustic profile of the Hollow is strange. The eroded walls are gently concave, and the vegetation dampens some frequencies while the bare stone amplifies others. Small sounds become large. A single drop striking a pool at the far end of the Hollow arrives at your position with startling clarity, as though it fell beside your ear.
+
+## The Vegetation
+
+Everything grows. The darkness would seem to prohibit this, but here the definition of "light" has broadened without anyone's permission. The substrate itself emits a faint warmth — not radiation in the visible spectrum, but thermal energy that certain ancient lineages of plants have, over deep time, learned to harvest through means that do not require photosynthesis as surface-worlders understand it. The chemistry is slower. The growth is slower. But it is *relentless*.
+
+The floor of the Hollow is carpeted in mosses so thick they compress underfoot like saturated sponge. They vary in texture — some silky, some rough, some with a strange crystalline quality that catches the fingertip — but all of them are wet, and all of them are growing upward, reaching for a light that never comes. Above the mosses, ferns. Not tree-ferns, nothing so dramatic, but dense stands of ferns and fern-allies that reach knee-height or waist-height, their fronds broad and fleshy, adapted to gather thermal energy across maximum surface area. They are dark — not green so much as a deep, near-black green, almost indistinguishable from the surrounding darkness until you touch them and feel the living texture, the waxy cuticle, the faint pulse of moisture moving through the stalk.
+
+Higher still, scattered through the Hollow with the deliberateness of old forest, there are shrubs. Some are woody. Some are not woody in any way you recognize — their structural tissue is mineralized, incorporating silica from the ancient rock, giving their stems a glassy, brittle quality. They grow in slow spirals. They do not flower. They reproduce through fragmentation, through underground runners, through patience.
+
+Fungi are abundant — shelf fungi on the few dead woody stems, mycorrhizal networks threading the soil in a density that the sparse above-ground vegetation only hints at. The fungi are pale. In the absolute darkness they are the lightest things present — cream, bone-white, the faintest blush of yellow on certain gilled species that cluster at the bases of the mineralized shrubs. They are the closest thing to brightness in the Hollow.
+
+## The Fauna
+
+The Hollow is full of animals. This seems impossible in the dark, at altitude, in a place with no visible food chain in the traditional sense — but the mosses feed the invertebrates, and the invertebrates feed everything else, and the whole system runs on the slow thermal chemistry of the rock and the patient architecture of fungal networks that span the entire basin.
+
+Insects first: they are the dominant sound. A low, pervasive hum that rises and falls in cycles too slow to be called rhythm, driven by subtle shifts in humidity and temperature within the Hollow. There are beetles — many species, ranging from tiny soil-dwelling forms to heavy-bodied click-beetles that navigate by the faint thermal gradients of the stone. Moths, though they have nothing to pollinate; they feed on the condensation, on fungal fruit, on the mineral-rich seep-water. Their wings make a soft, papery sound when they move in numbers, which is often.
+
+Amphibians. The Hollow is ideal for them, and they have found it. Small frogs — none larger than a thumb — occupy every pool, every moss-saturated crevice. They call. This is the source of much of the Hollow's volume. In the resonant chamber of the eroded walls, their chorus builds into something almost orchestral — a layered, cycling, overlapping wash of high-pitched trills and low, throbbing pulses that comes from every direction at once and settles into the bones. When the chorus peaks, the sound is genuinely loud, almost physical, a living wall of noise that seems to have mass. Then it recedes — not to silence, never to silence, but to a lower register, a murmuring — and the dripping reasserts itself, and the insect hum threads back through.
+
+There are other things. You hear the scuttling of something larger than an insect across wet stone — a cave-adapted centipede, perhaps, or a predatory arthropod that has no surface-world name. You hear the faint, arrhythmic flapping of a bat or bat-analog navigating the interior, using sonar that produces clicks just at the edge of your hearing, a staccato punctuation against the amphibian drone. In the deeper pools there are fish — or things shaped like fish — blind, pale, slow-moving, feeding on the invertebrate rain that drifts down from the moss layer above.
+
+You do not see any of this. You hear it, smell it (the Hollow smells of wet stone and decomposition and a faint mineral tang, like old copper), feel it when something brushes your ankle in the dark. The fauna is abundant but invisible, and the darkness levels all things. A beetle landing on your hand carries the same informational weight as a fox would at noon.
+
+## The Structures
+
+They are almost gone.
+
+Scattered through the Hollow — on the floor, embedded in the lower walls, half-buried in the saturated soil — there are fragments of something built. Not by human hands, not by any hands you recognize, but *built*. The evidence is in the materials. Where the natural basalt is porous, vesicular, rough with age, these fragments are smooth. Not polished — they have been here far too long for polish — but *smooth* in a way that suggests the grain of the material itself is different from anything geology produces. They are dark, like everything in the Hollow, and they are warm. Warmer than the surrounding stone, though not by much — a degree, perhaps two. They hold heat differently.
+
+Most fragments are small. A curved edge protruding from moss, no larger than a dinner plate, its surface inscribed with patterns too regular to be natural but too weathered to read. A flat expanse of flooring, perhaps two meters square, now tilted at a shallow angle and serving as the bed of a rivulet — the water slides across it with a sound distinct from water over stone, a cleaner, thinner sound, as though the material does not absorb vibration at all. Deeper in the soil, detected only by the way the ground sounds when you press your heel into it — a hollowness, a resonance — there is more. Larger pieces. Structural members, perhaps, or the bones of something that once had form.
+
+One fragment is taller than the rest. In the southern quarter of the Hollow, a vertical surface rises from the moss and ferns to a height of perhaps two meters. It is curved — part of a cylinder, or a dome, or something without a simple geometric name. Its surface has resisted erosion better than the other pieces, and if you were to touch it (and you would, being blind and curious and unable to help yourself), you would feel a faint vibration. Not mechanical. Not electrical. Something the material does on its own, or something it remembers, or something it still *is*, even now, even after all this time.
+
+The structures are not weird. That is important. They are not eerie or uncanny. They are *old*. They are settled. They have become part of the Hollow the way a boulder becomes part of a field — present, acknowledged, unremarkable. The frogs call from their surfaces. The moss grows over them without preference. The water condenses on them and drips to the ground the same as it drips from everything else. They are artifacts of a technology that current physics cannot fully describe, and they are *tired*. They have been here so long that their strangeness has been absorbed by the sheer accumulated weight of the ordinary. A geologist would see them and know they were made and not know what to do with that knowledge. A child would walk past them without a second glance.
+
+## The Darkness
+
+It must be said again, because it shapes everything: the darkness is complete. Not partial, not metaphorical, not a poetic stand-in for gloom. There is no light source in the Hollow of Aran. The cloud ceiling above the rim permits no starlight, no moonlight, no faint astronomical glow. The vegetation produces no bioluminescence (the fungi glow only in frequencies the human eye cannot detect — a deep infrared, perceived as warmth, not light). The structures emit nothing. The pools reflect nothing because there is nothing to reflect.
+
+You navigate by sound, by touch, by the subtle gradients of the terrain underfoot, by the smell of the fungi clusters (which vary by species in ways you learn, slowly, to distinguish), by the temperature of the air (which shifts by fractions of a degree as you pass from open moss-field to fern-thicket to the sheltered lee of an eroded wall). The fauna navigates by sonar, by vibration, by electroreception, by chemical trails, by senses you do not possess and cannot imagine. In the Hollow, you are the one at a disadvantage. You are the one who is slow and blind and loud. The frogs know where you are. The beetles know where you are. Everything knows where you are, and you know nothing but what you can hear and touch and smell.
+
+It is not frightening. That may be the strangest thing about the Hollow, given that its strangeness score is low — the place is *not* strange. It is simply dark. The darkness is its weather, its season, its fundamental condition, and everything that lives here has agreed to it, has shaped itself around it, has made peace with it in the way that all living things make peace with the conditions of their world. You are the only one for whom the darkness is an event. To the Hollow, you are the event. A warm body, moving too fast, breathing too loud, displacing frogs, brushing fern-fronds, leaving scent-marks in the moss. You will pass. The Hollow will remain.
+
+## The Stillness
+
+Change comes slowly here. The erosion that rounded the walls took longer than human civilization has existed. The vegetation grows at a pace measured in centimeters per decade. The seeps shift their courses by millimeters per year. The structures degrade on timescales that make their current state — nearly gone but not quite, still holding form, still warm — suggest either an inconceivable age or a materials science that operates on principles we have not discovered.
+
+The fog does not blow. The condensation does not stop. The frogs cycle through their chorus in waves that span hours, not minutes. Everything here is on a longer clock. If you sat down in the moss and stayed — if you became another warm, breathing thing in the dark, as all the other warm, breathing things are — you would feel the slowness settle into you. Your breathing would lengthen. Your heartbeat would find the rhythm of the drip, the hum, the frog-call. You would begin to lose track of time, not because time is absent but because the markers of its passage are so faint, so stretched, that they disappear into each other.
+
+The Hollow of Aran is not waiting for anything. It is not in a state of becoming. It has arrived. It has been arrived for longer than the structures have been ruins, longer than the walls have been gentle, longer than the frogs have had sonar and the beetles have had thermoreception. It is a place at the end of its own long sentence, and the period has already been placed, and the silence after the last word is the darkness itself.
+
+You are standing in it, and it is warm, and it is wet, and it is loud with small lives that do not need you, and you cannot see a thing.

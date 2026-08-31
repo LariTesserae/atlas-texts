@@ -1,0 +1,17 @@
+**The Weeping Plateau**  
+
+A vast, steaming tableland rises from the mist, its edges blurred by the ceaseless weeping of water from porous stone. The plateau is an ancient thing, its surface worn smooth by millennia of slow erosion, yet it stands defiantly high, a fortress of rock suspended between the sodden lowlands and the searing sky. The air is thick, almost liquid—a condensation of heat and moisture that clings to the skin, fills the lungs, and muffles the world into a fever dream.  
+
+The rock itself bleeds. Veins of water seep from its cliffsides, trickling down in slow, glistening rivulets that never quite dry. The stone is dark, almost black, but streaked with mineral hues—rust-red, algae-green, the ghostly blue of copper salts—as if the plateau were a living thing, exhaling its essence through these weeping wounds. Pools form in hollows, their surfaces still as glass, yet beneath, the water trembles with unseen currents, as though the earth itself is breathing.  
+
+Vegetation clings in dense, riotous tangles, fed by the constant damp. Vines thick as arms drape from the cliffs, their leaves broad and waxy, glistening with condensation. Strange, bulbous growths erupt from crevices—pale fungi, swollen with moisture, their surfaces slick and trembling. Moss carpets every surface, softening the edges of the world, turning stone into something almost pliant. The air smells of rot and growth, of wet earth and the slow decay of things that have never known drought.  
+
+There is no animal life here. No birds, no insects, not even the whisper of unseen creatures in the undergrowth. The silence is absolute, save for the water—the endless, deafening murmur of dripping, trickling, pooling. It is a sound so pervasive it becomes a presence, a voice that never ceases, filling the mind until thought itself dissolves into the rhythm of falling water.  
+
+And yet, the plateau is not still. It shudders. Not in the way of earthquakes or landslides, but in something subtler, more unsettling. The air wavers, as if the boundary between solid and liquid is not quite fixed. Shadows pool where they shouldn’t. Reflections in the water show things that aren’t there—faces, hands, shapes that flicker and vanish when looked at directly. The plateau exists at the edge of reality, a place where the rules of the world grow thin, where the stone remembers things it should not, where the water whispers in a language just beyond understanding.  
+
+A city clings to the plateau’s flanks, if it can be called a city. Its structures are built from the same weeping stone, their walls slick with moisture, their foundations fused with the living rock. Towers rise like stalagmites, their surfaces etched with patterns that shift in the mist. Bridges of braided vine span the gaps between buildings, swaying gently in the humid air. There are no people here—or if there are, they are hidden, absorbed into the stone, their presence felt only in the unnatural geometry of the place, in the way the paths twist back on themselves, in the doors that open onto blank walls.  
+
+Time does not pass here, not in any way that matters. The plateau is eternal, caught in a moment that stretches forever. The water falls, the mist curls, the stone weeps, and nothing changes. Nothing can.  
+
+This is a place where the world is coming undone. And yet, it holds. It waits. It weeps.

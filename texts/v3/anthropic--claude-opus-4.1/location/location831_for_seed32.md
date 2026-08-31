@@ -1,0 +1,17 @@
+The Chamber of Pressed Light
+
+You descend through a crack barely wide enough for shoulders, following the deafening hum that rises from below. The passage narrows until you must exhale to squeeze through, and then—suddenly—you're inside.
+
+The space is no larger than a modest bedroom, yet it contains an entire crystallized forest. Thousands upon thousands of translucent spears thrust inward from every surface—floor, walls, ceiling—each one a preserved tree trunk compressed to the width of a finger. They glow from within, bright as noon, casting no shadows because light comes from everywhere at once. The trunks are packed so densely that moving through the chamber requires threading your body between them like navigating a three-dimensional maze of glass needles.
+
+These aren't natural formations. Each crystalline trunk shows the same precise hexagonal cross-section, the same internal lattice of frozen sap-channels that pulse with cold luminescence. Someone—or something—built this place by taking an entire sparse woodland and crushing it down, tree by tree, transforming cellulose into this unknown mineral through pressure alone. The original grain of the wood remains visible, spiraling through each glowing needle in perfect helices.
+
+The sound is overwhelming: a single, sustained note that comes from the crystals themselves, vibrating in unison at a frequency that makes your teeth ache. It never varies, never wavers—a mechanical choir frozen mid-song. The air tastes metallic and dry, utterly desiccated, pulling moisture from your lungs with each breath. The temperature hovers just above freezing, though no ice forms in this moistureless space.
+
+Between the pressed trunks, in gaps barely wide enough to fit a hand, grow the only living things: thin films of crystalline lichen that metabolize light directly, feeding on the endless glow. They spread across the surfaces in geometric patterns, following the hexagonal edges, never overlapping, creating a secondary maze of pale biological circuitry. These colonies haven't changed their borders in centuries—each one locked in territorial equilibrium with its neighbors, unable to advance, unable to retreat.
+
+The floor beneath is also constructed—a solid mass of fused root systems, compressed and mineralized into a single seamless surface that rings hollow when struck. Deep within this floor-mass, you can see darker veins where the original root networks once channeled water, now filled with trapped air that will never escape.
+
+This place has achieved a kind of terrible perfection: utterly artificial yet grown from once-living materials, blindingly bright yet casting no warmth, deafeningly loud yet never changing its tune. It exists in a state of permanent suspension, neither dead nor alive, a monument to transformation frozen at the moment of its completion. Time passes here, but nothing changes—the lichen neither grows nor dies, the light neither dims nor brightens, the sound neither rises nor falls.
+
+You realize this chamber is breathing in its own way—not with air, but with light itself, circulating through the crystalline matrix in endless, unchanging loops. A perfect closed system, sealed away from the world above, maintaining itself through principles that feel both biological and mechanical, yet fully neither.

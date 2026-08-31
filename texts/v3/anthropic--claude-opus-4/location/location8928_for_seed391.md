@@ -1,0 +1,17 @@
+The Breathing Shelves rise in jagged terraces against a bruised sky, each plateau a different shade of oxidized metal—copper-green bleeding into rust, into pewter, into the dull gleam of tungsten. The air tastes of electricity and iron filings. No water has touched these heights for eons, yet the landscape moves.
+
+Across the sparse plateaus, creatures of impossible industry scuttle and surge. They are not flesh but articulated bronze and steel, powered by internal furnaces that glow cherry-red through ventilation slits. Some are no larger than fists—spherical polishers that roll in erratic patterns, leaving mirror-bright trails on the metallic ground. Others stand tall as industrial cranes, their segmented legs picking careful paths between the scattered formations of crystal fulgurite that jut from the surface like frozen lightning.
+
+The sound is tremendous. A constant industrial symphony: the grinding of gears, the hiss of pistons, the bell-like tolling as the larger creatures communicate through resonant strikes against their own carapaces. Beneath it all runs a bass note—the groaning of the shelves themselves as they slowly, imperceptibly shift under the weight of their mechanical ecology.
+
+Everything here builds itself. The creatures consume raw ore, process it in their burning bellies, and extrude new parts—lengthening a limb, sprouting a new sensor array, or budding off entirely new offspring that tumble free, already moving. The young landscape bears their marks: spiral bore holes where they've mined, smooth patches where they've polished, and everywhere the glittering scatter of metal shavings like snow that will never melt.
+
+The dim light comes from three sources: the creatures' internal forges, the faint phosphorescence of certain mineral veins that web through the shelves, and far above, a sky that glows the dull orange of a foundry's mouth. Whether sun or stars hide behind that metallic overcast is unknowable.
+
+At the edges of each shelf, where the land drops away into misty chasms, the mechanical fauna gather in writhing clusters. They are building something—always building—structures that grow for days or weeks before suddenly collapsing, sending an avalanche of components tumbling into the depths. The creatures immediately begin again, following blueprints encoded in their grinding gears.
+
+The cool air carries more than sound. Electromagnetic fields wash across the shelves in invisible tides, causing the smaller creatures to dance in complex patterns, their movements generating harmonics that add to the cacophony. During the strongest surges, even the fulgurite formations sing—a crystalline counterpoint to the industrial roar.
+
+This is a young world still finding its form, where evolution takes place in real-time through self-modification and mechanical reproduction. The boundaries between creature, tool, and landscape blur. Are the shelves themselves merely the largest and slowest of the mechanical beings? Do the creatures build according to some vast plan, or does consciousness emerge from their collective grinding motion?
+
+In the middle distances, great excavators the size of buildings lumber between the plateaus, their purpose obscure. They leave behind perfectly geometric depressions that fill with smaller creatures within hours, transforming into temporary foundries, nurseries, or perhaps temples to the principle of perpetual creation that drives this strange, dry, clamorous world.

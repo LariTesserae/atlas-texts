@@ -1,0 +1,21 @@
+Tucked beneath the lip of a crumbling retaining wall—old brick, once whitewashed, now weeping rust-stains and moss—is a hollow no larger than a bedroom. It isn’t a cave, not truly, nor a gully, but a **negative space** left behind when the city’s foundations settled unevenly decades ago. The ground dips just enough to catch what little water trickles down from the street above: a dampness that never quite evaporates, though the sun rarely reaches here. Condensation beads on the undersides of fern fronds by mid-morning; puddles form after rain but vanish by dusk, soaked into the spongy loam or wicked upward by thirsty roots.
+
+The vegetation is lush—but carefully so. Not jungle-dense, not riotous, but **concentrated**, as if life agreed to pool its energies here. Maidenhair ferns coil like green question marks around the ankles of a single, stunted fig whose aerial roots dangle from a crack in the concrete overhead, questing blindly for soil. Mosses—emerald, rust, silver—paint the stones in velvety gradients, and patches of oxalis unfurl heart-shaped leaves that track the faintest shifts in ambient light. Everything grows close to the ground, as though aware of the low ceiling formed by the city’s underbelly.
+
+It’s warm—not hot, but **consistently warm**, like the breath held between cupped hands. The air carries the soft humidity of a greenhouse left open a crack, mingled with the mineral scent of wet brick and the faint decay of fallen fig leaves. No wind penetrates this pocket; the warmth lingers, motionless, amplifying the sense that time moves differently here—slower, thicker.
+
+This place is **emerging**, still becoming. The soil beneath your feet isn’t ancient earth but a recent accretion: windblown dust, leaf litter, pigeon bones, fragments of ceramic pipe, all slowly knitting into something that might one day be called soil. The walls are not carved by rivers or glaciers but by **absence**—by the slow withdrawal of human attention. Cracks widen. Mortar softens. Roots insinuate. Nothing is finished; everything is in negotiation.
+
+And yet, it is **urban** through and through. The sounds of traffic murmur like distant surf through the manhole cover at the far end. A fire escape casts a skeletal shadow across one wall. Wires snake overhead, humming faintly. This is not wilderness that survived the city—it is **wilderness grown from the city’s own forgetting**, a micro-habitat born of neglect and moisture and time.
+
+There is **no technology here**, not even a discarded bottle or a rusted can—just biological processes unfolding in the interstices. Ants farm aphids on the fig’s tender shoots. Springtails leap through the moss. A lone tree frog, no bigger than a thumbnail, pulses its throat in the dimness, its skin the exact shade of wet stone.
+
+Light is **dim but not dark**: a twilight glow filtered through grime-smeared storm drains, bouncing off wet surfaces, refracting through droplets. It catches the iridescence of a beetle’s carapace, the silver underside of a leaf, the glint in a spider’s many eyes—but never enough to banish the shadows that pool in the corners.
+
+Fauna is **abundant for the scale**: not herds or flocks, but **density of presence**. Every crevice hosts something—a centipede uncoiling, a snail tracing glyphs on brick, a hoverfly vibrating in midair. Life is everywhere, but small, quiet, and close.
+
+Which is why the **silence** is so profound. Not empty silence, but **listening silence**. The rustle of a gecko’s footpads on stone. The pop of a fungal spore. The almost-inaudible sigh of moisture seeping through porous concrete. These are the only sounds, and they require stillness to hear.
+
+The place thrums with **quiet activity**: roots pressing into mortar, fungi threading through leaf litter, dew forming and falling in a slow, daily rhythm. A caterpillar inches along a fern stem. A drop of water swells at the tip of a root, then falls—plink—into a cup-shaped leaf below. Everything is **in motion**, but at the pace of growth rather than flight.
+
+This is a **hidden room in the city’s skin**, a secret warm damp pocket where the raw geology of human construction is being gently, persistently, **rewilded by the small and the patient**. It is not strange. It is not magical. But it is alive—fiercely, quietly, completely—and it is **just beginning**.

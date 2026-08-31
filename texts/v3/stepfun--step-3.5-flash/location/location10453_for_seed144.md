@@ -1,0 +1,39 @@
+# The Shattered Mesas
+
+You see them from the saddle: a city of stone, but a city emptied of people and rebuilt by the wind and heat. This is the ** Shattered Mesas **, a high plateau—3,000 meters up—cracked into a labyrinth of canyons, fins, and isolated towers of rock. The elevation is extreme, the air thin and sharp, but the temperature is a relentless, dry 42°C. There is no gentle slope; the land is a series of abrupt drops, knife-edge ridges, and sudden, floorless clefts. The scale is open: you can see for a hundred kilometers across the rust-red expanse, but that view is fractured by a thousand vertical slices in the earth.
+
+**Terrain & Materials:** The primary material is **sedimentary stone**—layered sandstone, siltstone, and shale, stained in oxidized reds, oranges, and pale creams. The erosion is *established*: every form is final, perfected over millennia. There are no loose scree slopes; the rock feels anchored, as if the very concept of “falling apart” was resolved long ago. The density is *packed* not with things, but with *space*: the canyons and fissures are so numerous, so close together, that the entire region feels saturated with verticality. There is no “empty” ground—every square meter is either a sheer cliff face, a slot canyon, or a precarious pinnacle. The ground you stand on is a narrow shelf, with a 200-meter drop on your left and a sheer wall rising 100 meters on your right, both separated by a gap you could jump.
+
+**Water & Atmosphere:** Water is a *intermittent, ghostly presence*. Rain falls less than once a year, in violent, brief thunderstorms that last twenty minutes. Then it’s gone, evaporating or vanishing into the porous rock within hours. The true dampness is *subsurface*. At dawn, a cold, wet fog—the “**Ghost Miasma**”—wells up from deep fissures, filling the canyons with a dense, cool, mineral-rich mist that clings to rock like a second skin. By mid-morning, the heat burns it away, leaving the stone slick with condensation for an hour. Occasional, permanent **pocket springs** exist in the deepest, shaded clefts—small, warm pools of water so saturated with dissolved minerals they are nearly syrup, supporting strange microbial veils on their surfaces.
+
+**Vegetation:** It is *sparse*, but specific. No grasses, no shrubs. Instead, there are three forms:
+1.  **Stone Moss:** A black, crusty lichen that actually *petrifies* as it grows, fusing with the rock and adding a millimeter of density every decade. It looks like spilled ink but has the texture of rough ceramic.
+2.  **Root-Walkers:** Networks of thick, leathery rhizomes that follow water veins underground. They only surface at the pocket springs, where they bloom with clusters of tiny, copper-colored flowers for a single day after a rare rain.
+3.  **Canyon-Willows:** In the deepest, most shaded corridors where the Ghost Miasma lingers longest, stunted, twisted trees grow. Their bark is white and smooth, like bleached bone, and their leaves are tiny, grey scales that minimize moisture loss. They are ancient, gnarled, and utterly silent.
+
+**Fauna:** Life is *abundant* but hidden and strange, adapted to stone and scarcity.
+*   **Lithovores:** Beetles the size of a fist with mandibles like diamond-tipped drills, chewing slow tunnels into the softer stone, digesting mineral-bacteria.
+*   **Cliff-Drakes:** Small, six-legged reptiles with skin the color of the local rock. They are ambush predators, perfectly still for days, then striking at passing insects. Their calls are subsonic rumbles felt in the chest, not heard.
+*   **Sky-Fishers:** Aerial, manta-ray shaped creatures with wingspans of two meters, who soar on the thermals between mesas. They skim the Ghost Miasma at dawn, filtering雾气 for microscopic悬浮 organisms. Their passage is silent; they are the only things that move *above* the labyrinth.
+*   **The Burrowers:** Things that live in the deep, wet fissures. Their existence is known only by the occasional, deep *thump* felt through the rock at night, and by the perfectly circular, smooth boreholes that sometimes appear in the soft stone walls.
+
+**Built Environment & Tech:** The *built* element is *scattered* and deeply integrated. This is not a town, but a **failed industrial monastery**. Centuries ago, a cult of Engineer-Monks sought to “read the stone” and tap the planet’s geothermal heart. They left behind:
+*   **Stone-Bellied Furnaces:** Cylindrical kilns built into cliff faces, their doors sealed with welded stone. Some still glow with a dull, internal heat.
+*   **Aqueducts of Polished Rock:** Canals carved with impossible precision into mesa tops, meant to channel rare rainwater. Most are broken, but some still weep a trickle of mineral water, feeding the pocket springs.
+*   **The Great Spire:** A single, impossibly tall, needle-like tower of fused rock and blackened metal, thrusting from the central mesa. It hums at a frequency you feel in your teeth. It is the only *industrial* (2.0/3) structure still marginally active—a relic geothermal tap, drawing heat from the deep and feeding it nowhere.
+*   **Carved Script:** Everywhere on sheltered surfaces, dense, geometric glyphs are carved, depicting thermodynamic cycles and stone strata. They are not decorative; they are instructions, prayers, or warnings. Weirdness (1.4/3) lives here: some glyphs seem to shift if you stare too long, and the ones carved in the path of the Ghost Miasma are perpetually wet, as if weeping.
+
+**Sound & Atmosphere:** It is *mostly quiet*. The dominant sounds are:
+1.  The **wind**—but not a howl. It whispers through the canyons in layered, shifting tones, like a vast, slow breath. It carries the faint, metallic *tang* of dust and minerals.
+2.  The **drip** of condensation from overhangs, each drop a distinct *plink* that echoes and multiplies in the stone chambers, a slow, liquid clock.
+3.  The **deep hum** from the Great Spire, felt more than heard.
+4.  The **scuttle** of Lithovores in the stone, a sound like grinding sand.
+Predator-prey interactions are silent strikes and silent flights. The only loud, organic sound is the occasional, startling *thump* of the Burrowers, making the ground vibrate for a full second.
+
+**Rules of This World:**
+1.  **Stone is Not Inert:** It breathes (the Ghost Miasma), it grows (Stone Moss), and it records (the glyphs). Erosion here is a form of memory.
+2.  **Water is a Cycle of Ghosts:** It comes from the deep, haunts the surface for hours, and returns to the deep. It never flows for long.
+3.  **Height is Currency:** All life—animal, vegetable, mineral—is stratified by elevation. The Sky-Fishers rule the thermals. The Canyon-Willows own the mist-floors. The Lithovores own the walls. You occupy the precarious middle, where the mist lasts the shortest time.
+4.  **Industry is Fossilized:** Technology here isn’t running; it’s *frozen*. The industrial past is now geological feature. The Engineer-Monks didn’t build machines; they built temples to principles that still weakly pulse (the Spire’s hum).
+
+**The Feeling:** It is a place of profound, baked stillness that is utterly *active*. Processes move at a glacial, monumental pace: the growth of Stone Moss, the seep of aquifer, the slow decay of the carved glyphs. The packed density of space creates a claustrophobic vastness—you are always enclosed by stone, yet the region stretches endlessly. The weirdness is in the *integration*: the hum that comes from rock, the mist that rises from dry earth, the plants that turn to stone, the animals that eat rock. It is a desert that is wet, a high place that is hot, a barren place that is packed with life and ruin. The normal light (2.5/3) makes the shadows sharp and absolute, turning every canyon into a slow dance of stark illumination and profound, cool darkness. You are not in a landscape. You are inside a slow, mineral thought.

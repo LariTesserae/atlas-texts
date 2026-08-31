@@ -1,0 +1,15 @@
+Deep within the frigid, barren expanse of a long-abandoned asteroid field, a lone, massive generation ship hangs, a behemoth of industry and human ingenuity gone silent. The ship itself, christened 'Erebus,' is a marvel of engineering, its hull a latticework of steel and crystalline metals that reflect the faint glow of nearby stars like a ghostly mirage against the inky blackness of space. 
+
+The landscape of Erebus is a tightly compacted, self-sustaining ecosystem, devoid of natural elements as we know them. The cold of space seeps through its armor-plated skin, preserving the ship in a state of cold stasis, its mechanical heart long stopped. The only vegetation to be found are scattered, green-tinged algae colonies in the hydroponic labs, frozen in place like emeralds in glass, a testament to the once thriving ecosystem that sustained the crew during their long journey through the void.
+
+The ship's internal architecture is a maze of steel corridors and rooms, a vast, labyrinthine world in miniature. The main deck, once bustling with activity, is now nothing but a vast, empty cavern, the gravity maintained by rotating sections of the ship causing it to feel like an endless, cylindrical plain. Every surface is covered in a fine layer of dust, the only movement the slow, silent dance of motes of debris in the faint, blue-white light that filters through the viewports.
+
+Erebus was never meant to be a destination; it was a way station, a cradle for humanity's push into the stars. Something went terribly wrong, though, and the ship was left to drift, a tomb for its crew, a monument to ambition and hubris.
+
+The silence is oppressive, a physical force that presses down upon the hull, but it is broken by the constant, deafening hum of machinery. The engines, though cold and dark, still groan and creak under the stresses of their own weight and the constant, slight shifts in the ship's mass distribution. 
+
+It is a strange, alien world, both in the sense that it is not of Earth and that it operates under rules that are not entirely our own. Gravity behaves slightly differently here, the rotation of the ship imparting a slight, disorienting wobble to movement. The air is stale and recycled, the only scent the faint tang of ozone and burned wire.
+
+Despite the initial impression of sterility, there is a hidden, sparse ecology at play here. Microorganisms, designed to aid in air recycling and waste processing, still cling to life in the darkest, most protected recesses of the ship. They form strange, glowing colonies, bioluminescent fungi and bacteria that light the darkness like fireflies in a summer forest, giving the ship an ethereal, otherworldly glow.
+
+Erebus is a world frozen in time, a snapshot of humanity's greatest ambitions and their unspoken fears. It stands as a testament to what can be achieved and what horrors can be unleashed when humanity reaches for the stars. It is a monument, a grave, and a cradle, a place of beauty and of terror, waiting silently in the darkness for whatever may come next.

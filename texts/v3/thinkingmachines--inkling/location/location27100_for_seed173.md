@@ -1,0 +1,25 @@
+You are not floating. You are inside.
+
+The boundary is absolute: a chamber about the size of a modest chapel, though chapel is the wrong word—there are no stones, no earth, no substrate that was ever alive. Every surface is made. Thick ribs of steel, rounded now by centuries of cold, curve overhead like the inside of a whale’s ribcage if whales were built in shipyards. The plates between them are ceramic-composite, once white, now the color of old teeth, pitted and smooth. Rivets sit half-devoured by oxidation, their heads rounded to soft bumps you could mistake for barnacles—except everything here is artificial, even the growth that mimics life.
+
+The chamber is filled. Not air. Not emptiness. Water—cool, dense, just above freezing—fills every cubic meter. You move through it, or it moves through you, with the sluggish authority of the deep. The temperature holds steady at 1.2: not lethal, not comfortable, a perpetual cool that numbs slowly. Light is scarce. What little exists comes from the fauna themselves—faint blue-green pulses along the ribs, the amber death-glow of two indicator lamps still burning behind cracked glass on a control panel, and the distant, filtered memory of the surface, too far away to matter.
+
+This is below. Not near-shore shallow, but settled into the abyssal logic of pressure and time. The elevation is negative, buried in the liquid column.
+
+Yet it is small. Bounded. You could swim its length in thirty strokes, its width in ten. There is no horizon inside—only walls, a floor of rusted grating, and the machinery that occupies the northern curve.
+
+The machinery is why the sound is loud.
+
+Even eroded to 2.7—ancient, near-flattened, settled into its final form—the industrial heart still works. Not with purpose. With inertia. A central pump, massive as a door, turns slowly, its casing rounded like river stone. Water rushes through copper pipes, now green with verdigris but unbroken, driven by pressure differentials older than the colony of life around them. Valves hiss open and shut in a rhythm that may be mechanical or may be the settling breath of the structure itself. A turbine spins in the eastern quadrant, not fast—there is no rush here—but with relentless, grinding persistence. The noise is not echoing; water carries it immediately, vibrating through steel into your bones: the groan of metal, the clank of a piston that has lost its seal but refuses to stop, the constant thunder of circulation.
+
+This is built total. 2.9. There is not a single rock, not a grain of sand that arrived here without being placed or filtered in. Even the sediment is manufactured—fine ceramic dust that has sloughed off the walls and now drifts in slow clouds near the grating floor, never quite settling, stirred always by the pumps.
+
+The fauna is abundant—1.8—but scattered, sparse in density, 1.1, leaving vast empty volumes between presences. Small silver fish, no larger than fingers, move in loose, drifting schools through the open center, never crowding, never touching the walls unless the current pulls them near. Pale tube worms cluster on the pump housing, their feathery crowns extending and retracting in the current, hundreds of them but spaced like candles on a distant altar. Crustaceans—thin-shelled, translucent—crawl along the pipes, solitary, methodical. A few larger things drift past the grating: a slow-moving jelly-like form, not weird—0.4, entirely normal for these depths—just another scavenger shaped by pressure and darkness. They do not fear the machinery; they have grown into it, through it, using the warm metal (warm only relative to the water) as anchors.
+
+Vegetation is almost absent—0.7. There is no kelp forest, no floating weed. Only a thin, dark bacterial film that coats the lower ribs like velvet, and one stubborn cluster of deep-filament growth, white and hair-thin, clinging to a broken ladder rung near the floor. It does not grow; it persists.
+
+The dynamics are active—1.5—not chaotic, not storm-like, but in constant, low-grade motion. Water circulates through the old filtration channels. Sediment lifts in slow plumes. The fauna feeds, drifts, returns. The machinery turns, hisses, grinds. Nothing here is static, yet nothing is changing in the dramatic sense. The erosion has reached its end-state: this is what it is, settled, primordial in its artificiality, the oldest stable form this technology can take.
+
+The scale keeps it intimate. You are not in a factory complex or an underwater city. You are in one room, one cell, one bounded heart of a much larger body that has long since forgotten its purpose. The loudness—2.2—is not overwhelming because it is contained. It fills the water, yes, but only this water, these walls, this cool dark volume.
+
+And so the place holds: cold, constructed, submerged, ancient, alive in scattered abundance, loud with the persistence of engines that will outlast their makers, normal in every strange detail, settled into the end of its own long story.

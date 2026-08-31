@@ -1,0 +1,13 @@
+A pocket in the world.
+
+You might have been looking at rock — black basalt, obsidian edges — and then the rock stopped, and there was this. A space no bigger than a generous room, walled in still-cooling volcanic material. The walls hold the heat like a sleeping animal; they are not quite solid, not quite settled. Water has touched this place once, or maybe twice, and left behind faint salt blooms at the cracks, ghostly white against the dark. Otherwise: dry. The air tastes of mineral and something faintly sulfuric, a warmth that has nothing to do with the sun.
+
+Scale is the first thing you notice. Everything here is close. The ceiling is close enough to touch if you stretch; the floor is rough-textured, raw geology still finding its shape. Grain by grain, very slowly, this space is still being carved. Not by wind or water but by pressure and time and the faint grinding of cooling stone against itself. The erosion is so early it barely qualifies — features in their infancy, the suggestion of channels where something might one day flow.
+
+And yet life presses in anyway. Fauna: abundant. They have found this pocket, this warmth, this dark, and they do not leave room for doubt. Creatures with long bodies and shorter ones, creatures that hiss and creatures that click, creatures whose thermal signatures make the air swim slightly when they move. The density rating is not about quantity alone — it is about pressure, about proximity, about the way every surface is claimed. Walls, floor, ceiling, each occupied by nesting, resting, moving bodies. A creature sleeps on the back of another creature sleeps on the wall.
+
+They are not loud in the way a city is loud. The sound is structural — low and constant, a pressure in the bones, the kind of sound that means something is always happening but nothing happens fast. The dynamics are slow. Gradual. The heat does not pulse; it persists. The creatures do not rush; they cycle. Eggs, shedding, slow migration from one hot spot to the next, the creatures' lives measured not in moments but in thermal gradients across the floor.
+
+Industrial technology hums somewhere deeper, or maybe not deeper at all — maybe threaded through the stone itself, machinery embedded so that the walls themselves are a kind of factory. It is not built for the creatures. They were here first, or the machines arrived and the creatures stayed, and now it is all the same space, the same heat, the same darkness pressing in. The machines are slow. The creatures are slow. The erosion is slow. Everything holds.
+
+You could hold this place in your hands. And it would be warm.

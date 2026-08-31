@@ -1,0 +1,25 @@
+The first thing you notice is the noise. It is not a single roar, but a ceaseless, complex churning—a symphony of high-pressure hisses, deep structural groans, and the unrelenting slap of liquid against stone. You have to shout to be heard by your own ears.
+
+You are standing on the edge of the High Ossuary, a plateau that sits at the roof of the world. The elevation here is extreme, scraping the underbelly of the jet stream, but the air is not thin. It is heavy, wet, and cool (0.8/3), tasting of ozone and ancient algae. The cold is a seeping, damp chill that settles into the marrow, kept at bay only by the violence of the motion around you.
+
+The terrain is a lesson in contradiction. The rock beneath your boots is the oldest thing you have ever touched—smooth, rounded, and polished to a glass-like sheen. This is the final state of erosion (3.0/3). Over eons, the mountains here have been planed down, their jagged peaks worn away until the land is a vast, undulating sheet of granite and basalt, sloping gently in immense, basin-like terraces. There are no sharp edges left in the geology; everything has been sanded into curves by an eternity of abrasion.
+
+But the stability of the stone is mocked by the water.
+
+The water coverage (2.8/3) is total. It does not just rain here; the atmosphere itself is saturated, a suspended fog so dense it feels like swimming through air. Great curtains of condensation sweep off the higher peaks, coalescing into rivers that don't just flow—they race. Because the land is so smooth and steep, the water moves with terrifying speed. It is a planet-scale hydroelectric plant without the dam. The runoff creates millions of micro-cascades, white veins pulsing over the gray stone, merging into raging brown torrents that smash through the valleys.
+
+The dynamic (2.9/3) is chaotic. The water level in the basets below rises and falls visibly within the span of an hour. One moment, a valley is a quiet lake; the next, a flash flood from the upper terraces turns it into a boiling vortex. It creates a Solaris-like instability; the map of the coastlines changes before your eyes. Islands appear and vanish, peninsulas are severed by newly formed channels, and the ground shakes under the hydraulic hammering.
+
+Amidst this violence, life has turned density (2.0/3) into a shield. The vegetation (2.2/3) is lush but strange—a cold-water jungle. Towering, moss-draped firs and spruces cling to the rock, their roots wrapped around the stone like desperate fingers. Between the trees, the ground is a tangled mat of ferns, lichens, and fat, spongy mushrooms that absorb the constant vibration. The flora is incredibly dense; you cannot walk in a straight line without hacking through walls of wet, green biomass. The color palette is deep, bruising greens and the black of wet soil, all lit by a flat, normal daylight (1.7/3) that struggles to penetrate the perpetual mist.
+
+The fauna (1.9/3) is abundant and loud. The air is thick with swarms of midges and stoneflies, which in turn feed on enormous, sleek amphibians that cling to the wet rocks. Birds—dark, sharp-winged divers—scream through the spray, riding the turbulence like surfers. There is no silence here. Every creature calls out to be heard over the roar of the water. In the churning river basins, you can see massive schools of silver fish, hugging the bottom, their bodies evolved to withstand pressure changes that would crush other species.
+
+And then there is the industry (1.7/3).
+
+Scattered across the smooth, ancient landscape are the remnants of a colossal, failed attempt to tame this place. The built structures (0.6/3) are sparse but impossible to miss. They are colossal rusted skeletons—giant pipelines, the size of subway tunnels, that lie shattered across the valleys. Huge concrete intake towers, cracked and spewed with rebar, stand like monoliths in the center of the roaring lakes.
+
+This was once a factory floor the size of a country. The technology is industrial, heavy, and electrified. Massive turbines, half-buried in landslides, still groan as the water spins their shattered blades, producing a ghostly, rhythmic screeching that adds to the din. Power lines, snapped and hanging low, buzz with dangerous, wet electricity.
+
+The fusion of nature and machine is eerie. Vines grow through the rusted gears of earth-movers the size of cathedrals. Moss carpets the control rooms of flooded dams. The tech is not hidden; it is merely another layer of the erosion, another obstacle for the water to smash against.
+
+You stand on a ridge, watching a river suddenly divert itself into a rusted canal, the force of the current shaking the metal framework. The water is winning, slowly wearing down the steel just as it wore down the mountains. The place feels like the end of the world, but a loud, violent, energetic one. It is a grinding, churning engine of consumption where the water eats the stone, the trees drink the water, and the ghosts of machines try to process it all, screaming into the storm.

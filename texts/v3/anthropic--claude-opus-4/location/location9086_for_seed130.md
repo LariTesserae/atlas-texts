@@ -1,0 +1,21 @@
+The breathing chamber thrums with a wet, vegetal pulse.
+
+You've found it through a crack in what appeared to be solid stone—though nothing here is truly stone anymore. The walls are woven. Thick ropes of living wood, each as wide as your waist, have been braided into a dome that sweats constantly. The braiding is ancient work, primitive but profound: wooden dowels pin the crossings, their heads worn smooth by centuries of moisture. Moss fills every gap between the weave, creating an unbroken skin of green that glows faintly in the filtered light.
+
+The floor doesn't exist in any conventional sense. Instead, a lattice of root bridges spans the chamber at varying heights, creating a three-dimensional maze barely two body-lengths across. These roots grow from the wall-braids themselves, having long ago fused into a single organism. Water streams continuously down the interior surface, following the spiral channels where wood meets wood, collecting in pools that form in the natural cups of the root-lattice before overflowing to lower levels.
+
+The sound is constant—not quite rain, not quite waterfall. It's the noise of ten thousand droplets finding their paths through living architecture, accompanied by the deep creaking of wood that expands and contracts with moisture. Beneath this is something else: a rhythmic rushing like blood through veins, or sap through cambium. The entire structure breathes on a cycle you can almost, but not quite, synchronize with your own breathing.
+
+Light enters through the weave itself. The gaps between braids should show sky or forest beyond, but instead reveal only more layers of the same woven wood receding into bright haze. The geometry is wrong—you can look through a gap at eye level and see another gap that should be below your feet, yet somehow appears to be above you. Walking the root bridges requires accepting that up and down are local suggestions rather than universal laws.
+
+Everything here was made, but made so long ago that it has become something beyond its making. The original weavers understood that wood wants to grow, that moss wants to spread, that water wants to flow. They built not a structure but a process, and that process has been running so long it has worn grooves in reality itself.
+
+Small alcoves appear in the weave where the pattern shifts—each one unique, each one containing evidence of purpose. Here, a depression worn smooth where something was ground with stone against stone. There, wooden pegs that might have held tools, now sprouting leaves of their own. The primitive technology that built this place has been subsumed into it, become part of its biology.
+
+Occasionally, something moves in the peripheral darkness between roots. Not quite animal, not quite plant—a sliding of shadow that might be a salamander if salamanders were made of the same wet wood as everything else here. These creatures, if creatures they are, seem to tend the chamber in some way. You catch glimpses of them adjusting the flow of water with their bodies, or gnawing at new growth to maintain ancient patterns.
+
+The air tastes green and thick. Spores dance in the light beams, each one catching fire for an instant before drifting into shadow. The humidity is so dense it has weight, pressing against your skin, making every surface slick. This is not a place built for human comfort, though humans clearly built it. It's a place built to be itself—a pocket of cultivated wildness where the boundary between grown and made dissolved centuries ago.
+
+Time moves strangely here. The water that falls from the ceiling seems to take too long to reach the root bridges below. The creaking of the wood sometimes precedes the shift in weight that should cause it. You begin to suspect that this chamber exists not quite in the same temporal flow as the forest beyond its walls—that it has been breathing its own minutes and hours for so long that it has worn its own groove in time, just as the water has worn channels in the wood.
+
+This is architecture as organism, technology as biology, a built environment that has transcended building to become a piece of the world's own dreams.

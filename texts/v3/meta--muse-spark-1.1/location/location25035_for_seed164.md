@@ -1,0 +1,29 @@
+It is high.
+
+Not high like a hill. High like the world has run out of world underneath you. A basalt continent lifted whole into the cold, so vast its far edges curve down into haze and generate their own cloud system. From anywhere near the middle you cannot see where it ends, only where the air thins and turns blue-black. The light is normal, midday white, but it has farther to fall.
+
+This is young rock. Recently-born, geologically speaking - ten thousand years since it was liquid, maybe less. There has been no time to soften. The plateau is not weathered smooth; it is a fresh fracture. Everything is sharp. Columnar basalt in hexagonal fists the size of apartment blocks, their tops sheared flat by whatever force lifted them. Between the columns are chasms with vertical sides, knife-edged, a hundred meters deep, a kilometer, more. No river made them. They are cooling cracks in a planet-scale skin. And from every face, water weeps.
+
+The air is cold. Not bitter-cold, not killing-cold - just 2 degrees above zero all the time, everywhere. A cold that begs water to become ice but never lets it. So the water stays liquid and excessive. It condenses out of the high atmosphere on the cold stone, beads on every surface, runs. It seeps out of the rock itself, pressurized from the warm deep below. It sweats from the undersides of bridges, from ceilings, from the vertical cliffs. You hear it before you see anything else - but underneath the industrial sound.
+
+The whole top of this lifted world is a city. Or rather, it was intended to be, and then stopped intending.
+
+The density is wrong. An urban plan drawn by something that didn't understand proximity. There are avenues here, and blast furnaces, and habitation stacks twelve stories high with identical windows, and power stations, and refineries, and switching yards for trains that never come, but there are kilometers - tens of kilometers - of empty air between one structure and the next. The buildings stand alone like boulders that happen to have doors. Between them is nothing but sharp stone, black-green moss, and weeping water. The scale is so monstrous that calling it empty is not enough; it is hollowed out by distance. You can walk for a day from one factory to its neighbor, across flat column-top, with the wind tearing at you, seeing nothing but the next lit smokestack on the horizon. It is a city the size of a continent with the population density of orbit.
+
+The industry never stopped. That is the loud part.
+
+Every building, every tower boiler, every mill, is running. At full load. You can hear it for hundreds of square kilometers - a low, roaring, grinding equilibrium chord. Furnaces roar white and throw heat into the cold air, so the air above each building shivers and makes its own rain. Chain conveyors clatter, carrying the same load of cold black slag around an endless loop. Pumps thud like massive hearts. The generators hum at 60Hz, so loud the basalt vibrates under your boots. Stacks exhale plumes that never disperse because the air is always condensing around them. The steam joins the weeping. There is no one inside. No birds to startle. No insects. No animal life at all. No prints but yours in the moss.
+
+Because the moss - the vegetation - is lush, absurdly lush for this altitude and cold. It shouldn't be, and that is part of the strangeness. It coats everything that isn't actively hot. A thick, peat-deep, black-green and rust-red felt of moss and lichen and something that is almost a fern but isn't, with fleshy, waxy leaves that store water like cups. It grows inches thick on vertical walls, hangs in dripping curtains off the sides of the basalt columns, chokes the abandoned streets, crests over flat roofs, drowns the rail ties. It grows on iron. Especially on iron. It likes the hot rust. The girders of every factory are furred in it, except where the furnace heat keeps the metal bare and glowing dull orange. When the condensers drip - and they always drip - the moss drinks audibly. It swells and sighs.
+
+In places the moss has become a kind of architecture itself. Water runs on top of it and underneath it and through it, braided. It forms bogs on top of solid rock, with no soil beneath, just moss on moss, floating on its own trapped water table. If you step through, you fall a meter into cold, black water that smells of stone. Then your foot hits basalt again.
+
+The other strangeness is that nothing changes.
+
+The erosion is young. That is not just geology; it is a rule here. Nothing erodes. The sharp edges stay sharp despite the water. The moss grows but never spreads farther - it is as big as it gets. The furnaces burn without consuming. The steel does not rust through. The slag conveyors carry the same slag. The water level never rises or falls. The same cloud sits over each factory, fed by the same steam, weeping the same water. You can stand and watch a waterfall pouring off the side of a power station for an hour and see that it repeats - not quite a loop, more like a standing wave held in place.
+
+Time has come to equilibrium. The planet lifted this fresh piece of crust, seeded it with buildings impossibly far apart, turned everything on, made it wet and cold and loud and lit it with flat white light, covered it in plant life that does not need pollinators, and then pressed pause while letting the engines keep running.
+
+The air is full of sound and water. The rock is cold under the moss, hot where the factories stand. Far away, past the horizon of your own column-top, there are more factories, more gongs of hammers on metal, more lit windows with no one behind them, more chasms breathing fog. It goes on until weather hides it.
+
+If you stay quiet - which is hard, because everything is loud - you can hear the deeper sound under the industrial roar: the mountain, if it is a mountain, holding its breath.

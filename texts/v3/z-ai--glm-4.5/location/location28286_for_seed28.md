@@ -1,0 +1,23 @@
+The light here is not so much illumination as it is a physical weight. It pours down from a zenith that is too close, a blinding, white-hot torrent that seems to possess mass. This is the Ocular, a hidden micro-dimension sealed behind a wall of curved, diamond-hard glass. Inside, the atmosphere is thin and searingly hot, smelling of ozone and pulverized dust.
+
+There is no water. The concept is alien here. Liquids boil away the instant they manifest. Instead, the chemistry of the place is driven by sublimation and solid-state exchange. The ground is a low, flat pan of vitrified silica, smoothed by eons of thermal polishing into a frictionless mirror that reflects the inferno above.
+
+Yet, against all intuition, the place is lush.
+
+Rising from the glass floor is a dense, tangled forest of mineral vegetation. These are not plants of cellulose, but structures of woven crystal, basalt fibers, and metallic salts. They grow with aggressive, tangled beauty—groves of needle-tipped "ironwood" trees with trunks of rusted lattice, and sprawling vines of copper wire that wrap around the stone pillars in tight, loving spirals. They do not need water; they drink the light. Their leaves are photovoltaic plates, iridescent scales that catch the glare and convert it into the energy to grow harder, sharper, and taller. It is a lushness of edges, a garden of beautiful, sharp things.
+
+Suspended in the exact geometric center of this crystalline forest, hanging over the mirrored floor like a trapped thought, is the City.
+
+It is a marvel of primitive engineering. It is a dense, urban cluster of hives, towers, and bridges, constructed entirely from the bones of the dead crystal-trees and the baked mud of the floor. It is "built" in the truest sense—organized, layered, a vertical maze of dwellings. There are no metals smelted here, no alloys forged; the tech level is strictly Neolithic. Buildings are lashed together with fibers of spun glass and anchored by raw-hide bindings. Pulley systems of bone and stone lift heavy loads between platforms. It is a city of rigging and leverage, complex and intricate, yet brittle-looking against the harsh backdrop.
+
+The city is eerily empty. While the buildings are packed tight—creating a singular, massive architectural feature—the internal volume is hollow. There are vast, cavernous chambers within the towers and wide, sweeping plazas that contain absolutely nothing. The density of the construction masks the fact that the population is incredibly sparse, or perhaps long gone. The silence of the city is a lie, however, because the silence of the Ocular is impossible.
+
+The sound is deafening.
+
+Because the environment is a sealed glass sphere, the heat creates a constant, violent convection current. The air rises from the mirrored floor at supersonic speeds, strikes the top of the sphere, and cascades down the sides. The resulting roar is a continuous, chest-rattling thrum, a bass note so deep it vibrates the bones of the crystal trees. On top of this, the wind screams through the thousands of primitive structures built to catch it. The city acts as a giant flute; the tunnels, windows, and bone-flutes crafted by the builders catch the airflow and turn it into a chaotic, deafening symphony. It is a wall of noise, a sonic hurricane that makes thought impossible.
+
+Life here is rare and strange. The only fauna are the "Echo-Runners." They are small, spindly creatures with exoskeletons of polished chitin, evolved to have no ears. They "see" through vibration, sensing the density of objects by how the deafening sound waves bounce off them. They skitter across the glass floor and leap between the crystal branches, moving in frantic, stuttering bursts, their limbs perfectly adapted to grip the smooth, non-porous surfaces.
+
+The ecology is an active, predatory cycle of light and stone. The crystal-forest grows slowly, feeding on the sun, while the primitive machinery of the city creaks and groans, harnessing the wind to grind mineral dust into flour or to pump the hot air through subterranean vents. The city itself seems to be a machine trying to survive the very environment it inhabits, a primitive attempt to impose order on a loud, bright, and dry hell.
+
+It is a hidden room of violent beauty—a terrarium of heat and noise where life has adapted not by softening, but by becoming as hard, loud, and brilliant as the sun itself.

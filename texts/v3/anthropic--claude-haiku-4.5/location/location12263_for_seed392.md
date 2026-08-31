@@ -1,0 +1,37 @@
+# The Terrace Marshes of Thel'Ka
+
+The first thing you notice is the *brightness*—a white-gold glare that comes not from a single sun but from the water everywhere, and from the constructed surfaces themselves. The sky is pale, almost washed-out, and the light seems to come through rather than from above, as if the whole region exists in a state of perpetual late-afternoon clarity. Your eyes water.
+
+Beneath your feet: *tile*. Precisely fitted clay tiles, pale cream-colored, laid in interlocking patterns that repeat across what was once marsh. They are warm to the touch and still slightly damp in the crevices, despite the heat. These are not crude—they're the work of hands that understood geometry, that understood the relationship between drainage and surface. But they're also completely covered in a thin film of moisture that never quite evaporates, so walking is always slightly treacherous, always conscious of your footing.
+
+The tiles extend in vast platforms and gentle slopes. Broad ramps descend between them—not stairs, but long shallow gradients, also tiled, also eternally damp. The platforms themselves vary in height by no more than a meter or two, creating a kind of *staircase landscape* that stretches to the horizon in all directions. You can see perhaps two kilometers before the far platforms blur into the haze. The geometry is intentional, rhythmic, almost mesmerizing in its regularity. Water pools in certain constructed depressions—shallow cisterns, you realize—and moves slowly between them via channels carved into the tile itself, following slopes so gentle they seem almost accidental.
+
+They aren't accidental.
+
+The water is strange. It doesn't smell like marsh water—not quite. It's warm, nearly blood-warm, and when you kneel to touch it, you notice it feels less like water than like something *suspended* in water: thick, almost syrupy. The color is a murky bronze-gold, and when you look at the channels carrying it, you see the liquid seems to *lag* somehow, moving as though time itself is heavier here. A drop of it falls and takes perhaps a second longer to hit the surface than seems physically reasonable.
+
+The vegetation is impossible.
+
+It grows from cracks in the tile. From *within* the clay itself, in some cases. Ferns with fronds the color of oxblood and chartreuse-gold. Mosses that form in perfectly geometric patterns, as if they too obey the angles of the platforms. Flowering vines with blooms like wet silk—pinks and purples and an unsettling shade that seems to shift between orange and something that has no name. Grasses in clusters, their blades sometimes upright, sometimes drooping so heavily with moisture they touch the tile. The plant growth is dense in these clusters but scattered across the vast platform-scape—a patch here, ten meters of bare tile, a dense thicket there. The plants don't *fight* the made environment. They have accepted it, integrated with it. Or perhaps the tile has accepted them.
+
+The heat is thick and wet—a sensation like breathing through cloth. It's not oppressive, exactly, but it's *total*, inescapable. When you stand still, you feel it pressing on your skin, finding the spaces between your clothes and your body. Sweat begins immediately and never stops, yet the air is humid enough that evaporative cooling is nearly impossible.
+
+The sounds are minimal. Water *drips* at intervals—not randomly, but with a rhythmic quality, as if the system has its own slow pulse. Drip. Long pause. Drip-drip. Longer pause. The intervals seem to shift if you're not paying attention. Insects hum occasionally, their sounds distant and muted. Very occasionally, you hear something moving through the vegetation—a rustle, a small splash—but the creatures themselves remain hidden. The tiles muffle sound. Your footsteps barely echo.
+
+The fauna is present but elusive. Fish in the cistern-pools—long pale fish with too many gills, moving with that same dragging quality as the water itself. Frogs that croak in voices that seem too deep for their size, their calls arriving on a delay that doesn't match their throats moving. Water-insects you don't recognize, with legs that seem to bend in too many directions, skating across the liquid's surface as though skating across something thicker than water. Birds, occasionally—they perch on the tallest vegetation, still and watchful, their plumage iridescent in the bright light. They rarely vocalize. Occasionally you'll see something moving in the far distance, beyond the clarity of sight—something large, something that disturbs the vegetation as it passes. You never see it clearly. You're not certain it's there until it's gone.
+
+The strangest part: the temperature is wrong.
+
+Not cold, never cold. Hot, always hot. But the *consistency* of the heat is fractured. You'll feel normal warmth, and then step forward and briefly enter a zone of intense heat—not hotter, but *differently* hot, as if you've walked into a pocket that obeys different thermodynamic rules. Then normal again. The transitions are immediate and have no visible cause. There are no boundaries, no shimmer. The heat itself has become geography.
+
+And the light—the light is *too bright*, in a way that suggests nothing here casts shadows properly. Objects near you have faint, stuttering shadows, as if the light is coming from multiple directions simultaneously and none of them are quite in phase. Shadows seem to lag behind their objects. A fern frond will move and its shadow will follow a moment later, creating a ghostly duplication.
+
+The tiles themselves bear no weathering. The edges don't crumble. The surfaces don't pit or crack from thermal stress or water damage, despite the endless moisture and heat. They exist in a state of pristine maintenance—not new, somehow, but also utterly resistant to age. When you examine them closely, you notice the glaze has a quality like skin, like something living and sealed.
+
+Time here is measured differently. You begin to notice that the light hasn't changed in what feels like hours. The water level in the cisterns hasn't shifted. The vegetation hasn't drooped further despite the heat and moisture. Even the clouds—where visible through the haze—seem fixed in place, not drifting, not evolving. The system has achieved a kind of equilibrium so total that change itself seems to have been engineered out of the landscape.
+
+And yet you know, with a certainty you can't quite justify, that this place is *alive*. Aware. The brightness presses on you with almost intentional weight. The heat carries intention. The slow, rhythmic dripping of the water suggests something vast is breathing, slowly, deeply, in a rhythm measured in heartbeats you've stopped trying to count.
+
+The terraced platforms extend in all directions, repeating their geometric sermon, until the haze swallows them completely. You could walk for days and see nothing but the same pattern, the same wet tiles, the same scattered ferns, the same impossible heat and brightness. You could walk forever and never leave this place, because it has no edges—or rather, its edges are precisely where you stop looking.
+
+This is not a place that was built. This is a place that was *grown* through building.

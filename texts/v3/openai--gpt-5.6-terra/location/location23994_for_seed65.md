@@ -1,0 +1,27 @@
+The high country begins above the reach of trees.
+
+It is not a single summit but a broad, weathered table of stone lifted into the white part of the world: ridges, shallow basins, long shelves of dark metamorphic rock, all open beneath a sky so clean and bright it seems almost solid. The sun has nowhere to hide. It falls on every surface with the hard clarity of a lamp, making mica flash in the ground and turning old snowfields blue in their creases.
+
+Nothing here is newly broken. The cliffs have already shed what they intended to shed. Their faces are rounded at the edges, scarred by long-past ice, blackened in runoff seams, settled into their own forms. Boulders lie where the mountain has decided they will lie, each fitted into gravel and lichen as if the whole plateau were a single patient arrangement. Thin soils collect in protected folds, brown and granular, threaded with roots.
+
+Water is present but never generous. It appears in dark places: beneath shelves where snow survives the summer, in beads of condensation on the shaded sides of stones, in small rills that emerge from banks of scree and disappear again before crossing the open ground. There are damp hollows carpeted in spongy moss, green enough to seem impossible among the pale rock. By noon these places smell of wet mineral, wool, and iron. In the evening, a faint mist can settle in the basins, though the surrounding slopes remain brilliant and dry.
+
+Vegetation keeps close to the ground. There are dense little cushions of flowering plants, all leaf and color compressed into the size of a hand. There are wiry grasses bowing almost flat in the wind, silver lichens laid across stone, thorny shrubs gathered in the lee of boulders. Nothing rises high enough to call itself a forest. Nothing willingly presents a broad face to the cold.
+
+Yet the land is far from empty of life.
+
+The open slopes are alive with small bodies and sharp movements. Herds of pale, sure-footed animals move along ridgelines in long, scattered files, their hooves finding holds in rock too steep for a human eye to trust. Burrowing creatures whistle from every talus field. Large birds spiral in groups on the updrafts, their wings making a dry, papery clatter when they pass overhead. In the basins, shaggy grazers kneel among the sparse grass; their horns are polished by generations of rubbing against the same stone outcrops. At night, if night can be said to arrive in this high brightness, low dark forms cross the snow margins silently, following the scent of the herds.
+
+The fauna has changed the place more than any builder could have. Game trails are engraved into the turf, pale lines winding across impossible slopes. Stones at the mouths of burrows are sorted by size. Flat slabs near mineral seeps bear the rubbed, oily sheen of repeated use. There are piles of split bones, cracked with dropped rocks or carried to ledges by clever beaked scavengers. A visitor might at first mistake these marks for remnants of a people—a circle of selected stones, a cache of sharpened antler, a series of branches wedged between rocks—but nothing here is truly built. It is use without architecture. Tool-making without industry. The plateau has its old habits, enacted by paws, beaks, horns, and hooves.
+
+And it is loud.
+
+The sound is not one sound. It is wind, first of all: a permanent pressure streaming over the heights, thundering through gullies and tearing itself apart on the ridges. It makes the grasses hiss and the loose scree rattle. It enters cracks in the stone and turns whole slopes into flutes, pipes, deep organ notes. Then come the animals: cries bouncing from cliff to cliff until distance is impossible to judge; the alarm whistles of the burrowers; the harsh, argumentative calls of birds; the heavy, rhythmic clacking of hooves across talus; the occasional avalanche of pebbles spilling down a couloir with a sound like rain on a roof.
+
+Even the streams contribute, where they exist. They run beneath stones, hidden but urgent, giving the ground a continuous underground whisper. In some places the water has carved narrow slots under sheets of ice, and the ice booms softly with trapped air and moving pressure. The mountain speaks constantly. There is no silence here, only moments when one noise steps aside and another fills its place.
+
+Despite this, the place does not change.
+
+Clouds may pass, but the light returns to its exact brilliance. Snow may blow across the ground, but it gathers in the same gullies, feathers the same black ledges, leaves the same stones exposed. Herds come and go along their routes, yet the routes themselves do not alter. The same seep wets the same patch of moss. The same bird nests in the same inaccessible crack. Erosion has done its fierce work and now proceeds almost imperceptibly, preserving the illusion that these heights have settled beyond time.
+
+A traveler would feel the strangeness not in anything impossible, but in the mountain’s certainty. There is no ruined wall, no road, no smoke, no sign that anyone has claimed it. Still, every hollow seems occupied by a purpose older than possession. The animals know where the sheltered ground lies beneath a storm. The wind knows which clefts will sing. Water knows the hidden channels through stone. The plateau does not welcome or reject intrusion. It simply continues, bright and cold and deafening, suspended above the lower world in an equilibrium so complete that it feels almost sacred.

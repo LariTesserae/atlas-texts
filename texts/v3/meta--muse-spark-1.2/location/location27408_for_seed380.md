@@ -1,0 +1,40 @@
+It is a town that shouldn't be able to exist, down in the bowl.
+
+You don't so much descend to it as notice the ground has been missing for a while. The road out on the plain simply tips over a lip of weather-worn basalt and becomes a switchback stair, cut a hundred years ago and then cut again by water, the edges of each step rounded now, the iron rail polished down to a dark shine by hands. The air cools with every turn. By the time you reach the floor, your breath makes a brief cloud and vanishes.
+
+The basin is small. You can stand at its southern wall and see the whole of it — not as a panorama, but as a room.
+
+That's the right word for its scale. A cathedral, a grove, a single great chamber with boundaries you can always feel. The walls rise sixty or seventy meters on all sides, not sheer but undercut and weeping, stratified rock gone soft with age. This place is not ruined. It is *established* — nothing is collapsing, nothing is raw. Every surface has been touched for so long by water and wind and work that it has found its equilibrium. Stone is scooped and fluted where centuries of seep have run. Brick has slumped slightly into its mortar. Even the rust has a kind of varnish to it, a deep, settled brown that no longer flakes.
+
+Because everything weeps.
+
+Water is the first fact here. Not a lake, not a flood — a presence. The atmosphere itself is close to its dew point, cool and saturated, so that every hard surface is beaded. The walls sweat continuously. Thin sheets of water slip down them without channels, collecting in runnels, in gutters, in the old industrial canal that still bisects the town. You hear it before you see it: a constant, patient ticking of drops from pipe joints, from rock teeth, from laundry lines. The rocks themselves weep. Where the basin wall was blasted to make room, groundwater finds the scar and pushes out, welling cold and clear over moss-black stone, tasting of iron.
+
+The town was built to use that water.
+
+It is unmistakably urban, but a town compressed and folded in on itself. Three or four streets, if you can call them streets — more like alleys between factories that have become houses that have become factories again. Layered construction. A brick mill built over a concrete service plant built over a steel foundry, all still standing, all still patched together with catwalks, corrugated roofing, enameled signs whose paint has gone pastel with damp. Electrified, mechanized, industrial — but not roaring. The engines here are old, large, and patient.
+
+There is the central works, its flywheel as tall as a house, turning so slowly you have to watch for a minute to be sure it is moving at all. It drives nothing in particular anymore, or perhaps everything in aggregate — a line shaft disappears into a wall and reappears two buildings over as a loom, as a pump, as a lathe turning endlessly at low RPM, shaping the same piece of brass it has shaped for years. Thick insulated cables hum low, warm to the touch despite the cool air. Bulbs burn amber every twenty meters along the alleys, each haloed in mist, buzzing faintly. They are dim by design — or by atmosphere. The light never reaches the top of the basin. It pools low, leaving the upper walls and the sky-hole in a perpetual blue dusk. No direct sun ever hits the floor. On cloudy days, which is most days, the opening above is just a pale, diffuse oval, like looking up from the bottom of a well.
+
+Between the buildings and the machines is a lot of nothing. That is the strange economy of the place. For a town, it is sparse. The infrastructure is dense but the occupancy is not. A whole factory hall will stand empty except for a single workbench and a kettle still warm. A row of terraced houses will have three lit windows out of twelve. There is space between presences — between people, between sounds, between puddles — and that space is respected. You learn quickly not to hurry across it.
+
+Vegetation is sparse in the same way, but stubborn. No trees. No fields. The cold and the lack of light and the metal don't allow it. Instead, there are ferns growing out of the weep-lines on the walls in bright green commas, and lichen that glows faintly grey-white on the brick. Black moss carpets the north side of every pipe. In a vacant lot where a building was never finished, someone has let a patch of hardy mustard and pale reeds take the standing water, and they shiver each time a drop hits them from the walkway above.
+
+If the plants are spare, the animals are everywhere, and this is the town's strangest accounting.
+
+The quiet is full of them.
+
+The canal that runs down the middle — really a slow, engineered stream, stone-lined, black and clear — is thick with blind white fish and orange carp that have gone feral from some ornamental release decades ago. They glide inches below the surface, unstartled. Salamanders the length of your forearm, translucent and pink-gilled, cling to the weeping walls and watch with lidless eyes. The iron girders above are heavy with pigeons, but pigeons like you've never seen them: their feathers are dark and damp, their coos muted, and they nest in the idle gear teeth of cranes. At dusk, moths come off the walls in clouds, each as big as your palm, dusted the exact color of wet concrete, and they settle on the amber bulbs until the bulbs are furry with them. Rats move openly along the pipes, not scurrying. Everything moves slowly here, even the fauna. They have learned the pace of the flywheel.
+
+And there is the weirder fauna, or perhaps it is fauna. In the slow pools under the works, where warm discharge from the generators meets the cold seep, colonies of something build. They look like barnacles made of glass and copper wire. They click. When the water rises — which it does, and recedes, and rises again with a periodicity that has nothing to do with rain — they open and filter the mist itself. No one remembers putting them there. The older residents say the factory grew them. The older residents are not joking, exactly.
+
+The rules of the place become obvious if you stay a day:
+
+1. Water remembers its level. You can pump the canal dry and come back in an hour to find it exactly where it was, to the millimeter, even though no inlet is visible.
+2. Rust does not mean decay here. It is a finish. Things rust to a certain point and then stop, held in that weathered balance by the cool, the wet, the oil in the air.
+3. Sound carries but does not accumulate. You can drop a wrench and hear it clang three streets away, clean and distinct, because there is so little other noise to cover it. But no noise ever becomes background. The town refuses to be loud. Even the big diesel that still thumps once every seven seconds in the power house does it politely, with a soft *puh* and a puff of steam that condenses instantly.
+4. Nothing leaves quickly. People who come down the switchback tend to walk slower at the bottom without deciding to. Conversations take a long time. The moths take a long time to leave a bulb. The water itself moves as if it is thinking about each corner before it turns.
+
+At night — though night is only a slightly deeper dimming of the already-dim — the town does not sleep so much as idle. The amber bulbs stay on. The fish keep circling. The flywheel keeps turning. Someone keeps a radio on low in one of the terraces and you can hear the static as a kind of rain. Condensation ticks on every surface. The air smells of wet stone, ozone, coal smoke that never quite clears, and the faint, sweet rot of the mustard reeds.
+
+It is not abandoned. Laundry still hangs and steams. A barrow of parts sits mid-alley where someone left it, not stolen. If you look up, you can see the entire wall, the whole enclosing bowl, wet and glistening, holding the little low town in its palm like water cupped in a hand that has been cupped for a very, very long time.

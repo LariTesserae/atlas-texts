@@ -1,0 +1,13 @@
+A vast, low-lying expanse stretches to the horizon, its surface a dense lattice of interconnected structures. The scale is planetary, yet the entire environment is artificial, constructed by some unknowable civilization or process.
+
+The lattice is not uniform, but rather an intricate, multi-layered weave of elements that resemble industrial machinery, conduits, and vast frameworks of unidentifiable alloys. These components interlock in complex, almost organic patterns, forming a kind of mechanical ecology that hints at arcane purposes.
+
+Despite the industrial appearance, the lattice is largely dormant. Occasional thrums and deep vibrations suggest great engines deep beneath the surface, but overall the landscape is surprisingly quiet, devoid of the clamor one might expect from a manufactured world.
+
+Woven throughout the lattice are channels and pools of dark, mirror-still liquid. These waters do not flow but rather seem to seep up from some subterranean source, collecting in depressions and basins formed by the interlocking structures. In places, strange mists rise from the pools, adding to an atmosphere of eerie stillness.
+
+The scale of construction is so vast that the lattice generates its own microclimate. Mists swirl and eddy between the structures, and ephemeral vortices of vapor trace strange patterns in the air before dissipating. The moisture seems to condense on the surfaces of the lattice, running down angled planes and dripping into catchments with a soft, echoing patter.
+
+Strangest of all are the entities that inhabit this world. Defying easy categorization, they resemble a fusion of mechanical and biological forms. Swarms of small, insectoid machines crawl through the interstices of the lattice, their carapaces gleaming with moisture. Larger, almost vertebrate shapes prowl the wider passages, their movements precise and purposeful. The inhabitants seem perfectly adapted to their constructed environment, as if they evolved alongside it—or were designed concurrently.
+
+Despite the abundance of life, or machine-life, the vast lattice has a timeless, unchanging quality. The equilibrium of the mechanical ecosystem is so perfect, so self-sustaining, that it feels as if it could persist for eons without alteration. It is a world both fascinating and unsettling, inviting endless questions about its origins, its purpose, and the nature of the beings that call it home.

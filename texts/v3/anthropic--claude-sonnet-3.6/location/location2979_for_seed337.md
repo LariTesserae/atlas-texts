@@ -1,0 +1,11 @@
+A shallow depression in dark metamorphic rock, roughly oval and no wider than thirty paces. The walls slope gently, smoothed by ages of water and ice, their surfaces traced with hairline cracks filled with copper-green mineral deposits. The rock itself seems to hold coldness, radiating a chill that makes the thin air even sharper.
+
+At the bottom, a collection of peculiar structures rises from the stone: dozens of delicate crystalline formations, each about chest-height, growing in tight clusters. They're not ice, though they share its translucent quality. Their surfaces are ridged like stromatolites, but they pulse with subtle movement - expanding and contracting in slow rhythm, like breathing. A faint whirring emanates from within them, barely audible but constant, accompanied by occasional soft clicks and pings.
+
+These formations seem to "farm" the condensation that regularly beads on the rock walls. Hair-thin filaments extend from their bases, forming complex networked patterns across the ground. When moisture gathers, these filaments conduct it through some internal mechanism, causing brief fluorescent flickers within the crystalline bodies. The process generates a slight warmth that quickly dissipates into the cold air.
+
+The only other life forms are patches of dull purple biofilm that grow in the deeper cracks, and rare, spidery creatures that skitter between the crystals, their bodies so transparent they're visible mainly by their movement. They seem to tend the filament networks, repairing breaks and adjusting their patterns, though whether they're separate organisms or extensions of the crystal systems is unclear.
+
+The whole arrangement feels like some kind of naturally-evolved technology - not built, but grown and adapted over long cycles of time. The depression itself acts as a gathering bowl for fog and rain, feeding this strange micro-ecosystem that operates with machine-like precision but organic fluidity.
+
+During the brief periods when direct sunlight reaches the bowl, the crystals dim their internal processes and partially retract their filaments. But in the more common diffuse light or darkness, their quiet industry continues uninterrupted, steady as a heartbeat.

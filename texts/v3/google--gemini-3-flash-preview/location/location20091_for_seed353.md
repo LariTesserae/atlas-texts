@@ -1,0 +1,19 @@
+The world is a windowless, humming radiator of organic clockwork. It is a megastructure of cellulose and logic, a vast industrial greenhouse that has consumed its own sun and now produces its own fever.
+
+At an elevation where the air should be thin, there is instead a pressurized, sweltering gas composed of volatilized oils and fine wood-dust. There is no water here; the organism has long since mastered a non-aqueous metabolism based on the circulation of hot, silken resins. Life does not drink; it transpires hydrocarbons. The heat is a physical weight, a 2.9th-degree constant that keeps the resins fluid and the cellular machinery from seizing.
+
+The landscape is not grown so much as it is manufactured by the flora itself. This is a Total Built Environment where the distinction between a tree and a factory has collapsed. Imagine a skyscraper made of heartwood, its interior honeycombed with piston-like chambers that pulse with the rhythm of internal combustion. There is no dirt, no stone, no tectonic foundation—only the "Great Root Grid," an ancient, eroded infrastructure of fossilized lignin that holds the world in a grip of petrified amber.
+
+Because erosion has reached its final state, the world is a series of flat, stacked plateaus of over-engineered brush. Every square inch is packed. To move is to push through a density of hanging vines that feel like copper wiring and thick, waxy leaves that act as solar panels for an invisible light source. 
+
+But there is no light. The world is a cavern of 0.2/3 darkness, illuminated only by the dull, infrared throb of friction-heat. The plants do not photosynthesize; they scavenge the kinetic energy of their own turbulent growth.
+
+The dynamic is one of perpetual, frantic construction. This is a "Solaris" of wood and gear-work. In the darkness, the environment is never still. Entire groves of hydraulic stalks shoot upward, tearing through older layers of "buildings" in a chaotic race for space, only to be ground down by the slow-turning gears of the canopy-mills. It is a bazaar of biological machinery. You can hear the sound of the world: a 1.3/3 low-frequency thrum, the sound of a billion wooden teeth meshing together, the groan of expanding fiber, and the hiss of pressurized sap being forced through capillary pipelines.
+
+There are no animals. There is no room for them, and nothing for them to do. The flora has internalized the kinetic role of the fauna. The "vines" are the conveyor belts; the "flowers" are the smelting crucibles where minerals are extracted from dust; the "seeds" are pre-programmed micro-engines. 
+
+The scale is regional, a vast valley of industry carved out of a singular, rotting mother-tree. You stand on a gantry of woven bark, looking out over a sea of grinding gears made of ironwood. Below you, the "ground" is a churning mulch of discarded history—ancient, eroded machine-parts of previous botanical eras, slowly being digested by fungal acids to be reborn as new struts.
+
+The air smells of burnt cinnamon, hot oil, and the dry, suffocating scent of a kiln. There is a "weirdness" here that stems from the intent. The environment feels like it is trying to solve a mathematical problem through the medium of growth. Every branch is a calculation; every leaf is a sensor. 
+
+In this dark, boiling, waterless hive, the world is a closed-loop engine. It is a masterpiece of industrial stagnation—hyperactive and turbulent, yet going nowhere, forever recycling its own heat in the pitch-black silence of the high-altitude void. It is a forest that has become a machine, and a machine that has forgotten it was ever alive.

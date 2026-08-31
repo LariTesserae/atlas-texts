@@ -1,0 +1,11 @@
+A great vertical rift in the earth's surface, stretching as far as the eye can see. The walls of the chasm rise sharply on either side, their surfaces marked by the scars of a young, still-forming geology. Craggy outcroppings and sharp, angular features predominate, as if the land is only just now emerging from the depths.
+
+Dampness permeates the air, with clouds of mist and condensation swirling between the towering cliffs. Sparse, hardy vegetation clings to the rocky slopes — twisted, wind-swept trees, tough shrubs, and creeping mosses that soak up the intermittent moisture. The temperature is cool, with a constant breeze whistling through the ravine.
+
+Despite the open, expansive scale of the landscape, there is a sense of density and compression. The walls of the canyon press in, with the sky visible only as a narrow ribbon overhead. The sounds of this place are muted, with only the occasional drip of water or faint rustling of leaves breaking the near-silence.
+
+This is no natural environment, however. Stretching across the canyon floor and creeping up the lower slopes are the structures of an immense industrial complex. Massive, blocky buildings, their surfaces pitted and weathered, house the machinery and workings of some unknown, long-running process. Pipes, gantries, and vast metal conduits snake between the structures, carrying materials and energy through this alien, constructed landscape.
+
+The light is bright, casting an almost shadowless illumination over the scene. Abundant fauna can be glimpsed — strange, enigmatic creatures that dart between the industrial features or cling to the canyon walls. Their forms and behaviors seem to defy the normal rules of biology, hinting at a deeper weirdness to this place.
+
+This is no natural world, but rather a constructed environment that has taken on a life of its own. The forces of erosion and entropy wage a slow, grinding battle against the industrial structures, while the strange ecology adapts and evolves within the confines of this strange, semi-artificial realm. The overall impression is one of a world in flux, where the boundaries between the natural and the artificial have become blurred and indistinct.

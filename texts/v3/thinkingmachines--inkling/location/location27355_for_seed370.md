@@ -1,0 +1,25 @@
+High above the dry world, sealed inside a thin shell of ancient metal, there is a room.
+
+It is not large—no wider than a modest chapel, no taller than two men standing on each other’s shoulders, though the dome of it climbs further, reaching upward into darkness. You stand within it, and the first thing that strikes is not sight but weight: the air is warm, thick with absence, and utterly without moisture. No river has ever touched this place. No rain, no dew, no breath of vapor. The dryness is absolute, a mineral stillness that has held for longer than erosion usually allows.
+
+Everything is built. Not a grain of raw stone remains exposed; not a single surface was left to grow wild. The walls are thick plates of dark, warm iron-stone, joined by visible seams—crude dovetails and hand-set rivets that betray the primitive tools of their makers. There are chisel marks, shallow and rhythmic, where simple hammers struck home each joint. This is not the work of engines or precision, but of patient, manual labor, repeated until every plane was finished. The floor is the same material, polished not by hand now but by eons of settlement, worn concave in the center like a bowl that has finished its falling.
+
+And it is full. The density is near-total. From the floor rise slender rods—hundreds of them—hammer-forged from the same dark metal, rising in rows so tight that they form a forest of vertical lines. Others hang from the dome above, suspended by simple links, their tips stopping just short of touching the ones below. There is barely space to move between them; you must turn sideways, feel the warm metal brush both shoulders at once. Every gap is occupied. Every cubic span of this small vault is claimed by presence—no void, no empty corner, only packed, arranged substance.
+
+The light is dim—barely there. The walls hold a faint, internal warmth that glows dull red-brown in the darkness, like embers buried too deep to flame. It is enough to see the rods, to see your own hands, but nothing more. No window opens. No flame burns. The illumination seems to come from the material itself, tired and ancient.
+
+Then there is the sound.
+
+It is deafening.
+
+Not an echo, for there is no space for echoes to travel—too packed, too saturated. Instead, the roar is immediate, omnipresent, a single continuous tone that fills every interstice between the rods. It does not vary. Not in pitch, not in volume, not in rhythm. It has never changed, and it will not change. You feel it in your teeth, in the hollow of your chest, in the bones of your hands. The rods do not visibly tremble, yet they sing. Or rather, they hold a note that has been struck once and sustained forever.
+
+The warmth comes partly from this—from vibration turned to heat over unfathomable time—but partly also from the place itself. The temperature is steady, comfortable, alive only in the sense that a stone can be alive with retained warmth.
+
+There is no life here. No plants cling to these rods—there is nothing to cling to, and no water to sustain them. No insects crawl. No breath of any creature stirs the still air, for there is no air that moves. The sound should stir it, but it does not. The equilibrium is total. Dynamic zero. A frozen state, not of ice, but of perfect, settled balance. The vibration holds everything exactly where it belongs, and nothing shifts.
+
+The erosion has done its work completely. The edges of every rod are rounded smooth, blunted like river stones, though no river was ever here. The seams between the wall plates have softened into gentle ridges. The floor’s concavity is perfect, mathematical. This place has reached its final form. It is as old as it can be—primordial, settled, near-flattened into its ultimate shape. There is nothing left to wear away.
+
+And there is something strange, though only barely—just under the threshold of obviousness. Despite the primitive craftsmanship, every rod is the same length, the same thickness, the same curvature at its tip, as if copied not by eye but by an intent that exceeded the tools. The angles of the dome do not quite align with the logic of weight; they feel slightly off, inducing a quiet dizziness if you stare too long. The sound, though deafening, produces no wind, no flutter, no movement in the dense array. It is present without consequence, a roar that moves nothing. The warmth seems to come from inside your own body rather than from the walls, though both are equally warm.
+
+You stand in the narrow corridor between the rods, turned sideways, pressed between warm, singing metal, in a small, high, sealed vault that is entirely made, entirely full, entirely still. The drone does not ask anything of you. It has no purpose left to fulfill. It simply is, eternal and unchanging, in this packed, dim, warm, dry chamber at the top of a world that has forgotten water, life, and change.

@@ -1,0 +1,13 @@
+A vast cavern system stretches through limestone, but the stone itself seems to breathe - micro-contractions that take hours, like a geological pulse. The darkness is absolute except for patches of bioluminescent mold that pulse in counterpoint to the stone's rhythm, casting dim blue-green light across glistening walls.
+
+The air is thick with flying creatures - not bats, but something more like a cross between jellyfish and moths. Their translucent bodies drift in complex currents, thousands upon thousands of them filling the space from floor to ceiling. Their wings make a constant susurrating thunder that echoes off the stone, overlaid with their strange harmonic calls that sound almost like crystal wine glasses being played. The sound is overwhelming, physical - you feel it in your bones.
+
+Condensation drips steadily from their beating wings, creating a constant light rain that collects in shallow pools on the cavern floor. These pools teem with blind, pale things that might be salamanders or might be fish, darting and writhing in such numbers that the water seems to boil. The pools connect via tiny rivulets that flow according to the stone's pulse, creating ever-shifting patterns of connection and isolation.
+
+The cool air moves in complex patterns, driven by the wing-beats above and the breathing of the stone. Sometimes it forms visible currents of mist that spiral through the jellyfish-moths, causing them to scatter and reform in hypnotic patterns. Their bioluminescent organs flash in response, creating momentary constellations in the darkness.
+
+The cave floor is carpeted with what looks like fur but is actually millions of tiny crystalline structures - the accumulated remains of countless generations of the flying creatures, compressed and transformed by time and the stone's movement. This carpet extends as far as any light can reach, suggesting the system extends for miles.
+
+Every surface that isn't crystalline fur is covered in a thin film of living matter - not quite fungus, not quite slime mold, but something that exists in the space between. It responds to touch with subtle color changes that ripple outward, creating silent conversations across the walls and ceiling. The film seems to feed on both the dripping water and the constant rain of tiny particles from the creatures above.
+
+The whole system feels like a single organism, each part moving in concert with the others in patterns too complex to fully grasp. The darkness and the sound create a disorienting effect - it becomes difficult to distinguish up from down, near from far. The only constants are the pulse of the stone, the thunder of wings, and the endless dance of light and water through the living darkness.

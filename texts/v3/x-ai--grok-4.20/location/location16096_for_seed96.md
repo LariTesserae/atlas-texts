@@ -1,0 +1,23 @@
+The place is called the **Mevrane**, though no tongue here has ever spoken the name.
+
+It is a high, wet, utterly mineral world still trembling from its own recent birth. The land rises in immense, knife-sharp ridges and folded curtains of pale stone that look as though they were lifted from the earth only yesterday. Every surface is saturated. Water does not flow so much as it is *present*: it beads on every plane, threads through capillary fractures, seeps upward through porous membranes of rock, and condenses out of a cool, luminous mist that never quite becomes rain and never quite departs. The atmosphere itself weeps.
+
+There is no soil. There never was. Nothing green has ever taken root here, nor will it. The only living things, if they can be called living, are slow colonies of lithotrophic fungi the color of wet bone that etch microscopic galleries into the rock faces. Their fruiting bodies are translucent needles no longer than a fingernail; they appear only once every few centuries when the stone itself decides the time is right. Otherwise the world is pure mineral, machine, and memory.
+
+Everything you see has been built.
+
+The Mevrane is a single, continuous artifact. A cathedral-engineered geology constructed by a long-vanished culture whose methods have calcified into the landscape itself. Every cliff is a wall. Every valley is a nave. Every ridge is a buttress. The stone was grown rather than quarried—layer upon layer of synthetic mineral extruded in perfect alignment, then folded, fused, and carved by hand-tools of bone, obsidian, and a dull silvery metal that no longer exists in quantity. The precision is inhuman. The labor must have taken millennia. The place is still unfinished; in the distance, half-born arches rise out of the mist like the ribs of some titanic creature that died before it could stand.
+
+The scale is regional, yet claustrophobic. Everything is packed so tightly that there is almost no negative space. Ridges press against ridges. Gullies run between them like capillaries. You cannot walk ten paces without meeting another deliberate surface—fluted columns that serve no roof, cantilevered platforms that lead nowhere, stairways that ascend into blank walls. The eye is never allowed rest; there is always another constructed detail crowding the vision, another deliberate angle, another seamless joint.
+
+Light is everywhere and merciless. It comes from no sun. The sky is a uniform, bone-white brilliance that seems to radiate from the air itself, as though the atmosphere has been laced with microscopic mirrors. Every wet surface becomes a source of glare. Shadows are rare, thin, and strangely blue. When they do appear they cling to the undersides of overhangs like guilty secrets.
+
+The sound is almost entirely the sound of water moving where it should not: the soft perpetual drip from the teeth of carved cornices, the faint ringing of droplets falling into basins cut a thousand feet below, the wet sigh of condensation running down fluted pillars. Occasionally, once in a human lifetime, a single enormous block of grown stone will finish its slow contraction and settle against its neighbor with a sound like a temple bell struck inside a mountain. Then the quiet returns, deeper than before.
+
+There is no animal life. Not even insects. Only the fungal needles and, perhaps, something else—something that is neither animal nor mineral. In certain folded corridors where three constructed planes meet at impossible angles, the air sometimes thickens into slow, deliberate shapes. These shapes do not move so much as *decide* to have already moved. Pilgrims who once came here (there are still a few, though they are not human) called them the Unfinished. They seem to be studying the architecture, the way a sculptor studies an incomplete statue.
+
+The rules of the world are patient and geological.
+
+Nothing here is in a hurry. Erosion is only just beginning; the edges are still viciously sharp. A cut finger can easily lose its tip. The temperature stays cool enough that breath condenses and falls back onto your own face as cold dew. Over centuries the water will soften the sharpest angles, but the softening will itself be deliberate, as though even decay has been engineered into the plan.
+
+To walk the Mevrane is to feel that you are moving through the fossil of an idea rather than a place. Every surface was meant to mean something. The meaning has outlived the minds that set it down, leaving only the saturated, bright, mineral silence and the slow, wet, patient breathing of a world that is still, after all this time, deciding what it wants to become.

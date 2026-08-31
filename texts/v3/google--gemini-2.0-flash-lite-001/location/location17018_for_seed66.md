@@ -1,0 +1,15 @@
+The world is a vast, high mesa, a city built into the sky. It is a place of perpetual twilight where the sun is obscured, not by clouds, but by the choking, churning industries it fuels. Warm, humid air, heavy with the reek of chemical processes and the metallic tang of machinery, hangs over everything. Water, seeping from the porous stone, collects in slick, oily puddles on the walkways.
+
+The mesa itself is not natural. It's a colossal, engineered structure, a testament to a forgotten purpose, now in a state of slow decay. The stone is a dark, porous material, perhaps volcanic glass, or some other mineral formed under immense pressure. There's no sign of plant life—the world does not know plants. But the stone weeps, it sweats, it seems to breathe in the damp air.
+
+This city is home to a teeming fauna - strange, chitinous creatures, engineered in ages past. They swarm the narrow canyons, the ruined plazas, the forgotten workshops. Some are massive, hulking beasts that slowly grind across the open spaces, their multiple limbs scuttling over the slick surfaces. Others are small, agile predators that dart through the shadows, their clicking mandibles the only warning before they strike. They are the offspring of industrial processes, the detritus of a purpose long forgotten, and yet, they are everywhere.
+
+Above, the sky is filled with a low, constant hum, the sound of a thousand engines, a thousand factories, all working in concert. The air vibrates with the din of production. Massive gears grind, pistons pump, and conveyer belts groan under the weight of some long-dead industry. It is a city of layers, all densely packed together. Buildings are built upon buildings, a stratified monument to a lost civilization. The architecture is a brutalist fusion of sleek angles and corroded metal. Massive metal supports and winding tubes snake through structures, carrying who-knows-what, the air laced with steam and noxious fumes.
+
+The light is dim, diffused by the haze of industrial output. Lamps, built of tarnished alloys, cast pools of sickly-yellow illumination, only barely pushing back the encroaching shadows. The shadows themselves seem to shift and writhe, as if animated by the unseen creatures that make the city their domain.
+
+Erosion has taken its toll. The edges of structures are worn, the carved surfaces smoothed by wind and weather. But the structures remain, the city itself, in a state that feels eternal, its slow, patient decay only sharpening the beauty of its age.
+
+And how slow this all is! The cycles here are vast. The gears turn at their own tempo. The denizens of this place may live and die, but the city, the complex, still grinds onwards. Changes occur over vast spans -- the slow creep of the stone, the slow, inevitable collapse of the structures, and the slow, inexorable rise of all the swarming life.
+
+It's a strange place, neither beautiful nor ugly, but undeniably alive. A cold, industrial heart beating in the sky.

@@ -1,0 +1,85 @@
+It feels first like a pressure, not a place.
+
+Warm, dense air presses gently against everything, a constant, even weight. There is no breeze. No drift. The atmosphere here does not move; it occupies. Sound does the moving instead.
+
+You are underground—not in a cavern carved by water, but in a hollow that feels excavated, assembled, almost curated. The ceiling is low enough to know it’s there but lost in a haze of suspended dust and vapor, flecks of dull metal and pollen-like motes that catch the thin, indirect light. The light has no clear source: it comes from everywhere and nowhere, a dim, amber wash that flattens shadow and makes edges soft. Nothing here is truly dark, but nothing is bright.
+
+The space is about the size of a large factory floor or a small train yard, but broken into packed aisles and interlocking pockets. Think cathedral-scale, but the columns are too close together, the passages too narrow, the air too thick for grandeur. It’s dense, overfull. Everything is near something else.
+
+The ground is dry, utterly dry. No moisture clings to it, no dampness wicks through it. The floor is a hard pan of fused mineral and dust, compacted into plates that ring faintly when struck. Cracks run through it—sharp, clean fractures, recently made, not yet rounded or filled with debris. It has the look of something that cooled fast and was never weathered: glassy ceramics fused to matte rock, ribbons of metallic ore bulging through like frozen waves. Here and there, fine grains of some pale, flaky mineral are heaped into windless drifts, but the wind that might have made them does not exist now. The drifts just are.
+
+Oddly, the edges of things are young. Supports and ledges and protrusions have knife-clear lines, as if they were machined yesterday. Surfaces that should be scuffed are crisp, with only a shallow patina of dust. Nothing here feels worn down; it feels assembled into a final arrangement and then left that way, indefinitely.
+
+From the ground up, a forest of structures rises—dense, close, almost touching, but rarely quite intersecting. They are not trees in any familiar way, but the spacing, the vertical insistence, feels arboreal.
+
+Some are clearly built: riveted girders, corroded beams painted long ago in safety orange now dulled to the color of dried blood; stubby pylons wrapped with bands of cracked insulator; latticed towers the height of houses, burdened with defunct gantries and tracks that end midair. Segmented ducts snake through this forest overhead, swallowing into walls, emerging again at odd angles, each joint sealed with a glassy, fungus-like resin. Pipes of different diameters run in parallel bundles, some metal, some a fibrous mineral composite, all bone-dry and humming faintly from within.
+
+Others are more ambiguous—something between growth and construction. Columns of a pale, porous material rise directly from the floor, flared like stalagmites that decided to be vertebrae. Their surfaces are patterned with hexagonal dimples, some empty, some plugged with feathery growths or metallic plates. Broad, fin-like panels of flexible mineral sheet hang between supports, scalloped and translucent, like stone made into skin. Veins of darker material run through them, branching and looping back, yet no fluid moves there; they are circuits, perhaps, or fossilized conduits of a long-finished process.
+
+Vegetation exists, but it is sparse and utterly adapted to aridity. No soft green; nothing lush. Instead, there are brittle lattices and dusty fronds clinging to structural corners and sheltered niches—a hidden understory that looks half-botanical, half-crystalline.
+
+Along the bases of beams, matte growths cluster: low rosettes of interlocking plates the color of tarnished copper, each plate edged with fragile, hair-thin spines. They seem plantlike, rooted to the mineral by fused feet, but their surfaces bear faint, regular scoring as though something has grazed them for a very long time. From higher ledges, curtain-like arrays of filaments hang down, each strand a series of tiny jointed segments, more insect antenna than vine. They never sway. They extend, record, wait.
+
+Occasionally you pass what can only be called a shrub, though it deserves a stranger name: a branching set of rigid rods, each tipped with a circular, calcified disc that has cracked into pie-slice plates. Between those plates, dust has gathered into thin wedges, held in place by static and the absence of any moving air. On some discs, clusters of micromachined pores form spirals and grids, faintly iridescent. These discs may be leaves, or sensors, or speakers.
+
+Fauna fills the space.
+
+You become aware of it first as texture in the noise. The place is loud, but not chaotically so. The sound is constant and layered, a mechanical and animal chorus that has settled into a steady equilibrium.
+
+There is a deep background hum, more felt in bone than heard: the combined vibration of dormant but not-dead machinery. It is the frequency of compressors that no longer compress, of motors locked into a slow, patient idle. Overlaying this are beats and pulses—regular clacks, periodic chirps of solenoids, the sharp, metallic chitter of something striking a grid. None of it accelerates or fades; the rhythm is stable, repeating, as if the entire hall is a machine that finished starting up long ago and will never again power down or change mode.
+
+Within and between these mechanical layers, the creatures speak.
+
+They are abundant, but their abundance is folded into crevices, perched on beams, wedged into clusters between pipes and panels. The density is vertical as much as horizontal. The air is three-quarters occupied by perches and platforms, by overpasses and underhangs, each crowded with life that hardly moves but never quite rests.
+
+Small forms dominate. Imagine animals built from the same materials as the environment: ceramic, metal, mineral, resin. They are articulated, segmented, jointed like insects, but sized from fingertip-length to that of a dog. One clings to a pipe a few meters away: a six-limbed creature with a sleek, elongated body of overlapping plates, each plate etched with geometric patterns like circuitry. Its head is a faceted dome with no obvious eyes, only dense arrays of pinholes ringing the lower edge. Its limbs end in pads that grip electrostatically to smooth metal, leaving no marks. It is utterly still—but not idle. Every few seconds a tremor runs along its dorsal plates, a microscopic adjustment that never sums to motion.
+
+Elsewhere, a cluster of disk-bodied things plaster themselves to a vertical support. Their undersides are lattices of bristles that comb the mineral surface, harvesting invisible deposits. Their topsides are smooth and slightly concave, holding a constant, thin layer of powder they hoard, farmer-like, for some biochemical or non-aqueous equivalent. They make a rapid, almost musical ticking as each bristle array flexes and relaxes in a precise pattern. The sound forms a repeating algebra of clicks that never varies from day to day.
+
+Nothing here breathes water. They circulate some other fluid—oils, maybe, or liquid metals at low melt points—enclosed and never evaporating. Their chemistry is not aqueous but still absurdly alive in its pattern and persistence. Where a mammal might exhale steam in chill air, these creatures give off faint electromagnetic emissions, readable by their neighbors, vanishing into the dense, metallic environment like whispers.
+
+Occasionally, larger shapes assert themselves. One passes along a high gantry—if you can call such a slow, centimeter-by-centimeter advance “passing.” It is the size of a pony, composed of a chain of linked segments that can twist and reconfigure. Each segment is a ring of pistons and blades around a central core, a donut of machinery that can roll, hinge, or clamp. It advances by selectively anchoring some segments to the rails of the gantry overhead, then pulling others along: a living ratchet. It carries swarms of smaller beings on its underside, nested in cavities like commuters on a moving platform. As it creeps, it emits a deep, toneless throbbing, a positional beacon more than a call.
+
+Every animal here has found a niche in a world where nothing erodes and nothing flows. They feed not on what breaks down but on what continues: gradients of heat and charge, trace deposits from old industrial processes, the tiny replenished films of vapor and dust that still condense from the air’s complex chemistry. They move little because the gradients are stable; each niche is a permanent one, not a seasonal advantage. Predation, where it exists, happens at the level of access to these gradients—creatures wresting control of a conduit, overrunning a patch of catalytic surface, replacing another population in a fixed slot in a layered stack.
+
+Between the obvious living forms and the fixed architecture, another category lurks: devices that might be alive or might simply be old machines continuing in cyclical routines. In small alcoves, cabinets sit with their doors partly open, stuffed with coils and flattened spheres. A faint blue corona occasionally flashes along the coils in perfect, unchanging sequences, watched by serried ranks of lensless, sensor-lined organisms perched on the edges. Are the machines signaling to them? Are the creatures reading forgotten telemetry, living in symbiosis with dead infrastructure?
+
+Along one wall—if you can call any boundary here a wall—there is a partially collapsed façade of something clearly once human-made (or at least designed by an intelligence we’d recognize as “industrial”). A section of tiled paneling bears warning symbols in a script partly worn, partly overgrown with meticulous, inch-high growths that resemble coral made of bronze. A doorway stands half-blocked by a curtain of rigid, tubular growths, each the diameter of a finger, all fused together with the geometry of a honeycomb. Inside that occluded room, there is a constant, bass rumble and the glare of a through-the-gap light more intense than anything in the main hall, but its brightness never pulses or flickers. Whatever machine or reactor lies beyond is in absolute, endless equilibrium—no ramp-up, no decay.
+
+Scattered artifacts remain from a time when someone adjusted this place: a short flight of stairs leading up to a platform that once overlooked something significant, now staring only into a crammed tangle of ducts; a crane whose claw hangs perpetually a meter above the floor, mid-lift, its cable hardened by time into a curved sculpture; a line of rails that dead-ends in a wall of fused mineral as if the track had tried to continue and the rock had simply declined to be moved.
+
+Despite these suggestions of a past, the present is the only tense that matters. The entire environment gives off the sense of a process that concluded, then refused to end. A factory whose last product was itself.
+
+Weirdness here lies not in grotesquerie but in logic: everything follows rules that are clear once glimpsed but utterly alien in their premises. For instance:
+
+- Gravity is present and familiar, but friction feels subtly wrong. Objects stop more abruptly than expected, or continue more persistently when set in motion, depending on the path they take. Certain rails and surfaces are coated with microstructured layers that null or enhance friction directionally. The creatures understand these paths intimately and use them to move with almost no muscle.
+
+- Sound is both communication and infrastructure. Some surfaces vibrate at ultrasonic frequencies imperceptible to you but vital to the ecosystem. A section of floor thrums at exactly one pitch, serving as both heating element and message board for species whose limbs are tuned to that note. A vertical pipe rings at another, marking a boundary no creature crosses.
+
+- Light is less important than in most worlds. Many beings are effectively blind in the visual spectrum, navigating by electromagnetic gradients, by tiny shifts in induction fields, by the taste of ionization on contact surfaces. The dim amber wash seems to exist more for the benefit of whatever industrial intelligence once needed to see.
+
+The stability here is nearly absolute. Nothing in the large-scale arrangement appears to change over time. Dust continues to settle, but is continuously gathered by specialized fauna; residues accumulate, but are scraped and processed. Every beam that could corrode has a scavenger on it; every cavity ripe for filling hosts someone that has already filled it. Predators consume not bodies but behaviors—pushing other species off a surface that feeds them, never needing to alter the surface itself.
+
+This gives the entire hall a frozen, almost sculptural quality. Movements occur, but in cycles so settled they feel preordained. A flock of hand-sized gliders—flat, triangular bodies with a fringe of microvanes—launch themselves from a high perch at intervals you could set a clock by, coasting silently along an invisible laminar layer of temperature difference a few meters above the floor, then reattaching to another surface where some field they harvest is fractionally stronger. Their route does not vary. It never has, as far as any inhabitant remembers.
+
+Even decay is part of the equilibrium. In some corners, you find small heaps of shed components: molted plates, obsolete sensory nodes, exhausted catalytic patches. They do not rot; they simply accumulate until a particular class of decomposer-creature arrives. These decomposers are wormlike chains of beads, each bead a miniature milling head. They travel the piles slowly, regrinding the castoffs into standardized grains that match the ever-present dust. That dust is then drawn by static and faint convection into filters, onto plant-analogs, into machine gut cavities—back into circulation. The loop closes cleanly; nothing pushes it off balance.
+
+You notice an absence: no clear entrances or exits. No door where you walked in, only narrow, clogged passages between bulkheads and columns, always leading to more of the same. It’s as if you’re inside an organ whose membranes have thickened until outside and inside are irrelevant distinctions. If this domain connects to broader tunnels or surface sites, those connections are restricted, regulated, maybe effectively sealed long ago.
+
+Without water, without weather, “time” expresses itself only as accumulated complexity. Every surface shows layering, but the layers are discrete like coats of paint, not blended like sediment. A plate of mineral-growth on a column might bear ten generations of etching from ten different grazing species, their differing mouthparts leaving parallel bands of marks. But none of those species altered the column’s function. They came, grazed, left; the column continued to do whatever inscrutable task it was built or grown for.
+
+Somewhere overhead, just beyond the muddy ceiling haze, you glimpse an odd, regular geometry: a grid of panels, some matte, some faintly luminous from behind. It’s plausible these once modulated light or heat. Now, they are fixed in a single configuration—half-open, half-closed, leaking a steady, unchanging amount of radiance into the hall. No dawn, no dusk. Just that perpetual warm dimness.
+
+The rules of this world, distilled:
+
+- No significant bulk water. Chemistry happens in films of oil, in metal lattices, in dry salts that can exchange ions without dissolving.
+- No external climate forcing. Temperature is held at a warm plateau by buried infrastructure. There is no gradient across days or seasons; sharp local differences only where machines or organisms deliberately maintain them.
+- No macroscopic erosion. Sharp edges remain sharp. Only the softest, thinnest films are scraped and recycled.
+- High structural density. Space is a negotiation between beams, ducts, growths, and creatures. Emptiness is scarce and precious; where there is a gap, something will have evolved or been designed to occupy it.
+- Built and grown have blurred into one category. Whatever once was purely industrial now supports and is stitched through with things that breed, molt, and adapt.
+
+Standing within it, you realize that the loudness, the strangeness, the density—all of it is in service of a strange calm. This is not a place of drama or change. It is the steady state reached after every transition has already occurred, an industrial-ecological symbiosis that has found its final configuration.
+
+It will sound like this, feel like this, light itself like this not just today, not just this year, but as long as the deep, unseen reactants feed it. And those, like everything else here, are held in reserve: perfectly measured, perfectly distributed, cycling in place.
+
+A desert, then—but not of emptiness. A desert of events. Everything that can happen has already been taken into account. The landscape has memorized its own possibilities and settled on a single, endlessly repeated answer.

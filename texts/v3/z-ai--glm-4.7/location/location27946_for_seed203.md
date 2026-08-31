@@ -1,0 +1,31 @@
+Here, the gravity of the situation is literal.
+
+You are standing on the roof of the world, or perhaps the floor of it; the distinction is largely academic in a place this size. This is the Underside, a hemispherical void so colossal that the opposing wall is lost in a haze of bright, cold luminescence. It is not the dark of a cave, but the glare of a greenhouse built around a star that isn't there.
+
+The air is aggressively bright. The light does not come from a single point source but diffuses from the very substance of the environment. Every surface, every cliff face, every distant spire radiates a photosynthetic ghost-light. It is a stark, clinical white-green brilliance that casts no shadows, only depth. It is cold here—breath steams instantly, clinging to the eyelashes, frosting on the damp rock. The temperature hovers just above freezing, a wet chill that penetrates clothing with the persistence of a slow leak.
+
+This is a world of sharp, young edges. Erosion has not had time to soften the landscape. The geometry is jagged and violent, a fresh wound in the crust of the planet. Great tectonic plates have seemingly pulled apart yesterday, leaving hanging flanges of raw granite and basalt that shear off into the abyss.
+
+And onto this fresh, shattered rock, the plants have declared total war.
+
+This is not a landscape with plants growing in it; it is a landscape made *of* plants. The vegetation is not a tenant; it is the architecture. Where there should be stone, there is dense, interwoven fiber. The ground beneath your feet is a lattice of white roots thick as bridge cables, crushing the bedrock into powder. The cliffs are draped in miles of hanging moss, grey and translucent, moving in the draft like the curtains of a titan’s window.
+
+The dampness is constant but deceptive. The water parameters suggest a "damp" environment, not a submerged one, and that holds true. It is a humid, sweating world. Condensation slicks every surface. Water doesn't flow in rivers here; it slides in sheets over the living walls, dripping from the canopy of roots that forms the distant "ceiling" high above. The air tastes of ozone and wet cellulose.
+
+Despite the overwhelming biomass, the space feels shockingly empty. The scale of the void dwarfs the life clinging to its edges. You stand on a mat of vegetation growing out of a sheer cliff face, looking out across a miles-wide gap of clear, still air. Across the gulf, another wall of living green towers vertically. It is a cathedral of negative space. The silence is profound, a heavy blanket broken only by the sound of dripping water—a rhythmic *plink* that echoes for too long in the vast hollow.
+
+But the silence is a lie. The dynamic tension here is terrifying. The vegetation is not growing; it is churning. It is a hyperactive, Solaris-like mass. As you watch, the massive wall of moss across the void ripples. A section of "forest," comprised of towering, fungal-like stalks the height of skyscrapers, collapses inward, dissolving into a slurry of nutrient paste. Instantly, new growth explodes from the wreckage, rising at a speed visible to the naked eye, reaching for the light.
+
+It is a turbulent, fever-dream ecology. The plants eat each other, build upon each other, and dissolve each other in a cycle of violent creation and destruction that happens in slow motion. There is no soil, only the accumulation of previous generations of dead plant-matter, rapidly composting to feed the next.
+
+Scattered across this vast, living wall are the marks of the rare and primitive things that live here. They are flecks of dust in a hurricane.
+
+You see a structure clinging to the root-matrix about half a mile down-slope. It is a "building" only in the loosest sense—a platform of woven reeds, lashed together with vines, anchored by pitons made of knapped bone. It looks abandoned. A few meters away, a second platform has been crushed flat by a bulging growth of white cork-skin, the timber splintered and absorbed into the wall. The technology is hand-crafted, desperate, and transient. You find a tool on the ground: a simple scraper, carved from wood, its edge worn smooth. It lies next to a depression in the moss where something—maybe a humanoid, maybe not—once slept.
+
+Fauna are rare here, perhaps because the flora is so aggressively territorial. But you see movement. High up in the bright haze, tiny shapes flit between the floating islands of detritus. They are winged, thin, and fragile, looking like moths the size of birds. They do not sing; there is no birdsong here. They move with frantic, jerky energy, navigating the turbulent air currents that rise from the hot, decomposing center of the void.
+
+The rules of this world are simple: anchor or be consumed. The "ground" is not flat; it is a vertical gradient. The gravity feels lighter than it should, or perhaps the sheer scale makes the fall irrelevant. The living mass acts as a planet unto itself, generating its own weather. Winds are generated by the heat of decomposition deep within the root-balls, rushing up the cliff faces in warm gusts, clashing with the cold, heavy air of the void.
+
+To live here is to be a transient parasite on a sleeping god that wakes up every few minutes to shed its skin. The primitive builders who made the woven platforms understood this. They didn't build to last; they built to cling for just long enough to harvest the sweet sap that bleeds from the white cork-trees before the wall moves and the platform falls away into the silent, bright abyss.
+
+It is beautiful, in a terrifying, sterile way. The light is perfect. The air is clean. The growth is infinite. And it is entirely, utterly indifferent to anything smaller than a continent.

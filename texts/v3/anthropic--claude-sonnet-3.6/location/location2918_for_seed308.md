@@ -1,0 +1,13 @@
+A vertical aquarium rises through what was once a mountain's core. The chamber, perhaps forty meters across, stretches up beyond sight into darkness, its walls worn glass-smooth by centuries of circulating waters. The liquid filling it isn't quite water - it's denser, more viscous, with a subtle metallic sheen that catches the light from scattered illumination panels set into the rock.
+
+Thick cables and industrial piping run up the chamber's sides, their originally clean lines now softened by clusters of pale fungal growth and clinging vegetation. The plants here have evolved to thrive in this artificial pressure column - their leaves are more like fins, undulating in the perpetual currents, and their stems spiral around the infrastructure in complex helices optimized for nutrient extraction.
+
+The liquid moves in ordered patterns, driven by ancient pumps whose deep thrumming resonates through the chamber. The sound mingles with the constant whisper-roar of tiny bubbles rising from somewhere far below, creating a continuous industrial chorus that seems to pulse in time with the swaying vegetation.
+
+At regular intervals, maintenance pods cling to the walls - small pressure-sealed chambers with clouded windows and airlocks long-rusted shut. A few still pulse with dim internal lights, their original purpose now obscured by time and the accumulation of life. The plants have claimed these too, wrapping them in living blankets that transform the utilitarian structures into something more like coral formations.
+
+Occasionally, something large moves through the upper reaches - perhaps a descended surface creature adapted to these depths, or maybe something engineered for this environment. They're rare sightings, quick shadows that disappear into the vertical forests before they can be properly glimpsed.
+
+The temperature drops as you descend, the liquid becoming noticeably more viscous. Near the bottom, crystalline formations jut from the walls, their facets reflecting the bioluminescence of the plants in complex, shifting patterns. The entire chamber feels like a living machine, its original industrial purpose now inextricably merged with the ecosystem that has claimed it.
+
+What was once perhaps a pressure-regulation system or experimental vertical farm has become its own contained world, neither fully natural nor artificial, maintaining its own cycles of growth, decay, and renewal in this perpetual twilight state between earth and water.

@@ -1,0 +1,21 @@
+The darkness here is absolute, a heavy, velvet shroud that presses against the eyes, yet the place is not truly empty of sight—it simply borrows its light from the living.
+
+You are descending through a column of water that feels less like a liquid and more like a warm, amniotic atmosphere. This is the Drowned Basalt, a sunken metropolis that rests in the deep cradle of a geothermal scar. The water is dense with dissolved minerals, giving it a faint, briny viscosity that carries sound in muffled, rhythmic pulses. It is profoundly warm, a balmy 85 degrees, heat seeping up from the fractured earth below to keep the water at a perfect, stifling simmer.
+
+There is no surface light to speak of. The sun is a mythological memory, filtered out by miles of ocean and a permanent ceiling of storm-stirred silt far above. Down here, illumination is biological. The darkness is broken by the soft, ghostly glow of the fauna—millions of tiny, cold lights drifting through the ruins.
+
+The terrain is undeniably urban, yet it has been stripped of all technology. There are no steel skeletons, no glass, no rusted iron. This was a city built of carved stone and fired clay before the Bronze Age was even a whisper. Wide boulevards, now perfectly submerged, stretch out into the gloom, lined with tiers of step-pyramids and ziggurats. The stone is weathered, not jagged; the flood happened long ago, and the water has long since settled into a gentle, crushing equilibrium. The edges of the buildings are rounded, sanded smooth by centuries of current, making the architecture look like oversized, tumbled river stones.
+
+Vegetation is sparse. The depth and the lack of light strangle the green. There are no kelp forests waving in the current, no seagrass meadows. Instead, the stone is colonized by a thin, pale lichen-like bacterial mat that feeds on the sulfur vents rising from the seabed. It gives the city a whitewashed, skeletal appearance—a bleached bone of a civilization.
+
+But the life is abundant. The silence is only an illusion; it is a "mostly quiet" that implies a held breath. When the fauna moves, the silence shatters.
+
+The density of the creatures is staggering. The streets are packed, not with people, but with deep-sea crabs the size of cattle, their shells glowing with soft, rhythmic patterns of blue and violet. Massive, eel-like creatures drift through the open windows of the temples, their bodies translucent, revealing the workings of their internal organs in pulses of dim yellow light. Schools of tiny, hatchet-fish flash like strobe lights in the distance, turning the dark water into a shifting, chaotic disco of survival.
+
+It is a predator-prey world in constant motion, happening in slow motion. The water is thick, resisting rapid movement, so the hunt is a languid, terrifying dance. A giant squid, its skin rippling with bioluminescent camouflage, will drift seemingly weightless over a plaza before a tentacle snaps out with the force of a catapult, crushing a crab against the mossy steps. The sound is a dull *thud* that vibrates through your chest, followed by the frantic clicking of smaller scavengers rushing in to clean the remains.
+
+The architecture guides this ecology. The buildings create artificial canyons and currents, funnelling the warm water into eddies where creatures spawn. The open plazas serve as mating grounds, where thousands of glowing shrimp gather in writhing, pulsing masses that look like nebulae dying in the deep. It is a built environment that has become fully biological; the distinction between the city and the ecosystem has dissolved.
+
+The weirdest element is the silence of the stone itself. Despite the teeming life, the city feels dead. The stone structures absorb the noise, giving the impression that you are floating through a tomb that is being digested by the ocean. There are no tools here, no devices, only the friction of shell on rock and the soft, bubbling exhalation of the thermal vents that keep the water warm.
+
+This is a place that has forgotten the land. It is a regional-sized valley of underwater ruin, sprawling for miles, a dense, dark, warm aquarium where the only light is the flash of a hunting eye and the only sound is the muffled struggle to exist. It is peaceful only until the lights align, and then it is a feeding frenzy.

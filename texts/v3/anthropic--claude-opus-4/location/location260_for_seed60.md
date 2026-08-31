@@ -1,0 +1,17 @@
+The machine-vines have won here.
+
+You descend into this low place through curtains of cable-thick stems, their surfaces slick with condensation that beads and runs in rivulets down synthetic bark. Each vine pulses with a slow hydraulic rhythm—water being drawn up from the marsh below, processed through internal mechanisms that emit a constant industrial hum. The sound layers upon itself, thousands of pumps and filters creating a drone that vibrates through your chest.
+
+The vegetation here is total, but it is no longer purely biological. These are hybrid things—plants that have incorporated salvaged machinery into their very cells. Leaves unfurl as solar panels, their surfaces etched with circuit patterns that still photosynthesize but also generate electrical current. Root systems have merged with buried pipeline networks, creating a vast circulatory system that is part xylem, part industrial plumbing.
+
+The air is thick with moisture and the smell of wet metal mixed with chlorophyll. Every surface weeps—not just water, but a thin film of machine oil that creates rainbow sheens on the puddles between the root-buttresses. The warmth comes not from sun (which barely penetrates the canopy of wire-flowers and antenna-fronds) but from the waste heat of ten thousand tiny engines embedded in trunk and stem, processing nutrients with mechanical efficiency.
+
+Scattered throughout are the remnants of what came before—a factory smokestack now completely engulfed by vine-flesh, still belching steam but through organic valves. A warehouse frame serves as a trellis for massive flowering bodies whose petals are repurposed sheet metal, edges still showing faded industrial warnings. Control panels sprout from tree boles, their displays showing meaningless patterns of lights, having long ago been reprogrammed by the plant-consciousness for purposes unknown.
+
+The ground barely exists as a separate entity. What seems like soil is actually a mat of interwoven rootlets and cable-roots so dense you cannot dig through it. This living floor undulates gently, breathing, processing the constant seepage of water from below. Occasionally it opens small vents that release bursts of pressurized air—the exhale of some deep biological-mechanical lung.
+
+In the rare gaps between growth, you might glimpse the creatures that remain—things that scuttle on too many legs, their carapaces incorporating bits of torn metal and circuitry. They feed on the leaked fluids and electronic fruit, having evolved to digest both copper and cellulose. But they are few, and quiet, overwhelmed by the dominant plant-machine hybrid ecosystem.
+
+The whole place operates on a different timescale. Changes happen, but slowly—a vine might take weeks to redirect itself toward a new power source, months for the canopy-panels to reconfigure for optimal energy collection. The industrial components corrode and heal, rust and regrow, in patient cycles measured in years.
+
+This is not decay or reclamation—it is synthesis. The boundary between the grown and the manufactured has dissolved entirely, creating something that breathes with pistons, photosynthesizes through solar cells, and dreams in frequencies just below human hearing. The loud, layered hum of this place is its thought, its voice, its declaration that life will find a way to incorporate anything—even the machines that once tried to replace it.

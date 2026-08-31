@@ -1,0 +1,15 @@
+The sudden doorway opens into a cold shock of hanging water: condensation clings thick in the sudden, intimate space. This is no natural cavern but a squat, buried vault — a dense purgatory humming with suspended machinery.
+
+It is a high mountain pocket — deep in some wind-scoured, sparse-and-granite range — but utterly unlike any cave. The water isn't flowing; it's held near-frost in air saturated and cold. Walls are dark heavy panels riveted together — total, encapsulating construction. Alien engines clutch the walls and hang from the dripping ceiling, humming with numbing, industrial reverberation.
+
+The only opening is the doorway behind you. The far side ends in an utterly unexpected, natural-seeming cliff that rises into untouchable dim — a raw geology brought inside. Drops of water bead and gather on a rough, wet edge a dozen feet up this strange wall before falling, stringing out in cold, slow arcs that catch the grayed light only briefly. It's a half-made spring locked inside the factory.
+
+Suddenly, the space goes impossible. This isn't a closed room but a micro-pocket — and beyond that cliff it opens up with impossible depth — a cavernous mountain interior revealed, but biomechanically transformed. Unseen machines thrum deeper in the rock as you step forward.
+
+The sound is a wash of machine noise — gears somewhere, pumps, a deep bass note in your bones, rising and then compressing in a physical, multi-layered drone. Within this perpetual machine sound, the pocket is unbelievably, impossibly alive with presences. Thick white sponges cluster on the half-made cliffs, exuding clear, slow liquid that beads on the cold stone. It shivers — the whole mass of it — in one organism. The air is thick with visible drops of water, glittering in the weak light.
+
+Translucent streams creep through crevices in the floor — carrying dense colonies of mite-like organisms that thread the water like static constellations. They move in siphoning unison — a tapestry of themselves flowing through the channels in the floor with fixed evenness. They never change their constellations. They just are.
+
+Leaning from the upper half-made rock are clusters of long, bone-white, segmented stalks — neither flowers nor fungi but something like both, catching the condensation. Their roots — or what passes for them — vanish into slick, metallic vents in the walls; they feed from the deep machines, their positions fixed for eternity. The room hums and exudes and holds these precious, impossible waters in unforgiving density, while the raw mountains gleam outside in barren emptiness.
+
+The entire pocket is unchanging — the waters condense and bead and fall at same intervals, in same places, while the machine hum holds under geological rhythms, forever humming its absurd purpose. It's a place of freezing industry and unreal life, a wet shrine of unchanging overgrowth nestled deep in the mountains' stone.

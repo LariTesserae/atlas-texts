@@ -1,0 +1,11 @@
+The plateau is a lifted hand of the earth, its palm cupped toward a searing white sky. It is high—the air thin enough to feel like a held breath—but hot, a dense, wet heat that clings to the skin and soaks the lungs. This is not the dry heat of mountains; this is the fever-heat of a deep, living body, exhaled through stone.
+
+The ground is young. You can feel its newness in the sharp, crystalline edges of basalt columns that rise like broken teeth, their facets still gleaming with the memory of fire. There are no rounded hills here, no soft slopes worn by time. Instead, the landscape is a collection of abrupt formations: fractured mesas, razor-backed ridges, and deep, clean fissures that steam faintly. It feels recently birthed, perhaps still trembling from the tectonic sigh that pushed it into the sky.
+
+And it is wet. Water does not flow in rivers here; it weeps. It condenses on every cooler surface in fat, slow beads that gather and fall with soft, isolated *plinks*. The basalt columns are streaked with dark, damp stains. From cracks in the ground, a warm mist rises, carrying a mineral scent, like iron and cooled magma. In the hollows where rock meets rock, shallow pools have formed, their surfaces perfectly still and clear as glass, reflecting the harsh light with a blinding sheen.
+
+The vegetation is lush, but it does not blanket the land. It exists in concentrated pockets of almost violent green, thriving in the damp heat. Around the steaming fissures and the weeping rocks, gardens of giant ferns unfurl fronds the size of wagon wheels, their surfaces a complex topography of veins and spores. Thick, rubbery vines, dripping with moisture, climb the basalt columns, their leaves a deep, waxy emerald. In the sparse soil between rocks, strange fungi bloom—caps like polished copper, stems that glow with a faint internal bioluminescence as the light fades. This lushness is not friendly; it feels voracious, waiting.
+
+The silence is profound, but not empty. It is the quiet of intense listening. The only sounds are the occasional *plink* of a water drop, the soft hiss of steam from a new vent, and sometimes, a low, subsonic hum that seems to come from the stone itself. When it comes, it vibrates in the teeth. Then it fades.
+
+And

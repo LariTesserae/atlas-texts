@@ -1,0 +1,15 @@
+This is the **Crystalline Basin of Kher-Oul**, a high-altitude caldera that functions less like a geographic feature and more like a pressurized, translucent lung.
+
+At this altitude, the air is thin, but it is so saturated with suspended ice-mist and refractive shimmer that it feels heavy, almost gelatinous. The light here is absolute—a relentless, blinding glare bouncing off millions of faceted, calcified surfaces. It is a 3.0/3 brightness that leaves no shadows, only gradients of violet and bruised gold.
+
+The terrain is a dense, labyrinthine cluster of "weeping pillars"—towers of porous stone and semi-precious silica, hand-carved over epochs into cramped, interlocking domiciles. These structures are not built in the traditional sense; they are eroded into existence, the rock softened by an acidic, rhythmic condensation that drips from the sky every few minutes. The landscape is in a state of hyper-turbulent flux; the water, milky and mineral-rich, acts as a solvent, constantly dissolving and reforming the external staircases and walkways. It is a world of ephemeral architectural origami.
+
+Because the space is small—a tight, hamlet-sized bowl—this constant reconstruction creates a dense, anthill-like proximity. You are never more than a few inches from a neighbor’s wall or a twitching, gill-bearing creature.
+
+There is almost no vegetation. What little exists are thin, filamentous polyps that cling to the weeping rock, tasting the mineral-heavy run-off. They are translucent, pulsing rhythmically to the flow of the water, resembling lungs more than leaves.
+
+The fauna is paradoxically abundant. The cracks in the stone are packed with eyeless, shimmering crustaceans and soft-bodied mollusks that navigate by vibration. They are the builders here. Using simple, hooked bone tools and their own secreted binding-mucus, they are constantly patching the architecture as the water washes it away. They move with frantic, chaotic energy, a blur of motion in the brilliant, static light.
+
+Despite this intense activity, the place is profoundly quiet. The atmosphere is so thick with moisture that sound is muffled before it can travel more than a few feet. You might see a frantic swarm of creatures tearing down a balcony and rebuilding it in a new configuration to better catch the flow of a new "drip-stream," yet the only sound is the wet, rhythmic *suck-clatter* of their implements and the constant, soft hiss of liquid sliding over crystal.
+
+It is a world of primitive, obsessive maintenance. The rules are liquid: that which does not flow is worn away; that which does not bind is washed into the basin floor. Everything is layered, translucent, and cold. To live here is to exist in a perpetual state of "becoming," inhabiting a structure that is halfway to being dissolved, while the light above turns everything into a blinding, refractive masterpiece of survival.

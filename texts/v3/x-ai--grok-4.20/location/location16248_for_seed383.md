@@ -1,0 +1,24 @@
+The place is called the Underbright.
+
+It is not a cavern. It is a buried city that has been flattening itself for so long that the distinction between architecture and geology has dissolved. Everything here is ancient beyond memory, yet nothing is still. The world is cool, damp, and violently alive with slow, perpetual rearrangement.
+
+You stand on a wide ledge of pale, glassy limestone that was once a thoroughfare. The stone is so old it has taken on the texture of elephant hide—deeply wrinkled, almost soft. Water moves through it constantly but never in rivers: instead it condenses in long, trembling beads along ceilings that have no business still existing, then falls in slow, deliberate drops that strike the floor with the sound of a distant bell. Each drop leaves a tiny crater that will be erased again within decades by the restless mineral skin of the city.
+
+Above you the ceiling is impossibly high and impossibly bright. Vast lattices of pale quartz and selenite hang in curtains that catch and multiply a sourceless silver-blue radiance. The light feels like moonlight that has been fermented underground for a million years—cold, penetrating, and somehow hungry. It reveals every detail and still leaves you unsure what you are looking at.
+
+The city itself is a single fossilized organism made of streets, staircases, aqueducts, and half-collapsed domes that have melted into one another. Towers lean like old teeth. Bridges have sagged into natural arches. Whole districts have been folded over by the patient pressure of stone until boulevards now run vertically and plazas have become sheer cliffs. Everything is sparsely placed; between the great mineral masses lie wide, echoing basins of emptiness where nothing has dared to settle for epochs.
+
+There is no vegetation. What grows instead are vast colonies of pale, glassy fungi that behave more like slow lightning than mushrooms. They bloom in fractal lattices across walls, then shatter into powder when the stone beneath them shifts. The powder is immediately inhaled by the next generation, and the cycle repeats. Their only color is the color of the light passing through them—bone-white, ice-blue, faint violet.
+
+Fauna is abundant but never loud. The dominant creatures are the glass eels—long, translucent, serpent-bodied things that swim through the air itself, riding the invisible currents of condensation and static charge. They move in rippling schools of hundreds, their bodies catching the bright light like living prisms. When they brush against stone they leave faint iridescent trails that last for days. Other things exist—colonies of clicking mineral beetles that carve perfect spirals into pillars, herds of blind, six-legged browsers that feed on the glass fungus—but everything stays quiet. The loudest sound is the soft ringing of water drops and the occasional deep, sub-audible groan as another section of the city settles another fraction of a millimeter into its final form.
+
+The turbulence is constant and architectural. The Underbright is still dying and still being born in the same breath. A tower that stood for three hundred thousand years will, without warning, slump sideways over the course of a single week, becoming a bridge. A plaza will suddenly iris open into a sinkhole that reveals an older, stranger layer of the city beneath. New chambers are continually extruded from the living rock by forces no one has named. The city is a slow, violent conversation between gravity, water, and time, and nothing is permitted to remain where it was.
+
+The inhabitants—if one can call them that—are a sparse scattering of primitive people who have adapted to the endless rearrangement. They are few, widely separated, and almost as quiet as the glass eels. They build nothing permanent. Instead they raise delicate bone-and-crystal scaffolds that they abandon the moment the ground begins to tilt. Their technology is simple: rope made from braided fungal fibers, hand-forged tools of meteoric iron, lamps of trapped phosphorescent bacteria. They move with the city rather than against it, following fault-lines that will become streets, sleeping in alcoves that will become ceilings tomorrow.
+
+To remain in one place here is to invite being swallowed by the architecture. The only constant is the bright, cold, mineral light and the soft ringing of water that has been falling through the same cathedral-sized spaces since before any living thing drew breath.
+
+This is not ruin. This is the final, restless form of a civilization that refused to die cleanly. It has been flattening itself into equilibrium for longer than the surface world has had lungs, and it is still not finished.
+
+The Underbright does not remember its name.  
+It only remembers that it is still moving.

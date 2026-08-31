@@ -1,0 +1,19 @@
+For thousands of centuries, the landscape has been frozen in time. It runs deep and dense with layers, each telling a story of countless millennia. Here, nestled high in the primordial peaks and ridges of an ancient landscape, is a realm where change is as rare as water. 
+
+This is a desert, but not the kind with endless dunes of sand whipped up by warm winds. This desert is one of stone, of minerals that have known no erosion from water for the longest time. It's a silence broken only by the occasional crumble of ancient rock, a land once gnashed and scarred by long-dormant geological dances. The ground underfoot feels almost like a hardened sponge, fully saturated in stories instead of water. 
+
+In place of water, the cool air holds a mineral tang, sharp and clean. The terrain itself is a rugged labyrinth of geometric fractures, the sharp edges weathered subtly by ages of persistent and forceful winds. Massive crags tower overhead, their features softened and smoothed by eons of time and relentless atmospheric contact. On more horizontally inclined slabs of stone, pale lichens gnaw slowly. These cryptogamic crusts - comprising of lichens, mosses, and cyanobacteria - represent the sole claims of vegetation that can endure in this barren land.
+
+The ancient cliffs and stone forests present endless surfaces, nearly all of them decorated in swirling patterns. Looking closely, you can see a modest diversity of colors: grays mottled by darker blacks, warmer browns, and occasionally, when the light is just right, purplish hues. 
+
+Light plays a pivotal role in this landscape, the mid-range sunlight adding depth to the dense stone labyrinth. The normal light cast from the sky bounces off rock surfaces, casting deep pools of shadow and stark lines of contrast that offer some dynamic flair in this static world. 
+
+Positioned sparingly across the land are the scattered remains of an ancient world long gone: primitive stone structures, hand-tooled and worn, indicating hints of a civilization that once brushed up against the harsh contours of this high-world. No metals or signs of complex fabrication here. Instead, you find broad stone slabs stacked intricately in circular or rectangular arrangements, the remnants of ancestral shelters staking their claim amidst the daunting cliffs and stone turrets.
+
+But the most evident sign of life comes in the form of fauna. Here nature flaunts its creative power, crafting creatures that seem almost a mockery of reality. Mirroring the overwhelming density of their rocky homes, these life forms have evolved from sparse vegetation and seemingly-nonexistent moisture. They are bizarre and paradoxical; enormous rock-like behemoths methodically crunching their ways through the crusts and lichens, arachnid analogs swiftly scaling mineral dunes, grublike creatures undulating below the stone surface, and countless others, miraculously adapted to live in this place of stingy nourishment and scarce hydration. 
+
+Sounds are a rarity; the eerie quiet is broken only by occasional alien chips, chitters, and clicks coming from the labyrinth of cliffs that stretch past the visible horizon. The silence is so profound that even a simple whisper threatens to disrupt the equilibrium.
+
+The undeniable weirdness of the place is seen in the way reality seems to wobble. Maybe it's the altitude or isolation, but the further you navigate through this dense, towering maze, the less you trust your senses. Echoes bounce and distort oddly, throwing off one's sense of space. Mirages and refracted light blur boundaries, morphing inanimate stone into haunting visions of phantom beasts. 
+
+Unchanging and ancient, these highlands are the final expression of an extreme environment. It's a place of immense silence, overwhelming fauna, and spare traces of an ancient race, all twisted together in a static sculpture of stone and time.

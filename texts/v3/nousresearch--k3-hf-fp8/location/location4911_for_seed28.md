@@ -1,0 +1,23 @@
+A city without streets. Narrow vertical shafts pierce the earth, each one barely wider than a stretched arm, descending through miles of pale sandstone. These are the streets. The buildings grow inward from the walls, like roots searching for minerals.
+
+The City of Holes.
+
+It's warm here, always. The air smells of mineral heat and something sweet like crushed almonds. Light pours down from above through thousands of glass lenses fixed in the desert surface—a grid of suns burning circles into your vision. Below, prisms split these beams into ribbons of color that bounce through mirrored tunnels, illuminating homes and workshops carved directly into the sandstone.
+
+Nothing stands alone. Every chair is sandstone shaped by water long gone. Every table emerges from the floor like a mushroom of stone. Beds are alcoves warm from the desert above. Kitchens are hollows where focused sunlight from mirrored shafts bakes bread in seconds, boils water in copper spheres that never cool, their condensation collected drop by drop by clay pipes and released as the day's only rain—twelve drops at noon precisely, into communal pools that vanish into the stone within minutes.
+
+Vegetation thrives in this architecture of absence. Roots thicker than houses descend through special feeding shafts bored centuries ago, seeking the fossil aquifer buried deeper than the city goes. From these roots hang gardens of pale leaves that never see true sunlight but drink instead the reflected, broken spectrum of the prisms. Fruits grow translucent as glass, packed with stored light—if you bite one at night, your teeth will glow for hours. The trees themselves are the city's lungs, exhaling cool oxygen enriched with strange compounds that make voices echo long after they've stopped speaking.
+
+The people here are rarely seen. They move through parallel tunnels too narrow for two, their bodies flattened and elongated over generations to fit the city's dimensions. When they must speak across distances too great for shouting, they whisper into stone blocks carved to resonate with specific frequencies. These coded tremors travel through miles of solid rock faster than voices could ever carry.
+
+The city sounds like nothing else. Every footstep becomes a drumbeat. Every dropped tool, a cymbal crash. The daily drilling for new rooms adds its own rhythm—a thousand flutes made of sandstone grinding against iron. Children learn to sing not with their mouths but by tapping rhythms on their ribs with fingerbones carved hollow.
+
+At night (though here night is just a dimming of the prism-light), the city comes alive with a different music. The roots of the hanging gardens stretch and contract, pulling nutrients upward in audible pulses. Fossil air bubbles trapped in ancient sandstone expand and pop as the temperature drops fractionally. Residents place bowls of different sizes on their floors to catch these sounds, creating nightly concerts of the earth breathing.
+
+The city's boundaries are defined by echoes. Walk too far down an abandoned tunnel, and your footsteps will begin to answer you in voices not your own, repeating secrets you've never told. The dead here are not buried but are instead placed in special ossuaries where their bones continue to sing their life songs for centuries, adding new harmonies as they slowly fuse with the stone.
+
+At the city's heart lies the largest hole of all—a sphere perfectly empty except for air that's ancient and impossible to breathe, maintained at slight vacuum by mechanisms nobody remembers building. Things live in this void, visible only as shadows against the air's faint glow. They come in dreams to teach children mathematics so pure it drives adults mad. The city's greatest songs are compositions based on these dreamt equations, performed once every seventy years by choirs of elders who will die singing them.
+
+Above, the desert stretches infinite and empty except for the glass eyes that watch the stars and feed their observations downward through chains of lenses and mirrors. Below, the city descends far beyond anyone's knowledge, its lowest levels flooded not with water but with heavier things—liquid argon pools where time moves slower, gravity wells where light bends into spirals, rooms where geometry itself forgets its rules.
+
+This is a city built by and for listening. Here, even silence becomes deafening. Here, emptiness is the most precious material of all.

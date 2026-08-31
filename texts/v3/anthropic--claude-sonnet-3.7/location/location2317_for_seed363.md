@@ -1,0 +1,21 @@
+# The Foundry Below
+
+They call it the Foundry Below though no one remembers who built it or when it began. It stretches beneath the skin of the world in a sprawling labyrinth of manufactured caverns—a continent-spanning industrial ecosystem that has long since found its equilibrium.
+
+The ceiling rises hundreds of meters high in the grand galleries, crafted from interlocking hexagonal panels of some translucent material that somehow captures and amplifies the cold, white-blue light from countless luminous fungi farms cultivated in specially designed recesses. The light is almost painfully bright, clinical, revealing every detail of the manufactured world beneath.
+
+Moisture beads and trickles down the perfectly smooth walls, not from any natural process but from the countless arterial pipes that run like veins through the structure. The water is collected, filtered, and recirculated by hissing machines that have functioned without pause for perhaps millennia. The air carries a perpetual coolness—not the biting cold of winter, but the persistent chill of a perfectly regulated industrial environment, breath always visible as small clouds of vapor.
+
+The floor of the Foundry isn't earth or stone but a living carpet of engineered moss and lichen in countless shades of emerald, jade, and forest green that consume waste and convert carbon dioxide to oxygen. Thick vines climb the supporting pillars, genetically modified to grow toward the light but never to damage the infrastructure. In places where the moss has been allowed to thicken, delicate white flowers bloom, emitting barely perceptible chimes when their bell-shaped petals are disturbed by movement.
+
+Between these patches of cultivated wilderness stand the machines: innumerable devices of brass, copper, and some silver-like alloy that never tarnishes. They pulse with internal activity, their purposes often inscrutable. Some harvest energy from geothermal vents far below, others process raw materials from who-knows-where, and still others simply seem to maintain the Foundry itself. Their movements create a background rhythm that's felt more than heard—a subtle vibration through the floor that never quite reaches the level of sound.
+
+Animals move through this environment with purpose. Luminous beetles the size of fists patrol the vines, their carapaces glowing with the same blue-white light as the ceiling panels. Long-limbed, silver-furred creatures—something between monkeys and spiders—maintain the machines with delicate, six-fingered hands. Schools of tiny engineered fish navigate the water channels, consuming algae and microorganisms, keeping the system clean.
+
+Larger beings occasionally move through the galleries: perfect fusions of biology and machinery that might once have been human, their skin pale as milk, eyes adapted to the perpetual brightness. They rarely acknowledge visitors, focused entirely on tasks whose purpose has been forgotten even by them.
+
+The strange equilibrium of the Foundry is best observed at the transition between the day and night cycles, when the ceiling panels dim incrementally over the course of an hour. As the light recedes, hidden bioluminescent elements throughout the ecosystem activate—threads of soft green and blue winding through the moss, pulsing patterns across the machines, gentle washes of purple across the walls.
+
+Despite its vastness, the Foundry feels intimate, every cubic meter of space optimized and inhabited. It's a place where humanity has been designed out of necessity, where ecological balance has been achieved through absolute artifice. The few explorers who map its extremities report that it simply continues—corridor after corridor, gallery after gallery—with subtle variations in its ecosystem but the same fundamental character: cold, bright, alive, and utterly manufactured.
+
+Those who listen closely enough may detect, beneath the background hum of machinery and the subtle rustle of engineered life, a deeper rhythm: the Foundry breathing, a vast industrial organism that has long since transcended the purpose of its forgotten creators.

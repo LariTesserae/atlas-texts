@@ -1,0 +1,17 @@
+The air here does not hold light; it holds weight. You are standing at the bottom of a shallow, sprawling basin where the atmospheric pressure is thick enough to taste, tasting of wet iron and crushed silt. There is no sun, only a pervasive, bruised luminescence that clings to the surfaces of things, revealing a world sculpted by eons of slow, rhythmic grinding.
+
+There is no soil, no loam, no leaf-rot. The ground is a patchwork of shifting shale and smooth, volcanic glass, perpetually slicked by a condensation that never pools into streams but instead adheres to every surface like a cold sweat. It is a world of damp, obsidian geometry.
+
+Despite the absence of vegetation, the landscape is not barren. It is suffocatingly dense. 
+
+Every square inch of the shale floor, every vertical shard of basalt, is crawling. The "fauna" here does not resemble the animals of a terrestrial world; it is a riot of chitinous, translucent, and gelatinous entities—some no larger than a grain of sand, others the size of hounds—all pulse-locked in a constant, frantic search for moisture. They are layered three and four deep over one another in a living carpet that stretches for miles. 
+
+The sound is not an ambient noise; it is a cacophony of biological friction. It is a deafening, thousand-voiced symphony of chitin clicking against glass, the wet suction of membrane sliding over membrane, and the high-pitched, harmonic hum of pheromone-secretion that resonates in your teeth. You cannot hear your own heartbeat; the environment is too full of the collective vibration of ten billion tiny, restless lives.
+
+There is no wind, yet the air is in perpetual, nervous motion. The movement is driven not by weather, but by the hunger of the inhabitants. As you stand—an island of stillness in this tide—you notice the rhythm. It is a slow, pulsing tide of bodies. A creature, translucent and ribbed like a cathedral arch, slides over a jagged outcrop, only to be overtaken by a swarm of flickering, bioluminescent mites that leave trails of phosphor in their wake. They do not hunt with eyes; they hunt with sensitivity to the moisture content of the air.
+
+The ground is worn smooth not by water, but by this constant migration. Millions of years of soft, clicking feet have polished the volcanic floor into a mirror. Everything here is aged, balanced, and utterly indifferent to the concept of "built" space. There is no architecture, only the paths worn into the rock by the sheer weight of repetition.
+
+The darkness is not a void; it is a canvas for the strange, erratic lights of the fauna. Sparks of cobalt and sickly violet flash in the thick air, triggered by the friction of passing bodies. You realize, with a sudden, cold clarity, that you are the only static thing in a world defined entirely by transit. To remain here is to be polished into the glass. To move is to be ingested into the churn.
+
+It is a place of deep, humming intensity, where the line between the organism and the terrain has long ago dissolved. Everything is grinding. Everything is screaming a silent sound. Everything is wet, and everything is moving, and the basin beneath your feet is a monument to a life that happens entirely below the threshold of light, thriving on the dark, damp, and endless friction of its own existence.

@@ -1,0 +1,19 @@
+Deep in the suspended waters, the city hangs like a coral formation made of memories. Its structures - hewn from a pearlescent stone that seems to hold trapped starlight - float at impossible angles, defying what little gravity penetrates these heights. This is Meridiance, they say, though names hold different weight in the eternal twilight of the upper waters.
+
+The waters here are thick, almost gelatinous, moving with the viscosity of warm honey but clear as ancient glass. They support not just the inverted spires and floating courtyards of the city, but countless drift-pods of travelers and inhabitants - spherical bubbles of more substantial water that carry their occupants through the architecture's maze-like passages.
+
+Vegetation is rare but striking: massive translucent fronds that undulate in slow motion, each the size of a sailing ship, their edges trimmed with bioluminescent cilia that pulse in patterns suggesting language. These ancient plants anchor themselves to the city's stones with crystalline roots, growing perhaps an inch per decade.
+
+The fauna is abundant but quiet. Schools of impossible fish - some with geometrical bodies, others that seem to fade in and out of existence - move in synchronous patterns through the structures. Massive filter-feeders drift between the towers, their bodies more light than matter, collecting the microscopic nutrients that sustain this high-water ecosystem.
+
+Time moves strangely here. The water's density creates a perpetual twilight, but occasionally deep shifts in the fluid medium cause ripples of altered time - moments might stretch for hours, or days might pass in heartbeats. The inhabitants, adapted to these temporal fluctuations, communicate through subtle movements and the manipulation of tiny air bubbles that form complex, floating ideograms.
+
+The architecture itself seems caught between states of existence. Walkways spiral outward only to return to their starting points having covered impossible distances. Doorways might open into vast chambers or tiny spaces depending on how they're approached. The stone itself is warm to the touch, and some say it remembers the hands that shaped it generations ago.
+
+At the city's edges, the structured water gradually gives way to the more chaotic upper reaches of the world-ocean. Here, the boundary between what is built and what is grown becomes uncertain - structures might be ancient coral formations, or coral formations might be degraded architecture. The transition is marked by strings of floating lights, not for illumination but as navigational anchors in a realm where direction is more concept than reality.
+
+The soundscape is minimal - the thick water dampens most vibrations - but those attuned to the place speak of a constant, nearly subsonic hum that might be the city's heartbeat or the echo of its construction millennia ago. This deep note interweaves with the occasional crystalline tones of the drift-pods touching, creating a sparse, haunting melody that seems to emanate from everywhere and nowhere.
+
+Movement here is deliberate, almost ritualistic. The water's density and the city's spatial ambiguity demand careful navigation. Residents have developed a complex system of currents and counter-currents, using the natural flow of the water and the temporal eddies to travel efficiently through their vertical world.
+
+The technology is simple but perfectly adapted: tools carved from the bones of great water-beings, networks of living light used for communication, gardens of temporal coral that grow backwards through time. Everything here serves multiple purposes, exists in multiple states, adapts to the fluid nature of reality in this impossible height of the world-ocean.

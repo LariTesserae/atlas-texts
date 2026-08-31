@@ -1,0 +1,17 @@
+Beneath the crust of a sprawling, sun-scorched desert lies a cavernous realm known as the Ember Undercity—a place where the boundary between the natural and the industrial has blurred into a dense community of life and machinery.
+
+The air is suffused with a persistent warmth, the kind that hugs the skin in a dense embrace, accentuating the subtropical, subterranean environment. The rock walls are sharply contoured, indicative of their recent emergence from ancient tectonic shifts and erosion. Jagged formations jut into the spaces between, while pockets of cool water collect and glisten, reflecting the sparse light filtering from luminescent minerals embedded sporadically in the ceiling.
+
+Despite the exposure to heavy heat above, here the temperature feels more tolerable, surrounded by the thick humidity that nurtures the surprising lushness of the flora. Vines drape from rocky promontories, their thick, broad leaves and tendrils curling around steel beams, melding seamlessly with rusted metal structures that hint at the embedded industrial history of the place. Ferns and other moisture-thirsty plants grow in profusion, thriving in the dim light.
+
+Within this small-scale yet urban network, the cavern buzzes with the quiet hum of machinery that lies at the heart of this underworld. The Ember Undercity is a labyrinthine hive of activity, where old world machines—engines of steam and metal—rest, having seen little change over the centuries. These constructs are relics, harnessed by the residents who choose to cohabit with nature and industry. The infrastructure is dense, a compact concoction of old transport systems and conveyor belts that snake between and within homes carved directly into the cavern walls.
+
+While fauna are a rare sight, the ecosystem's high humidity supports peculiar creatures adapted to the subterranean twilight—a bioluminescent beetle skitters across moss paths, leaving trails of soft green glow. Urban rookeries, carved high into walls, hold the nests of small, featherless avians, their hollow-sounding calls echoing faintly through the corridors, stirring the silence.
+
+The entire undercity is cast in dimness, light provided only by the occasional flicker of sparking wires and the steady glow of phosphorescent plants that line pathways. The people here speak in hushed tones, their voices merging with the quiet percussion of slow-dripping water from stalactites above, forming tiny rivulets that feed into small, communal pools.
+
+A sense of peculiar, almost palpable calm pervades the environment, shaped by an ever-so-gradual dynamic. The changes here are slow, governed by the cycles of an underground world where time stretches between seasons, and shifts in temperature are a distant memory shared through stories rather than experience.
+
+Then there's the strangeness—not pronounced, but lingering, like an afterthought. Evident in the whispered folklores, in the occasional distortion of echoes, and the way certain tunnels seem to loop endlessly despite the best efforts to understand them.
+
+The Ember Undercity exists as a testament to coexistence—a small world unto itself, steeped in a slow, deliberate rhythm that defies the frenetic pace of the surface above, thriving in the dim luminescence of its intimate and crowded existence.

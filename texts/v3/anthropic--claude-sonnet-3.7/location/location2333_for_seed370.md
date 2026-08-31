@@ -1,0 +1,23 @@
+# The Hollows
+
+The warm, stale air hangs heavy with moisture, each breath requiring a conscious effort as you navigate the mossy stones. You've climbed for hours to reach this elevated basin—a natural amphitheater carved into the mountain's shoulder, hidden from the valleys below. The Hollows, locals call it, though few ever make the journey.
+
+Water is the architect here. It weeps from nearly every surface—trickling from rock faces stained dark with algae, pooling in depressions worn smooth over centuries, dripping from the undersides of broad leaves that catch what falls from above. The stone basin itself is pockmarked with countless small pools, some no larger than your palm, others deep enough to swallow a person whole. The water is clear but tinted amber from tannins, revealing complex miniature ecosystems within each pool.
+
+The vegetation finds purchase wherever possible—not a dense jungle, but deliberate, as if each plant has negotiated its territory through slow diplomacy. Ferns unfurl in spiral patterns along the basin's edges, their bright green fronds collecting beads of moisture. Moss carpets the areas between pools, yielding softly underfoot. Scattered flowering plants rise on slender stalks, their blooms heavy and pendulous in the humid air, colors muted in the dim light that filters through a perpetual haze.
+
+The encircling walls rise gently, creating the sense of being held rather than trapped. Above, the canopy is incomplete—a latticework of branches from trees that grow along the upper rim, allowing dappled sunlight to penetrate in shifting patterns that never quite dispel the dimness. When rain comes, as it frequently does, it doesn't pound but whispers down through these natural filters, maintaining the basin's consistent saturation.
+
+But what defines The Hollows is not its geology or its flora—it is the overwhelming presence of fauna. The air thrums with life. Insects are everywhere—not as pestilence but as essential participants in the ecosystem. Iridescent beetles trace paths across water surfaces, dragonflies hover like sentinels, and countless species of flying insects form living clouds that shift and reform continuously. Their combined movements create a constant background hum that rises and falls with no discernible pattern.
+
+Amphibians claim dominion here. Frogs of impossible variety perch on every available surface—tiny translucent creatures no larger than a fingernail, stocky specimens with vibrant warning patterns, long-limbed tree frogs that cling to vertical surfaces. Their calls form complex overlapping choruses that reverberate against the stone walls, creating a natural amphitheater effect. When darkness falls completely, some species emit bioluminescence, painting the basin with living light.
+
+Birds dart through the spaces between pools—not nesting here, but visiting to feed, adding their sharp calls to the auditory landscape. Occasionally, larger creatures emerge cautiously from concealed entrances around the perimeter—small mammals with dense water-resistant fur, slender reptiles that slide between rocks. All move with the practiced ease of those who know exactly where solid ground lies between the water-filled pockets.
+
+The terrain shows signs of having existed in this form for countless generations—a mature system that has found its balance. The rock has been sculpted by water into organic shapes, all hard edges worn away. Even the paths between pools seem deliberate, as if carved by the repeated passage of creatures following ancient routes. Nothing here feels new or unfinished.
+
+There are no constructed structures, yet the space feels designed, as if some intelligence guided its formation. The only evidence of human presence are occasional small stone markers—not built structures but carefully balanced arrangements that might guide travelers or mark particularly dangerous pools. These crude waypoints represent the limit of intervention here.
+
+The entire basin shifts continuously through subtle cycles. Water levels rise and fall with rainfall patterns. Certain pools bubble periodically as gases escape from below. Flowering plants open and close with circadian rhythms that seem only loosely connected to actual daylight. Animal populations swell and contract in waves. Nothing remains static for long, yet the system as a whole maintains its character through these constant adjustments.
+
+The Hollows demands respect rather than conquest—a place where humans may visit but never truly belong. Those who come here bring only what they can carry and leave nothing behind, understanding that they witness something both ordinary in its elements and extraordinary in its composition.

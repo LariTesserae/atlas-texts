@@ -1,0 +1,7 @@
+This landscape is a damp and cool environment, with intermittent moisture brought on by occasional rain and condensation. The vegetation here is sparse and mostly made up of tough, hardy plants that can withstand the harsh conditions. The ground is below the surface, giving the landscape an underground feel. It is an emerging landscape, still in the process of formation, with signs of erosion and raw geology.
+
+The scale of this place is hidden, with pocket-scale features and single-features contained within. The density here is packed, with no room between the various presences. There are traces of built structures scattered throughout the landscape, small and faint, as if they were built long ago and have started to decay. However, there is no evidence of any technology in this landscape, only pure, wild nature.
+
+The light here is bright, illuminating the landscape and giving it a vibrant energy. The fauna here is abundant, with various strange and exotic creatures roaming about, adding to the weirdness of the landscape. The sound is loud, with the creatures and environment creating a symphony of noises.
+
+What makes this landscape truly unique is its dynamic nature. Despite its apparent stability, this landscape is constantly changing, with subtle shifts in the environment, the fauna, and the sound. It seems to be in a state of perpetual motion, always evolving and never staying the same. It is a place full of life and wonder, waiting to be explored and discovered.

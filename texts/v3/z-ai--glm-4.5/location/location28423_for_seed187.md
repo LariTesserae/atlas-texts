@@ -1,0 +1,23 @@
+The air is cool and holds a weight to it, a humid, respirating thickness that settles on the skin like a second layer of clothing. You are standing inside a vast, hollow space, though it is not a building. The scale is that of a cathedral or a grand opera house—a single, defined "room" carved out of the living world, bounded not by walls but by the sheer density of the surrounding mass.
+
+This is the Green Hall.
+
+Underfoot, there is no soil. The ground is a compacted, interwoven lattice of roots and mycelium that has fused over eons into a continuous, spongy pavement. It is dark, slick with moisture, and gives slightly underfoot, absorbing sound and movement. The water level here is high but hidden; the entire environment is damp, smelling of wet loam and ozone. Every surface is beaded with condensation, and the air is thick enough to taste. Occasionally, a heavy drop falls from the darkness above, striking the root-floor with a sharp, echoing *plink* that ripples out into the constant background noise.
+
+The vegetation is total. It is not merely that plants grow here; it is that the architecture of the place *is* plant life. The walls of the hall are comprised of massive, vertical pillars of woody tissue, fused together so tightly that the grain of the wood swirls into a single, solid mass. These pillars rise hundreds of feet to support a ceiling that is a dense canopy of interlocking fronds and vines so thick that no sky is visible—only a diffuse, ambient normal light filters through, gray-green and shadowless, like an overcast day trapped indoors.
+
+Despite the total saturation of plant matter, the space feels empty. The density is low in terms of clutter; there are no saplings, no bushes, no undergrowth to trip over. The vast central void of the hall is open and airy, a cavernous negative space surrounded by the towering organic columns. It is a room, and it has been swept clean, kept clear by the sheer age and settled nature of the ecology.
+
+This is where the ancient erosion becomes apparent. Everything is rounded. The wooden pillars have been smoothed by time, their bark long shed, worn down to a polished, silky texture that feels like ancient stone to the touch. There are no sharp edges, no new growth, no jagged breaks. The entire landscape has settled into a deep equilibrium. It is the "end of life" state—old, slow, and unmoving. The dynamics are frozen; you get the sense that this place looked exactly the same a thousand years ago and will look the same a thousand years from today.
+
+But it is loud. The silence of the empty space is shattered by the sounds of the "industrial" ecosystem.
+
+The vegetation here functions like machinery. Deep within the woody pillars, great columns of sap are being pumped under pressure, creating a low-frequency thrum that vibrates through the floor and into the soles of your feet. It sounds like the distant rumble of a factory's basement. Here and there, giant flowers—some as large as sedan cars—sit atop the pillars or hang from the canopy. They do not bloom in silence; they hiss. Steam vents from them as they release excess heat, accompanied by the rhythmic, mechanical *clack-clack-clack* of seed pods opening and closing with the precision of hydraulic presses.
+
+It is a biological factory, running at high capacity in stasis.
+
+The fauna is abundant, adapted to this humid, hollow factory. Small, droning insects swarm in the pillars of light that pierce the canopy, their wings adding a high-pitched electric whine to the low mechanical thrum. Larger, multi-legged creatures cling to the smooth walls, acting as maintenance crews, scraping moss and clearing vents. They move with jerky, purposeful motions, oblivious to observers. The air is filled with the sounds of life: the wet slap of wings, the chittering of lizards, the deep, resonant belches of the digestive flora.
+
+There is a smell of sulfur mixed with the damp earth—a hint of chemical processing. The "normal" weirdness of the setting lies in this seamless blending of the organic and the mechanical without any metal or glass. It is a primordial engine, a photosynthetic power plant that has reached its final, stable form.
+
+You stand in the center of the Green Hall, on a floor of woven root, surrounded by smooth, ancient columns of wood that hum with the power of the sun. The air is cool and wet, the light is flat and gray, and the noise is a deafening, constant roar of nature pretending to be industry. It is a place of immense power, frozen in a moment of eternal, noisy equilibrium.

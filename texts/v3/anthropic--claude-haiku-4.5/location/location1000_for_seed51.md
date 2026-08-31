@@ -1,0 +1,31 @@
+# The Latticed Marsh
+
+You step into it gradually—first the paths become uncertain, then the ground gives, then you're wading through something that isn't quite water yet. The boundary between bank and flood is theoretical here. Everything drips.
+
+The vegetation rises in dense, improbable layers. Close to the waterline, liverwort-thick mosses coat submerged stones in a fur so uniform it looks applied. Above that, tangles of low scrub—dogwood, alder, willow—their branches so densely woven they form walls rather than stands. The leaves are still wet from perpetual mist, even when it isn't actively raining. The air itself seems saturated to the point of exhaustion, as though the distinction between steam and air has worn away.
+
+But the real structure of this place isn't botanical.
+
+Woven through the vegetation—*through* it, inseparable from it—is a lattice. At first you might mistake it for a trick of light, or for vines too regular to be natural. But as your eyes track it, the geometry becomes undeniable. Strands of something that catches light like oil on water stretch between trees and rocks, creating a three-dimensional grid at every scale. Some threads are hand-thick; others are fine as copper wire. They seem to originate from no single source. They don't decay. Moss doesn't grow on them, and nothing tangible can grip them—your fingers slide through as if they're not there, though your palm recognizes resistance, a material that exists in a spatial register slightly askew from the one your eyes report.
+
+The lattice hums.
+
+Not constantly. The sound moves through it in waves—a low, phase-shifted vibration that sometimes rises to an almost-audible frequency, then drops again into felt resonance. It's accompanied by occasional clicks, *pops*, discrete percussion that seems to originate from nodes where multiple strands intersect. These nodes are visible as nodules or thickenings when you look at them directly. When you look away, you forget their precise location.
+
+The water—and there's a lot of it—doesn't flow so much as *circulate*. It pools in shallow basins between hummocks, and you can watch it moving within those basins in currents that seem to have no external cause. The water is cool, maybe 8 or 9 degrees Celsius. It tastes mineral-heavy when you wade through it. Occasionally something breaks the surface—not a fish; you'd recognize the motion. These are angular disturbances, shapes that don't suggest biology. They might be the lattice pushing through from below. The water closes back over them without sound.
+
+The light here is ambiguous. The sky is present somewhere above, but the dense canopy and the perpetual mist have combined to create a condition of diffuse, directionless illumination. Everything is in a kind of half-shadow that doesn't quite qualify as darkness. The lattice catches what light reaches here and distributes it without reflection—it seems to *absorb* light and rebroadcast it at subtly lower energies. The effect is that the landscape looks older than it probably is, or perhaps exists in a temporal state slightly out of phase with your own experience of time.
+
+You see very little animal life. Once, a bird—pale, gray, with movements too fluid to be quite right—appears among the branches for precisely long enough to register as impossible. When you blink, it's gone. You find no tracks in the mud. The insects are sparse but present: damselflies with wings that shimmer in spectrums beyond normal iridescence, moving in straight lines between two points as though following predetermined paths. Their flight is utterly silent.
+
+The vegetation itself cycles. You can watch the rhythm if you stay still long enough. Sections of the scrub green, fruit (berries you've learned not to touch), brown, and decay within what might be days or weeks—the temporal sense becomes unreliable in this place. The moss grows visibly. Dead plants don't truly decay so much as fade, becoming less present, less real, until they're indistinguishable from the background.
+
+The ground itself has a deep history written into it. The hummocks are old, deeply stabilized, their surfaces smooth from water that has run over them for longer than erosion could explain. Some are marked with depressions—not footprints, but worn places, as though something has repeatedly settled there, or something has been repeatedly placed and removed. The soil beneath the water is stiff with accumulated mineral, a sediment so fine and so densely packed that wading through it feels like moving through time itself, each step requiring negotiation with something stable and patient.
+
+There are no human structures. There are, however, *clearings* in the lattice—places where the grid opens into wider spacing, almost inviting passage. These clearings are not random. They follow patterns that suggest intentionality, though to what end remains unclear. They seem to lead deeper into the marsh, toward regions where the mist grows denser and the hum of the lattice increases in frequency.
+
+The entire landscape seems to exist in a state of established deep existence—not new, but also not ancient in any way that invokes nostalgia or loss. It simply *is*, in a form that has resolved into this particular configuration after processes that no longer require active maintenance. The lattice maintains it. Or the marsh maintains itself through the lattice. Or both are expressions of something deeper.
+
+You become aware, eventually, that your presence here is marked. The hum changes pitch slightly when you move through it. New nodes seem to appear in your peripheral vision. The clearings, if you follow them, seem to lead you in the direction you were already walking—a quality of the place that makes it difficult to know whether you're choosing the path or the path is choosing you.
+
+The temperature remains cool. The moisture never quite becomes rain. The lattice continues its work, its purpose obscured by a fundamental property of this place: it does not explain itself. It simply continues, weaving through the vegetation, circulating the water, maintaining the hum that is neither alive nor mechanical, but something for which language has not yet formed adequate categories.

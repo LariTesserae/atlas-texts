@@ -1,0 +1,11 @@
+The space is smaller than a room—a sealed chamber carved into rockface at extreme altitude, so contained that the world outside might as well be void. No water. The air is dry as dust, dry as nothing, but something here has learned to grow anyway.
+
+Vegetation presses against every surface: not plants as you know them but dense mats of something fibrous and faintly luminescent, roots threading through mineral crusts, fruiting bodies clustered in the crevices. Cool, always cool. The chill isn't weather but condition—the atmosphere maintained by machinery that has been running so long it has become geology, become fact.
+
+The sound is the thing you notice first: the low industrial drone of engines, the hiss of processes you can't name, a vibration that settles into your chest and doesn't leave. Loud for such a small space. The sound is everything here. It is what holds the equilibrium.
+
+Everything is close. The packed density means no room between presences—the vegetative forms press against faint metallic structures bolted into the rock, against pipes that carry nothing you could call moisture, against vents and housings and small engines idling in perfect perpetual rotation. The built environment is scattered, faint, half-swallowed: occasional bolt-heads, a seam of joined panels, the ghost of a door that leads nowhere. Industrial, scaled, electrified in the way of systems that predate recognition.
+
+Strange. The plants are strange. They don't move. They have never moved. The dynamic parameter says never changing, and you believe it—in this tiny sealed pocket at the top of everything, the ecosystem has reached a perfect static equilibrium. Nothing fluctuates. Nothing needs to. The machines do what machines do; the growth does what growth does; the same configurations have existed so long that change would be aberration rather than development.
+
+You could stand here forever in the humming dark and nothing would be different. That is the point. That is the only point there is.

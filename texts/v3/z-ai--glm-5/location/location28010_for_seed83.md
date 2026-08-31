@@ -1,0 +1,57 @@
+# The Cistern Engine
+
+You descend. There is always a descending. A ladder rung welded to the inside of a vertical pipe, the pipe itself corroded to the color of dried blood, of old brick, of something that was once painted industrial gray and has spent decades negotiating with heat and damp until it became what it is now — a surface that feels almost organic, almost like bark, almost like the inside of a throat.
+
+The ladder ends. Your boots meet a grate.
+
+---
+
+The space below is a cathedral only in the sense that it has height and that something like worship happens here, though what is worshipped is pressure and temperature and the slow movement of water through pipes too numerous to count.
+
+You are inside a machine. Not inside a room that contains a machine — inside the machine itself. The walls are pipes. The floor is pipes. The ceiling, lost somewhere above you in the darkness, is also pipes, though up there they narrow to the diameter of your wrist, your thumb, your finger, branching like capillaries until they must surely become something too fine for human hands to have welded, though human hands did weld them, decades ago, in an era when this place was built to serve a purpose that has since been modified beyond recognition.
+
+The pipes sweat. This is the first thing you notice after the heat — which is the zeroth thing, the thing that was already true before you noticed it. The heat is a fact of the body. It enters through the skin and becomes indistinguishable from your own temperature. You are warm because the space is warm and there is no arguing with it.
+
+But the sweat on the pipes is visual. Each pipe — and there are hundreds visible from where you stand, perhaps thousands in the space overall — wears a sheen of condensation. The water travels. It beads, merges, traces a slow path downward along the curve of metal, joins other trails, becomes a rivulet, finds a seam between pipes, disappears into the black. You hear it sometimes: a drip, a tick, a sound like someone tapping a fingernail against copper, very faint, very patient. Then silence again. The pipes breathe moisture in and out with some cycle you cannot identify — perhaps a valve opening somewhere, perhaps a shift in the temperature of whatever fluid moves through this particular artery of the system.
+
+The water that condenses here does not belong to this place. It is a byproduct. The pipes carry something hot — steam, perhaps, or superheated water under pressure — and the air around them is cooler, relatively, and the dampness in that air surrenders itself to the metal. So the wetness is a negotiation between two temperatures, two systems, and it occurs on the surface where they meet. You are standing inside that meeting.
+
+---
+
+The light: there is almost no light. What exists comes from two sources. The first is a series of gauge-faces mounted at intervals along the larger pipes — glass dials with luminous needles, each one emitting a faint green phosphorescence, the kind of light that has been dying for decades and will continue dying for decades more without ever quite reaching dead. These gauges show pressures and temperatures in units you do not recognize. The needles barely move. One quivers, very slightly, as you watch. A pulse in the system. A heartbeat at the scale of machinery.
+
+The second light source is deeper in, past a narrow passage between two tanks so close together you must turn sideways and feel the damp heat of their surfaces through your clothing. Beyond this passage, a single indicator lamp — red, the color of a coal that will not go out — marks what might be a junction or a valve station. It casts no illumination to speak of, but it is visible, and in a space this dark, visible is enough. Your eyes construct architecture from the slightest information: the curve of a pipe, the angle of a bracket, the negative space where something is not.
+
+You navigate by touch and by the dim constellation of gauges. Your hand on a pipe tells you its temperature — hot, but not scalding; this is a system that has found its equilibrium. Your other hand on the pipe beside it tells you a different temperature — cooler, carrying something else. The map of this place could be drawn in heat.
+
+---
+
+The density is the thing that presses on you after the heat and the dark. There is no open space here. Or rather, the open space is an accident — the gaps between manufactured things, the places where pipes diverge and leave room for a body to stand, to crouch, to squeeze through. The space was not designed for habitation. It was designed for flow, and the flow is of liquids and gases and pressures, not of people. A person is an intrusion here, a soft thing in a hard system, and the system tolerates the intrusion the way a body tolerates a splinter — by enclosing it, by pressing against it from all sides.
+
+Every surface is manufactured. The pipes are obvious, but so are the brackets holding them, the welds joining them, the valves regulating them, the plates covering access points, the bolts threading those plates closed. There is no floor, only a grating laid over a deeper layer of pipes, and below that grating, more pipes, and below those, presumably, still more, descending to some lowest point you will never reach. The built environment goes all the way down. There is no earth here, no stone, no substrate that was not placed by human intention. You are inside a construction entirely, the way a blood cell is inside a vein.
+
+The pipes are not uniform. This is what makes the space navigable — the variation. Some are iron, some copper, some a material you cannot identify, dark and slightly warm to the touch in a way that suggests insulation beneath a metal skin. The diameters range from arm-thick mains to finger-thin feeder lines. They cross and parallel and branch in patterns that must have been logical once, when the system was designed, but the logic has been overlaid and modified and patched so many times that it now resembles something organic — a root system, a circulatory network, the veins inside a leaf. The order is there, but it is the order of growth, not of plan.
+
+---
+
+Sound: almost none. The pipes do not clank or groan. The steam or whatever moves through them does so at a pressure and velocity that produces only a low continuous shhh, like the memory of a whisper, felt more than heard. Occasionally, a tick from a gauge, a drip of condensation, a sound like a sigh from somewhere deep in the system. These sounds arrive and leave without urgency. Nothing here requires attention. The machine runs as it has run for decades, in balance with itself, its processes so slowed and so settled that they approach stillness without ever reaching it.
+
+If you stand still long enough — and the heat encourages stillness, discourages the exertion of exploration — you begin to hear the smallest sounds: the creak of metal expanding by fractions of a millimeter as a pipe warms, the almost-inaudible fizz of a tiny leak somewhere pressurizing the air with vapor, the sound of your own breath reflecting off the curved surfaces around you and returning changed.
+
+---
+
+Life: there is almost none, but not none. In the condensation that runs down certain pipes — the cooler ones, the ones carrying return flow — there is a film of something greenish. Not a plant, exactly. A biofilm, perhaps, or a organism that has adapted to this specific niche: hot, dark, damp, fed by whatever minerals dissolve out of the pipe metal and whatever organic matter the condensation pulls from the air. It forms a stripe along the underside of certain pipes, following the water's path, darker where the flow is steadier, patchy where the wetness is intermittent. If you touch it, it is slick and slightly warm and clings to your fingertip for a moment before the heat of your skin causes it to release.
+
+And once, as you stood in the narrow space between two tanks, you saw movement. A pale shape, no larger than your thumb, moving along a pipe with a deliberateness that identified it as animal. An insect, perhaps, though its body was not segmented in any way you could discern in the dark, or something else entirely, something that has lived here for enough generations to have shed the forms of its surface ancestors. It moved toward moisture. It drank from the condensation. It moved on. It did not acknowledge you. It has no reason to acknowledge anything that is not water or heat or the specific surface it navigates. It is a thing inside the machine, as you are, but it belongs here in a way you do not.
+
+---
+
+The weirdness of this place is not dramatic. It accumulates. After an hour — or two, or however long you spend in the dark hot press of pipes — you begin to notice things. The gauges that show readings in units you don't recognize. The pipes that branch and recombine in patterns that seem to serve no flow logic. A valve wheel that, when you turn it, produces no discernible change in pressure or sound or temperature — suggesting it is connected to something so far away, or so deep in the system, that the effect is invisible from here. Or suggesting it is connected to nothing at all, has been disconnected, exists now as a ritual object, a valve that is turned because valves are meant to be turned, maintaining a habit of operation long after its function has been rerouted elsewhere.
+
+And then there is the heat itself, which is too consistent. It should vary more than it does. The pipes carry fluids at different temperatures, and yet the air around them is nearly uniform, as though the space itself has a thermal set point it refuses to abandon. This suggests a system of regulation you cannot see — vents, dampers, some mechanism hidden behind the pipe-walls that maintains the temperature at a specific value for a specific reason. The machine is managing itself. It is managing you, too, in the most passive way: by keeping you at a temperature it has decided is correct.
+
+---
+
+You find, in a rare open space — a clearing, if such a word can be used for a place where three large pipes diverge and leave a void the size of a small room — a bench. A metal bench, bolted to the grating, with a slight depression worn into its surface by decades of sitting. Someone worked here once. Someone monitored these gauges, turned these valves, sat on this bench during a break and felt the same heat, heard the same faint sounds, wiped the same condensation from their forehead. The bench is evidence of a human scale inside the machine. It is also evidence of abandonment. No one sits here now. The gauges read themselves. The valves turn themselves, or do not need turning. The system has outlasted its operators.
+
+You sit on the bench. The metal is hot through your clothes, not burning, but present, insistent. The darkness is nearly total. The green glow of a gauge lights one pipe, one corner, one small fact of this place. The condensation trickles. The pale insect, if it is still here, is invisible. You are inside something that functions, that has functioned for longer than anyone has been paying attention, that will continue to function in the same patient, heated, densely-packed way until something fundamental changes — a pipe bursts, a valve fails, a pressure exceeds a tolerance — and the system finds a new equilibrium, or doesn't, and the water finds a new path through the dark.

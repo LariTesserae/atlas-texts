@@ -1,0 +1,13 @@
+**The Weeping Grove of Vith**  
+
+A dense, tangled cathedral of vegetation rises from the sodden earth, its every surface glistening with moisture. The air is cool and thick with the scent of wet bark and fermenting leaves, the kind of chill that seeps into bones but does not bite. The ground is a spongy mat of roots and moss, saturated with water that seeps up from below, pooling in hollows where tiny, translucent creatures dart between the ripples. The trees here are not merely tall—they are *alive* in a way that feels sentient, their trunks swollen with stored water, their bark weeping slow, viscous sap that glows faintly in the dim light.  
+
+This is a place where the boundary between plant and architecture blurs. Vines knit themselves into bridges, their fibers braided by unseen hands—or perhaps by the vines themselves. Hollowed-out growths serve as shelters, their interiors lined with a downy fungus that hums softly when touched. The canopy is so dense that the sky is only a rumor, glimpsed in fleeting patches where the leaves part just enough to let in a muted, green-tinged glow.  
+
+The sound is overwhelming—a chorus of croaking amphibians, the rustle of unseen things moving through the undergrowth, the constant drip-drip of water from leaves to earth. The fauna here is not just abundant; it is *everywhere*, crawling, slithering, flitting between the branches. Insects with iridescent wings hum in clouds, their bodies refracting the scant light into prismatic shimmers. Small, furred creatures with too many eyes scuttle along the vines, their movements erratic, as if the very air is alive with unseen currents.  
+
+Human presence is sparse but not absent. A settlement—if it can be called that—clings to the edges of the grove, its structures built from living wood and woven reeds, lashed together with sinew and vine. The people here move carefully, speaking in hushed tones, as though the grove itself listens. Their tools are simple: bone knives, stone-weighted nets, clay vessels sealed with resin. They know better than to take more than the grove allows.  
+
+The grove is not static. It breathes, shifts, *changes*—roots rise and subside like tides, new growth erupts overnight, and sometimes, whole sections of the canopy collapse without warning, only to be swallowed by the hungry earth within hours. The people say the grove dreams, and when it stirs, the world trembles.  
+
+To walk here is to walk through the veins of something vast and half-awake. The air thrums. The water remembers. The plants watch. And beneath it all, something older than names waits, patient, in the dark.

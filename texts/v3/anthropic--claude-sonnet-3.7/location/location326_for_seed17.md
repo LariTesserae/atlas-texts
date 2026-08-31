@@ -1,0 +1,21 @@
+# The Depth-Plain
+
+The waters of the Depth-Plain stretch beyond visible reckoning, a liquid expanse so vast that it possesses its own horizon. This is not an ocean as we understand it, with a bottom to be reached or shores to be found. It is pure volume—cold, translucent, and extending in all directions with perfect consistency. Its height-dimension alone would dwarf mountains; indeed, entire mountain ranges could be suspended within its volume without touching its boundaries.
+
+The water is peculiarly viscous, with a resistance that falls somewhere between liquid and gel. Sound travels strangely through it—amplified rather than muffled—creating a constant, overwhelming roar. This is the Voice of the Plain: a composite symphony of countless water currents colliding at microscopic scales, magnified across the incomprehensible volume until it becomes a physical presence that vibrates through the body.
+
+The temperature hovers just above freezing, maintained with perfect consistency throughout the entire expanse. No gradients exist. No warmer pockets or colder streams. The thermodynamic equilibrium is absolute and eternal.
+
+Scattered through this cold infinity are the Towers—colossal industrial structures that rise from unseen depths and extend toward unseen heights. Each Tower is a self-contained ecosystem of machinery, a vertical metropolis of pistons, turbines, pipes, and valves, all constructed from a strange bluish metal that neither corrodes nor degrades. Some Towers are slender, others broad as cities. The distances between them are so vast that from any given Tower, the nearest neighbor appears as little more than a dark vertical line in the far distance.
+
+No plant life exists in the Depth-Plain. Instead, the water teems with translucent fauna—creatures evolved or engineered for this specific environment. They range from microscopic organisms that feed on the trace minerals in the water to massive filter-feeders the size of whales that undulate slowly between the Towers. These beings have no pigmentation, their bodies revealing intricate networks of circulatory systems and organs. Many have evolved bioluminescent organs, not for light in the conventional sense, but as communication systems that pulse in rhythmic sequences.
+
+The larger creatures produce sounds as they move, contributing distinct patterns to the overwhelming acoustic environment. Some emit deep, resonant tones that can be felt more than heard; others produce rapid clicks that scatter through the water like auditory confetti. These sounds don't simply add to the ambient roar—they become part of its structure, weaving through it like threads in a tapestry.
+
+The Towers themselves generate much of the Plain's noise. Their massive machinery operates continuously, processing the water through elaborate systems for purposes not immediately evident. Enormous turbines spin, creating vortices that stretch for kilometers. Pressure valves release periodic bursts of compressed water that explode outward with enough force to create temporary cavitation bubbles large enough to swallow buildings. When these bubbles collapse, they produce thunderous implosions that send shock waves rippling through the Plain.
+
+Light in the Depth-Plain comes from two sources: the bioluminescence of the fauna and the industrial illumination of the Towers. The latter consists of vast arrays of cold-phosphorescent panels that cast a steady, diffuse glow across thousands of cubic kilometers. This light creates no shadows—it simply establishes a uniform visibility that extends until the water itself becomes the horizon.
+
+The most unusual feature of the Depth-Plain is its stability. Despite the constant motion of its creatures and the ceaseless operation of its machinery, nothing actually changes. The Towers neither grow nor decay. The populations of creatures remain perfectly balanced, with birth and death rates precisely matched. Even the currents follow fixed patterns that, while complex, never deviate from their established courses.
+
+Time seems irrelevant here. There are no seasons, no cycles of light and dark, no processes of growth or decay. The Depth-Plain simply is, and has always been, exactly as it is now—a perpetual present tense, preserved in the cold, sound-filled waters of its infinite expanse.

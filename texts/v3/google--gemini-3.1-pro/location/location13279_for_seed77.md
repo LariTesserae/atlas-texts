@@ -1,0 +1,25 @@
+The floor of the basin stretches out to a hazy, curving horizon, vast enough that the sky above it seems to weigh heavy on the land, pressing the elevation down into a continent-sized depression. Under the steady, unblinking glare of daytime sunlight, the landscape is a blinding expanse of pale ivory, chalk-white, and pale ochre. But as your eyes adjust to the glare, the sheer artifice of the ground becomes undeniable. 
+
+There is no dirt here. There is no stone, no sand, no raw tectonic crust. Every square meter of the terrain is a constructed surface—a flawless, engineered substrate built not by machines or minds, but by the relentless, non-conscious imperatives of biology. It is a landscape of architecture without architects. 
+
+Between vast, empty plains of smooth, glazed pavement, colossal structures rise in scattered, sparse isolation. Miles of open, glaring flatness separate sprawling, slowly growing citadels of organic masonry. These constructs are heavily organized: sweeping parabolic arches, perfect hexagonal terracing, and load-bearing pillars of porous, bone-like material. They look almost skeletal, like the macroscopic scaffolding of a coral reef exposed to the open air, yet they are terrestrial, spanning kilometers in width and rising only a few dozen meters into the punishing heat.
+
+It is violently hot. The air is breathless and heavy, baking the pale surfaces of the world. Yet, the heat does not render the landscape dry. Instead, the basin acts as a planetary hothouse. 
+
+Water here does not exist in rivers or deep static lakes, but in a state of suspended, intermittent humidity. The thick air holds moisture until it can bear no more, leading to sudden, localized sweats of condensation. Deep in the shadowed underbellies of the pale arches, the atmosphere cools just enough to wring water from the air. The landscape weeps. Dampness clings to the undersides of the vaults, gathering into heavy droplets that fall continuously, pitting the smooth floors below with temporary, shallow, tepid pools. 
+
+There are no animals to drink from these pools. No insects orbit the stagnant water, and no birds cross the vast overhead sky. The silence of the basin is nearly absolute, broken only by the faint, rhythmic *plink* of condensation, the microscopic sizzle of evaporation, and—if you listen very closely—the slow, crystalline tearing sound of the ground making itself.
+
+This world is in a state of hyper-active genesis. It thrives in the 0.3 margin of erosion; there is absolutely no decay here, no wearing away of old forms, no dust settling in the corners. Everything is additive. Everything is pristine, sharp, and newly born. The landscape is assembling itself in real-time.
+
+The engineers of this continent are the vegetation—sparse, alien, and entirely functional. Thin, wire-like vines the color of bruised cyan trace along the damp floors of the shallow pools and climb the pale pillars. These fibrous networks are the sole flora. They do not grow leaves to catch the normal, abundant light, but act instead as biological pumps and 3D-printers. 
+
+Powered by the intense thermal energy of the basin, these sparse mats draw up the condensed, mineral-heavy water. As the punishing heat of the day flashes the moisture into steam, the vines weep a thick, silicate-and-calcium sap. The sap hardens instantly in the kiln of the afternoon sun, precipitating a fresh microscopic layer of the white masonry. 
+
+The ecology here moves at an aggressive, visible pace. You can watch a shallow pool evaporate over the course of an hour, and as the waterline recedes, it leaves behind a newly formed, perfectly smooth rim of pale ceramic, built by the cyan tendrils that lace through the water. A fallen droplet on a strut does not just dry; it calcifies, extending outward. The terrain expands upward and outward, cell by hardened cell, laying down vast causeways and hollow, echoing chambers. 
+
+Because the vegetation is so sparse, the construction zones are scattered. You could walk for three days across a flat, featureless plain of hardened, biological glaze—a completed, empty foundation—before reaching the next sector of active growth. 
+
+When you approach one of these actively building zones, the heat feels even wetter, almost oppressive, smelling faintly of wet chalk, ozone, and baking starches. The cyan vines work silently inside their damp shadows. The environment is constantly in motion. Moisture rises, gathers in the upper vaults, falls into the shadows, is pulled through the fibrous plumbing of the vines, and is extruded back into the sun to become solid ground. 
+
+It is a world still under construction, an embryonic geology wrapping itself in a pristine, perfectly drafted shell. It possesses the logic of a machine and the pulse of a living organism, stretching endlessly under the sun, slowly building the bones of an unformed planet.

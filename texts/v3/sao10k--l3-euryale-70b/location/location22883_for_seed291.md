@@ -1,0 +1,9 @@
+The Kyleghdian Delta sprawls in an impossible tangle across the Shattered Coast, a landscape of prodigious and baffling hydrographic convolutions. Here, fecund waters from the Hithr Ignizwisk Mountains pour forth in countless rivulets, braided channels, and serpentine estuaries that twist and writhe like some lesser god's dropped spaghetti.
+
+From the rugged shale banks rise a million mangrove trees, dark evergreen hummocks choked with writhing red-purple tunnels of pneumatophores reaching up to snatch breath from the densely humid air. Slick with gleaming leaves, verdant vines, epiphytes, and universes of tiny insects and shivering amphibians, this swollen thicket nurtures a riot of cryptic creatures unseen by human eyes.
+
+Birds call in whatever languid light can regenerate through the steamed-up blanket of fog. The shrouded estuary glimmers, flowing back and forth in hideous slow rhythm with the black surf miles offshore. Pale as America's broken teeth, the horizon athwart snowtribes of snapping contrasts.
+
+Looming among the paleomorphic thickets of mud and blackwater, the first disappeared spires of Kyleghdian cautiously brake the surface—a mad metropolis of roped towers, cableballasted walkways, gothic crossbeams, chunky blockscapes and bodged stone walls prodded like giant test*numeral(sqrt)s from not-exactly-red clay. A whole city reifying from verging tectonics and primordial ooze, foundations corroding like dystrophic metal as water and loam fill the honeycombing fractures.
+
+All night and day, fire-haired drone scribes in black prospector pants dart through window husks, muck-caked and rainbow-shafted, naming nodes and territories across the still-forming map. Everywhere wrinkled catfolk pundits, lootbags sagging with artifacts, espy curling threads of umbral power and gemstone glamours...<|reserved_special_token_170|>

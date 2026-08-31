@@ -1,0 +1,25 @@
+The place is called the **Underbloom**.
+
+It is a single, self-contained chamber roughly the size of a modest cathedral, yet so densely packed with life and structure that it feels far smaller. Its ceiling lies only forty feet above the lowest floor, but every inch of that space is claimed. You stand inside a living, breathing furnace of vegetation that has swallowed an entire industrial town and kept it warm and wet for four hundred years.
+
+Everything is warm (never hot, never cool), a steady 29 °C that feels like breath against the skin. The air itself is saturated; condensation beads on every surface and falls in slow, fat drops that never quite reach the ground before they are drunk by the leaves beneath them. The water table is so high that the roots of the greater plants have merged with the bedrock; they weep constantly. Slick black rivulets run down every vertical surface, glittering where faint light catches them, then vanishing into the spongy green mat that has replaced the floor.
+
+There is no soil here. The ground is a living felt five meters thick, woven from the intertwined rhizomes, mosses, liverworts, and hair-like aerial roots of a single dominant species no botanist has ever named. It is not moss. It is not fern. It is simply *the Bloom*. Every pillar, every wall, every fallen beam or forgotten machine has been encased and remade by it. The vegetation does not grow over the town; the town has become a skeleton inside the vegetation.
+
+What remains of the old industrial settlement is still visible, but only as dark geometry trapped inside translucent green. Brick smokestacks are now colossal living columns, their original shape preserved like insects in amber. Cast-iron boilers bulge inside the mass like swollen fruits. Tram rails run in perfect parallel for twenty meters before they are gently lifted, twisted, and turned into ornamental spirals by the slow hydraulic pressure of root pressure over centuries. Everything is rounded now, softened, upholstered in velvet moss and dripping curtains of fine rootlets that sway like beards.
+
+The light is dim, sourceless, the color of old moss and weak tea. It filters down through the canopy-layer that has sealed the original ceiling vents. Here and there, ancient industrial lamps still hang from corroded chains, their glass housings filled with water and tiny floating ecosystems of algae. A few of them still work, giving off a weak amber glow that never quite reaches the floor. Most have gone out. The Bloom has grown filaments into their sockets and now seems to feed, faintly, on whatever residual current still moves through the buried grid.
+
+Sound is constant and loud, yet slow. It is the sound of perpetual dripping magnified by a thousand resonant surfaces. The larger water veins inside the thicker stems and columns make deep, organ-like glugs that travel through the mass like whale song. Every few minutes a heavy droplet falls from the roof and strikes a taut leaf the size of a dinner table; the impact rings like a struck bell. Beneath that percussion is the low, wet creak of hydrostatic pressure: the sound of millions of cells expanding and contracting in slow unison. It is the sound of a cathedral-sized lung that has been breathing for four hundred years without ever inhaling.
+
+There are no animals. Not a single insect, not a mite, not a nematode. The Bloom does not tolerate them. It is a pure-plant ecosystem that long ago perfected chemical warfare against anything with a nervous system. The air smells only of chlorophyll, wet stone, and something faintly electrical, like ozone after lightning.
+
+The entire chamber is in balance. Nothing is rushing. Nothing is dying. The industrial town reached its maximum possible saturation decades ago; since then the growth has been almost imperceptible, a matter of millimeters per year. New stems emerge so slowly they seem frozen in place. Old ones brown and are reabsorbed so gradually you would have to watch for a century to see the change. The place has settled into its final form. It is no longer “reclaiming” the city. It *is* the city, breathing, dripping, glowing, and singing to itself in deep vegetable chords.
+
+If you stand still long enough (and you will want to, because movement feels rude here), you can feel the faint, warm pulse traveling through the living floor and up into your boots. It is not a heartbeat. It is the slow peristalsis of water being drawn from the weeping bedrock below, pushed upward through capillary columns thicker than your torso, and exhaled again as mist from the leaves above.
+
+This is not ruin.  
+This is not overgrowth.  
+This is a finished thing.
+
+A warm, dripping, cathedral-sized organism wearing the perfectly preserved bones of a forgotten industrial town like jewelry. And it is still, after all this time, quietly, luxuriously, *full*.

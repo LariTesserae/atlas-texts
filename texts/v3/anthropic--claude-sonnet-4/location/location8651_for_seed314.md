@@ -1,0 +1,17 @@
+**The Throat of Kheth**
+
+Rising from a basin of crystalline salt that stretches beyond sight, the city-mountain of Kheth climbs through seven distinct tiers, each carved directly from the living basalt that erupted here only centuries ago. The rock still holds heat in its core, though the surface has cooled to a persistent chill that makes breath visible in small puffs. Sharp volcanic ridges spiral upward like the interior of some impossible shell, their edges so recent they could cut glass.
+
+No water flows here, has never flowed here. Instead, the arteries of this place pulse with liquid mercury, channeled through precisely cut channels that gleam silver against the black stone. The mercury cascades in thin, mirror-bright waterfalls between the tiers, pooling in reservoirs where massive brass engines drink it up and pump it higher, their rhythmic thrum the only constant sound that penetrates the thin air.
+
+In place of trees or grass, something like coral grows here—if coral could be made of crystallized breath and mathematical intention. These formations cluster in impossible density along every surface: translucent branching structures that ring like wind chimes when the rare breeze stirs them, each one a different note in a scale that exists only in this place. They grow in perfect geometric spirals, following rules that seem to shift subtly as you watch, always maintaining their essential strangeness.
+
+The inhabitants move through this vertical maze in their thousands—creatures that might once have been human, but whose bones have hollowed to accommodate the altitude, whose skin has taken on the faint luminescence of the mercury-fed lamps that line every pathway. They wear masks of hammered metal that help them breathe the thin air, masks that hum softly when they speak, creating a constant underlying murmur that never quite rises to conversation.
+
+Every inch of space serves a purpose. Workshops are carved into cliff faces, their windows glowing amber with the heat of forges that smell of ozone and heated metal. Sleeping chambers hang suspended from cables of braided wire, swaying slightly in the updrafts that rise from the city's depths. Gardens of the crystal-coral things occupy every ledge, every balcony, tended by figures who move with the careful patience of those who have learned to conserve their breath.
+
+The air itself shimmers occasionally—not with heat, but with something else, something that makes shadows fall at impossible angles and causes reflections to appear in surfaces that should not reflect anything at all. Sometimes, if you stand very still and listen carefully, you can hear the mountain itself breathing, a sound like distant thunder or the settling of enormous bones.
+
+Above, the sky is a dome of hammered pewter, neither quite day nor night, lit by sources that seem to move just beyond the edge of vision. The light casts everything in silver and deep black, with no middle tones—a photographer's nightmare, a city that exists only in contrast.
+
+And still, it grows. New chambers bloom overnight from the living rock, following patterns that the inhabitants seem to understand instinctively. The mercury rivers carve new channels, the crystal formations spread to fill each new space, and the vast breath of the place draws in more of the strange, thin air that tastes of metal and possibility.

@@ -1,0 +1,11 @@
+In a vast underground cavern, a dense urban settlement clings to the damp, chilled stone. The air is heavy with moisture, condensing on every surface in glistening droplets. Streams and rivulets flow down the rough hewn rock walls, pooling in crevices and hollows before trickling onwards into the depths.
+
+Despite the chill, life thrives here in profusion. Thick mats of luminescent lichen and moss carpet the cavern floor, punctuated by clusters of pale, ghostly mushrooms and delicate ferns. Everywhere, the rock has been carved and shaped by the patient hands of the denizens, transforming natural contours into streets, plazas and dwellings.
+
+The buildings seem to grow organically from the stone, their fluid curves and arches mimicking the shapes of the cavern itself. Walls are crusted with coral-like growths and draped in climbing vines. Glowing lanterns of bioluminescent fungi dangle from eaves and brackets, suffusing the cool air with a soft, eerie light.
+
+Through the streets flows a constant traffic of pale, wide-eyed people wrapped in cloaks of soft, downy fibers. They move with quiet purpose among the grotto-like dwellings and markets, exchanging few words. In small plazas, cages of iridescent beetles and cave crickets chirp and thrum while vendors proffer trays of to glistening cave fish, bundles of edible fungus, and vials of the glowing lichens.
+
+At the edges of the settlement, the dense habitations give way to terraced fungal gardens and pens full of eyeless, ghostly reptiles and amphibians. Past these, the wilds of the cavern take over - a lush, damp ecosystem in perpetual twilight, full of strange and marvelous forms of life that never see the sun. Flocks of luminous flying snails drift through the air, trailing filaments of silk. Bioluminescent millipedes as long as a man's arm undulate across rock faces. Colonies of phosphorescent worms dangle from the cavern ceilings, filtering nutrients from the damp air.
+
+All is suffused with an air of quiet industry and the slow, patient rhythms of a lightless world. In this strange domain, an entire civilization moves through its paces, as it has for uncounted years, never dreaming of the sunlit lands above. The depths are their universe entire, beautiful and terrible and endlessly fascinating in their eternal twilight.

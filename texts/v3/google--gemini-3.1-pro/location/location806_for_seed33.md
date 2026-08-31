@@ -1,0 +1,21 @@
+You step onto a sweeping precipice, and the first thing you feel is the chill—a crisp, thin, high-altitude cold that holds no humidity whatsoever. The air here is thoroughly desiccated, smelling only of crushed stone and static. 
+
+Before you, stretching out into a cavernous, eternal dusk, is a metropolis of the void. 
+
+It is a city, undeniably. There are avenues, soaring bridges, layered terraces, and hollow towers spiraling upward into the dim, bruised-purple sky. But it lacks a fundamental density; it is mostly empty space. The structures hang in the enormous gulfs of air, vast distances separating one floating district from the next. You are at an extreme, vertiginous altitude, but there is no ground below—only a bottomless, foggy gorge fading into dark indigo. 
+
+Though organized and intricately structured on a massive scale, nothing here was built by hand or tool. There are no seams, no glass, no metal, no mortar. The architecture is a single, continuous extrusion of pale, chalky mineral. It looks like bone, or coral, or pumice, worn incredibly smooth. Everything bears the unmistakable signature of deep time and relentless, gentle erosion. Corners do not exist here; the entire cityscape is composed of sweeping aerodynamic curves, wind-sculpted arches, and long, ribbon-like spans that loop through the open sky.
+
+And it is not still. 
+
+The landscape is highly, constantly active, driven by the profound breakdown of local reality. Spatially, this world is delaminating. Off to your left, a massive, hollowed-out spire is quietly unspooling. Its pale mineral substance lifts away not as dust, but as a flock of mathematical coordinates, dissolving into the dim air. Miles above, in the twilight canopy, those same coordinates condense, quietly snowing down as a soft, dry ash that builds up upon unseen gravitational ledges, eventually hardening to form new suspension bridges and terraces. 
+
+The city is a weather system of architecture. Arcades flow like glaciers, migrating across the sky over centuries. Balconies stretch and warp, pulled by localized pockets of skewed gravity. You watch a grand, sweeping staircase detach from a plaza, drift across the void, and seamlessly fuse with a passing archway, the pale stone melding together like liquid drops. 
+
+Despite this immense, chaotic activity, the world is nearly entirely silent. The lack of air pressure and the absence of moisture dampen acoustics to a breathless hush. When a three-mile-long causeway fragments and collapses into the bottomless depths, it produces no roar, only a soft, papery sigh that brushes against your skin in a cool breeze. The continuous tearing and mending of physical space emits only the faintest crinkling sound, like the tensing of insect wings in the dark.
+
+Because the rules of space are fractured, gravity is a suggestion rather than a law. Walkways twist into Möbius loops, allowing passage along their undersides. Whole districts of this pale, eroded city hang inverted in the dim sky, looking down at you. Without water or vegetation to anchor the eye, the world becomes a mesmerizing study in dry geometry and shadow.
+
+Life here is exceptionally rare, and entirely unconcerned with biology as it is known elsewhere. Drifting through the vast, empty canyons of air are long, ribboning creatures. They are flat, blind, and composed of the same pale, chalky substance as the city, though theirs is flexible, like woven ash. Some are as large as whales, but paper-thin. They have no mouths or organs. Instead, they "feed" on the kinetic friction of the reality breakdown. When a bridge shifts or a plaza warps, these entities glide silently toward the anomaly, wrapping their wide, diaphanous wings around the distortion to absorb the raw spatial energy. They are majestic and utterly mute, casting faint, elongated shadows as they obscure the dim ambient light above. 
+
+As you stay, you realize the city is breathing. The expansion and contraction of the landscape follows a rhythmic, tidal cadence. Archways inhale and dilate across miles of empty sky; avenues exhale and pull taut. It is a biological pace rendered in cold, dry stone, an architecture born of a universe forgetting its own physical laws, settling into a beautiful, quiet, and endlessly shifting senescence.

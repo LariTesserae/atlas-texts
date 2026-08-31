@@ -1,0 +1,21 @@
+# The Forge Beneath Kelwin
+
+Cold and dim, the chamber breathes with condensation. The ceiling, a vaulted cathedral of copper and brass, sweats perpetually. Water beads form, trembling for moments before running in silvery rivulets down elaborate buttresses. The sound is relentless—droplets striking metal surfaces in a cacophony that ranges from tinny plinks to resonant gongs, creating an overwhelming percussion that makes conversation nearly impossible.
+
+This underground forge-garden was built centuries ago beneath the town of Kelwin, carved into the bedrock where the water table runs close to the surface. The chamber isn't large—perhaps sixty yards across at its widest point—but its acoustic properties amplify every sound to deafening levels. Workers wear molded wax earplugs fashioned from the secretions of the burrowing snails that thrive in the chamber's walls.
+
+Vegetation has claimed every surface not actively tended. Moss carpets the walkways between the mechanical arrays, luminescent lichen clings to vertical surfaces, and specialized ferns with metallic-looking fronds unfurl from every crack. The plants have adapted to metabolize trace metals, their tissues glinting with copper and iron. Some even incorporate small mechanical components into their structures—half-organic, half-machine hybrid species unique to this environment.
+
+The forge equipment itself is perpetually active, driven by the endless flow of water. Hydraulic hammers rise and fall in steady rhythms. Bellows wheeze and sigh, feeding oxygen to smoldering crucibles. Water wheels of varying sizes turn constantly, their axles connected to a complex system of gears and cams that power the machinery. Everything is precisely calibrated to work in harmonious perpetual motion, the engineering so elegant it appears almost biological.
+
+Between the machinery, terraced pools collect the endless dripping water, channeling it through a series of sluices and aqueducts before it eventually powers the hydraulic mechanisms. In these pools, blind albino newts dart between aquatic plants, their pale bodies flashing occasionally in the low light. Schools of fingernail-sized metallic fish—called "sprocket minnows" by locals—cluster around the water inlets where trace minerals are most concentrated.
+
+The light comes primarily from glowing fungi cultivated in specific alcoves, supplemented by occasional lamps burning a special oil rendered from the fat of the chamber's native creatures. This dim illumination catches on the perpetually wet surfaces, creating a shimmering, disorienting effect that makes distances difficult to judge.
+
+Workers move through the space with practiced efficiency, their oilskin coveralls glistening with moisture. They tend to the machinery with reverence, applying oils and adjusting calibrations with tools worn smooth by generations of hands. Their movements follow patterns established centuries ago, a choreography of maintenance that has become almost ritual.
+
+The air is dense with humidity, cold enough that breath forms clouds, yet somehow not uncomfortable—the constant activity generates enough ambient heat to prevent freezing. The atmosphere carries the scents of wet stone, machine oil, growing things, and the distinctive metallic tang that permeates everything.
+
+In the corners where machinery is less dense, colonies of mushrooms rise from beds of copper-rich compost. Some have caps that unfold like tiny umbrellas when the ambient moisture reaches certain levels, others glow with bioluminescence that pulses in time with the hammers' rhythm. Snails with spiral shells that mimic gear patterns graze slowly across these fungal gardens.
+
+Despite the deafening noise and constant activity, there is a sense of balance here—of a system that has found its equilibrium over centuries of operation. The Forge Beneath Kelwin is neither wholly natural nor entirely artificial, but something that has evolved at the intersection of both, a cold, wet, living machine that produces tools of remarkable quality, sought after throughout the surrounding lands.

@@ -1,0 +1,25 @@
+The air here is thick, heavy, and absolute in its blackness. 
+
+You are standing on a stratospheric tableland, an immense, high-altitude plateau that stretches for continental distances. There is no sun, nor moon, nor stars to break the dark; the sky above is choked with a warm, dense, carbon-rich smog that traps the heat of the lower world. The temperature is uniformly warm, settling against the skin like the thick, ambient heat of an engine room. 
+
+Beneath your feet, the ground is a testament to deep, geologic time. It is stone, but it has been weathered into sweeping, frictionless undulations by millions of years of thermal winds and chemical rain. There are no jagged edges, no cliffs or loose scree—only a settled, rolling ocean of polished black basalt. In the shallowest depressions of this stone sea, moisture gathers. It does not rain in sudden storms, but rather the heavy air constantly condenses, weeping a slick, viscous dew onto the warm rock. This water gathers in intermittent, dark pools, smelling faintly of ozone and dissolved minerals.
+
+It takes time for the eyes and ears to adjust, to realize that this vast, empty expanse is not dead. It is, in fact, an ecosystem of staggering scale, operating with the unified purpose of a planetary refinery. 
+
+The silence is profound, but it is not empty. It sits at about a 0.9 out of 3—muffled, insulated by the heavy atmosphere. Beneath the quiet, you can feel a subsonic tremor in the soles of your feet. A deep, rhythmic thrumming. 
+
+Miles away in the dark, a localized, silent explosion of blue light flashes—an arc of static electricity leaping from a living body to the ionized rock. For a fraction of a second, the landscape is illuminated, revealing the fauna.
+
+They are leviathans of flesh and industry. In this high, dark world, evolution did not bother with bone and marrow, but leapt straight into metallurgy and mechanics. There are no constructed buildings here, no roads, no pipelines, no artifacts of a sapient civilization. The planet itself dreamt of the piston, the valve, and the centrifuge, creating a purely wild, organic industry. 
+
+A herd of towering grazers moves through the distance. Their bodies are vast, biological silos, supported by thick, segmented limbs acting as slow, hydraulic presses. They do not roar; they vent. Their lungs are combustion chambers, drawing in the dense chemical smog, compressing it, and exhaling soft, rhythmic *shhhhh-hiss* sounds that drift gently across the miles of empty rock. Their heavy footfalls are padded with thick layers of fibrous cartilage, making no sound as they walk other than a rhythmic, muffled *clump, clump*. 
+
+Despite the abundance of this wildlife, the landscape feels overwhelmingly sparse. You could walk for days over the rolling, damp rock between encounters. The scale of the plateau demands this emptiness. Each of these engine-beasts requires miles of territory, lazily sweeping the vast distances to harvest the sparse vegetation.
+
+The flora here is perfectly adapted to the damp and the dark. It grows only in the shallow, condensation-filled grooves of the rock—pale, wiry tangles that look like braided copper wire and carbon-nanotube fiberglass. This metallic moss feeds on the chemical soup of the water pools, but relies on a symbiotic relationship with the walking engines above. As the great beasts lumber past, their massive, internal generators leak stray voltage and magnetic fields. The wire-moss absorbs this ambient galvanic charge, blooming into sudden, weak phosphorescence—dim, glowing veins of dull orange and sickly green that map the damp crevices of the stone before fading back into the dark.
+
+This world is deeply active, a quiet, churning factory of life. Small, scurrying scavengers—creatures resembling articulated gears clothed in sleek, oily hide—dart through the shadows. They follow the great herds, surviving on the scraps of the leviathans: leaking hydrocarbon-fluids, sloughed-off plates of biological iron, and the rich, processed mineral excrement left behind. They process these materials in their own grinding, multi-chambered stomachs, acting as the secondary refiners in a vast chain of scaled production.
+
+High overhead in the dark, moving gracefully through the thermal updrafts of the warm plateau, drift the predators. They are silent, blimp-like biological accumulators, perfectly black, with wide-sweeping wings of taut, conductive skin. They track the roaming herds by their electromagnetic signatures. When they strike, it is not with teeth or claws, but with sudden, violent drops, latching onto a solitary grazer to siphon its carefully stored electrical charge and vital fluids, leaving the hollowed-out mechanical carcass to rust and dissolve back into the damp stone. 
+
+Here, in the vast, high dark, everything is in balance. The damp rock gathers the dew. The wire-moss drinks the charge. The great natural engines harvest, burn, and process the world, marching endlessly across a weathered expanse that has never known a builder's hand, yet functions as the largest, quietest machine in existence.

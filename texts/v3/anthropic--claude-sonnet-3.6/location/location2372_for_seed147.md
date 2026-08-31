@@ -1,0 +1,13 @@
+High in an impossible tower of weathered granite, a single chamber persists. Its hexagonal walls, worn glass-smooth by epochs, rise forty feet to a vaulted ceiling where six great beams meet. Each beam is carved from a single crystal of smoky quartz, their joints so precise that even now, no moisture penetrates.
+
+The chamber is largely empty, but for the inhabitants: thousands of translucent creatures that might be birds, if birds were made of living mist and moved through air like fish through water. They drift in lazy spirals, their forms condensing and dispersing with each pulse of their not-quite-hearts. When they cluster near the walls, their bodies catch the dim light and throw faint rainbows across the stone.
+
+The floor holds a shallow pool, no more than an inch deep, fed by condensation that beads eternally on the crystal beams above. The water is perfectly still save for the occasional ripple when a mist-bird dips too close, disturbing the surface with appendages that aren't quite wings. In the pool's mirror surface, the chamber appears to extend downward forever, though this is mathematically impossible given the tower's known dimensions.
+
+Three of the six walls contain archways that seem to lead outside, but stepping through them returns you to the chamber through a different arch, slightly changed each time - perhaps taller, or with walls that lean at subtly different angles. The granite blocks making up the walls shift their patterns slowly, like clouds, though time-lapse observation would show they never actually move.
+
+The mist-birds sing, if it can be called singing: microscopic vibrations that resonate with the crystal beams, producing tones at the very edge of hearing. The song changes over periods of weeks, forming cycles that locals swear correspond to no known calendar.
+
+The air is cool and clean, with a mineral taste that suggests great age. Primitive copper bowls left by previous visitors collect water from the pool, their patina suggesting decades or centuries of use. Some bowls bear inscriptions in languages that linguists say couldn't have existed simultaneously.
+
+This chamber is known to the people living in the valley far below as the Aviary of Hours, though none can say why. Those who spend too long studying its peculiarities often develop an unnerving tendency to use tenses that don't exist, speaking of events that are simultaneously past, future, and never.

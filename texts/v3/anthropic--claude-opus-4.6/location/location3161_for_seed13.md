@@ -1,0 +1,77 @@
+# The City That Finished
+
+---
+
+There is a city on a high plateau, and it is done.
+
+Not ruined. Not abandoned. *Done*. The way a sentence is done when the period falls. The way a breath is done when the lungs have emptied and there is that moment — that still, weightless moment — before the next intake. Except the next intake never comes, and the stillness simply persists, and persists, and no one seems troubled by this.
+
+---
+
+The plateau sits at considerable elevation, high enough that the air carries a perpetual coolness, a thin crispness that never warms and never deepens into true cold. It is the temperature of a root cellar, of stone that has never known direct summer. The sky overhead is a pale, even grey-white — not overcast exactly, because there are no clouds to speak of, no movement in the atmosphere that would produce them. The light is simply *there*, diffuse and complete, sourceless in the way that light through frosted glass is sourceless. It illuminates everything with a flat democratic clarity. Shadows exist but they are soft-edged, more suggestions than declarations. Nothing glares. Nothing dims.
+
+The plateau itself is broad, extending in every direction to a horizon that feels neither close nor impossibly far — the scale of a valley, perhaps, or a county. Large enough that you cannot see the edges clearly, but contained enough that you feel the edges exist. The rock beneath everything is young, geologically speaking — a basaltic uplift, dark stone with sharp crystalline faces where it breaks, not yet worn down by the patient work of water and wind. The edges of exposed rock still carry the geometry of fracture rather than the soft vocabulary of erosion. Where the city's builders cut into it, the cuts remain precise. Chisel marks in foundation stones look as though the chisel withdrew yesterday. But there is no yesterday here, or rather, yesterday is indistinguishable from today, from the day before, from all days back to whenever the city reached its final form and simply... stopped.
+
+---
+
+The city itself is extensive and organized, spreading across the plateau in a pattern that suggests intentional planning but resists easy geometric summary. It is not gridded. It is not radial. It follows something — contour lines of the plateau, perhaps, or an organizational logic tied to function rather than aesthetics, or maybe some principle that made perfect sense to its builders and simply doesn't translate. The buildings are stone and timber and clay, constructed with obvious skill but no metal fasteners, no glass, no mortar more sophisticated than packed earth and ash-cement. Timber beams are joined with complex interlocking cuts — mortise and tenon work of considerable precision. Walls are thick, insulating, built by people who understood their cool climate and built against it without fighting it. Roofs are layered slate, overlapping like fish scales, channels carved into their undersides to direct the intermittent moisture that condenses here.
+
+Because water comes to this place, but it comes gently and from strange directions. There is no river, no spring, no rainfall in any conventional sense. Instead, moisture gathers. It beads on stone surfaces in the early hours — though "early hours" is a courtesy; there is no diurnal cycle here, no sunrise or sunset, just the unchanging pearl-light. Condensation collects in carved stone channels that line the streets, trickles into cisterns sunk at intersections. Some buildings have curved exterior walls designed, it seems, specifically to collect dew — their surfaces are slightly cooler than the surrounding air by some property of the stone chosen for them, and water traces delicate paths down their faces into basins at their feet. The basins are always at the same level. The channels carry the same thin, clear trickle. Nothing floods. Nothing dries. The water cycle here has reached its own equilibrium, moisture arriving from the air itself and departing... nowhere obvious. Perhaps it seeps into the porous basalt. Perhaps it simply participates in an endless loop of condensation and slow evaporation, the same water molecules tracing the same paths through the same carved channels, forever.
+
+---
+
+The vegetation is surprisingly lush for a place of stone and stillness, but it is lush in the way of a terraced garden rather than a wild landscape. Mosses thicken on north-facing walls (though "north" is a guess — there is no sun to orient by). Broad-leafed plants with waxy, dark-green foliage grow from stone troughs built into the architecture, positioned beneath condensation-collecting surfaces where they receive steady, minimal moisture. In courtyards and along wider avenues, trees grow — not towering specimens, but substantial ones, thick-trunked and spreading, with dense canopies of small, leathery leaves in shades of deep green and blue-green and, in certain light, near black. Their roots have grown into the gaps between paving stones, but slowly, respectfully, without cracking anything. The roots and the stones seem to have negotiated a truce long ago. Lichens — complex, multi-colored organisms, orange and silver and a pale luminous green — pattern every surface that the city's inhabitants apparently decided to leave uncleaned. There is a sense of curation in what grows and where: this wall is meant to be mossy, that courtyard is meant to have its central tree, those window boxes were designed to hold exactly the trailing grey-green succulent that fills them. The vegetation, like everything else, has found its position and holds it.
+
+But between the buildings, in the wider spaces, the plateau shows through — bare dark rock, sharp-edged, with only scattered tufts of wiry grass clinging to cracks. The sparseness of the landscape beyond the city's cultivated zones is striking. The city is an island of density on a largely empty tableland. Walk to the outskirts and the buildings thin, the streets lose their paving, and within a hundred paces you are standing on open basalt with the wind — though "wind" is generous; it is more a persistent coolness with direction, a breath that never quite becomes a breeze — coming across the plateau's surface uninterrupted.
+
+---
+
+The fauna is what makes the city feel, despite everything, inhabited.
+
+Not by people. There are no people. There is no evidence of *recent* people — no food left out, no fires banked, no tools set down mid-task. But there is also no evidence of people *leaving*. No packed wagons, no emptied storerooms, no hurried scratches on walls saying *gone to* or *fled from*. The city seems to have been fully populated, fully functional, and then simply to have transitioned to a state in which it was not, without any intervening event. The furniture is in place. The looms have thread on them. The cisterns are full.
+
+But the animals.
+
+Birds, primarily. Large, heavy-bodied birds with rust-brown plumage and intelligent pale eyes, somewhere between a raven and a ground-dwelling pheasant in build. They walk the streets with an air of civic familiarity, pausing at intersections, gathering in the small plazas where condensation basins pool. They do not seem territorial. They do not seem to compete. They simply *are where they are*, dozens of them visible at any given time, moving with unhurried purpose along the avenues. Some perch on rooftops. Some nest in the broader trees. They make very little sound — occasional low, resonant clicks and a soft two-note call that might be communicative or might simply be a sound they produce, the way a stream produces the sound of flowing.
+
+In the cisterns and water channels, small eel-like creatures — translucent, nearly colorless — hold themselves against the gentle current. They are always in the same positions. If you watch one for an hour, it will not have moved. If you return what feels like a day later, it will be in exactly the same place, its filament-thin fins making exactly the same micro-adjustments against exactly the same flow.
+
+Lizards sun themselves on south-facing walls, though there is no sun to speak of. The diffuse light seems sufficient. They are small, blue-grey, well-camouflaged against the basalt. They do not scatter when approached. Nothing here scatters when approached. There is no predator-prey urgency, no startle reflex on display. The ecology has settled into something post-competitive, a food web that has somehow resolved all its tensions into coexistence. Perhaps the lichens feed the insects (there are insects — small, slow-moving, click-winged things that traverse the mossy walls in deliberate patterns) and the insects feed the lizards and the lizards feed... nothing. Perhaps nothing feeds on anything. Perhaps metabolism itself has reached some impossible détente here, organisms persisting without consuming, the way the water circulates without depleting.
+
+Goat-like animals — smaller than goats, with long, silky fur the color of wet slate — graze at the city's edges where the cultivated vegetation meets the sparse plateau. They are always in small groups of three or four. They are always grazing. They never move to new pasture because the grass they graze never diminishes.
+
+---
+
+The sound of this place is the sound of a held breath held so long it has become comfortable.
+
+The click-speech of the rust-brown birds. The barely perceptible trickle of condensation finding its channels. The noiselessness of wind that doesn't quite commit to being wind. Your own footsteps on stone that rings very slightly underfoot, the basalt dense enough to carry a faint tonal quality when struck — so walking through the city produces a muted, almost-musical sequence, as though the streets were designed, or accidentally function, as a vast quiet instrument played only by the passage of feet. But there are no other feet to hear. Just yours, and the soft scrape of the birds' claws, and the silence between.
+
+The silence between is enormous. Not oppressive — there is nothing here that oppresses — but *definitive*. It is the silence of something that has said everything it intends to say.
+
+---
+
+The strangeness of the place accretes slowly.
+
+At first it seems merely unusual — an abandoned city, high and cool and misted, with its animals and its plants and its intact architecture. But the longer you remain, the more the *stillness* of it registers as something more than absence of motion. The light doesn't change. This is the first thing you notice. You wait for it to shift, for the quality of illumination to vary with passing clouds or the arc of a sun, and it doesn't. The temperature doesn't change. You wait to feel warmer as you walk, and you do, slightly, from exertion, but the air itself is invariant. The water level in the cisterns doesn't change. You mark it with a fingernail scratch on the stone lip and return later and it is exactly, *precisely*, at the same line.
+
+The birds are in different positions when you look away and look back. But if you watch a single bird continuously, it moves normally — walking, pecking, ruffling its feathers. It's only in aggregate that you sense the pattern: the *distribution* of birds across the city never changes. There are always the same number visible from any given vantage point. They are a system maintaining its density, individual motions canceling out into a statistical constant.
+
+The trees do not grow. They are full and healthy, but they are the size they are and will be the size they are. No new leaves emerge. No old leaves fall. You search the ground beneath the canopies for leaf litter and find none — not because it has been cleaned away, but because no leaf has ever fallen from these branches. The mosses are lush but their edges are crisp and defined, the boundary between moss-covered stone and bare stone as precise as a line drawn with a straightedge. They are not advancing. They are not retreating.
+
+Nothing here is advancing or retreating. The city is in equilibrium — not the dynamic equilibrium of a living system constantly adjusting, but true equilibrium, thermodynamic equilibrium, the state at the bottom of every energy gradient where nothing moves because there is nowhere lower to go. Except that it looks alive. It looks functional. It looks like a city that a population of several thousand people built with hand tools and craft knowledge and patient generations of refinement, and then — not abandoned, not destroyed — *completed*.
+
+---
+
+You find, in what might be a central district, a broad circular plaza paved in darker stone than the surrounding streets. At its center, a low platform, perhaps a foot tall, also circular. On the platform, nothing. The platform is polished to a sheen, the tool marks of its finishing still visible — patient abrasion with increasingly fine grit, the work of someone who cared deeply about the final surface. It is the most intentional nothing you have ever seen. Not an empty pedestal waiting for a statue. Not a stage awaiting a performer. A *finished* surface. Complete. Presenting its completeness to the even light.
+
+The rust-brown birds avoid this plaza. They walk its perimeter but do not enter. The condensation channels route around it; the stone is dry. No moss grows on any surface here. The plaza is a space held apart from the equilibrium that governs the rest of the city — or perhaps it is the equilibrium's center point, its origin, the place from which the stillness propagated outward until it encompassed everything.
+
+You stand on the polished platform and the stone rings faintly under your weight, a single low tone that sustains longer than it should, longer than the physics of struck stone would typically allow, as though the plateau itself is resonating beneath you at a frequency too low to hear but just barely high enough to feel in the bones of your feet. The sound does not decay. It simply becomes part of the silence, indistinguishable from it, as though silence here is not the absence of sound but a sound so constant it has become invisible.
+
+---
+
+You could stay. That is the unusual thing, the slightly wrong thing, the thing that registers as weirdness at the edge of your comprehension. You could stay and nothing would prevent you and nothing would change and you would not age and you would not hunger and the light would remain and the birds would click and the water would condense and trickle and the city would hold you the way it holds everything: gently, completely, without asking anything, without offering anything beyond the fact of its own still, cool, finished existence.
+
+You could stay and become the final element that completes the pattern, the inhabitant of a city built for inhabitants, the missing piece that would make the equilibrium not just physical but purposeful.
+
+But the city does not want you to stay. The city does not want. The city is *done wanting*. That is what happened here. Not a catastrophe. Not a departure. The wanting stopped — the desire for more, for different, for next — and what remained was this: a place that has everything it needs and needs nothing it doesn't have, and the soft click of birds in the streets, and the patience of water finding stone.

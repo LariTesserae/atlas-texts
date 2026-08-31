@@ -1,0 +1,11 @@
+The wet, rough-hewn caverns of Bedrock Caverns extend in dark, twisting tunnels deep into the dense tuff bedrock. The damp air smells of stone, minerals, and the acrid tang of sulfur. Moisture drips from the rough ceilings and walls, collecting in small pools that glisten in the faint, wavering light of flowstone formations. 
+
+In the center of the caverns, a narrow stream of brackish water trickles down from above, its source and destination unknown. The flow has carved a winding bed, but its surface is slimy with slow-growing slime mold and ochre-colored algae. An occasional drip echoes loudly in the stillness, startling despite its quiet volume.
+
+The caverns are largely devoid of vegetation, with only a few tenacious lichens, mosses, and fungi clinging to the mineral-rich stone in the dim illumination. The walls are pockmarked with glistening crystalline formations, forming bright mineral deposits in shades of quartz, pyrite, amethyst and vivid turquoise where groundwater carries dissolved minerals. These naturally formed protrusions look almost manufactured in their strange, ordered shapes.
+
+The temperature is cool and steady, the underground suppressing daily temperature fluctuations. The humidity is high in the tight spaces between the mushroom-shaped stalagmites and stalactites and against the vaulting ceilings. It's an ectomycorrhizal world, symbiotic fungi network, or remnants of once-living things converted into rock.
+
+Though huge and labyrinthine, the caverns seem to press in, an atmospheric fourth dimension of mineral density. The very stone, packed with world-borrowed oxygen, feels alive. Everywhere, unfinished columns of sedimentary and numbers of platforms of fossilizing, dying forms, their original history shrouded in eroded time. In the dark, bioluminescent organisms flicker, the light revealing other entities bundled in uncanny formations. 
+
+Strange AEolian music rises from all around in the interminable darkness. The cavern reverberates, and something howls at an unplaceable distance. Almost, the ancient stone seems to cry out.

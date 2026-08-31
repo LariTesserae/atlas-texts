@@ -1,0 +1,17 @@
+The world is a warm, vertical sea of silt and shadow. Here, the concept of "ground" is a distant memory, eroded by eons of saturation until the distinction between stone and slurry has vanished. It is a place of profound depth and suffocating closeness, where the water is not a clear window but a thick, nutrient-rich soup—warm as a living throat.
+
+In this sunless abyss, darkness is the absolute law. Light is not an environmental factor but a biological privilege, flashes of momentary bioluminescence that serve only to highlight the density of the surroundings.
+
+The "urban" architecture of this realm is not built of steel or stone, but of bone, calcium, and woven silt. Imagine a city of immense, calcified hives, stacked one atop the other in a labyrinthine sprawl that extends for leagues. These are not houses, but communal husks—layered, interlocking chambers excreted by the inhabitants over millennia. The structures are weathered and smoothed by the slow, rhythmic pulse of heavy currents, giving the "buildings" a melted, organic appearance. There are no straight lines; the city is a porous mountain of coral-like sprawl, honeycombed with tunnels just wide enough for a body to slip through.
+
+Vegetation is a rarity, surviving only as thin, hair-like filaments of pale moss that cling to the leeward side of the bone-towers. These plants do not photosynthesize; they thrill to the vibration of passing organisms, reaching out with microscopic cilia to taste the water for decay.
+
+Life here is abundant, crowded, and terrifyingly silent. The water is thick with the "citizens" of this drowned metropolis—creatures of pale, translucent skin and elongated, tactile limbs. They move through the narrow streets of the hive in a constant, sliding motion, their bodies slick with a natural mucus that reduces friction. There is a sense of immense pressure, not just from the weight of the water, but from the proximity of so many living things. You are never more than an arm's length from a heart beating in the dark.
+
+The ecology is a closed loop of consumption and excretion. Large, flat-bodied rays, blind and sensing the world through electrical tremors, glide through the thoroughfares like silent barges. Smaller, eel-like scavengers weave through the gaps in the masonry, cleaning the walls of parasitic growth. Everything is in motion, but the motion is deliberate and slow-pulsed.
+
+The sound is a heavy, rhythmic thrumming—not a noise, but a pressure against the ears. It is the collective sound of millions of gills pumping, the cavitation of water moving through stone vents, and the occasional, distant *thud* of a collapsing spire as the relentless erosion finally claims a piece of the old city. 
+
+The air—or what passes for it—is a thick, humid vapor trapped in pockets at the ceilings of the higher chambers, smelling of salt and ancient, wet earth. The heat is omnipresent, a geothermal warmth that rises from the floor of the world, keeping the water at a temperature that feels like a perpetual fever.
+
+In this place, the rules of the surface do not apply. Gravity is a suggestion; direction is defined by the warmth of the current. It is a civilization without tools, without fire, and without eyes—a masterpiece of biological engineering where the city itself is a living organ, and the inhabitants are merely the blood flowing through its veins. It is a crowded, dark, and beautifully weathered stagnation, where the only thing that changes is the gradual, grinding smoothing of the world by the tireless weight of the water.

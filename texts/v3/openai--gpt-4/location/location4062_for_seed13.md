@@ -1,0 +1,19 @@
+There is an uncanny balance of power and calmness within the paradox that is the city-state of Yuralmira. Perched precariously on a high plateau amongst the rolling peaks and valleys of a mountainous region, it's a startling anomaly when viewed from far. It appears as if a piece of the ancient world was plucked away, polished and then planted back onto earth. 
+    
+The elevation gives a vantage point that often stretches until the horizon is merely an ambiguous merging of sky and earth. It's surprising for a casual observer, especially when the city lights are reflected against the cliff face at night. At such moments, Yuralmira shimmers as if it's a beacon situated at the very end of the world, a jewel embedded on a black velvet canvas.
+   
+A significant aspect of Yuralmira is its dampness. Despite being at high altitude, the air always seems to bear a degree of moisture that is uncanny. Intermittent showers sneak in, converting to floating mists, that swathe the city in an ethereal veil. The evidence of moisture is everywhere but most prominently noticed in the beautiful, lush greenery that abounds in pockets of open spaces. Although gardens and parks are limited by the necessity of urban infrastructure, the flora grows with a tenacity that is really something to witness. It's as if every tree, every shrub, each blade of grass is thirsty for survival and growth, taking advantage of the sparse distribution of built environments.
+
+The city is a confluence of the primitive and the urban, strong stone structures rise high into the air, built painstakingly over generations, telling tales of endurance and resilience. It proudly flaunts early tool markings on mineral rich rocks which were harvested from nearby elevations. The sophistication of architecture juxtaposed with the primitive technology used yields a spectacle that always manages to captivate.
+     
+There's plenty of light in Yuralmira. Intense at high noon and magical at dusk, reflecting off surfaces with an intensity that cannot be ignored. The color spectrum thrown by the sinking sun casts a mesmerizing canvas full of warm hues, making every corner come alive with a painter's touch.
+      
+As for fauna, it's an exceptional scenario. Despite the city thriving with people, wildlife abounds. Birds fly overhead, doe-eyed deer graze amongst the shrubs, rabbits hop around and even monkeys swing from the trees. They live in harmony with locals, no recorded incidents of aggression, just a peaceful co-existence.
+
+There's a unique audible calm in the air. Despite the urban construct, the city is mostly quiet, muffled by the all-absorbing dampness. Only during daylight, when the city center is bustling and the marketplace thrives, sound is omnipresent. But here, too, it’s a symphony, not noise.
+
+And then, the aspect that confounds many - Yuralmira appears static, almost frozen in its equilibrium. Change is not a player here. It kind of lends an enchanting timelessness to the place, a land where time decided to pause, to laze around, and simply watch the world pass by.
+
+And then there's the weirdness of Yuralmira. You might not catch it at first glance, but spend a day or two and you'll inevitably feel it. It creeps in gently, the manner in which the city decides to cast a shadow, a strange symbol etched on a lonely stone wall, the unexplainable gust of cold wind on a warm summer afternoon. Nothing too obvious, just subtle unusual notes.
+    
+Yuralmira isn't your everyday city-state. It's an amalgamation of earth, water, air, concrete and life. An unchanging medley of elements, of history and current existence, of nature's brilliance and human persistence, bound by laws, only known to land on which it thrives. It is a landscape that triumphs its paradox, where contradictions complement, not confront each other. A place that brings one face to face with stark realities of life and the surreal fantasies of existence that lie beyond comprehension.

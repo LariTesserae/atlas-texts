@@ -1,0 +1,13 @@
+**Carajas Mosaic**
+
+A vast, scorched expanse stretches across this arid landscape, where erosion has chiseled a maze of canyons and mesas from the dark, rust-red rock. The terrain undulates like a fossilized sea, with ridges and plateaus forming an intricate, labyrinthine network. This is the world of Carajas, where water is a distant memory and vegetation a forgotten concept.
+
+The air is thick and heavy, weighed down by the intense heat that sears this world. The sun beats down mercilessly, casting long, jagged shadows across the rocky expanse. Despite the oppressive temperature, an eerie stillness pervades the landscape, as if the very earth itself is holding its breath. The only sounds are the occasional, haunting calls of unseen creatures and the soft rustling of unknown entities shifting in the darkness.
+
+The terrain is not entirely barren, however. Across the rocky expanses, strange, organic shapes protrude from the ground like twisted, fossilized roots. These are the eerie, sentinel-like growths known as 'the Keepers.' They seem to absorb and store the meager light that filters down, glowing softly in the dark. Their bodies are covered in intricate, swirling patterns that seem to shift and writhe like living tendrils.
+
+Despite the desolate conditions, life thrives in Carajas - but not as we know it. The Keepers and other, more mobile creatures roam the canyons and mesas, their forms blurring the line between rock and flesh. They are the children of this unforgiving world, adapted to survive in an environment where water is a rare and precious resource. The air is thick with the musky scent of their bodies, a constant reminder of their overwhelming presence.
+
+This is a realm of slow, deliberate movements, where time is measured in the gradual wearing down of stone and the patient, relentless march of evolution. The rules of Carajas are simple yet unyielding: adapt, survive, or become a part of the eternal landscape. It is a world both beautiful and cruel, where life clings tenaciously to existence and death is merely another face of the land itself.
+
+In this desolate yet vibrant tapestry, the boundaries between organism and environment are blurred, and the distinctions between life and death, motion and stillness, are all but meaningless. This is the world of Carajas Mosaic, a realm of contrasts, where life bursts forth in defiance of the harshest conditions, and the land itself seems to have developed a twisted, grotesque consciousness of its own.

@@ -1,0 +1,23 @@
+# The Churning Dark
+
+In the airless depths beneath the frozen peaks of an unnamed mountain range, a colossal hive of activity spreads for miles in all directions. This is the Nexus—an alien metropolis perpetually under construction in near-total darkness, illuminated only by the blue-white bioluminescence of its inhabitants and the occasional pulse of energy through transparent conduits.
+
+The "sky" is a distant ceiling of black rock, dripping with constant moisture that collects from some unseen source and falls in slow, cold rivulets. This omnipresent water doesn't flow as on the surface world—it creeps along walls and structures, forming intricate ice sculptures where it briefly pauses before continuing its journey downward. In places, these frozen cascades create translucent pillars that connect floor to ceiling, refracting the sparse light into hypnotic patterns.
+
+The metropolis itself appears grown rather than built. Spires of metallic material rise from the floor like stalagmites, but with impossible geometries—angles that seem to bend when viewed from different positions, surfaces that ripple slightly as if breathing. Buildings interpenetrate one another in three dimensions, with no clear boundaries where one structure ends and another begins. Their surfaces glisten with a perpetual sheen of moisture that never quite freezes despite the biting cold.
+
+Instead of vegetation, the landscape sprouts crystalline formations that slowly extend and refract, capturing the sparse light and sending it deeper into the cavern system. These aren't plants but some kind of lithic quasi-life—mineral structures that grow at imperceptible speeds, sometimes incorporating the black rock of the cavern walls into their lattices.
+
+The true dominants of this realm are its fauna—entities that defy easy categorization. They range from microscopic to massive, their bodies a bewildering fusion of organic tissue, crystalline structures, and what appears to be living metal. The smaller creatures move in vast swarms that flow like liquid through the air and across surfaces, while larger specimens lumber between structures, their appendages manipulating the environment with disturbing precision.
+
+Communication happens through sound—a constant cacophony of clicks, hums, and subsonic vibrations that reverberate through the cavern system. This sonic landscape serves as both language and infrastructure, with certain frequencies triggering responses in the semi-living architecture. The noise is overwhelming to unaccustomed ears, a physical pressure as much as a sound.
+
+The technology that permeates the Nexus operates on principles that seem to blur the line between biology, physics, and something else entirely. Information travels through fluid-filled conduits alongside what might be energy or might be consciousness. Structures reconfigure themselves slowly in response to the needs of inhabitants, pulling in raw materials from the surrounding rock and transforming them through processes that leave no waste—only change.
+
+Movement through the Nexus happens on multiple planes simultaneously. Creatures crawl along ceilings as easily as floors; transit tubes filled with viscous liquid carry passengers in all directions; in some areas, gravity itself seems negotiable, with entities drifting between levels as though falling sideways.
+
+The water cycle here is perpetual but unhurried—condensation forms on upper surfaces, gathering into droplets that gradually merge and descend, collecting in pools whose surfaces ripple with subtle movements that suggest intelligence. These pools serve as both resource and communication hub, with creatures regularly submerging themselves to exchange something that might be information or energy.
+
+Despite the constant activity, change happens slowly in the Nexus. New structures take what might be years to reach maturity; pathways gradually shift and redirect themselves; the population ebbs and flows in patterns discernible only over long observation. Time itself feels different here—stretched and compressed simultaneously, as though the metropolis exists partially outside normal temporal flow.
+
+This is a place still becoming itself, raw and unfinished yet incomprehensibly complex—a city growing like a crystal in the dark, cold heart of a world where moisture is the only constant, where biology and technology have merged into something that defies both categories, and where the line between inhabitant and habitat has blurred beyond recognition.

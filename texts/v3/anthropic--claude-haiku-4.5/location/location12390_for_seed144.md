@@ -1,0 +1,33 @@
+# The Altiplano Condensation Works
+
+You stand at 4,200 meters, where the air itself has become a landscape.
+
+The first thing you notice is not the sight but the feeling—a dry heat that *shouldn't* exist here, radiating up from rust-colored stone that has been oxidizing for millennia. The plateau stretches in all directions, a vast open expanse of ancient erosion that has found its equilibrium: weathered to a stable geometry of low ridges and shallow valleys, each one carved precisely where water wanted it a thousand years ago and nowhere since. The rocks are old-marriage wrinkled. They have settled into their positions and stayed.
+
+But they are wet.
+
+Not visibly, not always. The moisture comes at night and in the margin hours. Before dawn, everything—every grain of pumice, every salt-bleached outcropping—glistens with condensation. The air pressure and temperature at this elevation conspire with the thin winds that cut across from the Pacific slope; clouds form at ground level, coat everything, then evaporate back into the thin blue almost-space above. This cycle repeats obsessively. The rocks weep because they have nowhere else for the humidity to go.
+
+Within this austere system, life has become *dense* despite appearing sparse. 
+
+What you initially read as emptiness resolves into a packed ecosystem of compression. Low to the earth, tight-fisted against the temperature swing—coiches and yareta forming dense cushion mounds that are simultaneously stone-hard and microscopically alive. Sparse grass species, but where they exist, they overlap: their roots network together at depths that rival their visible height. The ground is not bare; it is *occupied*. Every millimeter that can hold life holds it.
+
+The fauna moves largely at dawn and dusk, when temperature and moisture align. Viscachas—rabbit-like, with absurdly large ears—emerge from rock crevices with mechanical precision, following generational pathways. Puna ibis pick through the cushion plants with focused intensity, their curved beaks probing condensation-moistened soil. High-altitude hummingbirds, impossibly rapid, harvest insects from the air with industrial efficiency. Predator-prey cascades move in pulses: the ibis population tracks the invertebrate blooms that follow the condensation cycles; the viscachas respond to grass growth that reads the seasonal moisture variations. It is all set to a rhythm that outsiders struggle to perceive.
+
+And then there are the factories.
+
+Salt extraction basins, three of them, scattered at intervals across the plateau. Not hidden—they lack the density of real industrial centers, so they sit exposed, modular, almost artisanal in scale. But industrial nonetheless. Evaporation ponds with mechanical pumps (diesel-driven, their engines quiet at this altitude as if respectful) that pull briny groundwater from boreholes and spread it thin to let the Andean sun do the concentration work. Conveyor belts, stripped bare of paint, moving white and pink salt in regular mechanical rhythm. A small processing house per site—corrugated metal, uninsulated, with a few workers in rotating shifts. The buildings look impermanent, like they might relocate if the geology shifted, but they've been here for decades. They fit the landscape the way a barnacle fits a rock: small, utilitarian, weathered into rightness.
+
+The sound environment is mostly silence—a high, thin quiet that makes the occasional diesel pump-start seem jarring. But there are undertones: the wind's hiss against stone, the soft percussion of small animals moving in pre-dawn dark, the microscopic sound of condensation settling that you can only truly hear if you kneel down and cup your ear against the ground. The industrial sounds integrate rather than dominate. A generator running at night becomes part of the atmospheric hum. The conveyor belts turn with a rhythm that matches the wind gusts.
+
+The water situation is the true strangeness of the place. From a distance, you see no rivers. But seep-lines emerge where the geologically-mapped aquifers approach the surface—narrow green threads that don't flow so much as *exist*, stable and permanent as stone. The salt basins depend entirely on the condensation and these subterranean reserves. Every drop is accounted for, recycled through the system. The whole region operates as a closed metabolic loop: the moisture condenses from air that originated as Pacific ocean-evaporate hundreds of kilometers away; the salt was deposited here in some deep-time marine transgression; the people extract it and sell it, and what returns is the industrial residue and the mechanical disturbance.
+
+Yet the system maintains. The stone doesn't erode further. The vegetation doesn't die back. The animal populations don't crash. It is in balance the way a body in stasis can be—not living robustly, but living stably.
+
+The light is clear and direct—the atmosphere here is so thin that shadows fall with surgical precision. The sun is hot and relentless, but it's bouncing off dust and white salt and pale stone; the light becomes omnidirectional even as it remains harsh. There are no forests to filter it. The sky is a blue so saturated it seems to have texture, and it never clouds over completely; the condensation clouds form only at ground level, creating a strange inversion where the sky stays clear above a mist-ocean below.
+
+As afternoon arrives, the heat increases but so does the wind. The thermal circulation forces air up the slopes—it rises, cools, and moisture from somewhere condenses again on the rock faces of the highest peaks visible to the east. It's a perpetual small-scale weather cycle, a breathing of the plateau that has been occurring long enough to seem permanent.
+
+The weirdness is subtle. It's not that anything looks *wrong*—it's that the compromises required to live here, and to extract salt from here, have created something that doesn't quite match expectation. The industrial installations are too small to seem industrial; the vegetation is too sparse to seem ecological; the water is present as absence, as moisture and seepage rather than stream. The animals move with an intensity that suggests they're racing against entropy, though the landscape around them is perfectly calm. It all works. But it works in a way that suggests the rules here are written differently—more slowly, more precisely, more dependent on invisible transactions between air and stone and salt and the microscopic life that binds it together.
+
+Nothing is loud. Nothing is still. Everything is in place and everything is in motion, and the two exist without contradiction.

@@ -1,0 +1,19 @@
+The world feels like a furnace exhaling a sigh. I find myself on a mesa overlooking a vast, flat expanse. The air is thick, hot, and dry, with a weight that presses against the skin. Above, a sky, if it can be called that, is less a thing of light than of a deep, bruised purple, shot through with veins of an even darker, clotted black. The light here is a memory, a wraith, and the darkness dominates.
+
+Below, the valley stretches to the horizon, a sea of sculpted structures. Everything is made of plant matter, though it doesn't resemble anything I know. No trees, no bushes. Instead, the landscape is a city grown from a single seed, a gargantuan organism, a flowering of pure plant life. Every surface, every shape is plant. The buildings aren't built, they *are*.
+
+The "valley" is the space between the high structures. Looking out over the tops, I see colossal, pillar-like forms, towering hundreds of meters into the oppressive atmosphere. They are thick, columnar, and fluted, with intricate patterns etched across their surfaces like the grain of impossibly massive wood. These are the "trees," I realize. They reach towards the sky, and yet, they are of the valley, for the valley is the city and the city is them. These are joined by bridges and walkways of woven plant matter, spanning the chasms, leading to the unknown depths of the city.
+
+The structures are the skeletal architecture, and the flesh, the building-matter, is a shifting, almost liquid plant-material that flows and reforms, constantly reshaping the city. It is a slow, pulsing tide of growth and decay, a dance between the rigid and the mutable. The whole valley is a living, breathing machine, an industrialized organism operating under some immense, unfathomable drive.
+
+The scale is immense. Seeing the distant towers gives a sense of the impossible size of everything. The wind carries a fine dust, a pollen of some kind, thick and heavy. It stings the eyes and coats everything with a film that absorbs the scant remaining light.
+
+There are sounds here, though they are muted. A deep, slow thrumming comes from deep within the city. Mechanical components. The pulse of the industrial engine that thrumms through the entire space. It’s hard to tell if the sound is the result of the plants, or of technology. There is also the constant creaking and groaning of the plant-matter flexing and reshaping itself, and a low, hissing sound as the dust-pollen falls.
+
+The technology is everywhere, but it isn’t separate from the plants. Gears and pistons crafted from plant-bone, woven into the city’s structure. Pipes and conduits of hardened sap, pulsing with an internal fluid, probably used to transport some nutrient, or possibly as coolant. Things slowly turning and grinding.
+
+The complete absence of fauna is disturbing. This ecosystem is a closed loop, perfectly balanced, self-contained, but it feels fundamentally...wrong. There is no decay, in the familiar sense—no rot, or corruption. The old structures occasionally fall to the ground and are absorbed back into the living matter, to be rebuilt into something new.
+
+The turbulence is in the ceaseless motion. Not a storm, but a constant churning, like the inside of a furnace. The city is alive, and always working, a factory that never sleeps, building and rebuilding itself. It's a place of strange alchemy, where plants become machines and structures breathe and change.
+
+I feel that this place has always existed, and that it will continue long after everything else is gone. The rules of this world are not familiar, and yet, they are completely rigid. Things are not organic, not inorganic, but somehow both, intertwined in a terrible, beautiful unity.

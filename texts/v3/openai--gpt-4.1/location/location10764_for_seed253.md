@@ -1,0 +1,21 @@
+You pass beyond memory, past the thin haze of light and air—down and down, through black water layered with age, weight, and vegetal exhalation. 
+
+Here, under eternal dark, is a vault built by living things, on the silent summit of the world. Picture a mountain—older than all lives, older than sediment or weather—now flooded to its crown by the slow wars of liquid and root. But this peak is nowhere *dry*: the highest thousand valleys are all pressed beneath a fathomless, ancient sea.
+
+The pressure is immense, cool, and constant; water packs itself in slow, tight folds about every surface. The temperature never strays: chill, but not perilous. The sea is unmoving—no current, no tide, only the deep, unhurried breathing of the place as roots exhale, as things rot and feed, as the fabric of creation pauses and sighs.
+
+But darkness is near-total. Light, as a concept, barely exists. Shapes become suggestion. Shadows prey on boundaries. There is no horizon: you sense the world by vibration, by touch—a soundscape. Noise is unrelenting: the uninterrupted, lush clamor of life living within itself. Think of the grinding of giant stems; the rasp and pop and snap of ciliated fronds; the low, ceaseless bass of distant creatures calling, the clicking of enormous jaws, the soft roar of plant-mass shifting as it grows.
+
+Everything here is *made*: nothing is native stone. The world is utterly, totally constructed—by the slow industry of plant and animal. Imagine: every surface plankton, every ledge spongewood, every arch a vascular network braided by root-logic, corridors grown from laced shoot and calcified vine. Even open water is framed by branching columns, full of aquatic lichen and moss. The “bare” spaces are only gaps in the vegetal body, not interruptions but throats and vaults—cavernous, sparse, giving scale and relief to the near-infinite architecture of plant.
+
+Despite this, the density is sparse—grand spaces, vast cathedral-throats, sudden voids between the green-made construct. You move for long stretches through vacant, echoing canyons of root and chitin-wood, great empty halls and arcades covered in slick, breathing moss. Giant ferns arch over you, forming slow domes above semi-open gardens that drift into abject vastness.
+
+The fauna is vivid, venturing, loud: bulbous swimmers with luminous organs, vast carapaced grazers chewing through kelp-pillar and spore-pod, worm-creatures three meters long, mollusks with trailing silk. Everything adapted to blackness, to echo and feel. Life here sings and bites and booms—an underwater cacophony of clicks and ululations, the language of survival and spectacle. In the dark, each animal must find its way with jaw, pulse, or sound.
+
+There is nothing technological; nothing “made” except by living process. No gears, no glass—just structures grown to a purpose, or into one, over uncountable millennia. Root towers hold up bays of splayed plant-coral, their insides home to luminous microbe clouds and dense schools of flickering, alien fish. Some spaces feel like chambers, others like city squares, but all are built, built, built—by plant intent, not hand.
+
+The world is ancient—sooner coming to stasis than decay. Erosion has done its ancient work, then retreated, leaving only what is too old and too woven to break. All forms are muted, edges worn into gentle harmony with their neighbors. Nothing sharp, nothing raw; just settled complexity, the soft architecture of ages.
+
+Weirdness, here, is light—unusual, but not aberrant. The most striking thing: everything you sense is alive, yet almost never in motion. It seems as if all grew and built and staked a claim, and then decided to simply *continue*, eternally—the perfect plateau of being. No evolution here, no struggle but the day-to-day sound and search. Change is a memory; growth is an unhurried, metronomic thing. Things are big, but not in flux. Grand, but never tumultuous.
+
+If there are rules, they are old ones. *Grow. Attend. Feed and be fed upon. Fill the void, but grant it space.* The world here is a cathedral of plant and animal, their presences filling the deep-sea dark on the unchanging summit of an ancient drowned earth—eternally making, eternally stilled, a living quiet amidst endless noise.

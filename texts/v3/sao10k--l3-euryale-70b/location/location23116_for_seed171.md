@@ -1,0 +1,13 @@
+The vast, cool, and dimly lit landscape stretches as far as the eye can see. Moisture hangs thick in the air, as if the atmosphere itself was nearly saturated with water content, on the very edge between air and rain. Droplets condense and seep from every surface, running in rivulets across the terrain.
+
+And the terrain is utterly alien. Ridges of strange, fleshy material rise and fall in undulating waves, as if the ground itself was one vast organism. Crannies drip with wetness, oozing some kind of nectar or resin. Bioluminous veins pulse beneath the surface, lighting the dimness with eerie psychedelic colors. The overall texture is organic and slightly spongy underfoot.
+
+Going on forever in the distance, larger structures gradually rise - great lumpy domes, arcing bridges between flanks, moonscape ridges of new-growth felled over in some cataclysm. Sunken hollows between infected by crystalline formations. Wispy fungal stamens connect these greater parts into one living whole.
+
+The scale is indeed vast, each of these landforms rising up to drift a kilometer or more above the ground. Undergrowth nests and feeds within the folds, either encouraging growth or stealing it. The sheer mass of organic matter is staggering, packed in layer after layer, with no Earth-like distinction between living organism and geology. It defies immediate sense.
+
+An ever-present susurrus of layered sound fills the aether - from the root-rumble of vast movements of fluids through the network of veins, to the wind-churring rasp of convection and fermentation, to subsonic tones of organelles potassium boom. There is no real difference between color and sound with such saturation.
+
+Upon closer inspection, rough geometric patterns are visible - fractals on the nanoscale infrastructure as fungus calcifies in dendritically inscribed motifs, or crystal stress cracks into eyecatching Mandelbroman pomp. There is a feverish quality, not just life, but vibrant aliveness, as if lying at the core was something willed and alien beyond our biology and physics, something weaving itself of color and sound and matter like a song...
+
+Shimmering n-acetyl cysteines build and break in the slush, chitinous spines exude gossamer filaments. The density is so high one has the sense that the very air swims with nanomachines - or perhaps the air itself is but a solvent in this chemistry. There is almost no distinction possible between lifeless geology and life in this planet's definition of those greek notions.

@@ -1,0 +1,17 @@
+In the warm depths of the Verdant Submergence, water and plant have forgotten their boundaries. This is not a flooded forest but something stranger—a place where vegetation has evolved to be liquid, where roots flow like currents and leaves drift as translucent membranes through the aqueous medium.
+
+The scale defies comprehension. What appears to be open water stretches for thousands of kilometers, but peer closer and you realize it's all living tissue—a single colonial organism or perhaps millions of species so intertwined they've become indistinguishable. The plant-water is viscous, amber-green, pulsing with chlorophyll and dissolved nutrients. Swimming through it feels like moving through warm honey that breathes.
+
+Vast kelp-analogues rise from unseen depths, but these are hollow, their interiors filled with the same plant-fluid that comprises the ocean. They twist slowly in currents that take months to complete their cycles. Some are kilometers wide, creating valleys and channels where the liquid grows thicker, more nutritious. The boundaries between organism and environment dissolve—you could drink the sea and photosynthesize.
+
+The fauna here are equally ambiguous. Creatures like living currents undulate through the medium, their bodies semi-permeable membranes that filter-feed on the dissolved plant matter. Some are massive—whale-sized flows of organized liquid that communicate through bioluminescent pulses. Others are microscopic, forming dense clouds that process nutrients and excrete pure water, creating rare pockets of clarity in the vegetative sea.
+
+Industrial remnants drift in the deep, but they're being slowly digested. Factories and engines, perhaps from some ancient attempt to harvest this place, are being broken down at the molecular level. Metal oxidizes and disperses as the plant-water infiltrates every surface. Corroded turbines still turn in the languid currents, generating faint electrical fields that some organisms have learned to feed upon. The technology is becoming biology, circuit boards sprouting neural networks of conductive algae.
+
+Light filters down through the layers, growing greener and dimmer with depth. The surface, far above, is a carpet of floating leaf-plates that regulate the photosynthesis of the entire system. They open and close in patterns that take years to complete, creating seasons of brightness and dimness below. 
+
+In the deepest places, where pressure creates phase transitions in the plant-water, strange formations grow. Crystalline structures of compressed vegetation form temporary architectures—cathedrals of cellulose that slowly dissolve and reform elsewhere. The young geology here is entirely biological, sharp ridges of hardened chlorophyll and valleys carved by enzymatic reactions.
+
+The silence is profound but not absolute. The movement of the vast liquid creates subsonic vibrations, felt rather than heard. Occasionally, a deep groan echoes through the medium as some massive structure shifts or a pressure differential equalizes. The filter-feeders emit soft clicks and whistles that propagate slowly through the viscous sea.
+
+This is a world still becoming itself, where the boundaries between kingdoms of life have blurred into something unprecedented. It grows and evolves at its own pace, patient as continental drift, strange as a dream of green infinity.

@@ -1,0 +1,11 @@
+Deep within a hidden grotto, tucked far beneath the stony peaks of an ancient mountain range, lies a strange and wondrous pocket-world. Here, in this cool and dimly lit cavern, an alien ecology thrives in delicate balance, cut off from the arid wastelands that blanket the world above.
+
+The grotto is a place of lush and verdant growth, but not as we know it on Earth. No water can be found here – instead, the dense foliage drinks deeply of strange mineral-rich vapors that seep from cracks in the cavern walls. Vines and tendrils, moist with absorbed moisture, wrap around glowing crystal formations and crawl across the rocky floor in search of geothermal warmth. Bioluminescent mosses and fungi cling to every surface, pulsing softly in mesmerizing patterns.
+
+The air is cool and thick with a heady petrichor – not of rain, but of some unknown aromatic compound exhaled by the vegetation. It mixes with acrid chemical notes from deep within the mountain's hidden veins, and the metallic tang of half-buried machines that litter the grotto floor, long-abandoned relics of a forgotten civilization's industry.
+
+These decaying remnants of technology appear almost swallowed by the profuse growth, like ancient temples consumed by the jungle. Heavy chains drape from clanking gears, now wrapped with phosphorescent vines. Pipeworks, once carrying molten alloys or fissile fuels, now distill the strange saps and secretions of this mutated biome. The constant groaning, creaking, dripping and hissing creates an eerie industrial soundscape, echoing through the yawning cavern.
+
+Despite the grotto's lushness, no animal calls add to the mechanical cacophony. The tangled ecosystem supports only strange immobile or slowly pulsating life forms – half-plant, half-fungus, evolved to thrive in this sealed microcosm.
+
+Time seems frozen here in a strange equilibrium, an impression broken only by the shifting bioluminescent glow and occasional shudder of a corroded machine component finally succumbing to gravity. Sheltered from any outside influence, this is a place that has found its own strange, dense, pulsing, chemo-industrial form of life, and will likely remain locked in its weird and wondrous stasis for eons to come.

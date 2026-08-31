@@ -1,0 +1,33 @@
+The air is a blade kept wet.  
+At three thousand arm-lengths above the vanished sea, stone behaves like a tide: it has spent epochs learning how to stand, and now it stands by leaning. The mountains here are not peaks but ribs, vaulting outward in a geometry that refuses to close. Between them, the sky is not empty but overfull—blinding, kiln-bright, so white it casts faint blue shadows on the north faces of rocks at noon. Light does not soften; it hardens. It collects on every quartz lip and mica flake until the ground itself seems to glow from within, as if the elevation had lifted luminescence into a mineral.
+
+Water is a rumor that keeps its word just often enough to be cruel. There are no rivers, only runnels that remember rivers, scribbles down the spine of the range that appear only when the air grows tired of holding moisture. Condensation sheets down sheer faces at dawn, silver as quicksilver, pooling in pans cupped by stone bowls worn perfectly round. These pools do not evaporate during the day; they tighten, becoming lenses that burn little sun-counters onto the floor of the basin at three in the afternoon. At night they freeze into panes of glass that ring like cymbals if you breathe too close.
+
+Vegetation is less a cover than a punctuation. Lichen in colors of dried blood and tarnished brass trace the fault lines, forming words in a syntax older than roots. Every few miles a dwarf spruce clings upright, its branches trained by wind into flat, desperate fans. They do not reach upward; they reach sideways, mapping the violence of the breeze. Their needles are gray-green, almost mineral, and when they shed they do not rot but crumble into a flaky grit that smells of ozone and ancient iron.
+
+The fauna are loud.  
+They have grown abundant because there is nothing here to hide behind, so the only defense is declaration. Pika-kin with throats like bellows sit on tor and hurl whistles that bounce off the canyon walls and return half a second later, doubled. A single bird can occupy a valley with its echo. Beetles with carapaces of translucent horn carry tiny bells of ice on their backs—frost accretions that chime when they walk. There are pack-hunters the color of bruised sky that hunt by sound alone, triangulating the space between scree and reply. They leave no tracks; the ground is too hard for soft impressions, and they step only where the stone already expects a foot.
+
+The noise is constant, and it is structural. Not wind alone, but the mountains responding to themselves: the low, tectonic hum of granite cooling still, the staccato clatter of ice in stone cups, the papery rustle of lichen expanding under the sun’s prod. At high noon the air thrums like a plucked wire so thick you can feel it in your molars. Silence is rare and brief, arriving only when the angle of light passes a threshold and everything pauses for a heartbeat—then the echoes catch up and the place roars back into existence.
+
+Materials are candid. Stone is not layered but laminated, sheets of pale gneiss and dark basalt stapled together by veins of quartz that look like frozen lightning. Metals are present as accidents: copper leached into turquoise pools, iron crusting the mouths of seeps in flaky lips of rust. Any tool an inhabitant might carry is of bone, horn, or chipped obsidian—edges that glitter wetly and hold a memory of the animal they left. There is no forging here, only sharpening, aligning, listening.
+
+Built things do not exist.  
+There is not even a cairn that has not been dismantled by gravity. The only geometry that holds is the one the range taught itself: steps that appear natural enough to be mistaken for chance, ledges that fit a spine when you are exhausted, caves that exhale air cooler than the day, inhaling it again at dawn. These are accommodations, not constructions.
+
+Weirdness is not spectacle but temperature.  
+Sometimes the echoes return a syllable before the sound leaves your mouth. Sometimes the lichen shifts its color by the hour, not to absorb light but to reject it, growing paler as the sun climbs until it is almost the same brightness as the rock, at which point it detaches in a slow, deliberate flake and drifts downward like ash. Gravity here has moods; it does not change, but it leans. Over centuries it has taught water how to creep uphill in thin, patient films, not enough to defy itself but enough to refuse simplicity.
+
+The ecology is less a web than a volume.  
+Predators and prey share the same acoustic territory. The hunt is a collaboration of noise. Plants do not feed animals so much as provide resonators; the hollow hearts of dead spruces become drums for hooved grazers to tap while chewing the dry, silver grass that grows in thread-thin tussocks between stones. The grazers’ dung is white and chalky and barely smells; it crumbles into the soil and is gone almost immediately, consumed by beetles that polish their shells against the sun.
+
+Rules of this world:  
+Altitude measures time more accurately than memory. What falls shatters; what endures leans. Water remembers being stone. Light insists on being seen. Sound is the only currency that spends equally on all who can hear. Nothing is built because nothing wants to stay. Balance is not maintained by motion but by a fierce, frozen standoff: every force matched, every pressure distributed, every echo accounted for.
+
+The scale is open without being empty.  
+Valleys yawn wide enough to lose a shout for minutes, but the space between rock and sky is busy with the thin traffic of wings, the bright scatter of hooves on stone, the slow creep of frost. Distances deceive by clarity: a ridge that looks close enough to touch will take a day to reach, because the air thins and the path refuses to straighten. The eye learns to trust slowness.
+
+You do not age here so much as become polished.  
+Your edges blur not through kindness but through repetition: the scrape of wind, the tap of ice, the insistence of light. If you speak, you do so sparingly, knowing your voice will outlive you and travel farther than your bones. The mountains tolerate you because you are, for a while, another note in their long, deafening chord.
+
+At the extreme height, the world is cool, bright, and crowded with noise. It is sparse as a single note held long enough to become a room. And in that room, stone listens, frost rings, and everything that is alive learns how to be heard without ever needing to be seen.

@@ -1,0 +1,25 @@
+# The Loom Plateau
+
+You come up out of the cloud layer and the first thing you understand is that there is no ground here. There never was. What you are standing on — what extends in every direction to a horizon serrated with green towers — is *floor*: a woven surface, plant-fiber laid over plant-fiber in a herringbone so regular it could only be deliberate, and so alive that it flexes under your weight like the back of something breathing.
+
+The plateau sits high. The air is thin enough that the heat feels wrong — it should be cold at this altitude, but the whole structure radiates warmth from below, a metabolic heat, the fever of a thing growing too fast. Steam rises through the weave in slow columns wherever the morning sun touches it. The humidity is total. Every surface weeps. Sap and condensation run together in the channels between the woven strands, and the water is faintly warm, faintly sweet, faintly green.
+
+**There is no stone anywhere.** Dig down — pry up a strand of the floor, which resists you, then yields with a wet creak — and beneath it is more weave, older, darker, denser, and beneath that, presumably, more. The plateau is architecture all the way down. A made thing. But nothing made it except itself. There are no tools here, no marks of cutting or joining, no hands. The joints are grown joints: tendril grafted into tendril, the seams healed over with bark-callus still pale and soft, because all of this is *new*. The edges of things are sharp. The towers have corners. Whatever built this place built it recently and built it fast and has not stopped.
+
+---
+
+The towers are the sparse part. They stand maybe a kilometer apart, scattered across the open weave like pieces abandoned mid-game — and the space between them is the strangest emptiness you will ever cross: a plain that is entirely plant, entirely constructed, and almost entirely *vacant*. Just the floor, flexing, steaming, running with warm water, stretching open under a hot white sky. The vegetation here is total but it is not crowded. It has chosen, somehow, to be a surface rather than a thicket. It fills the world the way a single sheet of paper fills a page.
+
+Each tower is different and none of them is finished. One is a helix of braided trunk forty meters tall, still visibly turning — if you watch the top of it against a cloud you can see it rotate, a degree a minute, winding itself tighter. One is a vaulted hall with no walls, just ribs, the green still showing through splits in the new bark, holding up a roof of broad fused leaves through which the light comes down the color of shallow seawater. One was a tower yesterday and is now a mound of collapse, and the collapse is already being eaten — not by animals, there are no animals, not an insect, not a bird, the silence of fauna here is absolute and eerie — but by the floor itself, which sends up pale hooked shoots through the wreckage and draws it back down into the weave, recycling its own ruins within days.
+
+This is the rule of the place: **it builds and unbuilds without rest.** Forms rise, stand briefly, and are dismantled. Nothing is preserved. Nothing is repeated exactly. The plateau seems to be trying shapes — arches, spirals, long colonnades that run for hundreds of meters and stop mid-thought — the way water tries channels, the way a sleeper tries positions. If it is thinking, it thinks in architecture. If it is not thinking, then growth itself here has simply become indistinguishable from intention.
+
+---
+
+The sound is constant and comes from everywhere. Not loud like a storm — loud like a shipyard. The deep groan of green wood under torsion. Sharp cracks, sometimes near, sometimes rolling in from kilometers off, as a strand snaps or a vault gives way. Beneath all of it, a hiss you take hours to identify: water moving at pressure through the vascular channels under the floor, the plateau's plumbing, vast and unseen, sap rising somewhere in volumes you don't want to imagine. When a tower comes down — and one comes down somewhere within earshot every few hours — the noise is tremendous and brief and then the hiss closes over it again, like surface over a stone.
+
+After rain, which arrives fast and hot and lasts minutes, the whole plateau steams at once. The towers blur. The floor exhales. Water sheets across the weave and finds the channels and is taken in — you can feel the structure drinking, a faint suction underfoot, the herringbone tightening.
+
+At the plateau's edges — and it has edges, sheer ones, the drop-offs raw and sharp, fiber-ends still bleeding where the structure cantilevers out over the cloud sea below — you can see it growing outward. New strands extend into the air, unsupported, wet, trembling, and weave themselves into floor that wasn't there an hour ago.
+
+Stand still too long, anywhere, and a tendril will rise near your foot, pale and blunt and patient, and begin — slowly, without malice, with the same impartial ambition it brings to everything — to build.

@@ -1,0 +1,17 @@
+The first thing you notice is the sound - a deep, constant thrumming that seems to come from everywhere and nowhere. It vibrates in your chest, a bass note that never quite resolves. This is the heartbeat of the Resonance Fields.
+
+Vast stretches of dark metal plates, weathered to a mottled grey-green, extend to the horizon. These plates - each the size of a small lake - were laid down generations ago, their edges now softened by time and their surfaces etched by countless cold rains. Between them run channels, some narrow as footpaths, others wide as rivers, where dark soil and persistent vegetation have made their claim.
+
+The vegetation here has adapted to the perpetual vibration. Thick-stemmed ferns with metallic-looking fronds bend and sway even in still air, responding to frequencies too low for human ears. Moss colonies spread in fractal patterns across the plates, their growth guided by the standing waves beneath. In the wider channels, pale trees grow in copses, their roots wrapped around hidden machinery, their leaves an unusually deep purple-green.
+
+The air is cold and often damp, though real rain is sporadic. Instead, moisture accumulates in a peculiar way - rising as vapor from the joints between plates, condensing in the chill air to form low-hanging clouds that drift in geometric patterns, following the architecture of sound beneath. These clouds periodically release their water in localized showers, feeding the channel-gardens and washing new patterns of oxidation across the plates.
+
+Every few kilometers stands a transmission tower, each one unique in its decay. Some still pulse with dim lights in steady patterns, while others stand dark and silent. They're connected by sagging cables that sometimes hum harmonically with the ground-thrumming. Around their bases, colonies of tube-shaped fungal growths absorb the vibrations and occasionally release clouds of spores that dance in distinct wavelengths through the air.
+
+The few animals here are strange specialists. Flocks of small, slate-colored birds nest in the towers, timing their calls to the rhythm of the field. Ground-dwelling creatures with long, sensitive whiskers navigate by touch and vibration more than sight. Most are nocturnal, though in the perpetual dim beneath the low cloud layer, the distinction between day and night is subtle.
+
+You might walk for hours seeing only variations on these themes, but occasionally you'll find a monitoring station - a low, bunker-like structure of poured concrete, its corners rounded by decades of wind and wet. Most are abandoned, their copper roofs gone green, their windows filmed over with translucent biofilms. A few still operate automatically, their internal mechanisms continuing their mysterious measurements of whatever force it is that makes the fields resonate.
+
+The overall effect is hypnotic - a landscape that seems to breathe in long, slow waves. The thrumming never stops, but it does shift subtly with temperature, moisture, and some longer cycles that might take years to understand. It's a place that feels both engineered and organic, where the boundary between infrastructure and ecosystem has blurred into something entirely its own.
+
+What's beneath the plates? What was the original purpose? The answers may lie in the few still-functioning monitoring stations, but for now, the Resonance Fields continue their slow symphony, the metallic ferns bow to their rhythm, and the geometric rain clouds form and dissolve in their ancient patterns.

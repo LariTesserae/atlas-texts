@@ -1,0 +1,15 @@
+# The Unmaking City
+
+Water moves through this place the way blood moves through a body—not in rivers, but in pulses. It seeps between root-threads that have woven themselves into the soil until earth and moisture and growth are one substance. Puddles gather in the hollows where streets used to be, and vanish, and gather again, as if the ground itself is drinking and breathing. The air tastes of green and copper and something older.
+
+The vegetation here is not growth. It is *construction*. Stems thicker than ship-masts have threaded through concrete until the ruins look like bones wrapped in vine-muscle. Bark peels in sheets that were once stucco. Doors open into root-cavities now carpeted with something like moss but denser, warmer, alive in a way that moss should not be. The plants have not overtaken the city—they have *become* it. Walls are made of纤维素 that learned to stand upright. Staircases spiral in helixes shaped by phototropism, steps worn smooth by moisture that never stops falling from somewhere above.
+
+And the plants are still building. You can hear it—that deafening chorus of creaking, stretching, thickening. Towers of interlaced trunk-and-root surge upward a few inches each day, then collapse into mulch at the base, reconsumed and rebuilt elsewhere. The sound is not like wood. It is like a choir that has never heard music but knows somehow that it is supposed to be making some.
+
+The warmth is constant, womb-like. No animal cools this place, no blood moves through it—but the absence makes it more alive, not less. The plants have taken over every function. They are not competing with fauna. They have invented new categories entirely, filling every role the parameters of existence allow. The density is almost geological: layers of growth so saturated that light itself seems to slow, filtering green and gold through canopies that have merged into a single unbroken membrane twenty meters overhead.
+
+And the weirdness—reality here is *young*. That is the word that keeps surfacing. The erosion patterns tell you this place was not always this way. The geometry refuses to settle. Corridors double back on themselves not from damage but from growth that has not yet decided its shape. Rooms open into root-cathedrals where light falls from sources that cannot be found. The walls breathe. Not metaphorically.
+
+In the plaza that was once a market, water bubbles up through a floor of living thatch, and the sound it makes is not splashing but *singing*—a frequency that seems to come from the plants' own vascular system, pressure and release that has become language without speakers. The sound is everywhere: the creak of new wood taking hold, the sigh of moisture through membrane, the low tectonic groaning of the living city adjusting itself.
+
+You will not find fauna here. You will not miss them. The presence that fills this place is dense enough to drown in.

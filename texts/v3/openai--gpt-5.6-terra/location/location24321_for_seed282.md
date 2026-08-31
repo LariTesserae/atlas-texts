@@ -1,0 +1,39 @@
+Below the freight city, below the foundations that themselves have forgotten daylight, there is a constructed winter.
+
+It occupies a volume no larger than a neighborhood cistern, though its internal divisions make it feel extensive: corridors folded around pressure chambers, narrow galleries passing above vats, ladders descending beside pipes whose diameters exceed the passages built to service them. Nothing here is bare earth. The floor is stamped steel, patched in places with ceramic tiles or ribbed rubber. Walls are layered with insulation wool, oxidized plates, old concrete, cable trays, and the backs of machinery. Even the dampness has a manufactured origin. It gathers where chilled coolant lines meet warmer exhaust ducts, condenses on bolts and handrails, and falls in occasional patient drops into channels designed to carry it away.
+
+The water never quite becomes a river. It beads, threads, collects in shallow black pans beneath valves. A drip can hang from the underside of a pipe for minutes, swelling around a pale reflection, before the machinery’s vibration shakes it loose. Along some lower seams, moisture has frozen into transparent collars. These are not natural icicles but accumulated industrial weather: repeated cycles of shutdown, restart, leak, ventilation, cold. They grow around flange joints, cable conduits, and the mouths of unused gauges. When a pump turns on elsewhere in the complex, the whole chamber shivers almost invisibly, and fine frost slips down from overhead mesh.
+
+The temperature remains just above or just below decision. Breath shows briefly, then is drawn away by the extraction fans. Metal is painful to touch with a bare hand. The air has the clean, stale cold of a refrigerated loading dock, mixed with wet dust, lubricant, and a faint mineral scent emitted by old battery rooms. There is no soil, no stone, no root beneath any of it. Every surface was delivered, bolted, poured, welded, sprayed, or carried down in sections through shafts that have since been sealed.
+
+Yet there is something resembling vegetation.
+
+In the corners where condensation gathers but the maintenance crews cannot comfortably reach, thin gray-green films spread across insulation jackets. They are not quite moss. They are engineered absorbent mats, originally fitted to catch leaks, now swollen and frayed into soft-looking shelves. Fibers escape from them and drift in the ventilator currents. On a row of decommissioned control cabinets, a pale bloom has formed from salt deposits, dust, and corrosion inhibitors. It advances in crystalline fans over the enamel surfaces, erasing warning labels word by word. In the light it resembles lichen; in darkness it is simply residue accumulating where it has permission to remain.
+
+There are no animals in the underworks. No insects tick through the cable trenches. No rats announce themselves behind the walls. The usual small life of abandoned infrastructure has been excluded by cold, chemical cleaning cycles, sealed access points, and a system of low electrical fields that hum almost too softly to notice. The place is densely occupied nonetheless. Every cubic meter contains something: a pipe, a brace, a conduit, a sensor, an old placard, a joint, a cable bundle, a layer of frost, the shadow of a grate. It is crowded with purposes, including many that have outlived their use.
+
+The machinery is active, but not busy in the ordinary sense.
+
+A compressor starts somewhere beyond the bulkhead. It does not roar; it gathers itself. First a relay snaps. Then a motor turns with a low, reluctant throat-clearing sound. Pressure moves through the pipes. Valves knock in distant sequence. A thin tremor runs through the grated floor. Then the system settles into a hum so steady that, after a while, the silence seems to have returned around it.
+
+At irregular intervals, a door opens on an automatic cycle. It is a heavy insulated door in a wall of stainless panels, with no visible handle on this side. A short exhalation of colder air arrives through its seams, carrying a smell like snow kept in a machine. The door does not lead anywhere a person is expected to go. Behind it are production cells: molds, heat exchangers, pressure vessels, conveyor nests. Their operations continue without witnesses. Materials enter through shafts in the ceiling and emerge elsewhere in altered states—cooled, compressed, plated, cut, packed, or made into components whose final destination is not marked in the local records.
+
+This is an embryonic place, though it is old.
+
+The complex is still becoming itself. New pipes run alongside obsolete pipes, their brighter welds looking almost tender against the older iron. Cable trays have been extended in careful temporary arcs that became permanent. Fresh anchors bite into walls drilled only months ago; beside them, older mounts hold nothing but rectangular shadows. The facility expands not outward but inward, replacing capacities before they are fully understood. A new chamber is being made within an old tank. A machine has been built to fabricate the brackets for another machine that will someday fabricate replacements for itself.
+
+There are signs of this construction everywhere: chalk marks on steel, numbered tags, wrapped pallets waiting in alcoves, fresh polyurethane seams, a spool of blue conduit standing upright like a hollow column. Some work lights remain on even when no workers are present. Their dim amber faces shine across wet floor plates and make the dampness appear deeper than it is. In their circles of light, vapor rises from a drain or curls around a warm gearbox. Beyond them, the room is not fully dark. Emergency strips glow faintly along the baseboards. Status LEDs blink red, green, amber, red again, each keeping time with an unseen process.
+
+The rules of the place are simple, though never posted in one location.
+
+Heat rises but is captured before it can leave. Water falls but is reclaimed before it can gather. Air travels only through appointed channels. Nothing organic is allowed to take hold, so persistence becomes a mechanical quality: rust, frost, mineral bloom, residue, vibration. Every surface must either conduct, support, contain, indicate, or be scheduled for removal. If an object has no role, it acquires one by being in the way.
+
+The only weather is internal. A maintenance flush may move through the upper pipes like sudden rain. A refrigeration cycle can turn the hall white with a temporary fog. When the ventilation shifts, dust lifts from the high ledges and descends slowly through the shaft-light, a dry gray snowfall between the tanks. Occasionally, the heat from a working chamber touches the cold air of an idle chamber and creates a thin rain that ticks across the metal floor for twenty minutes before the drains swallow it.
+
+It is a landscape for close attention. There are no horizons, only recessions: tunnel after tunnel, grille behind grille, the narrowing shine of railings vanishing around a bend. The farthest visible point is usually a lamp, and even that might be a reflected indicator light on a wet pipe. One moves through it by listening for the different textures of quiet—the fan-heavy quiet, the pipe-quiet, the insulated quiet behind sealed doors, the dangerous quiet around a machine that ought to be running.
+
+At the lowest point is a small room that may once have been a sump station. It is now nearly full of apparatus. Filter housings stand shoulder to shoulder with electrical cabinets. A ladder descends into a service pit only wide enough for a single body. There, at the bottom, lies a shallow steel basin where condensed water accumulates before being pumped back into the system.
+
+The water is clear, cold, and entirely still.
+
+Above it, layers of machinery breathe, click, cool, and remake themselves in the dark.

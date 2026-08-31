@@ -1,0 +1,25 @@
+The world here does not end in sky; it ends in a ceiling of polished silver. 
+
+Six hundred feet above the smooth, glacial-carved granite of the mountain summits, the water meets the air in a flat, blinding mirror. But down here, in the high valleys of the drowned range, the water is cold, pristine, and as clear as liquid diamond. It is a high-altitude sea, perched in a cradle of black stone, far above the sediment-heavy lowlands of the world. The chill is constant—a sharp, clean cold that numbs the skin but leaves the eyes wide and watering with clarity.
+
+There is no soil here that has not been captured and held by roots. The landscape is a total, breathing collective of vegetation. Giant, pale-barked aquatic conifers—the *spine-willows*—grow in vast, vertical colonnades from the granite shelves. Their needles are not sharp, but are instead broad, translucent ribbons of olive-green that float upward like ribbons of silk, reaching toward the silver ceiling. 
+
+Between these massive trunks, the hamlet of **Oru-Val** suspends itself.
+
+The scale of this place is intimate, a quiet grove of human-shaped space tucked into a fold of the drowned mountain. It consists of seven spherical dwellings—the *wefts*—each the size of a small chapel. They do not rest on the rock. Instead, they float, spaced generously apart with sixty or eighty yards of empty, bright blue-green water between them. They are tethered to the granite below by thick, braided cables of split spruce-root, ballasted with heavy rings of black basalt.
+
+These wefts are not built; they are grown and woven. Using primitive bone-shears and flat slate scrapers, the weavers have trained the living branches of the spine-willows to curve, graft, and knot into hollow, double-walled baskets. It is a slow, generational labor. A family does not build a house; they plant it, guide its ribs through thirty years of gradual expansion, and trim the exterior leaves to keep the waterways clear. Inside the basketry walls, thick blankets of freshwater moss are encouraged to grow, forming a dense, velvety insulation that keeps the interior water slightly warmer than the surrounding current, heated by the slow decay of the moss’s own lower layers.
+
+Because the technology of Oru-Val is simple—pre-metal, dependent entirely on bone, stone, and the tough, fibrous tendons of water-dwelling beasts—there are no nails or screws. Every joint is a graft, a knot of dried bladder-gut, or a plug of hardened wood-tar. The pathways between the spherical homes are sagging, bouncy foot-bridges—or rather, hand-lines—woven from coarse, grey moss-fiber. One does not walk across them so much as pull oneself along, gliding through the cold medium with long, slow sweeps of the legs.
+
+And the world is very loud.
+
+Water is an aggressive conductor of noise. In this high-basin sea, every sound is immediate, sharp, and stripped of distance. The dominant note is the *whistle-pipe*: the constant, low-frequency hum of the currents passing through the hollow, reed-like structural stems of the giant willows. It sounds like a thousand flutes played by a tired, steady wind. Against this drone, the fauna of the basin creates a dense, percussive chatter. 
+
+Millions of tiny, fingernail-sized blue bivalves cling to the anchor-lines; at the slightest shift in the current, they snap shut in rapid-fire succession, a sound like dry gravel being thrown against glass. Large, flat-bodied *glass-skates*—creatures with transparent skin through which their orange organs are visible—slide along the exterior walls of the wefts, their hard under-bellies scraping against the wood with a rhythmic *shrr-shrr-shrr*. Every few minutes, the water shudders with the deep, booming thud of a *basin-carp*, a four-meter fish with scales like slate tiles, striking its tail against the stone to dislodge parasites.
+
+There is no rush here. The currents are weak, drifting in a lazy, circular gyre that takes three days to complete one loop of the valley. Because the water is so cold and the light—though bright and normal—must filter through the upper layers of the pond-weed canopy, everything grows with extreme deliberation. The spruce-root cables that hold the houses down have been under tension for three centuries; they have turned black and mineralized, more like stone than wood now, encrusted with lime-deposits that look like frozen lace.
+
+The daylight does not fade through red and gold. Instead, as the sun dips behind the invisible peaks above the silver mirror, the light simply thins. The brilliant emerald of the willow ribbons deepens to a cold, bruised teal. The silver ceiling above turns a slate blue, then a deep, impenetrable iron-grey. 
+
+Even in the dark, the village does not sleep in silence. The residents retire to their moss-lined spheres, pulling shut the heavy, woven hatch-doors to dampen the noise. But still, the flutes of the willow stems play on, the bivalves click on their ropes, and the great carp drum against the dark granite below, their vibrations shaking the very water that fills the lungs of the sleeping town.

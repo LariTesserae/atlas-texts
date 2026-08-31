@@ -1,0 +1,17 @@
+The Convergence Pools lie in a shallow depression where three ancient riverbeds once met, their courses now marked only by subtle channels worn smooth as silk over geological ages. The ground here is a tapestry of polished stone—rose quartz, obsidian, and something that might once have been coral, all ground down to rounded cobbles and fine sand that shifts with the weight of footsteps.
+
+Mist rises constantly from scattered pools of varying sizes, some no larger than washbasins, others broad enough to wade across. The water appears from nowhere—condensing from the warm, humid air that hangs perpetually in this bowl-shaped hollow. Each pool maintains its own temperature: some merely warm, others nearly hot enough to scald. The water tastes of minerals and time, slightly alkaline, with an undertone that suggests great depth though most pools are shallow enough to see the smoothed stone bottom.
+
+No plants grow here, yet life thrives in forms both familiar and strange. Crystalline formations that might be minerals or might be something else entirely cluster around the pool edges—translucent structures that pulse faintly with their own inner light, too regular to be natural, too organic to be mere crystal. They emit a barely audible harmonic hum, like tuning forks struck underwater.
+
+The creatures here move with deliberate slowness. Salamander-like beings with skin that shifts between transparency and opacity drift through the pools, their movements creating gentle currents. Above, in the dim light that filters through the perpetual mist, flying creatures circle on membranous wings—not quite birds, not quite insects, but something that exists in the spaces between categories. Their calls are soft, melodic, like wind chimes made of glass.
+
+Scattered throughout this landscape are remnants of visitation: a single archway of unknown metal that stands in the deepest pool, its surface never quite the same temperature as the surrounding water; platforms of worked stone that serve no apparent purpose but seem placed with intention; conduits or channels carved into the rock that direct water flow in patterns too precise for nature.
+
+The technology here operates on principles that bend familiar physics. The pools refill themselves through processes that seem to violate conservation of mass. The crystalline growths store and release energy in ways that make instruments malfunction. Time itself moves strangely—conversations echo back minutes after they were spoken, and shadows sometimes lag behind the objects that cast them.
+
+The air carries sounds softly: the gentle lap of water against stone, the distant harmonic resonance of the crystals, the whispered calls of the flying creatures. Footsteps are muffled, voices carry farther than they should. Even breathing seems louder in the humidity, which coats everything in a fine film of moisture that never quite becomes drops.
+
+This is a place of patient processes, where change happens so slowly it's felt rather than seen. The pools shift position over seasons, new ones forming as others fade. The creatures follow ancient migration patterns through water and air. The crystalline formations grow imperceptibly, their harmonic frequencies shifting by fractions of tones across decades.
+
+Everything here exists in balance—not the balance of opposing forces, but the balance of elements that have found their proper place and settled into it with the contentment of great age.

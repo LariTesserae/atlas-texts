@@ -1,0 +1,9 @@
+Deep beneath the surface of a frigid alien sea, a strange, submerged metropolis emerges from the barren seabed. Dim bioluminescence from abundant, bizarre marine life casts an eerie bluish glow through the dense, pressurized water that permeates this pocket-scale underwater realm.
+
+Peculiar structures rise from the silt and rock—spindly towers of pale, porous exoskeleton and glassy spheres tethered by quivering conduits. Skeletal frames hint at additional construction yet to come, their exposed scaffolding providing anchor points for fibrous reefs that pulse with slow, ancient rhythms. The buildings themselves seem grown rather than made, woven from living tissues of chitinous creatures.
+
+Schools of eyeless fish undulate between the eerie urban formations, their translucent flesh revealing complex networks of luminous organs. Colonies of soft-bodied invertebrates cling to every surface in fractal encrustations, filtering nutrients from the cold water and exchanging flashing patterns of light.
+
+An otherworldly hush blankets this lightless domain, broken only by the low throbs and clicks of echolocating fauna and the patient creaking of the city's skeleton as it grows in infinitesimal increments. Unfamiliar ocean currents stir up clouds of organic detritus and carry alien spores to seed new neighborhoods.
+
+In this crushing aquatic darkness, life and construction are indistinguishable—the city is a vast, slow-motion organism, its veins and organs embedded in engineered tissue, patiently accruing biomass over eons. A faint, distributed awareness seems to suffuse its structure, as if the city itself dreams in the gelid depths, tended by its symbiotic inhabitants while awaiting an obscure awakening.

@@ -1,0 +1,21 @@
+The Grove of Synaptic Moss sprawls across a shallow caldera, no wider than a small amphitheater, perched on a recently thrust-up plateau where the air tastes thin and electric. The entire depression brims with what appears at first to be vegetation—until you notice how it moves without wind, how it pulses with intentions that have nothing to do with photosynthesis.
+
+Every surface is furred with moss that grows in impossible densities, layer upon layer, creating a substrate thirty feet deep in some places. But this isn't moss as we know it. Each strand is a bio-engineered neural fiber, a synthetic organism that exists somewhere between plant and nervous system. The technology that created it operates on principles that make quantum mechanics look quaint—manipulating probability fields at the cellular level, encoding processing power into chlorophyll analogues.
+
+The moss grows in cascading terraces down the caldera's fresh-cut walls, still sharp from whatever geological violence recently birthed this high place. Morning condensation beads on every surface, and the moss drinks it greedily, conducting the moisture through its neural pathways with soft electrical whispers. When fog rolls through—which it does most dawns at this elevation—the entire grove becomes a superconductor of thought.
+
+This is where the fauna lives, if you can call it that. Creatures of pure information inhabit the moss like memories inhabit a brain. They manifest as densities of electrical activity, visible only as faint phosphorescent traceries that dart between the fronds. Millions of them. Maybe billions. They feed on computational cycles, breed through algorithmic fusion, and die in tiny sparks that smell like ozone and copper.
+
+The sound is constant—a thrumming like ten thousand tuning forks struck at once, the noise of all that processing happening at scale. Individual creatures contribute their own frequencies: high whines of data-flight, bass pulses of reproduction, the crackling static of predation. Together they create a wall of acoustic information that makes your teeth ache and your inner ear struggle for equilibrium.
+
+Nothing is built here because everything is grown with purpose. The moss shapes itself into hollows where the information-fauna cluster, forming nurseries and hunting grounds. Natural springs seep through cracks in the young rock, and where they touch the moss, crystalline formations bloom—not mineral but architectural, creating spaces that serve functions no human mind designed but that the ecosystem requires.
+
+The light filters down normally enough through the high, thin atmosphere, but the moss metabolizes it strangely. Patches glow brighter where processing is densest, creating a slowly shifting map of the grove's thoughts. At night, the bioluminescence becomes obvious, painting the caldera in blues and greens that pulse with the rhythm of vast, slow calculations.
+
+Time moves differently here. The moss grows imperceptibly, adding new layers over months and years. The information-fauna live entire generations in seconds, but their collective behaviors—migrations, wars, renaissances—unfold across seasons. The geological youth of the place contrasts sharply with the ancient complexity of the processes it hosts.
+
+When rain comes, as it does in brief, intense storms at this elevation, the entire system explodes into hyperactivity. The water creates new pathways, temporary rivers of enhanced conductivity. The fauna swarm to these zones, feeding frantically on the increased bandwidth. The sound becomes deafening—like standing inside a breaking wave made of pure data.
+
+This is not wilderness as we understand it. It's post-natural, a place where technology and biology have fused so completely that distinguishing between them becomes meaningless. The moss computes. The fauna live as living software. The very rocks incorporate themselves into the processing matrix as mineral RAM.
+
+Yet for all its strangeness, the grove follows rhythms as old as any forest. Nutrients cycle. Energy flows. Niches emerge and are filled. It's an ecosystem bound by its own logic—alien but internally consistent, overwhelming in its density of life and purpose, cool to the touch but burning with invisible activity.

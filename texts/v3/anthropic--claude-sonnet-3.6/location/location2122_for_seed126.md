@@ -1,0 +1,15 @@
+The Hive-Works rise in stepped hexagonal chambers, their oxidized copper walls warm to the touch. Each chamber is precisely seventeen meters across, stacked and tessellated into a three-dimensional maze that fills this vast enclosed space. The air is thick and warm, hovering around 35°C, carrying the subtle scent of ozone and hot metal.
+
+In the dim amber light that seeps through translucent panels in the chamber walls, countless mechanical creatures go about their work. They range from thumb-sized maintenance drones to elegant arthropod-like assemblers the size of dogs, their movements deliberate and nearly silent. Their bodies are primarily ceramic and carbon fiber, optimized for the moisture-free environment. The only sounds are the soft whirr of their internal mechanisms and the occasional click of their limbs against the textured floor plates.
+
+Thin vines of engineered metallophytes - part plant, part machine - thread through the seams between chambers. Their leaves are arrays of photovoltaic cells in muted bronze and green, catching what little light filters down from above. These sparse but essential organisms help power the smaller systems and maintain the delicate electromagnetic balance of the Hive-Works.
+
+The chambers serve different functions: fabrication spaces where the mechanical fauna assemble their own replacements, archive rooms where data crystals grow in precisely maintained conditions, energy distribution nodes humming with contained plasma. Each space is completely utilized, every surface and corner serving some purpose in the system's intricate operations.
+
+The whole structure sits high in what might once have been a mountain, though now it's difficult to tell where the original rock ended and the constructed environment began. The outer shell is nearly impermeable, protecting against the harsh conditions outside. The few viewing ports reveal only swirling dust storms in the thin atmosphere far below.
+
+Time moves differently here. The mechanical inhabitants operate on cycles that might last weeks or months, their movements so gradual they're almost imperceptible to human perception. Yet the space is far from static - resources flow through hidden conduits, new chambers grow while others are ceremonially decommissioned, and the population of mechanical beings slowly evolves.
+
+Near the heart of the Hive-Works, there's a chamber different from the others. Its walls are covered in complex patterns that might be circuit diagrams, might be historical records, might be poetry - or perhaps all three. Here, the largest of the mechanical beings occasionally gather in slow-moving circles, exchanging data in patterns of infrared light, participating in some process whose purpose remains obscure to outside observers.
+
+The air here has never known rain, and never will. The entire ecosystem is closed, recycling every particle of matter through countless carefully managed processes. It's an architecture that has fully become its own world, dense with purpose and presence, yet maintaining a deep, almost meditative quiet.

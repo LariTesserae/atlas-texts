@@ -1,0 +1,17 @@
+The chamber is alive with moths. Not the delicate paper-winged creatures of Earth, but dense-bodied beings of volcanic glass and obsidian dust, their wings catching what little light exists in iridescent angles. They fill every volume of the space, moving in near-perfect silence, their crystalline bodies clicking softly against each other like wind chimes without the wind.
+
+This is a high chamber in what might once have been a mountain, though its original form has long since been hollowed and smoothed by the moths themselves. The walls are polished to a glassy sheen by countless wings over centuries, revealing layers of mineral strata that glow with a dim, ember-like heat from within. The heat rises from deeper in the earth, keeping the chamber at a temperature that would scorch human skin.
+
+The floor, what little can be seen of it, is carpeted with the shed crystal fragments of countless moth generations - a bed of glittering black sand that shifts and settles in tiny avalanches as the creatures move. In places, this detritus has fused into larger formations, like stalagmites made of compressed wings and bodies, heat-welded into natural sculptures.
+
+The moths move with purpose, though their patterns are alien and difficult to comprehend. They seem to respond to minute changes in the chamber's heat, swirling in denser clouds where the warmth pulses stronger through the walls. Their bodies absorb and reflect the heat, creating complex thermal currents that drive their endless dance.
+
+Near the chamber's highest point, a few crumbling stone arches suggest this place once held meaning for other beings. But these remnants are being slowly consumed by the moths, who gradually break down any foreign material into more of their glassy dust. A single metal rod - perhaps once part of a measuring device or flag pole - protrudes from one wall, its surface etched into complex patterns by years of moth-wing impacts.
+
+The darkness is not complete - the moths themselves provide illumination, their bodies occasionally flashing with brief pulses of deep red bioluminescence that seem to pass through the swarm like signals. These pulses reveal the true extent of the chamber: a space perhaps the size of a small cathedral, but so densely packed with moths that it feels simultaneously vast and claustrophobic.
+
+The air is thick with suspended particles of obsidian dust, but the moths have evolved to thrive in it, their crystalline wings designed to slice through this mineral atmosphere. The dust itself seems to hold heat, creating a gradient of temperatures that the moths navigate with precise awareness.
+
+Something about the chamber suggests intention - not consciousness as we would recognize it, but a collective purpose that has shaped this space over time. The moths are not simply inhabiting this place; they are continuously creating it, maintaining it, using it in ways that remain mysterious to any outside observer.
+
+The few sounds that exist are subtle: the minute scraping of crystal against crystal, the occasional ping of cooling rock, and sometimes, at the very edge of hearing, what might be the harmonic resonance of thousands of crystalline wings vibrating at precisely the same frequency - a sound felt more in the bones than heard with the ears.

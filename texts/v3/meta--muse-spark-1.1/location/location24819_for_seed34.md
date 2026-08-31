@@ -1,0 +1,33 @@
+On the high ground, there is a city that was never built.
+
+You reach it after a long time above the treeline, where the world has already thinned out. The air here is cool and clean and has that high, precise edge to it — you breathe and it stays cold in the back of your nose. The sky is a normal daylit gray-blue, huge and open, with fast high clouds that cast shadows the size of counties. It should be dry up here. It isn't.
+
+This is a wet place at altitude. The plateau goes on until it curves out of comprehension, a continent of stone that made its own weather long ago. The rock beneath — basalt, old, settled — has been weathered into a shape that is done arguing with itself. It doesn't jag. It rolls, it scoops, it holds. It is pitted and softened and dark with lichen, and from every pore and seam it weeps.
+
+Not in rivers. Not yet. Water is at the surface everywhere, just barely underneath, pressurized by cold and weight, finding its way up. It beads on stone. It condenses out of the air itself on any vertical face and runs down in black threads. It drips. The plateau is covered in shallow pans and mirrors that never quite dry, that connect and disconnect with the day's melt and breath. Your boots are always wet. The sound of that wetness should be loud, and isn't.
+
+Because what grows here — what *builds* here — drinks before it can run off.
+
+At first from a distance you think it's a town. It's the only word. The scale of it and the organization of it trips that recognition. Low light catches thousands, hundreds of thousands of upright forms, dense, near-touching, shoulder to shoulder for miles, then more miles, then beyond the reach of sight where they haze into the cloud.
+
+As you get closer you see they are not buildings. Not made buildings. They are accumulation.
+
+Springstone. Tufa and travertine, geyserite and mineral crust. Each one started as a seep. Water rose, heavy with dissolved limestone and silica, and where it met the cold air it left a little of itself behind — a ring, a lip. Then another. Year after year, century after century, the lip became a rim, the rim a tube, the tube a tower. The water kept coming, climbing its own construction to weep over the top, leaving another skin. 
+
+So now they stand. Hollow towers, most between knee and three times your height, some much larger — old patriarchs swollen to the size of grain silos, their sides stair-stepped with a hundred collapsed and re-grown basins. They are dense as a medina. You cannot walk in a straight line. The alleys between them are water alleys, ankle-deep, where the runoff of one feeds the growth of another. From above they'd look like a tightly packed coral reef, or like a city seen from an airplane at night, but all in stone the color of bone and tea and wet smoke.
+
+That density is their ecology. The towers shelter each other from wind. The cold, mineral water that would kill most plants is exactly the condition they need. Inside many of the hollow ones, water noses up and over and down the inside as well as the out, in a continuous slow overturn, and in that sheltered tube the air is always damp. A faint sourness lives there, mineral and old.
+
+This is urban infrastructure with no inhabitants to make it. And yet there is building. There is organization, because water follows water. A larger tower will starve its lower neighbors and they will lean their growth toward it, then fuse. Two alleys become one. Drainage divides form main streets where the flow is stronger and the tower-roofs have collapsed into channels. Terracing appears naturally where the plateau slopes a fraction of a degree — whole neighborhoods of rimstone dams, each pool spilling to the next, each rim thickening by a grain a day, pale and perfectly level.
+
+Vegetation is sparse, because there is so little to eat up here and the stone is greedy. But it exists in the seams the city allows. Black-green mats of moss like wet felt in the shadow of every north face. Crust lichen that looks like dried paint. In occasional, slightly higher bowls where wind-blown silt has collected, a tight cushion plant holds itself in a hard green dome, beaded with water that never falls off because the surface tension is stronger than the cold. No trees. Nothing tall that isn't stone.
+
+Animals are rare, but they are here, and they have learned the street plan. Small, pale, long-legged midges that live only in the overflow lip of active towers — their whole world is that moving centimeter of water. You see them only when they rise, very briefly, in a puff, and settle. Much lower in the pans, water beetles the size of a lentil. Once a day you might see a hill-bird, high, solitary, coasting between towers without ever landing; the city is too wet for it, too cold for nesting. When it passes, it doesn't call.
+
+For all its activity — and it is active, constantly — it is quiet to the point of pressure in your ears. The water should roar. Instead it whispers everywhere at once. Ten thousand seeps tipping over ten thousand rims. The sound averages out into a hush, a very faint ticking and trickling that your mind wants to turn into voices down a street. The wind, when it comes, is broken by the density of towers into threads; it moves through as a sigh that shivers the mirrors.
+
+Everything condenses. Your coat condenses. Your pack, your hair, the inside of your hood. You are another temporary vertical for water to find. Moisture beads on your eyelashes. The towers in front of you grow while you stand there, but at a pace you can't see, only believe in because the freshest stone at the lip is still soft when you touch it, like damp chalk, and will take your fingerprint before it hardens.
+
+If you stay until evening — and evening takes a long time here, the light going flat and even — the plateau exhales. The cool deepens and the low clouds that the city itself has been breathing out all day settle back down and sit between the towers, waist-high, street-filling fog. The tops of the tallest towers float. The whole vast place becomes an ocean with a city drowned in it, only the roofs showing. Water gathers on every surface again, runs, drips. You hear it more clearly then, in the quiet.
+
+There is no tool mark anywhere. No road laid straight. No door. No ruin. Only the logic of water left to build for a very long time on a high, cool, wet world that was big enough and quiet enough to let it.

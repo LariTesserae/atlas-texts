@@ -1,0 +1,43 @@
+It is high.
+
+Not high like a hill. High like you have climbed out of the weather and are now looking down at it. The air is thin and cool, the kind of cool that lives in metal, that makes your breath visible even though the light is white and hard and everywhere. At this elevation the sun doesn't feel warm. It feels close and precise, a bright, flat glare that bleeds color out of everything and throws short, hard shadows straight down into the cracks. Even in shade it is bright. The sky is a pale, scoured blue, almost too thin to be blue at all.
+
+There is no ground.
+
+That is the first thing you have to understand — not that the ground is covered, but that there never was ground here. Everything is built. From the horizon to under your feet, in every direction, the terrain is construction.
+
+It presents at first as a mountain, because your mind wants a mountain at this height. But it isn't. It is a mountain *made* of building. Terraces and shelves and vertical factories and habitation stacks and arterial scaffolds rising in echelon, falling away in stepped valleys and canyons that were clearly poured and bolted and welded, not carved. The scale is open, regional — a whole town, a whole valley-system could fit inside one fold of it — but there is no distance where the built thing stops. Ridge after ridge of it recedes, each ridge another tier of the same megastructure, until haze and brightness swallow the detail.
+
+And it is new. That is the wrong word for something this vast, but it's true. The edges are sharp. The erosion is all wrong for a place this big. Nothing is rounded or softened. Concrete still shows the grain of its formwork. Steel I-beams have crisp right angles and unrusted weld beads. Stairwells descend for a hundred meters with every step still defined, not worn concave. Retaining walls stand sheer and unslumped. This place hasn't been weathered into shape. It was *emerged* — extruded, assembled, unfolded — recently, and the world hasn't had time to blunt it.
+
+Inside that sharpness, it is impossibly dense.
+
+Nothing is empty. Every cubic meter is packed and layered. Catwalks over catwalks over conveyors over pipes over balconies over maintenance galleries, all interlocking with barely a hand's breadth between them. The industrial content is everywhere — not as a district, but as the substance: gearworks the size of houses turning slowly behind grilles, stamping presses and looms and kilns and winding turbines, electrical cabinets humming with waste heat, factory floors stacked vertically like library shelves. You can see through twenty layers of infrastructure at once, each one semi-transparent with distance, a lattice so saturated you lose the sense of foreground and background.
+
+And yet it is quiet.
+
+For an industrial thing this dense, it should roar. It doesn't. The machines are running — you can see them running — but they have been throttled or dampened or simply built to turn in near-silence. The dominant sound is not mechanical at all. It is the thin high air moving through all that latticework, and underneath it, a slow, pervasive drip.
+
+Because it is damp.
+
+Not wet. There are no lakes, no rivers as you would understand them. Water here is interstitial. It lives as condensation. The cool metal sweats constantly in the bright, thin sun. Every underside beads with it. Every vertical shaft carries a slow, bright trickle that appears from nowhere, runs ten meters along a girder, vanishes into a grate, reappears two levels down. In the deeper canyons between the factory-stacks, where the brightness doesn't quite reach, fog pools. Not weather fog — breath fog from the building itself, exhaled by cooling towers that are not hot. At intervals, a true rain will fall — not from clouds but from the structure wringing itself out — a sudden, straight-down, cold shower that drums briefly on a thousand tin roofs and then is gone, leaving everything gleaming. Pockets of standing water collect in the flat places: shallow, perfectly rectangular cisterns and accidental basins on rooftops and gantry trays, dark and still and rimed with mineral crust.
+
+Where there is water, there is green, but barely. Vegetation is sparse and opportunistic and seems embarrassed to be here. No trees. No fields. Just the things that can live on nothing: a black-green lichen that plates the north side of every concrete face, a wiry moss that clogs drains, a few stunted ferns growing out of expansion joints where dust has collected. Pale, succulent weeds with thick leaves hang from high ledges, storing the intermittent rain. Everything is small and low and clings.
+
+The animals make up for it.
+
+It is full of fauna, abundance that makes no sense for so little plant life, until you realize the animals are not feeding on the plants. They are feeding on the building, and on each other. The air is thick with them. Clouds of pale moths and soot-colored midges shiver in the bright gaps between structures, moving as one sheet. Starlings and swifts and things that are like starlings but with too many joints in their wings pour through the canyons in silent, dense flocks, banking around girders at impossible right angles without slowing. On every surface, pigeons and pigeon-analogues — iridescent, frill-necked, footed with sucker pads — nest in the cable trays. Below them, on the catwalks and inside the pipes, rats and rat-things and maintenance crabs, glossy and flat as beetles, move in constant, unhurried lines. The strange thing is how quiet they are, too. No calls. No chittering. They pass inches from your feet and make no sound, as if the air is too thin to carry it or they have agreed not to.
+
+You hear your own footsteps too loud.
+
+The slowness is everywhere once you stop looking for speed. The big gears turn, but you have to watch for a minute to see the teeth advance. The conveyors crawl with ingots or bales of fiber that never seem to arrive anywhere. Shadows move only as the sun tracks, and even that seems patient. Change here is glacial but not geological. A pipe will sweat through and stain over weeks. A lichen colony will double in a season. A factory floor three valleys over will shutter and another one will open, retooling over months, with no announcement. It is a patient place. It is not in a hurry to become anything else.
+
+And then there is the way it is wrong.
+
+The weirdness is not an overlay. It is structural. The first time you try to map it, the structure refuses. You walk down six flights of stairs and come out higher than you started. You look across a canyon that should be a kilometer wide and can see the rivets on the far wall as if they were arm's length away, then blink and it is correctly distant again. The light, for all its brightness, casts no single source; some surfaces are lit from below, some shadows fall at contradictory angles, and in the deepest interstices the brightness pools like a liquid, even where no sky is visible.
+
+Geometry repeats with variation. You will see the exact same configuration of gantry, water tank, and nesting birds three times in ten minutes, but once mirrored, once with the proportions stretched as if pulled on taffy. If you stand still and stare down a long, dense vista of layered walkways, the far layers will occasionally *reset* — shuttering like a lenticular print — to a slightly different arrangement, without any motion in between. Gravity is mostly consistent but locally negotiable; dust falls sideways around certain corners, and trickles of water will run up a beam for a few inches before remembering to fall.
+
+Nothing seems disturbed by this. The birds fly straight through a seam where space has been stitched badly and come out fine on the other side, if a little doubled for a heartbeat. The machines keep turning slowly, silently, regardless of whether the factory floor they are on is currently occupying the same coordinates as another one.
+
+You are cool in the bright, thin air. Your feet are damp. The immense, sharp-edged, silent, saturated building extends valley after valley in every direction, packed to near-solid with slow industry and quiet, abundant life, beading and dripping under an over-bright sky that does not behave like a sky. It feels completely made, and completely unmade at the same time — as if someone built a mountain of factories to exacting specifications and then built it slightly incorrectly on purpose, so that the world would have to bend around it.

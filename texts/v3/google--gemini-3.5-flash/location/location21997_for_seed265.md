@@ -1,0 +1,27 @@
+The first thing that exists is the warmth. It is a wet, heavy, unmoving heat, thick with the scent of boiled copper, slick grease, and the sharp, clean sting of ozone. It clings to the skin like a warm, damp wool coat. 
+
+There is no light here. The value is absolute zero. In this dark, the eyes quickly stop trying to adjust; they relax into the void, leaving the other senses to map a world that feels vast, low-lying, and impossibly crowded. 
+
+You are standing in an immense, flat basin. Even without sight, the scale is perceptible by the way sound behaves—or rather, the way it doesn’t. Sound does not bounce back from walls or cliffs; it travels outward into an infinite, flat distance, dying slowly in the thick, humid air. And yet, this vast space is densely packed. Every cubic meter of the dark is occupied, layered with physical presences that are near-touching, nested together like teeth in a gear.
+
+Underfoot, the terrain is young and aggressively sharp. This is not soft, weathered marshland mud, but a raw, recently birthed floor of crystalline basalt and glassy slag. Its edges have not yet been smoothed by time or water; they are razor-keen, snapping underfoot with the brittle *tink* of breaking porcelain. It feels as though the ground was poured and cooled only yesterday, a jagged, black shelf lying just inches above—or beneath—a sluggish sheet of warm water.
+
+Water is everywhere, but it does not behave according to the usual laws of gravity. While there are vast, shallow pools of warm, viscous liquid nesting between the sharp rock ridges, the atmosphere itself is water-logged. The air is so saturated that the moisture doesn’t fall as rain; instead, it floats. Great, thumb-sized nodules of warm condensation drift horizontally through the dark, bumping softly against your skin like wet, velvet grapes. When they touch a surface, they do not splash; they are absorbed, or they cling, forming thick, gelatinous sleeves around everything they land on. 
+
+The environment is a graveyard of scattered, silent industry. Every few hundred meters, the foot encounters the colossal, iron-plated footings of some mechanical network. These are not ruins in the traditional sense, but isolated, functioning anomalies. A massive transformer, twenty feet tall and slick with condensation, hums with a vibration so low it is felt in the soles of the feet rather than heard. From its crown, thick, braided copper cables drape downward, heavy as sleeping pythons, disappearing into the warm, black water. Several miles away—judging by the deep, glacial rhythm of the vibration—a piston the size of a steamship locomotive takes ten minutes to complete a single, wet, sighing downstroke. It does not screech or grind; it is lubricated by the endless, humid grease of the basin, sliding with a heavy, muffled *huff* that shakes the liquid floor.
+
+Between these iron giants, life is thick and silent. 
+
+Vegetation is sparse, unable to find purchase on the glass-sharp, un-weathered stone, but specialized organisms have claimed the mechanical structures. A species of stiff, hair-like black moss grows in dense, wire-strong tufts along the warm, electrified copper lines. It feeds on the microscopic leak of current, crackling faintly with tiny, static sparks when touched. Deep-reaching, rubbery tubers crack the young basalt, growing downward to drink the warm, chemical-laden water below, their roots vibrating in sympathy with the distant pumps.
+
+But if the plants are few, the fauna is overwhelming. The darkness is alive with an abundant, quiet host. 
+
+On every square foot of sharp basalt, soft-bodied, blind organisms slide and cling. They are shellless, rubbery creatures, large as pigs but silent as oil, moving with an excruciating, patient slowness over the razor edges without ever being cut. They feed on the black moss and the grease that drips from the overhead cables. Above them, suspended from the iron girders of half-submerged towers, hang clusters of leathery, lung-like sacs. They do not chirp or cry; they merely breathe, drawing in the warm, wet ozone with a slow, synchronous expansion and contraction that sounds like the rustle of dry silk. 
+
+In the water, things move that are part metal, part tissue. Small, segmented creatures with copper-plated carapaces click rhythmically against the stone, their movements so slow and deliberate that they seem more like ticking clocks than living beasts. 
+
+In this place, reality has begun to fray at the edges, worn thin by the strange forces that power the silent machines. Space is non-Euclidean here. You may walk for an hour toward the low, rhythmic throb of a generator, only to feel its warmth suddenly brush against your back. A shallow pool of water, when stepped into, might feel only ankle-deep, but your foot continues to sink through a soft, gravityless void that has no bottom, forcing you to pull back into the heavy air. 
+
+If you stir the water in one of the basalt basins, the ripples do not disperse. They freeze. The water holds the shape of the disturbance, a permanent, molded spiral of liquid standing solid in the dark, warm and wet to the touch but entirely motionless, refusing to flatten out again. 
+
+Everything here is patient. The dynamics of the world are locked in a near-static drift. The machines do not rust away; the animals do not scurry; the water does not flow. It is a slow, wet, densely populated machine-garden, humming in the absolute dark, waiting for a dawn that was never written into the rules of its creation.

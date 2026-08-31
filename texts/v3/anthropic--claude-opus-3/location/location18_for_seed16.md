@@ -1,0 +1,11 @@
+In a vast desert expanse, an unexpected pocket of lush, densely tangled vegetation thrives within the crumbling ruins of an ancient stone city. The air is heavy and sweltering, trapped within the labyrinthine walls that tower overhead, blocking the merciless sun and casting deep shadows across the narrow alleyways.
+
+Vines and creepers consume the weathered masonry, their leaves broad and waxy, adapted to hoard the scant moisture they draw from hidden cisterns and underground aqueducts. Gnarled roots burst through pavements, toppling statues and splitting stairs. Fruits ripen and rot in the stifling heat, their sticky sweetness mingling with the musty odor of damp stone and decay.
+
+The built environment has a layered history - old sections of thick, megalithic blocks are interspersed with later mudbrick and plaster construction, all now softened and rounded by the passage of centuries. Bas-reliefs and frescoes remain in sheltered corners, their pigments still vibrant. Shards of painted pottery and verdigris-encrusted bronze tools hint at the lives of the city's former inhabitants.
+
+In the absence of fauna, the soundscape is dominated by the constant hum and buzz of insects, the rustling of foliage, and the occasional clatter of falling masonry. Wind whistling through empty windows and over wall-tops creates eerie, almost voice-like tones. 
+
+At the city's heart lies a large stepped pyramid, its peak open to the sky. Here the vegetation is sparser, kept in check by the intense heat radiating from the dark stone. Channels running down the pyramid's sides once flowed with water, pooling in a series of basins - now they are choked with sand and dry leaves.
+
+As night falls, bioluminescent fungi emit an ethereal glow from cracks and crevices, pulsing gently. The hoots and trills of nocturnal creatures echo out from their hiding places. Overhead, unfamiliar constellations wheel in a purplish-black sky. The sense is of an ancient, self-contained world, operating by its own arcane rules, where the cycles of growth and decay continue unabated in the absence of human interference.

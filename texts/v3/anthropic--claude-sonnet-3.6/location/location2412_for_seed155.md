@@ -1,0 +1,17 @@
+In the deep fold of an ancient mountain, there is a city that should not exist. Its spires and towers, grown rather than built, rise from a natural amphitheater worn so smooth by time that the granite gleams like polished obsidian when wet. And it is always becoming wet.
+
+The moisture comes not from rain but from the breathing of the moss-forests that carpet every vertical and horizontal surface. These forests pulse - inhale dry air, exhale thick mist - in a rhythm that might be minutes or might be millennia. Time behaves strangely here. The moss glows with its own pale bioluminescence, creating a perpetual twilight even in what must be day, though no one has seen the sun directly in living memory.
+
+The city's structures are alive, or were once alive, or will be alive - vast fungal growths that have achieved architectural permanence, their surfaces riddled with windows and doorways that occasionally shift position when no one is looking directly at them. The spores they release catch the moss-light and hang suspended, creating false constellations in the mist.
+
+Between these living towers, bridges of crystallized time span impossible distances, humming deep notes that resonate with the mountain itself. The spaces between structures are vast - each building stands in splendid isolation - but the emptiness is filled with sound: the breathing of the moss, the crystalline harmonics of the bridges, the distant calls of the cloud-whales that swim through the thickest banks of mist, and the endless echoes that seem to arrive before their originating sounds.
+
+The inhabitants (if that's what they are) move like shadows among the towers. They might be people, or they might be memories of people, or they might be the city's dreams of what people should be. They tend the moss-forests and harvest the singing crystals that grow in clusters at the base of each fungal tower. Sometimes they speak, but their words arrive in your mind as colors and scents rather than sounds.
+
+In certain corners, reality wears particularly thin. There are doorways that open onto themselves, puddles that reflect skies from other worlds, and occasional patches where gravity politely excuses itself and lets objects arrange themselves according to their aesthetic preferences rather than physical laws.
+
+The cold here is not the sharp cold of winter but the deep cold of entropy, of systems winding down towards their final perfect state. Yet paradoxically, life thrives in this terminal environment - adapted to it, perhaps, or perhaps helping to create it.
+
+The whole pocket of space feels like a geological hiccup, a place where the mountain's dreams have become more real than reality itself. It's impossible to say whether the city grew out of the mountain's erosion patterns, or whether the erosion patterns formed themselves to accommodate a city that was always meant to be here.
+
+What's certain is that it persists, this impossible fusion of organic and mineral, of growth and decay, of sound and silence, all wrapped in perpetual twilight and the breathing of ancient moss. The cloud-whales sing. The crystals hum. The shadows that might be people go about their endless tasks. And the mountain dreams on.

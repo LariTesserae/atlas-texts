@@ -1,0 +1,59 @@
+The city occupies the top of a plateau so broad that its edges are matters of climate rather than view. No ordinary street reaches the escarpment. From the central districts, the descent is known only by a whitening of the western sky and by the deep, continuous sound of water passing over cliffs several hundred kilometers away.
+
+The plateau is warm despite its elevation. Moist air rises along its outer walls, spills across the rim, and settles over the high interior as low cloud. Rain is seldom violent. It arrives as long, fine descents that darken stone, polish metal, and gather beneath every projecting surface. Even in clear weather, condensation beads on cables and runs down the undersides of bridges. Walls weep from joints laid centuries ago. The ground has water close beneath it: not a continuous lake, but a complicated body distributed through porous rock, buried cisterns, cracked foundations, old conduits, and the abandoned lower stories of the city.
+
+Nothing green interrupts the view.
+
+There are no trees along the boulevards, no weeds in mortar, no moss on the oldest retaining walls. The absence initially makes the city seem new or sterilized, but nearly everything is weathered. Stone steps have been hollowed by feet. Bronze thresholds are concave. Drainage grooves have widened into smooth channels with lips like riverbanks. Ironwork has swollen under mineral corrosion and been reinforced, sleeved, and reinforced again. The city is not barren from youth. It has been barren for a very long time.
+
+Its principal material is a dense gray volcanic stone quarried from the plateau itself. When dry, it is pale and faintly granular; when wet, it becomes nearly black, revealing veins of rust-red mineral and embedded shells from an older geology. Buildings rise from it in immense, close ranks. Most are between six and twenty stories, joined by galleries, pipes, elevated roads, covered stairs, aqueducts, and power lines. Higher structures are uncommon because the saturated ground settles unevenly, but the city achieves height by accumulation. New districts are built upon old roofs. Streets become tunnels. Viaducts are enclosed and divided into workshops. Entire public squares have been roofed over, forgotten, and rediscovered as warm underground reservoirs.
+
+The result is less a skyline than a thickened crust.
+
+Factories are distributed throughout this crust rather than confined to a separate quarter. Every neighborhood has its pumping hall, turbine house, rendering station, condenser tower, or repair foundry. Great flywheels turn behind arched windows. Piston pumps breathe with a pace slow enough to count. Cable drums raise freight from inundated tunnels. Steam moves through insulated mains whose leaks produce permanent local fogs.
+
+The machinery is large, old, and rarely hurried. The city’s industrial rhythm is measured in minutes and hours rather than seconds. Gates weighing hundreds of tons open through the course of a morning. Reservoirs are transferred over several days. Foundry furnaces are brought to heat gradually and may remain lit for generations. Even the railway crawls: broad, low engines pulling mineral barges through streets where the rails lie beneath a skin of shallow water.
+
+Yet the city is loud.
+
+Its volume does not come from speed. It comes from the number of things sounding at once. Pumps strike deep notes through masonry. Rain ticks on metal roofs. Water falls through grates, runs in wall cavities, and pours from broken gargoyles. Condenser stacks exhale. Bells mark pressure changes in buried systems. Somewhere below, turbines maintain an unbroken bass vibration that can be felt in the jaw.
+
+Over all of this is the sound of animals.
+
+They are everywhere—far beyond the numbers such a plantless place seems able to support. Small pale crabs pack the gutters so densely that runoff makes the whole mass rearrange itself. Hard-shelled grazers, broad as a hand, move over wet walls and scrape away microscopic films invisible to human sight. Warm cisterns contain translucent eels, filter worms, and colonies of soft-bodied pulsing animals that close like fists when a shadow crosses above them. Moths without feeding mouths emerge from service shafts in clouds, live for a day, mate on hot pipes, and fall in drifts that sweepers collect for the rendering houses.
+
+The roofs belong to larger creatures. Long-legged gray fliers nest among chimneys and bridge trusses, their wings adapted for the heavy plateau air. They spend hours standing motionless in rain, then descend all at once upon the insect swarms rising from a warm drain. Their calls are metallic and conversational. In some districts, every parapet is occupied, and the buildings appear to have grown a second, restless cornice of folded wings and turning heads.
+
+There are heavier animals in the lower streets: six-legged, thick-skinned carriers with broad feet and sealed nostrils. Some are domesticated and pull carts where engines cannot pass. Others move in ownerless herds through disused industrial wards, scraping mineral crust from masonry or cracking shell-creatures against curbs. They are slow, patient animals. Traffic waits for them. Regulations grant them right of way because attempts to divert the herds have historically ended with broken doors, collapsed markets, and weeks of agitation among the roof colonies.
+
+Life here begins below the scale of anything resembling vegetation. Warm water moving through the plateau carries dissolved minerals and volcanic gases. In dark pipes and porous stone, microbial films convert this chemistry into flesh. They form no visible meadows, no mats thick enough to be called a landscape. At most, a wet surface acquires a faint opalescent stain. But the films coat millions of kilometers of fissure, conduit, cistern wall, sewer, cooling pipe, and flooded foundation.
+
+The smallest animals graze them. Larger animals eat the grazers. The city’s industrial systems unintentionally enlarge the habitat: heat exchangers create warm pools; exhaust channels provide chemical gradients; reservoirs create spawning chambers; old ceramic pipes become reefs. Production and ecology have become inseparable. Closing a factory may starve an entire district’s fauna. Restarting a disused pump may trigger migrations across half the city.
+
+For this reason, infrastructure is governed as much by animal season as by engineering need.
+
+In the wet months, sluice gates are left partly open for the passage of glass eels. Turbine intakes are fitted with resonant screens that discourage shell swarms without crushing them. Elevated rail traffic stops during the annual emergence of chimney moths, when visibility falls to a few meters and the rails become slick with wings. Old reservoirs cannot legally be drained all at once. Their water levels must descend over years, allowing the resident species to retreat through the porous rock.
+
+The animals, in turn, maintain much of the city. Wall grazers keep intake mouths clear. Burrowing crustaceans prevent silt from sealing the old drainage beds. Carrion moths and gutter crabs consume nearly every scrap of organic refuse. The great roof fliers carry shell fragments to their nests; rain dissolves these into a pale cement that seals cracks around chimneys. Even the wild carrier herds are tolerated because their weight compacts certain mineral roads better than machines do.
+
+Beyond the dense center, the city loosens but does not end. Foundries give way to reservoirs the size of inland seas, crossed by causeways and studded with intake towers. Worker districts cluster along their shores, though “shore” is often only a slope of wet masonry disappearing beneath opaque gray water. Farther out lie quarry boroughs, freight yards, animal-rendering complexes, and fields of condensers: ranks of ribbed metal walls where cloud moisture collects and drips into stone troughs.
+
+These outer works extend for such distances that they generate weather. Warm effluent from the industrial belt rises at dusk and condenses over the cooler reservoirs. A line of rain then moves inward during the night, following the old transport corridors. The rain front may take a week to reach the central city. Its approach is announced by pressure bells, by animals leaving upper roofs, and by the smell of wet iron arriving hours before the first drops.
+
+There are natural regions between the built ones, though none are untouched. The plateau surface is deeply eroded into rounded stone basins, low ridges, and labyrinths of narrow gullies. The forms are mature and stable. Water has worked them for ages, finding the same routes repeatedly until every channel seems deliberate. Cliffs are not sharp but folded and undercut. Boulders sit in sockets worn precisely to their shape. Shallow pools occupy depressions with polished rims, each connected to others through hidden pores.
+
+At the bases of weeping rock faces, animals gather in impossible density. Shells overlap like paving. Pale antennae test the falling droplets. Small winged predators hover in the mist, while larger, blind amphibious things wait in cracks with only their mouths exposed. The rock itself seems to breathe as thousands of bodies withdraw from or emerge into its openings.
+
+The city does not expand quickly. It thickens, settles, and revises itself. A new bridge may take thirty years to build because its piers must be allowed to sink gradually into the wet stone. A flooded district may remain abandoned for a century before being adapted into a fishery or pressure reservoir. Maps are dated by water level and animal migration rather than by political administration. Residents speak of structures as being young if their foundations have not yet reached equilibrium.
+
+Nothing here changes abruptly unless something has gone wrong.
+
+The deepest civic fear is not flood, which is ordinary, nor animal swarm, which is expected. It is dryness. A dry wall loses its living film; the grazers leave; waste accumulates; mineral salts expand in the stone. Pipes heat unevenly. Roof fliers abandon their nests. Static collects along transmission lines. Even a few rainless months can make a district brittle.
+
+So water is allowed to remain visible. Streets are not designed to shed it completely. Courtyards hold shallow pools. Public buildings contain condensation chambers open to the air. Leaking walls are repaired only when the flow threatens structure. A persistent trickle beside a doorway is considered part of the property, sometimes older than the building around it.
+
+At midday, under ordinary white sunlight, the plateau can appear almost plain: gray roofs, gray water, dark stone, silver pipework, animals in their innumerable muted colors. The strangeness lies not in any single object but in the proportions. A continental city without a leaf. A warm highland fed by cloud and stone. Industry moving at the pace of geology. Animal life so abundant that architecture must negotiate with it at every opening.
+
+Toward evening, the wet surfaces take on the sky. Windows shine. Reservoirs become sheets of dull copper. Condensation begins to gather on the elevated roads, and the first roof fliers unfold themselves along the parapets. Deep below, the night pumps engage one after another.
+
+The change passes slowly outward through the city: a sequence of heavy impacts, valves opening, water entering old channels. Gutter crabs lift their claws into the flow. Moths stir in warm shafts. Herds turn toward the flooded avenues. Across the plateau, too far for any one listener to hear the whole of it, millions of animals answer the machinery, and the machinery continues among them like another ancient species.

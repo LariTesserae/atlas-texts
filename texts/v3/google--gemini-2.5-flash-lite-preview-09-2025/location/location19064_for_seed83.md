@@ -1,0 +1,24 @@
+The Descent Chamber is a place defined by its oppressive, manufactured *depth*. It is not a cavern carved by nature, but a void pressed into existence by immense, ancient construction.
+
+**Terrain & Built Environment:**
+The ceiling—which is, effectively, the 'ground floor' miles above—is miles out of reach, obscured by absolute **darkness** punctuated only by faint, slow-moving motes of phosphorescent mold that drift down with agonizing slowness. Below, the primary space resolves itself as a vast, cubic void, though its ultimate boundaries are unclear, lost in the encompassing gloom.
+
+Everything here is **built**. The surfaces are not stone or soil, but fused, slagged ceramics and heavily oxidized, rust-red metal alloys that have settled into a state of deep, permanent **erosion**. These surfaces are not smooth; they are intricately layered, suggesting countless epochs of repair, decay, and re-sealing. The entire environment feels like the interior of some colossal, dormant engine block, excavated and then meticulously, yet haphazardly, infilled. It is a room of **cathedral scale**, though the architecture is utilitarian, driven by pressure and containment rather than reverence. There are massive, bolted beams, conduits thick as mature trees, and sheer, vertical planes of pitted material that ascend into the darkness.
+
+**Atmosphere and Heat:**
+The **temperature** is high, a perpetual, stale heat that suggests deep geothermal venting or massive, residual internal processes. It is the oppressive warmth of a sealed space where machinery has run for millennia and only now sleeps. This heat is only occasionally mitigated. The **water** parameter manifests not as flowing rivers, but as *intermittent moisture*. The air is saturated but reluctant to precipitate. Occasionally, enormous, slow condensation events occur on the vast structural members—thick, oily drips of condensate that take minutes to form before detaching and falling, hissing faintly as they strike the hot floor far below. These are not cleansing rains, but seepages from sealed systems far above or within the walls, carrying heavy mineral and particulate loads.
+
+**Density and Ecology:**
+The **density** is striking. Even though the space is cavernous, looking across any plane reveals layers upon layers of *stuff*. Surfaces are coated in thick, matte biofilms—cultures of slow-metabolizing microbial life thriving on residual energy leaks and chemical gradients. This is the only **vegetation**: sparse patches of dark, rubbery fungal mats clinging to warmer junctions, or long, pale, thread-like hyphae that stretch between structural rivets, absorbing ambient vibration.
+
+**Fauna** is **rare**, but its presence is felt in the subtle signs of consumption. Occasionally, a deep, resonant scrape or a slow, grinding shift suggests the movement of something massive, unseen, and adapted to this pressurized, lightless environment. These are not quick predators, but patient processors, feeding on the slow decay of the metal and ceramic substrate.
+
+**Sound and Dynamic:**
+The environment is **mostly quiet**, save for the inescapable background hum—a very low-frequency thrumming that is felt more in the bones than heard by the ear, a sign of the deep, underlying power still latent in the structure. The **dynamic** is profoundly **slow**. Processes unfold over centuries; the rust blooms slowly, the condensation drips deliberately, and the faint thermal variations shift across days.
+
+**Rules and Weirdness:**
+The **rules** here are those of extreme pressure and material fatigue. Gravity feels conventional, but the atmosphere pushes in with a tangible weight, derived from the sheer depth.
+
+The **weirdness** manifests in the geometry and the lingering technology. Occasionally, one navigates an area where the construction seems to defy simple structural logic—angles that shouldn't hold, arches built only of tension, or sections of wall made of perfectly smooth, black glass that reflects nothing, absorbing all ambient light. These areas suggest the intrusion of forgotten, highly advanced **industrial** systems that operated on principles no longer understood, systems that required immense energy (the residual heat) but have long since powered down. Perhaps these black panels are residual energy buffers, or perhaps they are the only true 'natural' substrate left in this wholly made environment.
+
+It is a place of profound inertia; a subterranean mausoleum built by hands that mastered containment, now slowly dissolving under its own immense weight and the slow creep of chemical reaction. The air smells faintly of ozone, hot metal dust, and mineral salts from the intermittent dampness.

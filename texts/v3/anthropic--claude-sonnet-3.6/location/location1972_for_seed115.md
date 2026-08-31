@@ -1,0 +1,15 @@
+In the roots-space beneath an ancient garden, a network of chambers holds a living laboratory. The walls are not walls but dense matrices of translucent roots, glowing with engineered bioluminescence that suffuses the space with a pearl-grey light. These roots, thicker than tree trunks, have been shaped over centuries into vault-like arches and corridors, their surfaces gleaming with constant condensation.
+
+The chambers range from intimate alcoves to spaces that could hold a small gathering, all connected by passages that sometimes narrow to require ducking or turning sideways. The floor is a complex textile of smaller roots, springy underfoot, occasionally parting to reveal pools of perfectly clear groundwater that reflect the bioluminescence above.
+
+Throughout the space, engineered plants grow in careful arrangements - not potted or contained, but emerging from and returning to the living architecture itself. Their forms are unlike surface vegetation: crystalline structures in impossible colors, geometric growths that slowly rotate without wind, flowers that exist as patterns of light rather than matter. Some seem to phase between states of being, becoming transparent or translucent before solidifying again.
+
+The air is cool and moist, carrying a subtle scent of ozone and something like mint but not quite organic. Water is everywhere but controlled - it beads on surfaces in perfect hemispheres, runs in precise channels through the root-walls, or hangs in stable globules that slowly orbit certain plants. The engineering at work here operates at the molecular level, managing every interaction between water, air, and living tissue.
+
+Small autonomous maintenance organisms, looking like a cross between insects and drops of mercury, occasionally move through the space, tending to the engineered plants. Their movements are deliberate and geometric, and they make no sound save for an occasional crystalline ping that echoes softly through the chambers.
+
+The whole space pulses slowly with a circadian rhythm all its own. Light levels rise and fall in waves that take hours to complete. Certain passages seal and unseal themselves. The root-walls flex and shift imperceptibly, their movement only visible over long observation. It's an environment that feels both deeply ancient and impossibly advanced, where the line between technology and biology has long since dissolved.
+
+There's a sense of purpose to the space, though its original function may be impossible to determine. The few obvious artifacts - what might be control surfaces or monitoring devices - are integrated so completely into the living architecture that they're nearly invisible unless you know where to look. The entire chamber complex feels like a single organism, or perhaps a cell in some much larger system extending unknown distances through the earth.
+
+The quietness is profound but not absolute - there's a constant, barely-audible harmonic tone, like the space itself is humming, accompanied by the occasional soft sound of water moving through hidden channels, or the distant chime of the maintenance organisms at work.

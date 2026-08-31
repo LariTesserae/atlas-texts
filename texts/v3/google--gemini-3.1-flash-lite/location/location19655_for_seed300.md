@@ -1,0 +1,15 @@
+This is the Sump of the Stilling Engines. 
+
+It is a low, recessed basin—a natural bowl of grey, weeping basalt—that acts as a graveyard for a forgotten industrial epoch. At this specific elevation, the water table has claimed the floor; the ground is a trembling slurry of silt, dark moss, and oil-slick puddles that never dry. The air is perpetually heavy, a saturated mist that clings to the skin like a damp shroud, smelling of ozone, wet iron, and the cold, mineral scent of ancient, unmoving water.
+
+The scale is intimate. It is an area perhaps the size of a few city blocks, enclosed on all sides by weeping vertical rock faces that drip with a rhythmic, maddening consistency. *Plink. Plink. Plink.* These sounds are the only markers of time here, punctuating a silence so profound it feels heavy, as if the air itself is pressing down to keep the landscape from exhaling.
+
+Despite the sparsity of true vegetation—only a few stunted, translucent ferns clinging to the porous rock—the density of the *objects* here is overwhelming. The ground is a collage of architectural debris and mechanical frustration. There are the rusted ribs of colossal, long-dead gears that have settled into the marsh like the bones of prehistoric leviathans. Pipes, some copper-wreathed and verdigrised, others made of a strange, blackened polymer, weave through the mud like petrified roots.
+
+Crucially, the landscape is in a state of violent, microscopic turbulence. While the macro-view is one of stagnant stillness, the *built* elements are caught in an endless, stuttering loop of automated decay and renewal. A singular, headless pump mechanism near the center of the sump whirs periodically, shaking the earth; it does not move water, but rather vibrates the mud, rearranging the silt and broken glass into geometric patterns that last for mere minutes before collapsing back into chaos. It is as if the industrial ghost of the place is still trying to calculate a result, grinding out phantom production in the muck.
+
+Rare are the creatures here—only the occasional translucent mollusk, its shell etched with faint, unintentional patterns by the corrosive rain, or the glint of a tiny, mechanical scav-beetle. These small things move with a frantic, twitching urgency, as if terrified by the low, subterranean rumble that vibrates from the gears beneath the mud.
+
+There is a sense of settled erosion, a deep, weary acceptance of this state. Everything is weathered, rounded, and stained; nothing is sharp, save for the sudden, unpredictable sparks that jump between two exposed copper wires when the atmosphere grows too heavy with moisture. 
+
+To stand here is to be inside a machine that has forgotten its purpose but cannot stop its motion. The world is a closed circuit: the water condenses on the cold metal, flows down to the mud, is agitated by the dying engines, and evaporates to begin again. It is a place of small, wet, churning sorrow—a cathedral of rusted parts, where the only prayer is the rhythmic grinding of a gear that will never turn a shaft.

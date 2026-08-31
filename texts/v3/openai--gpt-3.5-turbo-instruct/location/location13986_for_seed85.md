@@ -1,0 +1,7 @@
+The landscape is submerged in a vast, all-liquid ocean with walls of rain constantly pouring down. The water is cool, but the submerged terrain is high, with steep cliffs and jagged features, indicating that the area is relatively young and recently emerged. The scale of the landscape is small, with only a single large feature area and scattered, sparse vegetation that is mostly non-recognized biology.
+
+Despite the sparse vegetation, there is evidence of urban settlement, with organized construction and infrastructure density. However, the technology level is far beyond modern, bordering on post-modern-tech, with engineering that current physics cannot fully describe.
+
+The landscape is mostly dark, with little light reaching the ocean depths. Fauna is rare in this area, and those that do exist are strange and mysterious. The sound is mostly quiet, with only the occasional sound of the rain and the splash of water against the cliffs.
+
+Perhaps the most remarkable aspect of this landscape is its dynamic nature. Everything seems to be constantly changing, with no stable equilibrium or gradients. It is a world filled with weirdness and strange phenomena, constantly surprising and intriguing.

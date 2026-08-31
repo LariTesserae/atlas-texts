@@ -1,0 +1,17 @@
+The chamber breathes water.
+
+Deep beneath the surface, where stone should be solid and still, this cavern system pulses with impossible moisture. The walls weep continuously—not from seepage or groundwater, but from some metabolic process in the rock itself. The stone here has been engineered at the molecular level, its crystalline structure twisted into something that manufactures water from trace hydrogen in the deep earth, exhaling it in sheets that run down surfaces worn glass-smooth by centuries of their own tears.
+
+The space is cathedral-sized but intimate, a single vast room whose boundaries shift in the brilliant haze. Light comes from everywhere and nowhere—the water itself phosphoresces as it moves, each droplet carrying engineered bacteria that flare white-hot when disturbed. The air is thick with their glow, a fog of living light that makes the chamber seem to extend beyond its actual borders, walls dissolving into radiance.
+
+The sound is tremendous. Water thunders from pores in the ceiling, crashes into pools that form and vanish and reform as the floor's geometry reshapes itself. The stone groans and sings—not breaking, but flexing, its programmable matter responding to algorithms written into its atomic structure long ago. The noise reverberates until it becomes something felt rather than heard, a physical pressure that makes the air itself seem to ripple.
+
+Sparse vegetation clings to the few stable points—pale, wire-thin grasses that have evolved to photosynthesize from the bacterial light, their roots reaching not down but sideways, threading through microscopic channels in the smart-stone to tap directly into its water-creation process. They shiver constantly in the turbulent air, adding their own high whistle to the cacophony.
+
+The built environment is subtle but unmistakable. Geometric patterns in the floor suggest intentional design—spirals and channels that direct the water's flow, though to what purpose is unclear. A few structures remain: pillars of the same weeping stone that seem to concentrate the water production, creating localized deluges. A platform of different material—something that repels the water entirely—hovers a meter above the churning floor, accessible only when the chaotic currents occasionally align to create temporary stepping stones of stability.
+
+The warmth comes from the transformation itself. The water generation is exothermic, and the air steams where cold droplets meet the heated stone. The temperature fluctuates wildly—one moment tropical, the next merely balmy, as the system cycles through phases of activity.
+
+Rarely, something moves in the brightness that isn't water or light. Creatures—or mechanisms, it's impossible to tell—that exist mostly as distortions in the spray. They feed on the energy differential between the water and the stone, visible only as gaps in the phosphorescence, moving through predetermined paths that suggest they too are part of the original design.
+
+The entire space feels like a machine that's evolved past its purpose, a piece of infrastructure that's become an ecosystem. The technology that maintains it is so advanced it's become indistinguishable from a natural process—except that nature never would have built something this unstable, this energetic, this bright and loud and eternally transforming. The chamber doesn't decay or grow; it simply churns, moment to moment, water and light and sound in constant revolution, a pocket of orchestrated chaos buried beneath the earth's quiet darkness.

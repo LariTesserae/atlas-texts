@@ -1,0 +1,13 @@
+In the sealed industrial dome, darkness is held at bay only by the sporadic amber glow of safety lights and the occasional spark-shower from the overhead conveyor systems. The air is thick with metallic dust that settles in geometric patterns, guided by the electromagnetic fields that pulse through the facility's skeleton. These dust patterns have remained unchanged for decades, perhaps centuries, locked in perfect stasis by the precise environmental controls.
+
+The space feels cathedral-like, but inverted – instead of soaring upward toward heaven, the industrial architecture burrows into itself, creating dense layers of machinery that fold space like mechanical origami. Narrow maintenance corridors thread between massive processing units, their walls worn smooth by the passage of robotic maintenance drones that haven't seen human handlers in generations.
+
+Sparse vegetation exists only in the form of engineered metallic-organic hybrids – crystalline structures that grow in fractal patterns along the joints of machinery, neither truly alive nor entirely artificial. They glitter faintly in the low light, their growth perfectly regulated by the same systems that maintain the dome's stable temperature – a constant, dry warmth that seems to emanate from the very walls themselves.
+
+The soundscape is a dense tapestry of industrial rhythms: the deep thrumming of magnetic generators, the precise clicking of timing mechanisms, the hollow boom of pneumatic systems, and the constant background roar of ventilation moving superheated air through the facility's circulatory system. These sounds never vary their pattern – they're as much a part of the structure as its titanium supports.
+
+The facility's purpose is unclear, but its operations continue with unwavering precision. Conveyor systems move unknown materials between processing stations, their paths forming complex three-dimensional knots in the darkness above. The whole space feels like a single massive mechanism, each component perfectly placed and perpetually operating, maintaining some ancient equilibrium whose purpose has been lost to time.
+
+At the edges of the dome, the metal floor drops away into maintenance pits filled with pools of liquid metal coolant, their surfaces perfectly still, mirror-like, never rippling. The air here is noticeably warmer, though no less dry, and the electromagnetic fields are strong enough to make hair stand on end and cause small metal objects to orient themselves in strange alignments.
+
+This is a place of perfect stasis, where change itself seems to have been engineered away, leaving only the endless operation of machines serving machines, humming their eternal, unchanging song into the artificial night.

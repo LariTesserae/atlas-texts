@@ -1,0 +1,19 @@
+## The Condensation Chamber
+
+Within the mountain's heart, where the ancient glacier once carved its deepest wound, lies a cavity no larger than a cathedral's nave. The city that fills it—if city is the right word—breathes with the mountain's own moisture.
+
+Water beads perpetually on the chamber's basalt walls, running in silver threads down surfaces polished to mirror-black by some precise intervention. The rock weeps constantly, not from springs or seepage, but from the temperature differential maintained by the settlement's presence. Outside, the mountain peak endures its perpetual winter; inside, the inhabited space holds just enough warmth to pull water from stone and air alike.
+
+The structures themselves defy easy description. They grow from the cavity's surfaces—floor, walls, ceiling—in sparse clusters of crystalline nodes, each no larger than a dwelling but connected by tubes of hardened aerogel that channel both residents and resources. The material appears grown rather than built, though the precision of angles and the responsive glow that follows movement suggests a technology that has learned to mimic biology's efficiency without employing actual life.
+
+No plants exist here. No moss softens the wet stone, no algae films the perpetual runnels of water. The food systems, glimpsed through transparent cultivation chambers, process raw minerals and water directly into sustenance through molecular assembly. The faint blue-white light that emanates from these chambers provides the space's primary illumination, supplemented by the soft phosphorescence that travels through the aerogel conduits like slow neural impulses.
+
+The condensation cycle drives everything. Water vapor rises from heated collection pools at the cavity's base, cools against the upper reaches where the mountain's cold presses closest, and falls as an eternal indoor drizzle that never quite reaches the inhabited zones—intercepted by collection membranes that flutter like synthetic moth wings, channeling every drop into the system's circulation.
+
+Sound barely travels here. The materials absorb vibration, leaving only the subtle percussion of droplets on collection surfaces and the occasional subsonic hum when the city's maintenance cycles activate. A rare chirp or flutter marks the passage of the few creatures that have adapted to this space—small things with crystalline wings that feed on mineral deposits and navigate by echolocation through the dim blue twilight.
+
+The population moves through their vertical city in individual transport capsules that climb the aerogel tubes like bubbles in oil, or along walkways that iris open in response to approach. Everything shifts constantly—walls adjusting their permeability, passages realigning for efficiency, entire structural nodes relocating over the course of days to optimize resource distribution or social patterns. The city learns its inhabitants, reshaping itself around their lives.
+
+At the chamber's apex, where the stone ceiling curves into a natural dome, a single aperture no wider than a wellhead opens to the mountain peak above. Through this throat rises a column of warm, mineral-rich air that freezes instantly upon contact with the alpine atmosphere, creating a perpetual plume of ice crystals that mark the city's presence to the empty peaks around it. This same chimney draws down fresh air, completing the breathing cycle that keeps the pocket habitat alive.
+
+The young stone still shows the violence of its formation—sharp edges where thermal shock split the basalt, glassy surfaces where ancient heat fused the minerals. But the city's presence softens these features year by year, its moisture and warmth gradually weathering the chamber into something more organic, more womb-like. The settlement and its cavity are aging into each other, technology and geology finding a common rhythm in the patient work of water and time.

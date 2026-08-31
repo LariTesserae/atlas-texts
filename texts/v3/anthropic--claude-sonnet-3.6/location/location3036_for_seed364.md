@@ -1,0 +1,15 @@
+A plateau greenhouse gone feral, where the glass long ago surrendered to the verdant chaos within. What remains are iron girders, now serving as trellises for thick-stemmed climbers that have memorized their shape. The original structure was vast for its time - a Victorian marvel perched improbably on this subtropical highland - but now feels almost quaint, a single forgotten room in nature's mansion.
+
+The air is thick with moisture and the breath of ten thousand species. Water beads on every surface, running in rivulets down leaves and collecting in the cups of bromeliads that have colonized every junction and joint. The condensation creates a constant patter, a base rhythm for the cacophony of insects and small creatures that swarm through this enclosed ecology.
+
+The floor, if it can be called that, is a meters-deep accumulation of living matter - fallen leaves, sprouting seeds, fungal networks, and countless small decomposers turning death back into life. To walk here requires careful stepping on exposed pipes and fallen beams that float like driftwood on this organic sea. The original drainage systems still function in places, gurgling beneath the surface, creating mysterious currents in the groundwater that feeds this place.
+
+Ancient steam pipes, their insulation long rotted away, still radiate a faint warmth - whether from some forgotten boiler room still faithfully performing its duties, or from the thermal springs that first drew builders to this site, is unclear. This residual heat, trapped by the remaining glass panels high above, creates a perpetual summer that knows no season.
+
+The space teems with life that has evolved to fill every possible niche. Iridescent insects with too many legs dart between orchids that shouldn't exist. Tiny primates, no larger than mice, tend gardens of luminescent fungi in the shadows. Birds that seem halfway to becoming plants nest in the higher reaches, their feathers green and growing.
+
+Here and there, brass gauges and copper valves emerge from the growth like archaeological finds, their faces clouded but still suggesting measurement, control, a lost scientific purpose. Some still click and whir, monitoring conditions for an experiment long concluded, their data recorded only by the slight movements of curious vines.
+
+The boundary between mechanical and organic has blurred over the decades. Roots have grown into pipes and emerged as metallic branches. Flowers bloom with petals of thin-beaten zinc. The distinction between what was built and what has grown feels increasingly arbitrary, as if the greenhouse's original purpose was not to contain nature, but to hybridize with it.
+
+At the center, barely visible through the perpetual green twilight, stands what might have once been a control panel or monitoring station. Now it serves as the heart of a vast hive, its dials and levers operated by creatures that seem to understand their purpose, but toward what end, no human observer can say.

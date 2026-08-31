@@ -1,0 +1,41 @@
+On the high plateau, where the air should be thin and cold, it is warm.
+
+You climb for a day out of the lowlands, up switchbacks cut into white rock that grow steeper and drier as you go, and then - without a summit - the ground simply stops being ground. The top of the mountain is not a peak. It is a floor.
+
+It is a tableland three or four valleys wide, cupped slightly at its center like a shallow bowl, at an altitude where clouds should be below you. Instead they are around you, moving slowly, catching on the edge of the plateau and spilling over in a permanent, slow condensation. That is most of the water here. It doesn't rain so much as it sweats. The air holds warmth from the equatorial sun even at this height, and when it meets the cool stone beneath, it beads. Dawn drips for hours without a cloud in the sky. The stone itself sweats. The whole place is damp in the way an old thatch roof is damp after a night of fog - not wet, not flooded, but saturated to the touch, everything soft at the edges, every surface holding a film.
+
+Nothing you stand on is stone, though stone is underneath it somewhere.
+
+Generations ago - hundreds of generations, maybe thousands - something began to build here and never stopped. Now the plateau is completely covered. From its basalt rim to its shallow middle, there is no bare earth, no exposed rock, no natural soil left visible. Every square meter is built.
+
+Not built like a city. Built like a hive, a rookery, a weaver-colony grown to the scale of a region.
+
+The first builders were birds - soot-black highland weavers the size of crows, and swifts that cement with saliva, and smaller finches that carry mud pellet by pellet. Then insects came and kept building on top of the birds, and fungi came and bound it, and vines came and stitched it together. Now it is impossible to tell who built what. The structure is one continuous mat, a few meters thick in places, tens of meters thick in others, an interwoven thatch of sticks, grass stems, reeds hauled up from the lowlands, hair, plant down, mud, guano, chewed wood pulp, silk, and root.
+
+It has settled. This is not a fresh construction. Its hills and hollows have the weathered, comfortable shape of old earth - old, rounded, sagging under its own weight, rain-channeled, lichen-crusted. Passages have been worn smooth by millions of feet and claws. Arches have thickened where they needed to. Cups and bowls where water collects have been sealed with resin and clay and are now polished dark by use. In the deeper cuts you can see the strata in cross-section like geological layers: pale bands of grass thatch, darker bands of mud and guano, the white, fibrous lamina of insect paper, the black tangle of dead vine. It has eroded exactly as much as it needs to erode. It is in balance with wind and weight and damp.
+
+Because it is so dense, it makes its own darkness.
+
+From above, at the rim where you first step onto it, the plateau looks almost open - an undulating moor of woven hummocks covered in green. Moving inward, the hummocks grow higher and closer. The vegetation takes over. It is lush here, impossibly lush for how little light gets through.
+
+Everything that grows, grows on the built. There is no other substrate. Mosses carpet every north-facing slope of thatch, so thick your foot sinks to the ankle. Filmy ferns unroll from every seam. Orchids and bromeliads cling to the stickwork, their roots never touching ground, drinking only mist. Vines as thick as your arm have found purchase in the guano-rich thatch and pull it tighter as they grow, their leaves forming a second canopy over the first. Under that double roof, the light fails.
+
+By midday on the plateau, you are walking in dusk. The sun is a hot white suggestion above the vine leaves, diffused to a uniform amber-brown gloom. Shafts cut through only where a recent collapse or a maintenance hole has opened, and dust and down and insects hang in them like snow. The air under the mat is still and warm and smells of wet thatch, warm feathers, resin, and the sweet-sour compost of droppings turning back into humus. It is a living smell, a greenhouse smell. Your eyes adjust slowly. Your skin stays damp the whole time from condensation that never evaporates.
+
+It is overwhelmingly alive. That is the first thing that makes you stop and cover your ears without thinking.
+
+There is no square meter that is not occupied. The density is not just that there are many animals - it is that there are many kinds of them, layered on top of each other, living in the thickness of the walls, the thatch, the vine mat, the mud. Under your boots, beetles shoulder through pulp. In the wall at chest height, a seam of wild bees moves in and out of a paper tube the width of your fist. Finches dart at knee level through tunnels sized exactly for finches. Swifts scream overhead in a torus of flight just under the vines, never landing on what you would call ground. Every cupola, every woven dome - and there are thousands, shoulder-to-shoulder as far as you can see - has a tenant on eggs, a tenant feeding young, a tenant repairing. The weavers chatter constantly as they weave, pulling fresh green strips through old grey thatch. Higher up, something larger - mountain parrots, or maybe the weavers grown big - calls in a rolling, guttural phrase and is answered by a hundred more. At night - though here it is always close to night - frogs the size of thumbs, living in the permanent dew-cups, begin to pulse.
+
+And underneath and over everything, the insects.
+
+The sound is deafening, not in a sharp way but in a total way. It is not a single noise but a saturation that removes silence entirely. Cicadas and crickets and stridulating beetles layer into a wall of sound so high and so low at once that you feel it in your molars. It does not peak or fade. It simply exists, at the volume of heavy rain on a tin roof, from horizon to horizon. You have to lean close to be heard. After an hour you stop trying to talk. Your own breathing sounds muffled.
+
+Nothing here moves quickly, and yet nothing is still. If you stand for a long time and watch one hummock, you will see a weaver arrive with a fresh blade of grass, stitch it in, and leave. You will see a vine tendril creep a millimeter. You will see a line of leafcutter ants repair a breach the wind made last week, grain by grain. The whole plateau grows outward by a hand's breadth a year, and sinks in the middle by the same, and repairs itself constantly. The change is glacial, patient, biological. No one directs it. There is no plan, no tool, no device anywhere in it - no wire, no cut stone, no metal, no fire. Only beaks and mandibles and hands and roots. Every fiber was carried here in a mouth. Every wall was pressed with a chest. Every dome was turned in with a body.
+
+The rules are simple because they are not rules at all. They are habits that have become architecture.
+
+Build where there is already building. Repair what leaks. Lay where it is warm and damp. Leave the guano where it falls; something will grow in it. Do not build faster than the thatch can dry. Follow the sound of others; silence means a hole, a predator, a place that needs fixing.
+
+You can walk for hours across it and never see the edge. The woven hills repeat, each one a little different - some crowned with flowering epiphytes, some bald and patched with fresh mud, some collapsed and already being reclaimed by moss - but the pattern holds. Valley after shallow valley of thatch and vine and bird. The sky is a narrow thing above you. The world is all made, and all growing, and all full.
+
+When you finally lie down to sleep in one of the old, abandoned bowers - a dome big enough for your body, still warm from the day, its inner wall smooth and waterproofed with saliva and leaf-oil - the damp soaks into your back, the warmth holds you, the dark is complete, and the chorus does not lessen. It presses on your ears from every side until you can feel the plateau breathing under you, very slowly, in and out, as a thousand wings fan the humid air and a thousand mouths worry at the weave, keeping it whole for one more night.

@@ -1,0 +1,25 @@
+Cradled at the bottom of a steep-walled, craterous basin, isolated from whatever world sprawls beyond its rim, lies the Silent City. It is a small, enclosed pocket of reality, no more than three miles across, capped by a sky that is locked in a permanent, static twilight of bruised plum. An anemic, diffuse light filters down from this dome, casting long, razor-sharp shadows across a landscape defined by an aggressive, stinging chill. 
+
+There is no water here, nor the memory of it. Humidity is a foreign concept in this brittle atmosphere. Instead, the low-elevation basin is flooded by heavy, dry gases—pale, luminescent vapors that hug the floor and flow sluggishly like frozen rivers of mercury. 
+
+Rising from the dry bedrock is an architectural marvel of staggering complexity. It is undeniably an urban environment, sprawling with heavily layered infrastructure. There are towering geometric spires, multi-tiered terraces, sweeping viaducts, plunging aqueducts, and vast, gridded plazas. The structures are composed of intersecting, ultra-thin planes of milky, translucent glass and unreflective black slate. Every angle is a fresh cruelty; because the landscape is so fiercely young, the edges of the structures taper to flawless, molecular points, un-blunted by wind, rain, or the softening hands of time. 
+
+Yet, for all its organized, brutalist majesty, the city is a cavernous void. The density of matter is incredibly low. Huge swaths of the basin are just wide, empty plains of flat obsidian separating small, skeletal clusters of architecture. The soaring towers are hollow, resembling airy scaffolds or cathedrals erected around vast pockets of dead, cold air. The city is sparsely populated by things, and completely devoid of builders. 
+
+No tools carved these flawless streets. No minds drafted the spiraling arched bridges. The metropolis is the byproduct of pure, frantic, mindless biology. 
+
+The architects are the sparse vegetation of this dry world: tangles of creeping, carbon-black ribbons that resemble unspooled optical fibers. These vines slither across the slate, feeding on the flowing heavy gases and the dim ultraviolet light. As they move, the vines rapidly secrete the milky glass to armor their delicate cores. Their biological imperatives—to maximize surface area for light absorption, and to funnel the cold gas currents directly over their roots—manifest as perfect urban planning. They naturally weave "streets" to channel the vapor rivers, and hollow "skyscrapers" to reach the highest gradients of the dim light. It is an intricate, metropolis-scale shell, engineered entirely without technology. 
+
+The pace of this ecosystem is visually staggering, yet conceptually horrifying. The city is rapidly, visibly self-assembling. If you stand on an empty terrace, you can watch a neighborhood construct itself over the course of an afternoon. Translucent walls crystallize out of thin air, snapping into geometric vaults; long bridges shoot across empty chasms as the black vines sprint through the frigid air, leaving hard, glassy ridges in their wake. 
+
+But it is the atmosphere of the basin that renders the scene truly alien: the environment is an acoustic void. The frigid air and the glassy materials simply do not carry or reflect acoustic energy. Everything happens in absolute, suffocating silence. 
+
+This profound quiet turns the ecosystem's predator-prey dynamic into a spectacle of surreal terror. Fauna here is exceptionally rare, but when it appears, it brings devastation. High above in the bruised twilight, solitary predators detach from the gloom—manta-winged leviathans composed of brittle, dark mineral armor, gliding weightlessly on dry thermal drafts. 
+
+They hunt the black vines. Sensing a concentration of fresh growth, a creature the size of a whale will fold its wings and drop into the heart of the city, colliding head-on with a fifty-story glass tower. 
+
+The visual violence is apocalyptic. The tower fractures upon impact. Millions of razor-sharp shards, blocks of glass the size of houses, and sweeping avalanches of milky shrapnel cascade into the plazas below in a chaotic, dust-less collapse. 
+
+Yet, there is no sound. No deafening crash, no brittle shattering, no concussive roar. The fifty-thousand-ton collapse is utterly mute. The immense predator thrashes silently in the wreckage, consuming the exposed vines, while the world remains as quiet as a closed grave. It feels like watching the end of a world with your ears severed.
+
+Before the predator even takes flight to leave, the cycle begins again. The surviving black threads twitch in the silent cold. They splinter and multiply, weaving thin, frantic new geometries to rebuild a wall, erect a new tower, fashion tighter dead-ends and thicker battlements to confuse the next attack. The city is a living, breathing fossil of biological panic—an endless, violently active metropolis, constantly destroyed and resurrected in breathtaking silence under a frozen, unmoving sky.

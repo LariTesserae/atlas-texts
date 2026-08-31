@@ -1,0 +1,35 @@
+The world here doesn't begin with life as you know it. It begins with heat, and light, and silence.
+
+You stand on a high plateau, elevated just enough to look down upon the curvature of the world’s edge — not a horizon, but the lip of a vast, slow-moving wound in the planet’s crust. This is a *drowned plateau*, though the water is not in the ground here. It is *in the air*, suspended: a perpetual, fine mist that never condenses quite enough to fall. It clings to the rocks like breath made solid. There is no rain, but the ground is damp, its surface slick with a slow seepage of mineral-rich condensate that oozes from cracks in the stone like sweat from a sleeping god.
+
+The terrain is open, immense — a plain of polished obsidian and rhyolite that shifts from black to violet under the blinding sky. The rocks are weathered, smoothed over aeons by wind and vapor, but not eroded into dust. They remain, monumental, in a state of *established resistance*. Some formations are carved with spirals and fractals not of geological origin. They’re not ancient, not new — they just *are*, as though they've been here always, and nothing has ever truly changed. These are not mountains. They’re *monoliths that forgot they were mountains.*
+
+The air shimmers, not from heat haze, but from *light refraction*, the result of a dense, super-saturated atmosphere. The sky is a violent, almost metallic white, broken only by the low arc of a near-solar star — not a sun, but something larger, cooler, and older, emitting a blinding, steady luminescence. It bleaches the world into high-contrast silhouettes. Shadows are sharp and deep, but they don’t linger; they shift, minute by minute, as the light bends and dances through the mist.
+
+There are no trees. No grass. Not even lichen. The vegetation score is 0.2, but that’s not because it’s absent — it’s because the life here is not *visible*. It exists as a *subsurface network*, beneath the glassy crust of the plateau. The dark fissures between the rocks are alive with fungal lattices that pulse with a slow, phosphorescent rhythm. These are not fungi as we know them — they’re more metabolic than cellular, feeding on geothermal energy and dissolved minerals. They emit faint, electric whispers when disturbed, but they don’t move. They *are* the land, made of the land. Their spores hang in the air like dust, but never fall. They hover, suspended.
+
+And yet — the fauna is abundant.
+
+But it’s not the fauna of flesh and blood. It’s *morphic* — shifting, fluid, energy-based. These creatures are composed of the same vaporized minerals, the same light-trapped plasma, the same condensing mist. They appear like mirages — tall, slender forms that seem to walk on the air, but leave faint trails of steam in their wake. Some resemble insectile things, but they have no joints. They are articulated by light.
+
+Others are more like kites, or jellyfish, floating in the still air. One might drift past you, composed entirely of condensed water and iridescent silica, its body shifting into a spiral of light before dissolving back into mist. They do not hunt, not in the traditional sense, but feed by *harmonizing* with the fungal networks. They emit pulses of low-frequency energy — a soft thrum, like a tuning fork struck underwater — and the fungus responds by releasing nutrients. It’s a mutual exchange, not a consumption. This is an ecology built on resonance.
+
+The silence is profound. *Sound* is 0.1 — not because there’s no noise, but because the few sounds that exist are too soft, too deep, too far between to register. The wind doesn’t howl — it *hums*, a tone so low it vibrates in your bones without reaching your ears. The only audible thing might be the distant *drip* of condensate from a cliff edge — a sound like time, measured in slowness.
+
+This world isn’t quiet. It’s *dumb*. The sounds are real, but they bypass cognition. The landscape is *listening*, not heard.
+
+Now — the built environment.
+
+The urban infrastructure is not human, but *post-human*. The settlement is layered, not constructed. It exists as a kind of *organized entropy*, a city built not from bricks but from accumulated geothermal energy, fossilized steam, and the solidified remnants of extinct machines. Towers rise from the obsidian like stalagmites that were once industrial. Pipes snake through the rock, still pumping water — not for cooling or processing, but as a sacred ritual, a memory of function. Some buildings glow faintly from within, lit by bioluminescent minerals grown into their walls. Others are hollow shells, their interiors lined with fungal growths that pulse in time with the atmospheric pressure.
+
+This is industrial, yes. But not *industry* as we understand it. It’s *industrialism in reverse* — a civilization that once powered itself with fossil heat and mechanical engines, but now its machinery is dormant, half-dissolved into the geology. The factories still stand, but they are no longer used. Their gears are encrusted with mineral growths. The turbines spin only when the wind is right, and even then, they don’t produce power — they *harvest* it, feeding the fungal networks. Electricity flows not through wires, but through the stone itself — a kind of geoelectric lattice that conducts energy from deeper geothermal veins to the surface.
+
+Yet, the city is not dead. It is *alive with absence*. People live here? Perhaps. But not in flesh. The inhabitants — if they are inhabitants — are beings of condensed air, of liquid light, of mineral memory. They move through the ruins like ghosts, not phantoms of the past, but *the past made present*. They are the last echoes of a civilization that learned to *become* the landscape, to stop building and begin *growing*.
+
+The temperature is hot — not scorching, but *warm with persistence*. The air radiates heat from the ground, from the sky, from the very substance of the world. Yet it is not oppressive. It feels *deep*, like a long exhalation from a sleeping body. The warmth is constant, steady, and it seems to slow time. You don’t move fast here. You *settle*.
+
+The scale is open — a valley wide enough to hold a hundred lost cities, but only one remains, and it is not a city. It is *a memory*, a wound that refuses to close.
+
+The weirdness is not in the bizarre, but in the *coherence* of what shouldn’t be possible. This world feels *intentional*, even though it exists without purpose. The rocks have faces. The mist has dreams. The fungus remembers songs. The silence is not empty — it is full of the sounds that were lost.
+
+And so, standing on this high, wet, bright, strange plateau, you realize: this is not a place *with* strangeness. This is a place *that is* strange. And the more you look, the more it looks back — not with eyes, but with light, with heat, with silence, and with the slow, patient presence of a world that has learned to live without life, yet is somehow more alive than you ever were.

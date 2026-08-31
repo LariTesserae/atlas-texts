@@ -1,0 +1,25 @@
+The place is called the **Hollowvine Plateau**.
+
+It is a high, ancient shelf of land that has been eroding for so long that its original mountains have collapsed into a gently undulating plain of exposed root and petrified leaf. The scale is vast—valleys the size of counties lie between swells of living greenery that resemble colossal toppled buildings. Everything feels final, as though the world has already reached its oldest stable state and is now simply maintaining it.
+
+The dominant fact of the plateau is vegetation. Not forest, not jungle—**vegetation as substrate**. The ground is not soil; it is a single, interwoven mat of rhizomes, mosses, woody vines, and pale fungal sheets that has swallowed every rock, every ruin, every road. In places the living mass is thirty meters thick. It forms arches, buttresses, hollow towers, and long elevated causeways that look like the fossilized digestive tract of some planet-sized beast. Leaves the color of oxidized copper and bruised jade hang in slow curtains. Moisture condenses on them constantly; heavy drops fall at irregular intervals, each one striking with an audible, almost metallic *ploc* that carries far in the thin air.
+
+The temperature is cool enough that your breath smokes. The air smells of wet chlorophyll, ozone, and the faint iron tang of old machine oil.
+
+Scattered across this endless vegetal carpet are the remnants of an industrial civilization that once tried to colonize the plateau and was instead consumed by it. Factories, refineries, locomotive depots, and entire districts of brick housing have been half-digested. Girders jut from colossal trunks like broken ribs. Rusted pipelines run for kilometers before disappearing into living bark. Enormous gears, larger than houses, lie half-buried in mounds of moss, still occasionally turning—very slowly—as root pressure and internal sap hydraulics force them to move. Steam vents hiss from fractures in the green mass where geothermal heat meets buried boilers. The sound is constant: a low, wet, mechanical roar layered with the creak of living wood under stress, the distant thunder of collapsing vine-bridges, and the rhythmic chuff of things that might once have been engines and are now organs.
+
+The light is normal, almost cruelly clear. High altitude and the absence of dust make every edge sharp. Shadows fall with surgical precision across the undulating green topography.
+
+Fauna is rare. What little there is has become almost indistinguishable from the machinery and the plants. You might see a herd of iron-ribbed herbivores the size of tram cars grazing on rusted sheet metal and tender new shoots at the same time. Their calls sound like factory whistles slowed down until they become mournful foghorns. Once in a great while something massive moves beneath the root mat—something that causes whole districts of the living city to ripple like water.
+
+The weirdness is not spectacle. It is structural.
+
+Perspective fails here. Walk for an hour in what seems a straight line and you will find the same half-buried water tower three times, each time oriented differently, as if the plateau folds back on itself along invisible seams. Certain factories are still producing—endless coils of copper wire extrude from broken windows and are immediately woven into the surrounding vines by thousands of tiny, specialized rootlets. The plants are not merely overgrowing the machines. They are operating them. The entire plateau functions as a single, slow, half-biological, half-industrial organism that has reached equilibrium. It no longer grows outward. It grows *inward*, tightening, refining, repeating.
+
+Every few days a cold front sweeps across the open scale of the plateau. The temperature drops further. Rain falls in slanted silver sheets that patter on millions of leaves and ring against thousands of iron roofs. When the rain stops, every surface glistens. The ruins look freshly lacquered. The sound of dripping becomes a cathedral of soft percussion that lasts for hours.
+
+There are no true cities left, only districts—vast, organic wards named by long-dead surveyors: **The Carburetor**, **The Spindle**, **The Liver**, **The Switchyard**. Each is a self-contained biome of intertwined pipe, cambium, cable, and xylem. Between them lie long, empty stretches where the green has not yet fully reclaimed the ancient erosion surface. In these sparse zones you can stand on naked root-stone and see for many kilometers: the slow curvature of the plateau, the distant plumes of steam rising from breathing smokestacks, the faint green shimmer of reality itself wavering where the living machine forgets, for a moment, which laws it is still obeying.
+
+This is not ruin.  
+This is climax.  
+The final, settled, loud, cool, wet form that a world takes when industry and wilderness finish arguing and decide, after aeons, to become the same thing.

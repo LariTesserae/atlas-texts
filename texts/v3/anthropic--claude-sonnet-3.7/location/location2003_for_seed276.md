@@ -1,0 +1,23 @@
+# The Underhalls of Merovere
+
+In the deep waters beneath the continental shelf lies Merovere, a subaquatic settlement carved from the living stone of a vast submarine plateau. Here, in hollowed chambers and tunnels that stretch for miles through the bedrock, humans have established a permanent presence in a realm never meant for their kind.
+
+The water is omnipresent—cool, clear, and bearing the weight of an entire ocean above. It fills every space, surrounds every structure, and permeates all existence. Yet the people here move through it with practiced ease, their bodies adapted through generations of selective breeding and alchemical treatments that allow them to breathe water as naturally as their surface cousins breathe air.
+
+The primary illumination comes from bioluminescent algae cultivated in shallow depressions along the walls and ceilings. These gentle blue-green lights create a perpetual twilight state—never bright enough to remind one of sunlight, but sufficient to navigate the labyrinthine network of chambers and corridors. The light catches on tiny suspended particles, creating soft, diffuse beams that stretch and fade into the distant water.
+
+Vegetation thrives in this environment. Adapted seaweeds grow in carefully tended gardens, their forms ranging from delicate fern-like structures to robust kelp analogues that reach toward the center of larger chambers. Some species develop in spiral patterns, trained by generations of underwater gardeners to follow the contours of stone columns. The plants move in slow, hypnotic patterns with the gentle currents that circulate through the settlement.
+
+The architecture is dense and organic, following the natural formations of the stone. Chambers connect to chambers connect to corridors, without the hard delineation of streets or blocks that would define a surface city. Dwellings are hollowed from the rock itself, their entrances marked by intricate carvings worn smooth by centuries of water flow and trailing fingers. Many openings are draped with curtains of living plants or woven fibers that undulate gently with the water's subtle movements.
+
+Tools and implements here are primarily crafted from bone, stone, and the chitinous materials harvested from the occasional giant crustacean. Metal is precious and rare—difficult to work in an underwater environment and prone to corrosion. Instead, the inhabitants have perfected techniques for hardening organic materials and shaping stone using patient labor and specialized abrasives.
+
+The soundscape of Merovere is subdued. Water absorbs and transforms noise, turning the sharp sounds of surface life into muffled, resonant tones. Communication happens primarily through a complex sign language, with important messages transmitted by rhythmic percussion against specially designed sounding stones that carry vibrations over longer distances.
+
+Animal life is sparse within the settlement proper. A few domesticated species exist—translucent fish that consume waste algae, specialized crabs that help maintain the gardens, and long-bodied amphibian-like creatures that serve as messengers and companions. Beyond the settlement boundaries, larger marine predators occasionally pass by, but they've learned over centuries to give Merovere a wide berth.
+
+The settlement follows a rhythm that has nothing to do with day or night. Instead, time is marked by the slow cycling of different algae species as they wax and wane in luminosity, creating "bright seasons" and "dim seasons" that each last weeks. During the dimmest periods, specially bred jellyfish are released into the larger chambers, their pulsing bodies providing additional illumination as they drift through the water.
+
+Merovere is old—centuries of continuous habitation have worn the stone smooth and established an equilibrium with the surrounding environment. The water's pressure and constant, gentle erosion have tested every structure, leaving only those truly meant to endure. Nothing here is newly formed or experimental; everything has been refined through generations of adaptation.
+
+The people move deliberately, conserving energy, their motions fluid and economical. Life here demands patience—new chambers are excavated over decades, gardens mature across generations, and traditions evolve at a pace measured against the slow wearing of stone by water. The greatest virtue among the Meroverians is persistence, for in their world, only that which can endure truly matters.

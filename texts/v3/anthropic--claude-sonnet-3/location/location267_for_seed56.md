@@ -1,0 +1,11 @@
+Beneath the damp surface of an alien world, a dense, vibrant ecosystem thrives in perpetual twilight. The air is thick with the sounds of trickling water and the susurrant movements of countless lifeforms.
+
+This is a realm of pure vegetation, where every surface is covered in a layered, intertwined carpet of alien flora. Mosses, lichens, and fungal mats intermingle, their colors ranging from vivid bioluminescent hues to subdued grays and browns. Vast colonies of symbiotic plant-analogues spiral upwards, weaving together into towering structures that resemble organic cathedrals.
+
+Water is everywhere, flowing in unseen channels, dripping from moist overhangs, and condensing as fine mists on the fleshy, porous surfaces. The vegetation itself seems to cycle water through its tissues in slow, circadian rhythms. Peculiar plant-creatures open valves to release moisture in pulsing jets of vapor. Other stranger lifeforms move through this landscape, their shapes and purposes obscure.
+
+Despite the chill temperature, this ecosystem teems with faunal activity at every scale. Schools of bioluminescent filter-feeders drift through the hazy moisture, trailed by sinuous hunter-analogues. Stranger organisms graze on the living carpets or lurk in ambush. The very boundaries between floral and faunal life are blurred in this deeply alien biosphere.
+
+While there are no overt technological artifacts, the entire ecology exhibits an underlying strangeness and complexity that defies conventional biology. Matter and energy flow in intricate cycles, with micro-landscapes of incredible density. Living nanoclusters assemble into ever more elaborate collectives, processing information and resources with a systemic intelligence.
+
+This is a world in the midst of perpetual, gradual transformation. New morphologies are constantly emerging through subtle shifts and genetic exchanges. Extinct metabolic pathways give way to novel biosynthetic processes sculpting unfamiliar shapes and behaviors. The entire biome exists in an embryonic, emergent state - a preview of more wonders yet to unfold in this weird, water-drenched hollow deep beneath the surface.

@@ -1,0 +1,13 @@
+There's a hollow beneath the roots of an ancient fallen tree, where the soil has subsided into a limestone cavity. The space is barely wider than your shoulders, but it drops down into a resonant chamber that amplifies the constant drip and trickle of water through the stone. The walls glisten with moisture, dotted with tiny crystalline formations that catch what little daylight filters down through the root tangle above.
+
+This pocket-world teems with life in impossible density. Pale salamanders with translucent skin writhe in the shallow pools that collect on the limestone shelves. Their movements disturb clouds of springtails that leap and scatter in silvery arcs. The air itself seems alive with the beating wings of cave moths and the darting forms of long-legged spiders that have adapted to snatch insects from the humid air.
+
+The constant motion creates an overwhelming soundscape in the confined space - the plip-plop of water drops, the rustle and scrabble of countless tiny feet, the buzz of wings, the soft splashes of amphibians slipping between pools. The sounds bounce and multiply off the close walls until they become a single organic hum that seems to pulse with its own rhythm.
+
+The few plants here are strange, pale things - translucent fungi that glow with faint bioluminescence, and delicate white filaments that might be roots or might be something else entirely. They weave through the cracks where the limestone meets the soil above, drinking in the constant seepage of water.
+
+The temperature stays cool year-round, protected from surface weather, though the air is thick with moisture and the exhalations of countless creatures. The walls themselves seem to sweat, creating miniature watersheds that channel the moisture into precise paths worn smooth over centuries.
+
+This is a place of constant flux and movement, yet it feels ancient and established - the product of long years of water wearing through stone, of generations of cave-adapted creatures evolving to fill every possible niche in this hidden ecosystem. Despite the frenetic energy of its inhabitants, there's a sense of balance, as if this pocket of intensely concentrated life has found its perfect equilibrium in this dark, wet corner of the world.
+
+The boundary between stone and soil, between water and air, becomes unclear in the dim light. Crystalline formations might be alive; what looks like fungal growth might be mineral deposits. It's a place that exists in the margins between categories, following its own strange rules of existence.

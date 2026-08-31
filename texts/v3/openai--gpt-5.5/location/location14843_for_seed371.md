@@ -1,0 +1,43 @@
+At the top of a steep mountain shoulder, where the air has thinned and cooled but the world has not yet surrendered to snow, there is a dark little basin caught between fresh walls of stone.
+
+It is not large. You could cross it in a few minutes if the ground allowed crossings, if the plants did not crowd every step, if the rock did not break into blades and shelves and sudden cracks. It has the scale of a room without a roof, or a small amphitheater, or a grove pressed into the wound of a cliff. The boundaries are clear: black crags on three sides, a lip of shattered stone on the fourth, and above it a narrow strip of sky that is usually hidden by cloud.
+
+The place feels newly made. The rock has not been softened yet. Nothing is rounded. The cliffs rise in raw planes, dark gray and blue-black, with rust stains where water has briefly touched iron. Corners are sharp enough to cut cloth. Blocks lie where they fell, not yet settled into soil, stacked at awkward angles as if the mountain has only recently exhaled them. There are fresh scars on the walls: pale mineral faces exposed by frost fracture, recent rockfall, or the tearing away of some slab during a storm. The basin floor is uneven, a jumble of talus, pockets of thin soil, root mats, and little shelves of gravel. It is a young landscape, still loud with its own formation.
+
+And it is loud.
+
+The wind is the main engine. It comes over the high ridge and drops into the basin in violent pulses, not as a steady current but as a sequence of impacts. It strikes the cliff, splits, spirals downward, then hammers through the vegetation with a sound like canvas tearing and heavy machinery turning under load. The narrow walls amplify everything. Loose stones tick and clatter. Larger rocks shift sometimes with a deep knock that seems to come from below the feet. Water, when it appears, does not murmur gently; it spits from cracks, slaps leaves, rattles through gravel, vanishes, then reappears somewhere else as a harder, colder thread.
+
+There is no river here, not properly. The water is intermittent, nervous, opportunistic. Moisture condenses out of passing cloud and gathers on every surface. Leaves bead with it. Moss swells with it. The cliff faces darken where seepage slides over them in narrow, shining films. After rain, short-lived rivulets run everywhere at once, stitching the basin with bright lines before sinking into rubble. In hollows between stones, there are pockets of black water no wider than a hand, cold enough to ache if touched. Some are clear, showing gravel and root hair at the bottom. Others are filmed with pollen, crushed leaves, and mineral dust. Nothing swims in them.
+
+The air is damp without being warm. It has the chill of altitude and shade: not freezing, but close enough that breath appears briefly when the wind drops. The smell is mineral first — wet stone, fresh fracture, cold iron — then green, almost overwhelming. Bruised leaves. Moss. Fern stems. The sour sweetness of decaying plant matter trapped in crevices where it cannot fully dry. There is also the faint hot-metal smell that comes before lightning, though no lightning may be visible; the atmosphere is always being rubbed and charged by cloud, cliff, and rushing air.
+
+Light barely enters. The basin is set so deep beneath its own walls, and the clouds pass so low, that even midday resembles late evening. The brightest surfaces are not the sky but wet stone, pale lichen, and the undersides of leaves flashing when the wind turns them. The vegetation is lush but not sunlit. It is a dark abundance: glossy, layered, crowded, growing wherever there is a finger-width of hold.
+
+Plants own the place.
+
+They do not form a forest exactly; there is no room for true trees except for a few stunted, wind-twisted shrubs wedged into cracks high on the walls. Instead the basin is packed with dense alpine growth magnified by shelter and condensation. Ferns fill the lower ground in overlapping fans. Moss climbs the stones in thick cushions, dark green near black in the dimness, yellow-green where seepage feeds it. Liverworts make slick mats on shaded rock. Tough grasses grow in clumps from gravel seams, their blades flattened by wind, then rising again. Dwarf willows and low shrubs interlace through the rubble, their branches no higher than a knee but so dense that they make a woven surface over the broken terrain.
+
+In some pockets, the plants are almost tropical in their density despite the cold. Broad leaves overlap like shingles, catching mist. Fine roots grip mineral dust. Seedlings crowd under older growth. Fallen leaves do not travel far; the basin traps them. They collect in wet seams and become the first dark soil, thin but rich, smelling of tannin and stone. Everything green here seems to be taking advantage of a brief permission: moisture when it comes, shelter where it can find it, darkness tolerated, wind endured.
+
+But there are no animals.
+
+No birds call from the cliff. No insects lift from the leaves. No small tracks cross the mud after rain. The pools hold no larvae. The moss is not disturbed by hooves or paws. If there are living things beyond plants, they are too small to see: fungi threading the leaf litter, bacteria in the wet stone, algae staining the seep lines. The absence is not eerie in a supernatural way; it is simply a fact of exposure, elevation, cold, instability, and isolation. The basin is too harsh, too newly broken, too often scoured by wind and falling rock. Life is present in great green density, but only the rooted kind has committed to staying.
+
+The place has an industrial character without containing a single built object.
+
+There are no walls except the natural ones, no pipes, no ladders, no rails, no foundations, no old machinery left behind. Yet the basin behaves like a factory operating without workers. Wind drives through it like compressed air. Water starts and stops like valves opening in the stone. Pebbles rattle down chutes with the rhythm of conveyors. Sheets of rain strike the leaves in metallic bursts. When clouds lower into the basin, visibility shrinks to a few body lengths, and the whole enclosure becomes a chamber of pressure, vibration, and moving vapor.
+
+The sounds layer densely. A high whistling from a crack near the ridge. A lower roar where gusts pour over the lip. Wet impacts from condensation shaken loose by the shrubs. The continuous rasp of grasses against stone. Sudden clacks as angular rocks settle. The vegetation itself becomes part of the machinery: leaves snapping, stems knocking together, fern fronds sawing in the wind. During storms, the basin is nearly impossible to hear through. Thunder does not roll so much as detonate against the cliffs and remain there, bouncing, multiplying, until it becomes indistinguishable from rockfall.
+
+Nothing here is stable for long. The rules of the place are rules of brief occupation.
+
+A dry stone may become slick in minutes as cloud condenses on it. A pool may appear after a squall and vanish by evening through some unseen crack. A patch of gravel that seemed firm may slump underfoot because meltwater has loosened it from below. Fog pours in, clears, returns, tears apart, and reforms. The plants bend flat, then spring back. Stems break. Leaves are stripped and replaced. Soil gathers, then is washed away. Talus shifts grain by grain until one day a whole small slope changes shape.
+
+The basin is not old enough to have settled into a quieter identity. It is still negotiating with gravity, weather, and root. The cliffs shed themselves. The plants bind what they can. The water tests every fracture. The wind enters like a force with business to do.
+
+At the center, if there is a center, lies a shallow depression filled with moss and black stones. Several trickles meet there only after rain, making a temporary braided pattern through the green. The water glints dimly, then sinks. Around it, ferns grow so thickly that their fronds interlock, hiding the broken ground beneath. In the darkness they seem almost blue. When the wind drops for a rare moment, the entire basin exhales: droplets fall from leaf tips, seepwater clicks into small pools, and the silence reveals itself not as silence but as the absence of animals.
+
+Then the next gust arrives.
+
+Mist tears across the cliff face. The shrubs flatten. Pebbles skitter. A loose slab somewhere high above gives a sharp crack, then a descending clatter. The whole enclosed world vibrates: green, black, wet, cold, unfinished. It is a small place, but intense — a young high chamber where stone is still becoming land, and plants, dense and patient, are trying to hold it together in the dark.

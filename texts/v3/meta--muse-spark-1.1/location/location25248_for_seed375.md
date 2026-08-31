@@ -1,0 +1,33 @@
+It is not a city in any way you first understand a city. It is a town the size of a town, but with the manners of a single living thing.
+
+You find it low. Not low like a valley — low like the bottom of a saucer left out after the world cooled. The land around for a long way is a dead-white salt pan, flat to an insulting degree, stretching to a horizon that never quite resolves because the air is full of fine, suspended flour. The light is late-evening even when it should be midday. Dim, cool, diffuse, as if the sun is behind a sheet of unglazed paper. There are no shadows. Just a general pallor that makes the salt look bluish.
+
+And then, very suddenly, the pan breaks.
+
+A shallow collapse — fifty, maybe sixty meters across, no more than four meters deep. Fresh. That is the first strange thing. All the salt everywhere else has been worked smooth by wind, but here the edge is a clean lip, a white clifflet with sharp, cubic teeth where the crust snapped. The minerals underneath are still blistered and angry, black basalt glass not yet dulled. This bowl didn’t exist last season. It is young enough that if you kneel you can smell the iron in it.
+
+Inside the collapse is the settlement.
+
+From above it could be mistaken for the ruin of something. From inside, you understand it was never built.
+
+Hundreds of chimneys, but no smoke. Towers, but no doors. They are all of one material — not salt, not stone — a dull, matte, warm-gray stuff that is dry to the touch and slightly giving, like very old paper made from stone wool. If you tap it, it doesn't ring. It swallows sound. The towers are hollow. They are about as tall as two men, some three, narrow at the base and then flaring out at the top into an uneven, frilled coronet, like a trumpet left unfinished. They lean a little. Between them run lanes, straight-ish but not straight, branching at shallow angles, keeping a consistent width. The gaps between them are too regular to be accidental, too empty to be efficient. This place has avenues for no one to walk.
+
+And silence. The parameters of that silence are the first rule of the place: the fine dust in the air eats everything over a whisper. Your own breath sounds upholstered. Your boots on the salt make no crunch, as if the pan is listening too hard to answer. If you stand still long enough you hear a different kind of sound, not loud, only close: a faint dry creaking, like basketwork settling, and very occasionally a soft exhalation, a *pfft* of released air, from one of the chimneys.
+
+Nothing here uses tools. Nothing here ever did. The towers are not constructed. They are secreted.
+
+The builders are still here, but rare, and you are not likely to see more than one or two in an hour of watching. They are large — the size of your outstretched hand, heavy, low-slung, the color of the salt pan so perfectly that you only see them when they move. They look like a woodlouse made of felt and chitin, blind, with a broad, shovel head. They crawl up the side of a tower very slowly, dragging their belly, and they seal their mouth around the flared lip and vomit a mouthful of wet fiber. The fiber is black when it comes out. It pales as it dries in the cool air, graying, stiffening. Then the animal backs down, goes to the edge of the collapse where the fresh minerals are weeping the faintest brine — not water, not free water, you have seen no free water in days — a salty damp that never beads — and it laps, and shovels, and gathers.
+
+The whole town is made of mouths making more mouths for future mouths.
+
+That is why it is active despite the deadness. Every tower is in a different stage. Some are fresh and damp and sagging. Some are brittle, their sides splitting vertically with a seam, and from those seams something else emerges: the first, sparse vegetation. Not green. This is a cool desert. What green means here is gray-purple and black. Wiry, rootless puffs of lichen-wire cling to the lee of the older towers, living on the exhaled air of the things inside. On the collapse floor, in the cracks, are little sunken cushions that look like steel wool. They are colonies themselves. When the wind moves — and the wind always moves, a cold, constant, low draft that pours over the lip of the bowl and pools — those cushions shiver and release a puff of spores that also make no sound and hang forever in the dimness before settling.
+
+Fauna: there is almost none, and what there is never stays. A long-legged, glassy thing like a harvestman, so light it walks on top of the dust without leaving prints, will pick its way across a tower roof, test the rim, decide against it, and be gone in a way that feels like it teleported because you never hear its legs. A beetle, black and polished, clicks once every ten minutes somewhere on the far side of the bowl. That is it. The hamlet is empty the way a beehive is empty in winter — not abandoned, just thinned to its essentials.
+
+The weirdness doesn't come all at once. It comes from living with it for a little while. The towers, you notice, are all slightly warm. If you put your hand inside one — and you can, the throats are wide — the interior is ribbed, and the air inside is warmer and still, and it smells of old mushrooms and battery acid. At the bottom, in the dark, there is a wet softness that retracts from the light. And every twenty or thirty minutes, without synchrony, a tower does something: its flared top clenches, just a little, like a sphincter, and it sighs. A puff of that powdery dim air is pushed out. The spore-cushions lean toward it. The whole little urban grid breathes out of sync, a slow, asynchronous respiration. The lanes are not streets. They are spaces between lungs.
+
+Because it is so small — you can walk its diameter in under a minute — you keep expecting to find its edge, its purpose. There is no edge. The last ring of towers leans outward, as if anticipating more collapse, more fresh salt to eat. And there is no purpose beyond itself. It is not a city for habitation. It is habitation that has taken the shape of a city.
+
+If you stay until the light dims further, to a deep, cool indigo, you will see that the tips of the freshest towers have a faint, chemical glow to them — not light that illuminates, just light that marks itself, enough to keep the builders from overshooting the rim in the dark.
+
+You learn, without being told: walk in the middle of the lanes, not near the towers. Do not make a sharp noise. The dust will take it from you anyway. Do not bring water. Water here is not water. It is a thing kept inside bodies, secret, mortared into walls, never free.

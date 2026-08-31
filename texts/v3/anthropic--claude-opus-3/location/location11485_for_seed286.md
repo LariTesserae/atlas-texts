@@ -1,0 +1,13 @@
+A vast, strange, and vibrant oceanic world stretches out in all directions, teeming with bizarre aquatic plant life that has evolved to inhabit every niche of this watery ecosystem. The cool, clear waters are filled with towering kelp forests, their fronds reaching up hundreds of meters from the depths, swaying gently in the underwater currents. Colossal lily pad-like plants dot the surface, each one a self-contained ecosystem supporting a myriad of peculiar creatures.
+
+Beneath the undulating canopy of the kelp forests, fields of bioluminescent seagrasses carpet the seafloor, pulsing with an eerie blue-green light. Huge, bulbous fruits grow from the grasses, their translucent skins revealing the swirling, luminous seeds within. Strange coral-like structures, half-plant and half-mineral, rise up in sprawling reefs, their porous surfaces home to countless symbiotic organisms.
+
+The waters teem with a bewildering array of life — schools of fish dart through the kelp fronds, their scales glinting in the filtered sunlight. Giant, lumbering creatures, part-crustacean, part-plant, scuttle along the seafloor, grazing on the bioluminescent grasses. Floating colonies of jellyfish-like creatures drift by, their trailing tentacles entwined with delicate, feathery plants.
+
+Despite the abundance of life, there is a sense of sparseness, of vast spaces between the towering plants and the drifting creatures. The scale of this underwater world is hard to fathom, with some of the kelp forests stretching for hundreds of kilometers.
+
+Strangely, amidst this organic wilderness, there are signs of industrial activity. Huge, rusting pipelines snake through the kelp forests, pumping an unknown substance from deep below the seafloor. Gigantic, barnacle-encrusted machines sit on the seabed, their purpose long forgotten, now home to thriving communities of aquatic life.
+
+The sound is a constant, low thrum, a combination of the rush of underwater currents, the distant rumble of the machines, and the echoing calls of the aquatic creatures. The light filters down in shimmering rays, casting shifting patterns on the seabed as it passes through the swaying kelp fronds.
+
+This is a world in equilibrium, a strange balance between the natural and the industrial, the organic and the mechanical. It feels ancient, as if it has existed in this state for eons, the machines and the pipelines just as much a part of the ecosystem as the kelp and the luminous grasses. It is a place of wonder and mystery, an alien landscape beneath the waves.

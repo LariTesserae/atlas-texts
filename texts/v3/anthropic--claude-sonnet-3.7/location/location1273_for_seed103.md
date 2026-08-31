@@ -1,0 +1,23 @@
+# The High Vault of Narrow
+
+The air vibrates with tension in this impossible place. You stand in darkness inside what can only be described as a cathedral of raw stone, yet being born. But this is no human edifice.
+
+Far above—miles above, though in the near-darkness you can only sense this vastness—a ceiling of raw, black granite hangs, not yet fully formed from the chaotic forces that birth it. The stone grows before your eyes, molecule by molecule, atom by atom, in absolute silence but with a violence of purpose that makes your skin prickle.
+
+You stand on a thin ribbon of polished obsidian that winds between pools of black water so still they appear solid until a droplet, condensed from the heavy air, falls with a lonely *plink* that echoes for uncomfortably long moments. The water is everywhere and nowhere, appearing as if by magic in shallow basins that emerge from the stone floor even as you watch. Some pools are no larger than your palm; others stretch away into darkness, their boundaries unclear.
+
+Small paths and dwellings cling to the vertical walls of this vast cavity. Tiny buildings of stacked slate and woven marsh reeds form a sparse constellation of habitation, connected by precarious walkways of braided vine and thin wooden bridges that sway slightly with invisible currents of air. No two structures are the same height or width; they jut from the walls at impossible angles, some seemingly defying gravity altogether. Faint blue lights—too steady to be flame, too warm to be crystal—glow from small windows. The community seems both ancient and unfinished, both permanent and ephemeral.
+
+Between the buildings, the rock walls weep constantly. Water seeps from invisible fractures, gathering into rivulets that cascade down in silent silver threads, collecting in the pools below or simply vanishing into cracks in the floor. Some of these watercourses have been captured in crude bamboo pipes, channeling the flow to the dwellings.
+
+The vegetation is the true wonder of this place. Moss of deep emerald and plants with leaves like translucent blue glass grow in thick patches where the water meets stone. Ferns with fronds that slowly, almost imperceptibly, change color from green to purple to black as they mature cling to every available surface. Vines thick as your wrist spiral up columns of newly-formed stone, their pale flowers glowing with a subtle bioluminescence that provides much of the chamber's dim light.
+
+When you listen carefully, below the occasional drip of water, you can hear a deep, rhythmic *thrum*—like the heartbeat of some enormous creature, or perhaps the sound of stone being created in the darkness. It comes in waves, building to a crescendo that never quite arrives, then receding again. During its peaks, the pools vibrate slightly, sending concentric ripples outward.
+
+Movement catches your eye—not animal, but mineral. A new stalactite is being born directly above one of the larger pools. It extrudes downward in a violent rush, like time-lapse footage of growth played at impossible speed. When it touches the water below, there is a sound like a bell struck underwater, and ripples of energy pulse outward, causing the small boats moored at the pool's edge to bounce against their tethers.
+
+The few inhabitants you glimpse move with purpose but without haste, tending to the plants or adjusting the placement of small stone markers around the edges of the pools. They are human-shaped but slight, dressed in layers of woven reed cloth, their faces hidden by deep hoods. They seem to anticipate the chamber's changes, moving to new positions moments before a fresh water source bursts from the wall or a section of path is reclaimed by the living stone.
+
+You realize with a start that what appeared at first to be a static space is in constant, violent flux. The entire chamber is being continuously destroyed and recreated, but at a pace that makes the changes almost imperceptible to human perception. The dwellings are constantly being rebuilt, the paths rewoven, the gardens replanted. Nothing here is permanent, yet nothing is truly lost.
+
+In the distance, near what you assume must be the far wall, though you cannot see it in the darkness, a stone column crashes into a pool with a sound like thunder, sending a pressure wave through the air that makes your ears pop. The inhabitants do not react. This is normal here. This is home.

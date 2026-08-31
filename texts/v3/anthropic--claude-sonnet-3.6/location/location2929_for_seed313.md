@@ -1,0 +1,15 @@
+In the hollow heart of a massive termite mound, a civilization thrives. Not of insects, but of heat-loving plants that have carved out this improbable nursery within the abandoned architecture of clay. The chamber is small - perhaps three meters across at its widest - but soars upward through twisting flues and channels that catch and amplify every whisper into a constant harmonic drone.
+
+The walls pulse with life. Thick, rope-like vines with translucent flesh glow with their own bioluminescence, threading through the ancient termite galleries. Their light catches on crystalline deposits that have formed where mineral-rich moisture once seeped through the clay. These crystals refract and multiply the gentle radiance, creating patches of surprising brightness in the otherwise dim space.
+
+The air is thick, almost syrupy with heat that has no escape. It must be close to 40°C, yet the plants flourish in this pressure cooker environment. They've evolved to photosynthesize using the light they themselves produce, creating a closed system of energy that requires almost no water. The vines exude a sticky resin that captures what little moisture exists in the air, and they share it through a complex network of hair-thin filaments that connect the whole community.
+
+The walls themselves seem alive, not just with plants but with sound. The thermal updrafts rushing through the termite mound's ventilation system create an ever-changing chorus of whistles, hums, and deep resonant tones. The plants respond to these vibrations, their tendrils swaying and twitching in patterns that suggest either communication or dance - perhaps both.
+
+Occasionally, a piece of the clay wall crumbles, sending a cascade of tiny avalanches through the chamber. The plants react instantly, shooting out new growth to stabilize the structure, their movements visible to the naked eye. This is a young ecosystem, still establishing itself, still negotiating with gravity and architectural decay.
+
+The few animals here are strange, specialized creatures - mostly tiny translucent arthropods that look like glass sculptures, feeding on the plants' excess resin. They cast complex shadows as they move through the bioluminescent light, their bodies refracting and reflecting until it's hard to tell where creature ends and shadow begins.
+
+The chamber feels like a natural cathedral designed by a mad architect, or perhaps a biological laboratory run wild. Despite its small size, the space seems to contain its own laws of physics and biology. It's as if someone took a chunk of alien rainforest, compressed it into a pocket universe, and hid it inside this clay mountain, where it evolved into something entirely new.
+
+The constant movement - of air, of plants, of light and shadow - creates an atmosphere of perpetual instability, yet the system as a whole persists, adapting moment by moment to maintain its precarious balance. It's a hidden world that operates on its own terms, neither fully plant nor fully structure, but something in between - a living architecture eternally rebuilding itself.

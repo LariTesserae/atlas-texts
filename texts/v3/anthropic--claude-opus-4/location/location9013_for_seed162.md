@@ -1,0 +1,19 @@
+The thundering cascade falls from an unseen height, its roar so complete that it becomes a physical presence, pressing against your chest and thrumming through the soles of your feet. This hidden grotto, no larger than a village square, exists as a fever-bright pocket carved into the mountain's flank—a secret chamber where water and heat perform their ancient alchemy.
+
+Steam rises in thick, lazy columns from the pool at the waterfall's base, where the cold mountain runoff meets geothermal springs bubbling up through cracked basalt. The air hangs heavy and wet, each breath tasting of minerals and moss. Condensation beads on every surface, gathering into rivulets that trace silver paths down the dark volcanic walls before dripping back into the churning waters below.
+
+The heat is oppressive despite the altitude—a greenhouse effect created by the narrow opening above and the constant veil of mist. Your clothes cling, sodden, within moments of entering. The temperature differential creates its own weather: miniature cloudbursts form and dissipate in the upper reaches of the chamber, adding their patter to the waterfall's constant thunder.
+
+What vegetation exists clings desperately to cracks in the young basalt—pioneer species that can tolerate both the scalding spray and the mineral-rich atmosphere. Pale ferns unfurl from fissures, their fronds bleached nearly white. Strands of heat-loving algae paint the rocks in vivid oranges and yellows near the hot springs' vents. A few hardy succulents cluster on the highest ledges, their thick leaves pearled with moisture.
+
+But it is the creatures that truly crowd this space, drawn by the rare confluence of water, warmth, and shelter at this elevation. Clouds of gnats form living columns in the steam, their collective drone adding a high whine to the water's bass note. Salamanders—dozens of them—slip between the rocks, their skin glistening black and orange in the filtered light. They pile atop one another near the warm vents, a writhing mass of amphibian flesh seeking the perfect temperature.
+
+Birds nest in every available crevice: swifts that dart through the mist catching insects, their chittering cries sharp enough to pierce the din. A pair of dippers work the pool's edges, plunging again and again beneath the foam to snatch aquatic larvae. Their movements trigger small avalanches of salamanders, which scatter and regroup in endless patterns.
+
+The walls themselves seem alive with movement—beetles and spiders occupying each crack, while bats cluster in the darkest recesses of the ceiling, their ultrasonic calls adding another layer to the acoustic assault. Even the rocks sweat with life: bacterial mats paint rainbow sheens across the wet surfaces, and tiny invertebrates navigate these microbial meadows like cattle on vast plains.
+
+The only evidence of any thinking creature's presence is subtle—handholds worn smooth in the basalt where generations of something has climbed to reach the choicest nesting spots, and a pattern of scratches near the pool's edge that might be intentional, might be mere coincidence, scored into stone too young to have developed the deep patina of age.
+
+Light enters through the narrow chimney above, filtered through perpetual mist into something soft and directionless. It catches in the spray, creating ephemeral rainbows that shift and vanish with each surge of the falls. The young rock faces still show their birth-sharp edges, unweathered planes of black and grey that glitter with embedded crystals when the light strikes just so.
+
+This is a world compressed—all the mountain's life force concentrated into a single humid chamber where the deafening sound of water becomes the medium through which all other existence moves, where creatures layer upon creatures in the warm wet dark, where the very newness of the stone speaks to some recent volcanic birth that created this perfect, hidden caldron of life.

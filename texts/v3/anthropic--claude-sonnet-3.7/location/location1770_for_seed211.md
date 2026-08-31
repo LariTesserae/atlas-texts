@@ -1,0 +1,21 @@
+# The Steaming Foundry
+
+This steep-walled valley is warm and close, a natural amphitheater that traps both heat and sound. Its recent birth is evident in the sharp edges of the dark stone walls, as though they were cleaved open not many years ago. The valley floor spans perhaps four hundred paces across, a cathedral-sized hollow in the highlands where moisture and life have found purchase in the young rock.
+
+Water seeps constantly from the stone faces, running in rivulets down the nearly vertical surfaces. It collects in shallow, uneven pools across the valley floor, their surfaces occasionally disturbed by the steady dripping from above. Small channels have begun to form, not yet deep enough to be called streams, carrying water toward the valley's narrow outlet where it descends to lands below. The air itself feels wet, a humid thickness that clings to the skin and clouds the lungs.
+
+The settlement that occupies this space is a dense concentration of necessity—a mining outpost that has outgrown its original purpose. Buildings of dark timber and corrugated metal press against one another, following the contour of the valley in concentric rings. Narrow alleys separate structures, many bridged overhead by networks of pipes that carry water, steam, and occasionally more precious fluids harvested from the earth. Moss grows in every crevice between buildings, and fungi cluster at their foundations where the constant moisture creates ideal conditions.
+
+Vegetation is sparse but determined. Hardy ferns and stunted trees with waxy leaves cling to cracks in the rock walls. Lichen paints the stone in patches of subdued greens and grays. The valley floor hosts scattered clusters of tough grasses and reedy plants that thrive in the shallow standing water, but no grand forests or sweeping meadows—just persistent green accents against the predominant stones and metal of the settlement.
+
+What this place lacks in plant life, it makes up for in animal abundance. Birds nest in the high rock faces, diving down to catch the insects that rise in clouds from the water. Small amphibians are everywhere—in the pools, climbing the walls of buildings, singing their chorus from every damp corner. Furry creatures something like raccoons but with longer limbs scavenge among the buildings, having adapted perfectly to human presence. Beneath the water's surface, pale, blind salamanders and translucent fish dart through the shadows.
+
+The industrial heart of the settlement throbs with consistent energy. A foundry occupies the center of the valley, its tall chimney releasing a constant plume of steam that rises straight up in the still air before dissipating. The sounds of hammering metal, hissing steam, and turning gears form a continuous backdrop. Workers move with unhurried purpose—this is not a place of frantic production but of steady, relentless industry.
+
+Light is in short supply. The high walls block direct sunlight for all but a few hours each day when it passes directly overhead. Lanterns hang from poles and building corners, casting pools of yellow light that barely push back the gloom. Inside the workshops and homes, oil lamps and the occasional electric light provide just enough illumination for work and life to continue.
+
+The cacophony is what most visitors remember. Metal on metal, the calls of thousands of creatures, the hiss of steam, the splash of water, human voices raised to be heard over it all—the sound never ceases, though it changes character as day shifts to night and different aspects of the valley's life come to prominence.
+
+Despite this constant noise and activity, there is a slowness to the valley's rhythms. The water does not rush but seeps. The industry does not boom and bust but maintains a steady output. The buildings do not rise overnight but accumulate gradually as need dictates. Even the erosion of the sharp stone walls proceeds with geological patience, softening edges by fractions of millimeters each year.
+
+This is a place of endurance rather than urgency—a humid, crowded, industrious hollow in the highlands where humans and animals have found ways to thrive in the dim, wet shadows.

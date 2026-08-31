@@ -1,0 +1,35 @@
+# The Underburrow Works
+
+The chamber is young—you can tell by the way the walls still weep mineral sweat in thin trails, by the sharpness of the fracture-lines overhead where the rock gave way to whatever cut this space rather than wearing into it slowly. This was made fast, in geological terms. Decades, not epochs. The ceiling shows tool-marks in places, shows collapse-scars in others, and the two textures sit uncomfortably close together, like a wound that hasn't decided whether it was a surgery or an accident.
+
+It is small as such things go—a single declined hollow, room-to-hamlet in scale, maybe the footprint of four or five city blocks stacked into an irregular bowl that drops gently below the surface it once was part of. Not deep. You could walk back up to true sky in twenty unhurried minutes. But depth was never the point here; the builders wanted shelter from above, not distance from it.
+
+## What Stands
+
+The construction is dense to the point of crowding. Pipe-stalks and stilted platforms rise close enough that a person could touch two structures at once with outstretched arms. Everything is built from the same dark, fired material—a kind of vitrified local stone, slag-glassed and stacked, studded through with rivets that have gone the color of dried blood. Walkways crosshatch overhead at three or four levels, none of them quite parallel, all of them humming faintly with a current that never seems to source from anywhere visible.
+
+It is urban in density but industrial in character—less a town than a *works*, a settlement organized entirely around production. Squat furnace-houses cluster along the lower tier, their flues threading up through the natural rock in seams that were clearly drilled rather than grown. Gear-housings the size of doorframes sit half-recessed into walls, turning at speeds too slow to call motion, too fast to call stillness. Steam, or something steam-adjacent, exhales from joint-seams on a rhythm that isn't quite regular—every fourth or fifth breath arriving early, or late, as if the machinery is still arguing with itself about its own tempo.
+
+## The Air
+
+Heat sits in this place like a tenant who has stopped paying and can't be evicted. It radiates off the furnace-stacks, off the stone itself, off the close-packed metal that never fully cools between cycles. It is not the dry heat of open desert—there's dampness laced through it, condensation gathering in fat, reluctant drops on the undersides of pipe-joints, evaporating before they fall more often than not. The moisture is incidental, a byproduct of cooling systems and breath-warm rock, not weather. Occasionally a runoff channel will carry a thin vein of water along a gutter cut into the floor, going nowhere anyone has mapped, vanishing into a grate with a sound like a held breath finally released.
+
+Light here is low and the color of an ember seen through cloth—furnace-glow, banked and orange, filtered through grates and screens so that no single source is ever bright, but the cumulative effect is a permanent dim smoulder. Shadows layer on shadows between the close structures. You navigate by silhouette as much as by sight.
+
+## What Moves, What Doesn't
+
+Nothing living scurries here. No insects in the wall-seams, no nesting birds in the upper gantries—whatever this heat and chemistry is, it has scoured the place clean of the small accidental life that usually colonizes built space. The only vegetation is a scatter of pale, leafless stalks growing improbably from cracks near the runoff channels—colorless things, sparse, leaning toward the faint moisture like supplicants, and even they look more mineral than plant, as though they crystallized into shape rather than grew.
+
+And yet the place is intensely active. This is the central strangeness: a settlement with no animal life and barely any sound, that nonetheless seems to be constantly *doing something*. The gears turn. The steam vents on its uneven schedule. Conveyance chains drag loads between furnace-houses on tracks bolted to the ceiling, the loads themselves wrapped in cloth or hide, identity withheld. Lights along certain corridors brighten and dim in long slow pulses, like the place is breathing on a cycle measured in tens of minutes rather than seconds. There is clearly a population here, clearly a labor force, clearly intention behind every structure—but you rarely see who is doing the laboring. Doors close just before you reach them. Platforms you swore were occupied a moment ago stand empty when you look directly. The work continues; its agents remain peripheral, present only in effect.
+
+## Sound, or Its Absence
+
+It is mostly quiet, which against the visual density of the place reads as wrong, almost holds-its-breath wrong. The furnaces should roar. They don't—they murmur, a low continuous undertone like distant surf, occasionally interrupted by a clang of metal-on-metal that arrives without an obvious cause and is never followed by an explanation. Footsteps, when you make them, sound too loud, swallowed too quickly by the stone, as if the walls are eating the echo rather than returning it. Conversation, if there's anyone to have it with, would not carry far. This is a place built for proximity rather than distance—you'd lean in to speak to your neighbor rather than call across the room, and so the architecture never developed an acoustic for projection. Everyone here, presumably, has always been close enough to whisper.
+
+## Rules, As Far As Can Be Told
+
+The structures obey something like consistent engineering, but the schedules don't sync to any cycle you'd recognize—not day, not season, not any tide this far underground. The heat does not fluctuate with time; it simply *is*, a constant the architecture was clearly built to manage rather than escape, full of vents, baffles, and heavy-walled corridors that seem designed to slow the spread of furnace-warmth into the residential tiers (if residential is the right word for the cramped stacked cells visible at the upper levels, dark-windowed, silent).
+
+The unease of the place is procedural, not supernatural—or at least, nothing announces itself as more than mechanical. But the consistent vanishing of the workforce, the slight wrongness of the steam's rhythm, the way certain corridors seem to have more doors than destinations: these accumulate into a low-grade weirdness that never resolves into anything you could point to and call wrong. It's a felt quality, the sense that you have wandered into the working hours of something that does not conduct its business with witnesses in mind, and that you have simply, somehow, not yet been noticed.
+
+You could stay. The heat would dry the dampness from your clothes within the hour, and the work would not stop for you, and if you waited long enough at any junction, something — a chain, a cart, a closing door — would eventually come to meet you.

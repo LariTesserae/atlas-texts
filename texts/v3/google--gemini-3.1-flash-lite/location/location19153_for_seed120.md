@@ -1,0 +1,15 @@
+You are inside the **Cortex of the Weeping Foundry**, a space no larger than a cathedral’s font, yet it occupies the absolute verticality of an impossible mountain peak. 
+
+This is not a landscape of earth and sky; it is a landscape of plumbing and breath. You are standing within a pocket-dimension, a pressurized, steaming interior where every surface is a high-density matrix of woven copper filaments, wet clay, and pulsing, organic capillary mats. The floor, walls, and ceiling—if they can be distinguished—are entirely built. There is no substrate here; the world is a sculpture of pipes, valves, and moss-choked circuits, still cooling from the process of its own sudden, raw emergence.
+
+Because the erosion value is zero, the world looks *new*. Sharp edges of fabricated obsidian still hum with the heat of creation, and water does not flow so much as it *seeps* from the pores of the structure itself, clinging to everything in thick, heavy beads. The temperature is sweltering, a wet, tropical kiln heat that smells of ozone, hot solder, and rotting plant matter.
+
+The sound is overwhelming: a constant, rhythmic *clack-hiss-thrum*. It sounds like the heartbeat of a brass engine inside a humid forest. Everything is packed so tightly that you cannot move your arms without brushing against a wet, tangled vine of copper wire or a bundle of synthetic lichen. 
+
+The weirdness is absolute. Because reality here is in a state of constant, embryonic breakdown, the "water" that drips from the ceiling occasionally turns into thin, pale threads of light before hitting the floor, where they re-liquidize into warm salt water. You might see a fern sprout from a gear, its leaves unfolding in a blur of hyper-accelerated growth, only for the entire plant to dissolve back into a pool of grey nutrient-sludge the moment it touches a brass pipe.
+
+There is almost no animal life, save for the occasional twitch of a semi-translucent, worm-like entity that drags itself along the pipes. These creatures are not born; they are extruded by the architecture, small biological leaks in a world that is trying to remain entirely mechanical.
+
+You are witnessing a place under construction, a microscopic crucible where the laws of nature are being forced to fuse with the laws of manufacture. Every square inch is occupied by a contradiction: a leaf growing out of a bolt, a puddle that glows with the heat of a furnace, a shadow that isn't cast by anything. The humidity is so dense that even the dim, subterranean light seems to settle on your skin like a film of oil. 
+
+You cannot stand up straight; the ceiling is a low, throbbing mess of warm machinery. You are a passenger in a pocket of extreme pressure, nestled in a fold of a reality that has not yet finished cooling into something stable. Everything here is wet, hot, and humming; everything here is being made, though it is unclear who—or what—is the builder.

@@ -1,0 +1,7 @@
+This landscape is a vast and ancient one, with high elevation and a dense ecosystem. The dominant feature of this place is water, with a constant wet atmosphere and frequent sightings of water in various forms. The vegetation here is total, with plants as the substrate for everything else in this landscape. The temperature is warm, but not too hot, and the landscape is constantly shaped by erosion, giving it a primordial feel.
+
+The scale of this landscape is vast, with its own unique weather patterns and physics. As a result of its density, everything in this landscape is close to each other, giving it a layered and densely packed appearance. There are scattered remnants of past structures, but nothing too large or significant.
+
+Technology is non-existent in this landscape, with everything being purely natural. The light is dim, giving a sense of remoteness and mystery. Fauna is abundant, with a diverse range of species thriving in this environment. The landscape is constantly evolving, with slow and gradual processes shaping it over long periods of time.
+
+There is a constant sense of strangeness in this landscape, with its unique features and dynamic changes. The sound here is mostly quiet, with occasional sounds of nature breaking the silence. This landscape is truly a one-of-a-kind place, constantly evolving and full of strange and wondrous sights and sounds.

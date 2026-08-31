@@ -1,0 +1,15 @@
+The Singing Marshes stretch out before you, a vast expanse of shallow, mirror-like water that reflects the blazing sky above. The landscape is eerily flat, broken only by occasional stands of weathered, twisted trees that rise from the water like gnarled fingers. These trees, though sparse, are ancient beyond reckoning, their bark worn smooth by countless years of wind and water.
+
+The air is cool and heavy with moisture, clinging to your skin like a second layer. Everywhere, water seeps and oozes, trickling from leaf to leaf, dripping from branches, and pooling in the countless dimples and depressions that pockmark the marsh's surface. The ground beneath the shallow water is a dense, spongy mass of decaying vegetation and mineral deposits, built up over eons.
+
+But it's the sound that dominates this place – a cacophonous, all-encompassing roar that seems to come from everywhere and nowhere at once. It's not the rush of water or the howl of wind, but something stranger, more alien. The very air vibrates with it, a deafening chorus that defies description. It's as if the marsh itself is singing, each droplet of water and blade of grass contributing its voice to the overwhelming symphony.
+
+Scattered throughout the landscape are curious structures that seem to have grown organically from the marsh itself. These are not buildings in any conventional sense, but rather intricate formations of crystallized minerals, their surfaces etched and pitted by time and the endless song. They glitter blindingly in the intense light, throwing off rainbow refractions that dance across the water's surface.
+
+Despite the brightness, there's an unsettling quality to the light here. It doesn't seem to come from any particular source, but rather to emanate from the water itself, giving the whole landscape a dreamlike, otherworldly glow. The light plays tricks on the eye, sometimes making distant objects seem closer, other times causing nearby features to shimmer and fade like mirages.
+
+There are no animals to be seen – no birds wheeling overhead, no fish darting beneath the water's surface. The only movement comes from the occasional ripple spreading across the marsh, originating from some unseen disturbance deep below.
+
+Time seems to stand still in this place. The water neither rises nor falls, the trees neither grow nor decay. Even the crystalline structures appear locked in stasis, their formation arrested at some indeterminate point in the distant past. The Singing Marshes exist in a state of perfect, eternal equilibrium, unchanged and unchanging.
+
+To enter this realm is to be enveloped by its strangeness, to be submerged in its ceaseless song, to lose oneself in its timeless, watery expanse. It is a place of profound beauty and unsettling alien-ness, a landscape that defies easy categorization or understanding.

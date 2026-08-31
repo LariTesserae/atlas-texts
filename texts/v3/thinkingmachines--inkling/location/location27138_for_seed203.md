@@ -1,0 +1,21 @@
+Beneath the crust, where elevation is not a measurement of height but of descent—0.2, far below any surface that remembers sky—there opens a realm freshly split. The rock is young, sharp-edged, unsoftened by time (erosion 1.1): a continental hollow torn open recently enough that its fractures still gleam like broken glass, fresh enough that the air smells of stone dust and cold oxidation. Scale is immense (2.8), a subterranean continent of absence, large enough to breed its own weather, its own circulation of pressure and silence.
+
+And yet for all that volume, the space is nearly empty (density 0.5).
+
+What fills it—what *is* it—is plant, total and absolute (vegetation 2.7). But this is not a forest. This is plant-as-architecture, plant-as-substrate, a living lattice suspended in the void. Enormous root-cathedrals, trunk-towers, and vine-bridges rise and span across miles of vacancy, separated by gulfs of air so wide that the eye fails to find the opposite wall. They grow alone. They stand like islands of biomass in a sea of hollow. Between them: near-void, cold, still.
+
+The temperature is bitter (0.2)—near freezing, perhaps lower—so the moisture (water 0.9) does not flow but clings. It exists in pockets: condensation beading on the fibrous bark of the towers, frost accumulating in the hollows of fallen growth, occasional rain-like drips from the ceiling where warm (barely warm) air meets the shock of cold stone and plant tissue. There are no rivers here, only intermittent weeping. The damp lives in the tissue of the plants themselves, held like blood in a body that never stops moving.
+
+Because they do not stop moving.
+
+The place is turbulent (dynamic 2.6), hyperactive in its stillness. The young rock shifts and settles in low, distant thunder. The plant-structures grow with violent speed—meters in days—then collapse, rot, and regenerate in cycles of creation and destruction that feel like weather. Seeds and spores drift through the enormous gaps in slow, chaotic storms. Air circulates violently in the hollows, creating sudden updrafts and downdrafts that carry mist like snow. It is unstable, Solaris-like: what stands today is already falling, and what falls feeds what rises tomorrow.
+
+Light should not exist here. Below surface, in cold and hollow, one expects blackness. But the brightness is overwhelming (light 2.9)—cold, white-blue, glaring. It comes from the plants themselves: bioluminescent tissues glowing with frost-bright intensity, and from massive crystalline veins in the fresh ceiling rock that catch and fracture this glow into sharp, moving beams. The illumination is harsh, shadow-casting, clinical. It makes the empty spaces feel larger, the isolation more absolute.
+
+Sound, accordingly, is mostly quiet (sound 1.0)—not silent, but sparse. The vastness swallows noise. You hear the occasional drip of condensation falling for hundreds of feet before it strikes a lower root-bridge. The creak of rapid growth, like ice breaking slowly. The distant, muffled crash of a tower shedding its weight. In the emptiness, a whisper can travel strange distances, behaving unpredictably—an unusual quality (weirdness 1.2), as if the hollow spaces bend sound to their own geometry.
+
+Fauna is rare (1.4)—scattered, solitary. Perhaps small creatures navigate the plant-bridges, feeding on the constant decay. Perhaps they are the ones who left the marks.
+
+Because built presence is faint but real (built 0.9): scattered primitive artifacts (tech 1.1). Small platforms lashed with fiber to the sides of towers, bone or simple-metal hooks driven into the bark, partial remains of shelters that have been overgrown and crushed by the relentless growth. Hand-tools—worn, simple—left in niches where moisture has not yet claimed them. These are not cities. They are single structures, occasional, as if someone passed through this turbulent void long ago and left only the faintest footprint before the plants swallowed it back.
+
+The atmosphere is one of bright, frozen chaos—vast, empty, filled with living architecture that never stops changing. It is cold, damp, and luminous. A world below the world, recently born, sharp as a broken tooth, where life fills every available substrate but leaves the air between untouched, and where the only permanence is the turbulence itself.

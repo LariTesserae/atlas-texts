@@ -1,0 +1,21 @@
+Nearly everything here is water. Not the crystalline openness of a tropical sea, nor the violent churn of a storm-lashed shore, but something else — an expanse of shadowed, submarine space, heavy and thick, pressing in on every side, warm as blood. You are beneath the world, or perhaps the world itself is mostly beneath.
+
+You are not quite in the open ocean, not that deep, and far from shore. This place sits in a vast, low basin: a valley drowned eons ago, since then shaped by slow currents and relentless tides until all the landscape is contoured, hollowed, settled into the long, gentle folds of the underwater city. There is no dry land now — if there ever was — only the suggestions of what once anchored above, long since transformed.
+
+The darkness is profound. Far overhead, weak ribbons of silver betray some surface light, but here it is nothing but dusky blue, thinning quickly to a silted black. The night is so absolute that sight is meaningless; instead, sensation spreads outward in all directions. Here water is not just medium, but atmosphere, presence, the weight that carries every movement and sound.
+
+The city is not made but grown, shaped not by hands but by presence and the passage of time. No tools, no metal, nothing of meaning shaped by intention or plan. Instead, the “built” arises from the animal — dense, intricate carbohydrates, old bones encrusted with centuries of polyp and sponge, winding tunnels of secreted mucus and symbiotic coral, a labyrinth of hollowed chambers woven together by countless generations of living things. Walls pulse faintly, alive, shifting as currents move. Gravity means little, up and down blur; paths arch and loop in all directions, clustering around larger knots where the creatures that dominate this city gather in perpetual, layered density.
+
+Vegetation is scarce — here, life is animal, fungal, or something in between: bioluminescent lichen slicks old stone, translucent fans of filter feeders rumple and contract in the surge, sheets of blue-green bacteria lay like silk on the bones of the world. Plant analogues are reserved to the wayward, the peripheral: drifting mats of wrack, tough as leather, clinging loose where surface lights might reach.
+
+This place is never silent, though it is mostly quiet: a tapestry of minute sounds — the rush of distant current, the click and rasp of feeding, the faint, percussive thrum of large creatures passing through their echoing halls. Language is texture here: movement is communication; proximity and pattern more meaningful than voice.
+
+Life is dense, pressing, urgent: all around, layered onto and into the city, animals teem in numbers uncountable. Bulbous anemones the size of ewers, armored crustacea swarming in shadowed nooks, shoals of blind, glowing fish, coiling and twining together in their endless circuit, sometimes darting, sometimes still, but always aware. Cephalopods drift ghost-pale, flashing brief communications in patterns of soft phosphorescence. Predator and prey, parasite and host, life intertwines in every available crevice, endlessly rewriting the rules of survival.
+
+Erosion is gospel here — the soft cement of waste and death presses down, layer by layer, making the settlement perpetual and ephemeral all at once. Ancient shells crumble to silt; new shells grow atop the old. Tunnels collapse, are re-dug. The “urban” is not static but living — a slow, essential metamorphosis, barely perceptible except across generations.
+
+Despite all this, there is a logic, a rhythm. Tides flood and recede, bringing warmth, sediment, the churn of smaller life. Bigger hunters arrive and vanish. The city breathes, not with fire and air, but the always-moving, always-replenishing waters.
+
+The rules here are simple: no fire, no sky, nothing solid or stable to stand on. Light is rare. Hunger is constant. Gravity is a suggestion; direction is relative. Power is found in density, in numbers, in being more entwined than anything else. Nothing is single here: everything entwines, splits, merges, consumes, shelters, signals.
+
+And always, the press of water, and the endless, textured darkness, in which all things find their shape and all things are rapidly, endlessly, growing old.

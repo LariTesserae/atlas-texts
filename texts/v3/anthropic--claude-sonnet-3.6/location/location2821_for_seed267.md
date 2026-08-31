@@ -1,0 +1,15 @@
+The hanging gardens of New Chloros stretch across the mountainside in suspended tiers, their steel and glass frameworks gleaming in the perpetual late-afternoon light. The light here never quite changes - a eternal golden hour that bathes everything in amber and rose, casting long shadows that somehow never move.
+
+The gardens themselves are a triumph of bioengineering, vast greenhouse galleries connected by covered walkways and pneumatic elevators. Each tier specializes in different engineered plant species: vines that produce pure pharmaceutical compounds, trees whose leaves generate electricity through enhanced photosynthesis, flowers that process and purify water through their root systems. The vegetation is impossibly lush, pressing against glass panels and spilling over guardrails in cascades of green and purple.
+
+Between the garden tiers, the raw mountain face shows through - newly thrust up from the earth's crust, its black basalt still sharp-edged and unworn. Geologists say the range is less than a century old, pushed up by tectonic forces that continue to work in slow motion. Sometimes at night, you can hear the deep groaning of rock under pressure.
+
+The air is warm and humid, though the elevation keeps it from becoming oppressive. Condensation constantly forms on the glass panels, running down in rivulets to be collected by the city's water recycling system. The moisture feeds the engineered plants but never quite reaches the bare rock between structures, leaving the mountain itself dry and pristine.
+
+The city proper is spread thin across the mountainside, buildings connected by suspended walkways and cable cars. Most structures are built on stilts to accommodate the continuing uplift of the mountain. There's a careful balance here - enough infrastructure to support the gardens and their research stations, but with plenty of empty space between. At night, lights gleam from scattered windows like stars fallen to earth.
+
+The most striking thing is the silence. No birds, no insects, no small animals scurrying through the underbrush. The engineered plants carry out their functions in quiet efficiency. Only three sounds break the stillness: the soft hiss of pneumatic systems, the occasional deep groan of the mountain, and the gentle drip of condensation being collected and recycled through the system.
+
+Movement here happens on a geological timescale. The mountain rises a few millimeters each month. The plants grow with unnatural precision, their growth rates carefully controlled. Even the people seem to move more slowly, as if in harmony with the patient processes around them.
+
+Near the summit, the newest garden tier is under construction. Its framework extends out into empty air, waiting for glass panels and the next generation of engineered flora. From this height, you can see other mountains in the range, each with their own hanging gardens reaching toward the perpetual sunset. The horizon is a forest of glass and steel and green, suspended between earth and sky, forever caught in that golden moment before dusk.

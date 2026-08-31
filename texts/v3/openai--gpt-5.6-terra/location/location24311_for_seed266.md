@@ -1,0 +1,48 @@
+The city stands on a high plain where the world has been planed almost flat by an ancient, tireless wind.
+
+It is not a desert in the familiar sense. There are no dunes, no loose golden sands, no oasis promised beyond the next ridge. The ground is a hard mineral crust, pale gray at noon and violet-brown in the long slanting hours. It has the texture of kiln-fired clay but is made of layered salts, silicates, and metallic residues, compressed over ages into broad plates. The plates overlap at their edges. Between them run black seams, some no wider than a finger, some descending in straight ravines whose bottoms cannot be seen from the road.
+
+At this elevation the horizon is too far away to trust. The plain continues for hundreds of kilometers, perhaps thousands, interrupted by escarpments and mesas shaped like the foundations of demolished continents. Their walls are weathered into flutes, alcoves, and immense shallow faces. Nothing falls from them. There is no rain to darken the stone, no snow to fill the cracks, no streams to carry their debris away. Yet they are old. Their edges have been softened by abrasive air and by the daily expansion and contraction of the mineral bed beneath them. Whole cliffs seem to have sagged patiently, a millimeter at a time, until they resemble sleeping animals half buried in ash.
+
+The air is warm, dry enough to chap skin and preserve anything left in it. It tastes faintly of copper, gypsum, and hot machinery. Breathing is possible, though newcomers feel as if the sky has been thinned by height and stretched too wide above them. The sun is ordinary in color but unusually sharp. It illuminates every bolt on a distant gantry, every pale track made by a crossing herd, every discarded sheet of oxidized metal. Shadows are dense and clean-edged. A person standing in one of them can feel almost cool; two steps away, the heat is immediate.
+
+There is no water in the open world. Not a puddle in a shaded crater, not a dark line at the base of a cliff. Pipes carry other things: coolant oils, compressed gases, ceramic slurries, molten salts held under pressure. The city depends on reservoirs sealed deep beneath its oldest districts, where imported hydrogen and oxygen are kept separately in armored vaults and combined only under watch. Water is not a feature of the landscape but a controlled industrial event. It is measured, reclaimed, whispered about. A public fountain is not a basin but a glass column in the central transit hall, inside which a narrow ribbon of liquid loops endlessly down and up. People pause beside it in the manner of worshipers.
+
+The city itself is called the Lattice, though from a distance it does not look dense enough to deserve the name. It occupies a vast section of plain in scattered nodes: refinery towers, habitation stacks, freight yards, antenna fields, heat-exchange farms, repair compounds, and long low depots with roofs white from mineral dust. They are connected by raised railways and enclosed conveyor corridors. Between districts lie kilometers of empty crust.
+
+The emptiness is deliberate. Buildings need room to shed heat. Blast walls stand in long lines around processing plants. Freight engines require straight routes, and the old ground is considered unstable wherever black seams gather beneath it. The inhabitants have learned not to build too close to another structure unless they have to. An apartment tower may stand alone for a kilometer, its lit windows arranged in vertical bands against the enormous evening. A school is connected to its nearest neighborhood by a covered moving walkway that crosses a barren trench. Factories have private weather: around their exhaust stacks, the dry air wavers continually, and pale mineral vapor accumulates in slow translucent veils.
+
+The Lattice is industrial, but not frantic. Its machines have the grave rhythm of things designed to run for centuries.
+
+At the edge of the city, excavators move along the cliffs on tracks wide as streets, biting narrow shelves into the mineral face. Their cutting heads turn so slowly that a visitor might mistake them for stopped equipment, until the sun shifts and reveals a new dark incision in the rock. Smelters operate inside insulated berms. Their chimneys do not belch; they breathe. Every few minutes a faint cloud of silver-gray gas emerges, rises, thins, and is taken by the high wind. Freight crawlers cross the plain in pairs, hauling sealed cylinders toward launch ramps or distant extraction fields. Their wheels make almost no sound on the crust. What noise there is arrives in pieces: a low transformer hum, a far-off warning chime, the dry clatter of loose shielding on a tower, the long diminishing groan of rail couplings.
+
+Most of the time, the landscape is quiet enough that one can hear the skin of the city working.
+
+Panels tick as they warm. Cooling ducts murmur behind walls. Wind passes through arrays of empty pipework and produces tones too low to be called music. In the residential towers, doors seal with soft sighs. A train may be visible for twenty minutes before its vibration reaches you through the ground.
+
+The fauna belongs to the plain more completely than the people do.
+
+The most common animals are the sievebacks: broad, low creatures with segmented shells of chalky ceramic material. They move in scattered herds, never hurrying, their many feet making delicate tapping sounds across the salt plates. Beneath their bellies are soft, dark membranes that draw warmth and trace minerals from the surface. They feed on a dust-like ecology invisible at first glance: colonies of electrochemical films, mineral spores, and static-charged organisms that grow in the lee of rocks, beneath rails, and along the margins of warm industrial foundations.
+
+There are no plants, but the ground is not dead. In cracks and sheltered recesses, thin iridescent skins form and vanish with changes in temperature. They are not green. They may shine blue, black, or the color of old gasoline, and they respond to vibration more readily than to light. A passing engine can cause an entire field of them to fold flat against the ground. By morning they have risen again, gathering charge from the air.
+
+Sievebacks graze these films. Their shells are often studded with small parasite colonies, pale nodules that flash weakly at night. Young sievebacks travel beneath their parents’ bodies for months, suspended in mineral-fiber cradles. When a herd crosses a railway line, the trains stop. Not because the animals are protected by law, exactly, though they are, but because their shells contain elements the city cannot cheaply manufacture, and because their migrations have become part of the survey calendar. The old freight schedules were built around them. The city learned to wait.
+
+Higher up, where the cliffs break into shelves, live the wind kites: angular animals with translucent mineral sails stretched between jointed limbs. They do not fly in the birdlike sense. They unfold themselves into the steady upper currents and drift for days, steering by flexing their crystalline ribs. At dawn, hundreds may be seen hanging above the escarpment, so high they look like scratches in the light. At night they descend to industrial heat fields, clinging to warm towers and feeding on the electrical leakage around power lines.
+
+There are smaller things everywhere. Glass fleas collect around discarded insulation. Needle-legged scavengers live in ductwork. Blind quarry eels inhabit the deep black fissures, not in water but in dense pockets of warm gas and dust. They emerge only when drilling begins, rising in slow twisting columns from the dark. Workers do not fear them much. They are too slow, too fragile in open air. But everyone knows the procedure: stop the bore, lower the ceramic bell, wait until the column has withdrawn. The eels were here before the mines, and they will probably remain after them.
+
+The strange quality of the place is not in any single impossibility. It is in the coexistence of systems that have had a long time to accept one another.
+
+The animals use the city’s heat.
+The city’s machines use the plains’ minerals.
+The plains absorb the city’s waste and incorporate it, slowly, into new crust.
+The wind wears down both cliff and construction with equal patience.
+
+On the oldest outskirts, abandoned structures are already becoming geology. A collapsed sorting station lies half submerged beneath a pale advancing sheet of salt. Its girders protrude in orderly rows, each coated in a smooth mineral rind. An entire commuter line has been abandoned where the ground lifted beneath it. The rails now arc gently upward over several kilometers, a shining curve leading nowhere. Sievebacks pass beneath it. Wind kites land on its catenary poles. The official maps still show it, though no train has used it in eighty years.
+
+At evening, the high plain changes character. The heat leaks out of the crust. Industrial districts kindle one by one: amber windows, sodium work lamps, blue welding arcs briefly visible behind blast screens. The cliffs lose their detail and become enormous dark masses. Beyond the final freight yard, the empty world remains lit by the last color in the sky, broad and sterile and almost tender.
+
+No river gleams in the distance. No trees interrupt the lines of sight. No birds call from anywhere.
+
+But far across the mineral flats, a herd of sievebacks moves through the fading light, their shells catching the last sun in dull white pulses. Behind them, the city hums with its low mechanical breath, and beneath both city and herd, deep in the black seams of the old ground, something shifts with the slowness of stone deciding what shape it will become.

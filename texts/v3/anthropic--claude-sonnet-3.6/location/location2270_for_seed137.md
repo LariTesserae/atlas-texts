@@ -1,0 +1,17 @@
+In the deep hollow beneath an ancient settlement, the Dripping Market spreads through a network of worn limestone chambers. The space feels both constructed and grown - rough-hewn archways blend into natural cave formations, while centuries of water action have sculpted the human-carved passages into organic curves.
+
+The defining presence is the endless drumming of droplets. Water seeps through the porous rock ceiling everywhere, falling in scattered percussion that echoes through the chambers. Some drops strike shallow bronze bowls positioned to catch them, creating bell-like tones that layer into an ever-shifting melody. The locals say you can read fortunes in the rhythms if you listen long enough.
+
+The market itself is sparsely populated - perhaps two dozen permanent stalls spread across several interconnected chambers, with wide empty spaces between them. Many stalls are built directly into the cave walls, their wooden frames darkened and warped by constant moisture. Merchants protect their wares under oiled canvas awnings that gleam dully in the scattered light of tallow lamps and rare phosphorescent fungi.
+
+The air is cool and thick with moisture, creating strange optical effects where the lamplight catches the perpetual mist. Sometimes the water vapor shapes itself into slow-moving forms that the merchants studiously ignore. Voices echo strangely here - a whisper from three chambers away might arrive clearer than words spoken nearby.
+
+Between the stalls, channels have been carved into the limestone floor, guiding the constant drip-water into deeper cisterns. The channels form elaborate geometric patterns that seem to shift subtly when viewed from different angles. Small blind fish occasionally emerge from these channels, writhing briefly in the open air before vanishing again into the depths.
+
+The market's few regular inhabitants have adapted to the perpetual moisture and dim light. They wear wide-brimmed hats woven from some kind of water-resistant fiber and move with practiced care on the slick stone floors. Their voices contribute to the chamber's soundtrack - haggling and gossip mixing with the water-music and the occasional resonant tone from deeper in the cave system.
+
+Most striking are the "rain-gardens" - patches where the ceiling drip has been carefully directed over decades to sculpt the living rock into fantastical formations. These are treated as public art, carefully maintained by hereditary custodians who adjust the flow using complex systems of gutters and channels fashioned from hollow reeds.
+
+There's an order to this underground space that reveals itself slowly - not the rigid geometry of surface architecture, but something more organic that has evolved in response to the eternal presence of water and stone. The boundaries between natural and constructed space have blurred over generations until the distinction seems meaningless.
+
+In the deepest accessible chamber, a circular pool captures the gathered drip-water before it continues its journey downward. The pool's surface is mirror-smooth despite the constant drops, and it's said that on certain days, the reflections shown there are of other places entirely - though whether these are glimpses of distant markets or of somewhere more fundamentally elsewhere is a matter of debate among the merchants.

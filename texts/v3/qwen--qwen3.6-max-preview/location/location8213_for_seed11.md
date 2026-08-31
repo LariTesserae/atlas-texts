@@ -1,0 +1,47 @@
+The stone here has finished arguing with time.
+
+It rises in extreme, sweeping forms: broad shoulders of rock that curve like frozen tidal waves, terraces that step down into cloud-choked basins, and vertical faces so tall they seem to hold up the sky. There are no sharp edges left. Millennia of wind, thermal stress, and slow chemical weathering have polished everything into a final, settled geometry. The bedrock is the color of dried persimmon, oxidized bronze, and pale ash, streaked with mineral veins that gleam dully when the mist parts. It feels less like a mountain range and more like a single, colossal sculpture that has finally stopped changing. The erosion is complete. This is what remains when a landscape reaches its oldest stable state.
+
+But the air has not settled. It never will.
+
+The place is deafening. Not with voices, not with engines, not with the crash of oceans, but with a permanent, churning atmospheric violence. Warm air rises from geothermal fissures and sun-baked lower terraces; cold air spills over high rims and plunges into the basin. They collide in a continuous, invisible storm that funnels through natural stone chimneys, fluted clefts, and hollow vegetation. The wind doesn't gust; it roars. It howls through arches, whistles across knife-ridges, and drums against broad, waxy leaves. The sound is physical. It presses against the ribs, vibrates in the teeth, drowns out speech at three paces. You don't hear this place; you stand inside it.
+
+And yet, for all that noise, the volume is hollow.
+
+The vegetation is lush, but it does not carpet. It clusters. Giant columnar trunks rise from the polished stone like smoothed basalt pillars, spaced hundreds of feet apart. Their bark is pale and deeply furrowed, furred with moss, ladder-vines, and cascading epiphytes. Each tree is a vertical ecosystem: bromeliad cisterns, hanging root-nets, orchid colonies, fern shelves, and thick drapes of moisture-loving creepers. But between them? Empty air. Vast, echoing volumes of mist and light. The canopies do not touch; they form isolated green islands suspended over bare, damp stone. The forest floor is mostly open, slick with condensation, patched with low creeping philodendrons and cushion-moss that grips the rock like velvet. The lushness is real, but it is architectural, not continuous. The density of life is high where it clings, and near-zero in the spaces between. You can see for miles through the trunks, watch clouds boil and unravel, watch leaves spiral down in slow, wind-caught arcs. The emptiness is not barren; it is breathable. It is the negative space that makes the place legible.
+
+Water does not flow here in rivers. It condenses. It gathers. It falls and evaporates and gathers again. The warmth is steady, tropical despite the elevation, held in the basin's bowl and whispered up from shallow thermal vents. Humidity hangs thick enough to taste. Dew forms on stone by mid-morning, beads on leaves, drips in steady rhythms into natural rock hollows. Shallow pools appear in terraced depressions, mirror-still for an hour, then ripple as a pressure shift sends a sudden warm rain sweeping through in a diagonal curtain. The rain lasts twenty minutes. The pools drain through fissures or evaporate into the churning air. Everything is damp. Everything breathes moisture. But nothing floods. The water is intermittent, atmospheric, cyclical. It belongs to the air as much as to the stone.
+
+Scattered through this are the marks of hands.
+
+Not many. Not dense. A timber-and-thatch platform lashed to a broad ledge with braided vine-rope. A series of clay funnels and broad-leaf gutters channeling condensation into carved stone cisterns. A rope bridge spanning a sixty-foot cleft, woven from cured fiber and anchored to ironwood pegs driven into pre-existing fissures. Petroglyphs sheltered in wind-shadowed alcoves: spirals, pressure-maps, stylized thermals, sequences of dots that track condensation cycles. The builders use stone blades, bone awls, hardened wooden mauls, and fire-hardened spear tips. No smelted metal. No wheels. Everything is carried, lashed, woven, or carved. The structures are small, temporary-seeming, but they are placed with deep knowledge. They sit in acoustic dead zones, in thermal eddies, in places where the wind splits and slows. They are not fighting the turbulence. They are riding it.
+
+Fauna is rare. Not absent, but sparse, specialized, and quiet. You might see a gliding mammal with membrane-stretched ribs catch an updraft and spiral silently between trunks. A solitary raptor with slate-grey feathers rides a thermal column, wings barely moving, eyes scanning the damp stone for condensation-beetles. Blind, pale arthropods navigate the moss-clogged fissures, feeding on fungal mats that thrive in the constant humidity. Most animals here have learned to move without sound, or to time their activity to the rare lulls when the wind drops below a certain threshold. They are elusive. They do not compete with the roar. They slip through it.
+
+The weirdness is not overt. It is ecological, acoustic, behavioral.
+
+The stone itself sings. Not metaphorically. Certain wind speeds trigger harmonic resonances in the fluted clefts and hollow basalt columns. At dawn, when thermal gradients shift, the basin hums at a low, steady frequency that makes water in the cisterns ripple in concentric patterns. The vegetation responds to pressure, not just light. Seed pods on the columnar trees remain sealed for weeks, then burst in synchronized volleys when a sudden drop in atmospheric pressure signals an incoming rain curtain. Flowers open only when the wind falls below a certain velocity, exposing pale, nectar-rich throats to the rare gliding pollinators. Some mosses change color with humidity shifts, turning from silver-green to deep copper as the air dries, then back again as condensation returns. The turbulence is not chaos without purpose; it is the engine. Pollen rides the gales. Moisture is distributed by chaotic eddies. Seeds are carried miles. The landscape operates at maximum intensity, but it does not tear itself apart. It has reached equilibrium with its own violence.
+
+Light is normal, but it is never still.
+
+Daylight falls in warm, slanting shafts through the high mist, illuminating suspended droplets, drifting pollen, and spiraling leaves. Shadows are soft-edged, constantly shifting as canopies sway and clouds boil and unravel. There is no harsh glare, no deep darkness. The light is diffused, humid, golden-white. It catches the sheen of wet stone, the translucent edges of broad leaves, the pale undersides of gliding mammals. At midday, the basin glows. At dusk, the light thickens, turning the mist to amber, and the wind's pitch drops half a step as the air cools.
+
+The rules of this place are simple, though they take time to learn:
+
+The stone will not change. It has given up its sharpness. It will outlast you, outlast the trees, outlast the wind. Do not try to carve it deeply; it will shrug off your marks. Work with its curves, its ledges, its natural hollows.
+
+The air will never rest. Do not build against it. Build in its shadows, its splits, its eddies. Lash, don't nail. Weave, don't mortar. Let the wind pass through.
+
+Water is not a river. It is a rhythm. Catch it when it condenses. Store it when it falls. Trust that it will return. Do not dig for it; it lives in the air.
+
+Sound is not background. It is topology. Learn where it pools, where it thins, where it resonates. The loud places are safe from predators. The quiet places are where things hunt.
+
+Life is not spread thin. It is concentrated. Look up. Look at the trunks. Look at the moss. The empty air is not empty; it is the space between presences. Move through it slowly. It will show you what clings.
+
+This is a place that has finished becoming geologically, but has not finished breathing. It is ancient and hyperactive, settled and turbulent, lush and hollow, deafening and still. It does not feel hostile. It feels complete. The violence of the air is not destruction; it is circulation. The smoothness of the stone is not death; it is patience. The scattered platforms, the clay funnels, the woven bridges, the petroglyphs tracking pressure and condensation: they are not attempts to conquer. They are attempts to listen.
+
+If you stand long enough on a broad terrace, back to a fluted cleft, watching mist coil around isolated green pillars, feeling the warm dampness on your skin, hearing the wind roar and hum and drum until it becomes a single continuous note, you will realize something: the turbulence is the landscape's pulse. The ancient stone is its skeleton. The empty air is its lungs. The condensation is its blood. The lush, clustered life is its skin. And the deafening sound is not noise. It is the place speaking in a language of pressure, temperature, and time.
+
+It has been speaking for millennia. It will speak long after the last rope bridge frays, the last cistern cracks, the last glider folds its membranes and drops into the moss. The wind will still howl through the flutes. The stone will still hum. The rain will still fall in sudden, warm curtains. The trees will still burst their seeds when the pressure drops.
+
+This is what remains when a landscape stops fighting itself and learns to churn.

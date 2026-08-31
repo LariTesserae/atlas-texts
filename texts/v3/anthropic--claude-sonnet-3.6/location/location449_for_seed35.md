@@ -1,0 +1,15 @@
+A sealed chamber deep in bedrock, perfectly hexagonal, perhaps thirty meters across. The air is thick and warm, held at precise pressure by ancient machines that hum in harmonic frequencies. Their sound fills the space completely - a dense chord that seems to spiral through octaves, never resolving.
+
+The walls are lined with translucent hexagonal cells, each perhaps a meter wide, stretching from floor to ceiling. Within each cell, something moves. The cells hold creatures - thousands of them - each suspended in a viscous amber fluid that isn't quite liquid. The creatures are small, most no larger than a hand, and they writhe and pulse with internal bioluminescence. Their forms suggest insects but follow no earthly taxonomy - here a thing like a butterfly made of crystals, there a centipede whose segments are tiny brass gears, elsewhere something that might be a spider if spiders were built from flowing mercury and neon.
+
+The light from the creatures provides the only illumination, creating shifting patterns that never quite repeat. Their movements are perfectly synchronized with the machines' harmonics, though it's impossible to say which is following which. The light catches on brass pipes and copper coils that run between the cells, carrying whatever energies sustain this strange menagerie.
+
+The floor is a single piece of some black material that absorbs both light and sound. A few work stations rise from it - curved consoles with controls that might have made sense to their builders. The stations are covered in fine dust that has settled in perfect geometric patterns, undisturbed for centuries.
+
+The air is completely dry, all moisture extracted by the environmental systems. It carries a sharp mineral scent and tastes slightly metallic. Occasional puffs of vapor escape from valves in the machinery, forming brief geometric clouds that dissipate in mathematically precise patterns.
+
+A few spindly plants grow from cracks where the floor meets the walls. They're metallic rather than organic, their leaves perfect fractals of copper and zinc, drawing sustenance from the machine emissions rather than sunlight or soil. They never grow or die, locked in eternal stasis like everything else in this strange zoo.
+
+The space feels like a cross between a library, a museum, and a server farm - but for lifeforms instead of information. Every element serves the single purpose of maintaining this collection in perfect stasis, preserving these impossible creatures in their endless dance, for reasons lost to time.
+
+The whole chamber pulses with life yet feels utterly static - a moment of incredible complexity frozen forever, like a photograph of an explosion. The creatures move but never progress, the machines run but nothing changes, the light shifts but always returns to the same patterns. It's an eternal now, carefully maintained by systems that will run until the bedrock itself erodes away.

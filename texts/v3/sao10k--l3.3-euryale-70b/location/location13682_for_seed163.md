@@ -1,0 +1,13 @@
+This place is an open, high-altitude valley flooded with light. A vast marsh fills the valley floor, reflecting the bright illumination in an infinity mirror of sky and water. Plants cover every inch of the landscape, with vines crawling up sloping walls of elevation and roots reaching down into the ankle-deep pools of water that cover the valley floor.
+
+Trees tower above the narrower elevations, their large trunks sinking as much as 6 feet into the water as their branches stretch towards the sky. Their long trunks are often 10 feet around and the layered bases are surrounded by a ring of pure Tannic acid as roots are broken away from the outer layer of the trunk. The massive canopy above cuts a lot of direct sunlight from the forest floor.
+
+The dense roots catch falling debris and fallen timber making walkways through the valley. They littered with berries, aphids, and a large array of plants that thrive in the filtered, dappled light of the forest floor. Fog condenses atop the valley most mornings and canopies of broad leaf trees help retain the mist calling for frequent rain.
+
+On the plateaus, deserted barns may be filled with cattle as well as freshly cut grasses and forage. The grasses are meant as food when animals are bred for sale in distant places.
+
+Several industrial landscapes join natural geographic formations, built as unsightly impositions on the expanse of unblemished land. Factories are painted a chameleon camouflage rendering them easy to miss at a distance; however, the powerful hum of machinery creates a bass thrum that shakes the forest itself. The dark chimney stacks extend vertically toward the sky and branch like a tree. White steam billows from each branch, floating into the sky in shaped waves.
+
+Birds scatter through the frameworks as the trees also stand intermediate to the frame of the chimneys. The animals care not for air quality and neither do the self-sustaining reserves of plants. The plants bring insects in to do the remainder of the work that the animal cannot do. Here interacting together creates extra energy that may redistribute and affect the total environment.
+
+The high elevation of the valley floor puts the fog below the landscape. Water cycles create beaver habitats and animal burrows in the high elevation. Stray houses pop up now and then with heat from furnace ducts causing ice to melt locally. Tap water naturally falls in, and the backed-up ice creates a swampy slush area where very rare, very hardy, fauna finds a way to survive the outrageously rude conditions of acrid chemical smells from the chimneys.

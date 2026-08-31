@@ -1,0 +1,19 @@
+The air is not air; it is a thin, warm suspension of silicate dust and heavy noble gases, as dry as a furnace breath. There is no moisture here, not even in the chemical memory of the rocks. The world is a high-altitude plateau of staggering proportions, a shelf of an ancient continent pushed so far into the upper atmosphere that the sky has bruised into a permanent, starless black.
+
+Below, the terrain is a study in terminal exhaustion. The mountains are no longer peaks; they have been weathered by quintillions of years of thermal expansion into low, slumped mounds of fine, obsidian-colored grit. This is a landscape of "ancient" taken to its physical limit—erosion has finished its work. There is no wind to move the dust, only the slow, heavy settling of gravity.
+
+Across this dark, elevated emptiness sits an industrial ghost.
+
+A city—or perhaps a single, vast, interconnected machine—sprawls across the plateau. It is built of dull, non-corroding alloys and dense, matte ceramics. The architecture is brutalist and functional: immense squares of windowless housing, kilometers of ribbed piping, and cooling towers that have not seen vapor in an aeon. It is an urbanity of cold geometry, spaced out with a lonely, sparse intentionality. There is a great deal of "nothing" between the structures, miles of flat, pounded dust separating a lonely refinery from a cluster of silent, monolithic tenements.
+
+The light is nearly non-existent. There is no sun in this sky, only the faint, heat-haze glow of the planet’s own internal warmth radiating through the ground. The city provides its own illumination, though it is miserly: amber filaments glow inside thick glass tubes at the intersections of dead streets, casting long, sharp shadows that never move.
+
+There are no plants. Not even a lichen could find purchase in this anhydrous chemistry. Instead, the "ecology" is one of mineral growth and mechanical persistence. In the shadows of the immense pipes, strange, hair-like filaments of copper and sulfur "grow" from the ground—not biological, but the result of strange electrical polarities drawing metal up from the crust over millions of years.
+
+The sound is a tomb-like silence, punctuated only by the rhythmic, geological heartbeat of the city’s heart. Deep underground, something industrial is still happening. There is a low-frequency hum—a thrum that you feel in your marrow rather than hear with your ears. It is the sound of a world-scale engine that has reached a state of perfect, friction-less equilibrium. It does not speed up; it does not slow down. It is the sound of forever.
+
+Fauna exists here, though it defies recognition. Small, angular silhouettes move through the dust on spindly, jointed legs of articulated carbon. They are rare, solitary things. They do not eat; they do not breathe. They are scavengers of heat, clinging to the warm rungs of the city's exterior ladders, motionless for decades until a stray spark of static electricity prompts them to skitter a few inches to the left.
+
+The strangeness of the place lies in its absolute stillness. In our world, "urban" and "industrial" imply movement, smoke, and noise. Here, the industry is silent. The factories produce nothing but their own internal heat. The streets lead to beautiful, planned plazas where no one has ever stepped. The time-invariance is total; if you were to drop a handful of dust, the pattern it made on the ground would remain perfectly preserved for a billion years.
+
+This is the end-state of a civilization that solved every problem, built a perfect machine to house itself, and then simply... ceased to be necessary. The machine continues because it cannot do otherwise. The warmth persists because the core refuses to cool. The high, dark plateau remains, a monument of alloy and grit under a black sky, caught in a permanent, warm, and airless noon.

@@ -1,0 +1,41 @@
+It is high.
+
+Not high like a peak - there are no peaks left here. High like a table left after everything else has been taken away. A continent lifted once, a very long time ago, and then left to weather until it forgot what it was trying to be.
+
+The rock here is old in a way that has passed beyond age into habit. Basalt and ironstone and salt, planed down by wind that no longer really blows, rounded until every ridge is a long, soft knuckle, every valley a shallow dish between them. You can walk for a long time and not change your elevation by more than your own height. And still, your ears pop when you arrive. The air is thin, even though it is warm. It has weight but not pressure; it sits on your skin like warm dust.
+
+There is no water. Not in the poetic sense of an arid place where water is scarce and therefore precious. There is simply no water in the system. What would have been riverbeds are just darker mineral veins where the wind sorted the fine grains from the coarse - long, wandering freckles of hematite and manganese that branch and rejoin across the plain. Where a lake would have been is a salt pan, not white but a dull, rose-grey, perfectly flat for kilometers, its surface cracked into polygons so regular they look poured. If you kneel and touch it, it is warm from the stone beneath. It holds no moisture at all. It tastes of nothing and iron.
+
+Nothing grows. Not a lichen, not a scrub, not even the stain of algae. The world is mineral and made. The only green is the oxidized copper on the pipes.
+
+And it is built.
+
+Not covered - that would be too much. The city - if it is a city - does not blanket the plateau. It is sparse, which makes it more deliberate. You can stand on one of those low, ancient rises and see the whole arrangement spread out in the dark, and the amount of empty space becomes part of the architecture.
+
+There are no lights in the sense of a city at night. The darkness here is nearly complete. The sky is dark without stars, or with stars too distant and too dim to be useful - a deep, matte black-brown like cooling iron, without moon. What light there is, is low and local and industrial. And warm.
+
+Far apart, at intervals that feel measured by something other than convenience, stand the works. Low, broad factories of riveted iron and poured concrete, the concrete itself made from the ground-up stone of this same plateau so that the buildings are the same color as the ground, only more square. They have no windows. Some have towers - not tall, but thick - that vent heat. Others are half-sunk into the softened rock, their roofs level with the plain so you only know they are there by the rectangular seam and the faint amber line around a service door.
+
+They are all running. They have always been running.
+
+You hear them before you see them, but only just. The sound is mostly quiet, a quiet that has texture. If you stand still, you hear the thin air humming in your own head first. Then, after that fades, the plateau gives you its sounds: a low, even thrum from a power station two kilometers away, felt more in the soles of your boots than in your ears. A tick, tick, tick of cooling metal, though nothing here ever really cools. A distant sigh as a pressure valve somewhere exhales a breath of dry, hot gas and closes again. No voices. No traffic. The machines are not loud because they do not need to be. They are not producing for urgency.
+
+Between the buildings, the infrastructure is exposed and patient. Pipelines run above ground on short stilt-legs, big enough to walk through, painted once in identification colors that have been scoured to pastels by dust that hasn't moved in a long time. They carry not water or oil but warm brine of dissolved salts and fine mineral slurry, or superheated air, or current. They run dead straight for kilometers, then make a single, precise 90-degree turn for no visible reason, as if following property lines that have outlived the surveyor. Conveyor gantries stand empty and still, their belts moving so slowly the motion is invisible unless you stare at a rivet and watch it crawl. Cable stays hum in the dark.
+
+The warmth is everywhere and sourceless. The air itself is warm, about the temperature of skin, so you stop feeling it after a minute. But the stone holds more. If you press your palm to the flank of a factory wall, or to the bare ancient rock between factories, it comes back warmer than your hand. The whole high plain radiates a low, stored heat upward into the thin, dark air, as if the rock was heated from below once and never learned how to lose it. In the places where grates vent the factories, the heat shivers visibly, making the few dim lights beyond ripple.
+
+Those lights are the only color. Not white - no one uses white light here. Pools of sodium amber and furnace orange, the color of molten glass, spill from open foundry doors that never close, from inspection slits, from the seams under the great rolling doors. They don't illuminate so much as they stain the darkness. In their glow you see the dust motes hanging completely still in the warm air, as if suspended in glass. You see the surface of things: the pitting on the iron, the endless fine sand that coats every horizontal plane but never seems to accumulate or blow away.
+
+It is strange here, in the way that makes you check your balance.
+
+Perspective doesn't quite work at distance. The plain is too flat and the air too clear and dark that a factory three kilometers away looks the same size as one three hundred meters away until you walk toward it and it doesn't get larger at the expected rate. Shadows fall slightly too long for the low light sources that cast them. Sometimes, when a vent releases, the heat-haze does not rise but hangs, folding over itself in a slow, heavy drape before it dissolves.
+
+Nothing changes. That is the most difficult thing to describe, because our language expects weather, and corrosion, and the slow work of time. The erosion that shaped this place finished its work an epoch ago. The wind smoothed what it could smooth and then stopped, as if the air reached equilibrium with the stone. The buildings rust, but the rust doesn't flake. The salt pans cracked, but the cracks do not widen. The conveyors move, but they carry the same load past the same point forever - crushed basalt going from one building to another building that crushes it again. You get the sense that you could leave a boot-print in the dust and come back in a thousand years and find its edge still crisp, the dust undisturbed around it.
+
+There is life, but not much, and it has learned this stillness.
+
+It is not that animals are hiding; there is simply not much that can live without water or plant. Rarely, you will see movement at the periphery of an amber spill: something low and flat, the size of a tortoise, made of overlapping plates of dark chitin or ceramic, moving with absolute slowness across the warm salt toward the heat. It leaves no track. It has no eyes that you can see. It may be an animal. It may be a maintenance machine that has shed its original shape. On rare nights thatodox a little darker, things chirp - a single, clear, mineral note, repeated at intervals of exactly 17 seconds, from somewhere out on the empty pan. Nothing answers it. After a while it stops.
+
+There are no people visible, though the city is clearly inhabited or tended. Doors open and close on their own, or they are already open. You may find a set of footprints in the fine grit leading from one building to another and ending. You may find a thermos, still warm, on a railing. The implication is not of abandonment, but of a population so sparse and so synchronized with the stillness that you are always just missing them, by a very small margin.
+
+If you stay long enough, your own motion starts to feel like the disturbance. Your breathing sounds loud. The warm, dark, high, flat, worked-on world reasserts itself around the shape of you, patient and complete, and waits for you to stop moving so it can be perfectly even again.

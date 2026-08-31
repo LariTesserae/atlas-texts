@@ -1,0 +1,27 @@
+The panel came away with a sound like a long-held breath. Behind it, the dark was not dark at all — it was warm and moving, and there was a hum.
+
+A service cavity. A utility nook built into something larger and sealed off, or never quite finished, or finished and then walled over. The size of a wardrobe. The size of a room that wants to be a closet. Every surface is taken.
+
+The metal walls are corrugated, ribbed, and the ribs are already losing their argument with the damp. Rust blooms in the troughs of each corrugation, in the low places where water gathers and waits. The rust is fresh — the wet, brilliant orange of a thing that has just begun to let go. It glistens. It is weeks old, maybe days. The place is young. The place is being unmade, but it is being unmade right now, in front of you, at a pace you can almost watch.
+
+The floor is a slow river. A centimeter of water, moving somewhere you cannot see, drawn by a pump or gravity or some third thing. The water is clear and warm. It smells of iron and something greener — a fermenting, vegetable sweetness, the smell of growth in the dark.
+
+Everything is packed. Pipes cross the ceiling in a thicket, sweating. A single small engine block is bolted to the far wall with one bolt sheared off, and the engine lists like a drunk toward the room. Gauges with faces you can read but cannot understand — the numerals are from some other arithmetic, or the same arithmetic miscalibrated, or an arithmetic that was always wrong. A coil of copper tubing that has been there so long it has begun to remember the shape of whatever it once held. A fusebox, glass-fronted, the fuses inside glowing with a faint amber heat. A small window at chest height, frosted over, admitting the light as a milky suggestion. A shelf with three unlabeled jars. A single chair, no occupant, facing the engine. A second chair behind the first. A third chair turned toward the open panel. Toward you.
+
+The air is a damp cloth over your face. Condensation pearls on the pipes, on the gauge faces, on the seat of the front chair, where a small perfect cup of water has gathered. From somewhere in the ceiling, a slow drip into a tin can. The tin can is almost full. The tin can is rusting in the same fresh orange, and a single fern has rooted at its lip — a small green frond, impossible, unfurled in the warm wet dark.
+
+The fern is the only plant in the room. That is a lie. The fern is the only plant you can see at first. Look closer. Moss is colonizing the wall behind the engine in a soft green smear. Lichen is building itself, atom by atom, along the copper tubing. A pale fungus, the color of a fingernail, pushes up between two floor seams. Three small presences, and none of them here three days ago. The vegetation is sparse but it is moving. If you watch the fern, you can see it move. The fern is a clock.
+
+The fauna is the wrong word. The fauna is a city in a matchbox. Silverfish in the seams, pale and quick. Springtails dimpling the standing water. Something with too many legs moving in a line along a pipe — a procession, single file, engine to wall to engine. Beetles the color of new copper. A small grey frog, or what is almost a frog, perched on the sheared bolt, perfectly still, watching the dripping can. A second frog behind the third chair. A third frog in the rust itself, nearly invisible. A fourth on the gauge. A fifth on the floor. So many frogs. The frogs are not blinking.
+
+The machines are quiet. The pump makes a sound like the soft inside of a swallow's throat, periodic, almost gentle. The fusebox ticks as it heats and cools. The copper tubing has a faint internal whisper, as if something is moving through it far away. The chair creaks when no one is sitting in it. The engine clicks somewhere inside itself as it cools. The room is mostly quiet. The quiet is full.
+
+The light is normal light — the light of an overcast afternoon, the light of a kitchen in late winter. It comes in through the frosted window and the open panel and falls on everything without preference. It does not warm the place. The place warms itself.
+
+Something is strange. You stand at the threshold and understand that the room is not random. The chairs face where they face. The frogs sit where they sit. The moss grows in a pattern — a pattern you cannot read, but a pattern, an alphabet, a half-finished sentence. The engine lists toward the pump. The pump pulls from the standing water. The water moves toward a drain you cannot see. The whole place is a kind of organ. It is breathing. It is digesting. You do not know what.
+
+It has been doing this for a long time, in the dark, in the warmth, in the damp. It was doing this before you opened the panel. It will do this after you close it. The fern will unfurl a second frond. The rust will deepen by a millimeter. The frogs will multiply in a ratio you cannot compute. The fusebox will glow. The pump will swallow. The chairs will wait, patient, for whoever it is they are waiting for.
+
+The room is small. The room is packed. The room is warm and wet and alive in a way that has nothing to do with you.
+
+You close the panel. The sound it makes, when it seats, is the sound of a thing completing itself.

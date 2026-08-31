@@ -1,0 +1,19 @@
+# The Sunken District
+
+In the hazy distance, smokestacks rise from the murky waters like weathered sentinels, their iron skins flaking and corroded after decades of submersion. This is the Sunken District, once the industrial heart of a thriving city, now partially claimed by the encroaching warm waters of the inland sea. The heat is oppressive here—a constant 95 degrees, made worse by the humidity that hangs in the air like a tangible presence.
+
+The landscape stretches for several miles: a labyrinth of half-submerged factories, warehouses, and processing plants built of brick and rusted metal. Water laps at second-floor windows, creating gentle, rhythmic sounds that echo through the otherwise quiet district. Streets have become canals, their asphalt beds visible beneath two to four feet of tepid, mineral-rich water that gleams with an oily iridescence in the filtered light.
+
+Remarkably, no vegetation has reclaimed this place. The water's high mineral content and the residue of industrial chemicals have created an environment hostile to plant life. No algae blooms on the water's surface; no vines climb the weathered walls; no weeds crack through the exposed pavement. The only non-animal life exists as patches of ruddy-brown bacterial mats that cling to surfaces where water meets air, creating bands of color along the waterline of buildings.
+
+But what the district lacks in plant life, it makes up for with its teeming fauna. The warm waters and abandoned structures have become a sanctuary. Schools of small, silvery fish dart through submerged doorways. Crabs scuttle across the rooftops. Thousands of bats have colonized the upper floors of the taller buildings, emerging each evening in great spiraling clouds. Birds of every description—herons, cormorants, gulls, and species that seem to have evolved specifically for this strange habitat—nest in the metal frameworks and broken windows.
+
+The light here is perpetually subdued. The sun struggles to penetrate the combination of industrial haze from the few still-functioning factories and the constant low-hanging mist that rises from the warm water. This creates a twilight world of shadows and diffused amber light, where direct sunbeams appear as solid columns when they occasionally break through.
+
+Despite its partial abandonment, the district is not completely deserted by humans. A network of elevated walkways, constructed over the years from salvaged materials, connects the still-operational facilities. Workers in heat-resistant gear move between buildings, maintaining the massive water-pumps and generators that power the remaining industry. Their facilities stand as islands in the submerged landscape, the hum of machinery providing a constant undertone to the district's soundscape.
+
+The rhythm of life here follows the tides and the industrial shifts. When the tide recedes slightly, more of the district emerges—revealing the weathered cobblestones of old plazas and the rusted remains of streetlamps. When it rises, animals retreat to higher perches. When the factory whistles sound, marking shift changes, flocks of birds rise momentarily from their roosts, creating brief flurries of activity in the otherwise languid air.
+
+What's most striking about the Sunken District is the sense of equilibrium. Though born of industrial disaster and environmental change, a new balance has settled over this landscape. The buildings, though slowly deteriorating, have found a second purpose as habitat. The waters, though tainted, support a complex ecosystem. The remaining human presence, though diminished, continues with a stubborn persistence, adapting rather than conquering.
+
+In the distance, beyond the furthest flooded warehouses, the shimmer of a more conventional city can be seen—dry land where vegetation has been permitted to return. But here, in this strange intermediate zone, water and stone, animal and machine have reached their own understanding.

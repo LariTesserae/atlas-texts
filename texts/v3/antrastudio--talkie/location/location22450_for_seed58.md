@@ -1,0 +1,1 @@
+It is a small enclosed area, damper dimmer than average, sparse vegetation-dotted, below surface elevation, youthful, young sharps, densely layered, settlemented, industrial, quiet most, and animate minim.

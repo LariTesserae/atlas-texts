@@ -1,0 +1,13 @@
+A maintenance shaft plunges through layers of industrial infrastructure, its cramped diameter barely wide enough for a person to shimmy through. The shaft's walls sweat with condensation, gathering into rivulets that trace the spiraling seams between panels. This moisture feeds an ecosystem that shouldn't exist here, deep in the machine-heart of some vast facility.
+
+The darkness is near-complete, but movement is everywhere. Millipedes with bioluminescent segments process steadily along the walls, their blue-white glow reflecting off the damp metal in brief morse-code flashes as they pass behind pipes and conduits. Dense colonies of pale fungi sprout from every joint and seam, their mycelial mats forming living insulation around the warm pipes. The fungi pulse visibly as they respirate, their flesh translucent enough to show the flow of nutrients within.
+
+The air is thick and warm, heated by the machinery beyond the walls. Steam occasionally hisses through microfractures, adding to the tropical atmosphere. The constant drip of condensation provides percussion for the nearly subsonic thrum of distant engines, felt more than heard.
+
+Between the pipes, in spaces barely bigger than a fist, colonies of thumbnail-sized amphibians hunt even tinier arthropods. Their skin is translucent, showing dark organs beneath. They move with deliberate slowness, conserving energy in this resource-scarce environment. Webs of predatory fungi stretch between pipes, catching both insects and organic debris that drifts up from below.
+
+The shaft itself seems almost alive - not just with its inhabitants, but in the way the pipes flex and shift minutely with pressure changes, in the periodic shudders that run through the structure, in the way temperature gradients create slow currents of air that spiral upward. The whole space feels like the inside of some massive organism, though it's clearly manufactured - panels show stamped lot numbers, pipes bear fading warning labels, and occasional maintenance rungs protrude from the walls.
+
+This hidden ecosystem exists in a delicate balance with the industrial system that created it. The machines provide heat and moisture; the fungi and animals process waste and prevent corrosion. It's a pocket wilderness that emerged unplanned in the margins of human infrastructure, self-organizing into something between natural and artificial.
+
+The deeper you look, the more you see - layers of life in every crevice, complex food webs playing out in spaces barely bigger than your palm. It's an entire world in miniature, hidden in plain sight within the larger machinery of civilization.

@@ -1,0 +1,21 @@
+## The Belljar Antipodes
+
+You descend through bathwater-warm liquid that isn't quite water — too viscous, too alive with its own intentions. The medium carries light differently here, bending it into helical streams that spiral lazily downward like DNA strands made visible. Each photon takes its time arriving, sometimes doubling back on itself, creating a persistent echo of illumination where moments layer atop themselves like sediment.
+
+The space is impossibly small and infinitely vast. A cavity no larger than a cathedral's nave, yet within it distances fold and unfold according to their own grammar. Swimming ten meters might carry you three, or thirty, or deposit you exactly where you began but facing the wrong direction in time. The geometry breathes, though nothing moves.
+
+The walls — if they can be called walls — are fresh volcanic glass, still bearing the sharp conchoidal fractures of recent birth. They weep a continuous thunder, not of water but of pure percussion that propagates through the liquid medium as visible pressure waves. You can watch the sound approach in silver-blue rings, feel it pass through your bones with a deep thrumming that never varies in pitch or intensity. It has always been sounding. It will always be sounding.
+
+Scattered across the glass surfaces, small shelters have been carved or grown — you cannot tell which. Simple hollows like cupped hands, each no bigger than a bed, their edges worn smooth by impossible use in this young place. Inside some, you glimpse tools that shouldn't exist: a hammer whose head falls upward, a ceramic bowl that holds its own absence, a needle that sews with light. They've been abandoned for a thousand years. They were left here tomorrow.
+
+The rare creatures that inhabit this pocket are translucent and theoretical — more gesture than substance. A school of something like fish that swim through the glass walls as easily as the liquid, leaving brief frost-patterns where they pass. A single eel-form that exists in seven places simultaneously, each segment performing a different act: hunting, sleeping, decomposing, being born. They ignore you completely, or perhaps you're ignoring them — causality runs in loops here, effect preceding cause preceding effect.
+
+The warm liquid itself defies classification. In some places it's dense as mercury, in others thin as steam, yet the boundaries between these zones hold no meaning. You breathe it without drowning. You drown without breathing it. Both states coexist without conflict. Your lungs fill with bright copper-tasting atmosphere that is also water that is also the dissolved intention of some vast sleeping thing whose dreams crystallized into this pocket world.
+
+At the center — though center is negotiable here — a single column of absolute stillness rises from floor to ceiling. Not empty, but evacuated of possibility itself. The loud eternal sound cannot enter it. Light bends around it. The liquid refuses it. It is a place where nothing has ever happened and nothing ever will, a permanent apostrophe in the syntax of this reality. The primitive tools in their carved hollows all point toward it, or away from it, or both.
+
+Time moves through this space like sap through amber — present but irrelevant. The sharp volcanic glass never erodes because it was formed after entropy gave up. The thundering sound never echoes because each wave is the first wave, the only wave, all waves. The warm liquid maintains its temperature by borrowing heat from next Tuesday and lending it to last September.
+
+You could map this place perfectly and never map it twice the same way. You could stay forever and never arrive. You could leave immediately and discover you never entered. The Belljar Antipodes exist in the space between states, a young fossil, a liquid room, a primitive paradise built from the spare parts left over when physics was still learning to crawl.
+
+The sound grows louder without changing. The light brightens without increasing. The walls are closer than they were, and farther, and exactly where they've always been, sharp and fresh and impossibly ancient, weeping their eternal thunder into the warm, empty, infinite belly of this hidden sea.

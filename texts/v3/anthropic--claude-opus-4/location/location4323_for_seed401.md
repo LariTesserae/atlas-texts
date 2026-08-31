@@ -1,0 +1,17 @@
+The pocket exists between two factory walls where a broken pipe weeps ceaselessly. Perhaps thirty feet long, no wider than a maintenance corridor, yet here something impossible has taken root—a hidden world that shouldn't exist in the industrial quarter.
+
+Steam and condensation create perpetual twilight. The walls sweat constantly, their riveted metal surfaces furred with luminescent moss that pulses in slow waves, drinking the moisture and the strange chemicals that leak from hairline cracks. The moss grows in terraces, forming miniature hanging gardens that drip steadily onto the grated floor below.
+
+Through the grating, glimpsed between gaps in the moss, machinery churns in the depths—pistons hammering, gears grinding, the endless digestion of the factory's bowels. The noise reverberates up through the metal, making the air itself shudder. Yet somehow, impossibly, life thrives in this din.
+
+Creatures have evolved for this specific crevice. Copper-winged moths with bodies like ball bearings flutter between the moss terraces, their wings clicking against the metal walls. Translucent salamanders with visible clockwork hearts navigate the perpetual waterfalls, their skin crackling with stolen electricity. Things that might be mice or might be escaped components skitter along the pipes, trailing sparks.
+
+The vegetation is wrong—too lush for this poisoned space. Ferns unfurl from joints in the pipework, their fronds metallic at the edges, bleeding rust when torn. Flowering vines snake through the moss, their blooms opening and closing in time with the factory's rhythm, exhaling spores that taste of motor oil and honey. A young tree—surely it can't be more than a year old—has somehow rooted in the accumulated sediment, its bark smooth and silvery, its leaves shaped like gears.
+
+The water changes everything it touches. Where it pools, the metal floor has begun to crystallize, growing sharp geometric formations that hum with their own frequency. The crystals are young, jagged, still forming—you can hear them growing if you listen carefully, a sound like ice cracking in reverse beneath the industrial roar.
+
+Sometimes the pocket shifts. The walls groan and the space narrows or widens by inches. The moss rearranges itself. New pipes burst through from hidden dimensions, weeping new fluids that smell of tomorrow's rain. The creatures adapt instantly, as if they've always known this configuration.
+
+The air tastes thick—humidity mixed with machine oil, the green smell of aggressive growth, the copper tang of electricity bleeding from exposed wires that snake through the moss like veins. Everything is too close, too alive, too loud. The factory's heartbeat thrums through every surface, yet somehow this secret ecosystem has learned to dance to that brutal rhythm, transforming industrial waste into something fevered and verdant and strange.
+
+At night—if there is night in the eternal twilight between these walls—the moss glows brighter, and you can see through the grating to other pockets, other hidden spaces where the city's machinery has accidentally birthed impossible gardens. They flicker like windows into parallel worlds, each one a different experiment in what life becomes when it's forced to grow in the spaces industry forgot to claim.

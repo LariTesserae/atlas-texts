@@ -1,0 +1,25 @@
+# The Underglade
+
+It is a sinkhole, though no one alive remembers it forming, and the limestone walls still wear the raw, unweathered look of a wound only decades old — pale, sheer, sharp at the lip where the surface world broke open and swallowed this pocket of itself. You enter by stair or by rope-lift, descending past the throat of exposed rock into a bowl perhaps the size of a small town square stacked three or four stories deep. The air thickens as you go. It is the first thing anyone notices: heat that climbs rather than falls, pooling at the bottom like something poured.
+
+## Ground and Growth
+
+The floor of the Underglade is packed earth gone dark with mineral runoff, and on it grows a vegetation that has never seen direct sun — broad, rubbery leaves the color of old bruises, stalks that climb the walls on a lattice of pipe and scaffold because there is no room to spread sideways. Everything here grows *up* before it grows *out*. Vines have colonized the undersides of catwalks. Moss furs the cooling-jackets of machines that have run so long their housings have gone soft and green at the seams. Water doesn't fall so much as condense — it beads on cold metal, drips in slow arrhythmic patterns from pipe-joints and root masses, collects in shallow basins cut into the stone, and is rationed, channeled, fought over in small civil ways.
+
+There is no room to spare. This is the governing fact of the place. Structures are built into and onto and through each other — a forge sharing a wall with a hydroponic shelf, a dwelling stacked atop a turbine housing, walkways threading between vat and vine because there was nowhere else to put them. The density reads less like crowding and more like geology: as if the buildings grew here the way the moss did, filling every available volume because volume itself is the scarce resource.
+
+## Light and Sound
+
+Light comes dim and indirect — strings of caged bulbs running off groaning generators, the orange throb of a furnace seen through a grate, a high pale wash from the sinkhole's mouth far overhead that reaches the floor only as a memory of daylight, gray and diffuse. Shadows here are not sharp; they're soupy, layered, accumulating in the spaces between machines and leaves until the whole lower register of the place reads as a kind of textured dark.
+
+It is, against all expectation, mostly quiet. The packed density doesn't translate to noise — the heat seems to dampen sound the way it dampens motion, so that the dominant register is a low mechanical breathing: distant pistons on a slow cycle, the drip of condensate, the occasional creak of green wood settling against rusted steel. People speak in the volume of those who've learned that sound carries strangely in a bowl of stone and leaf. Voices flatten. Footsteps on wet metal click and are swallowed.
+
+## The Machines
+
+The tech here is industrial in the old, patient sense — boilers, belt-drives, geared lifts, a foundry whose chimney threads up through a fissure in the rock to vent somewhere on the surface, unseen. Nothing is electrified beyond the bare bulbs and a few instruments; the engines are iron and brass and they run hot and slow, in keeping with everything else. Maintenance is constant and unhurried. Crews move along the scaffold-lattice tending machinery the way one might tend a garden — because, increasingly, the two have become the same task. Roots grow into bearings. Steam softens wood into something like bark. The engineers here have stopped fighting this and started building around it, training vines along structural members, letting moss insulate a pipe rather than scraping it clean.
+
+## What Lives Here
+
+Fauna is scarce, almost absent — the occasional pale insect drawn to a bulb, something that might be a rat-analogue heard but never quite seen threading the spaces behind the wall-panels, the rumor of larger things in the deepest, unlit tier where the machines stop and the original cave resumes. Mostly it is people, and their crops, and their machines, and the slow vegetable encroachment of everything green.
+
+The strangeness of the place isn't loud. It's structural. It's in the way the sinkhole's freshness — those sharp, young, unworn walls — sits underneath a settlement that feels old in its habits, its patience, its slow accretion of pipe and root and brick, as though the people arrived already weathered into this rhythm, already knowing how to live in a bowl of heat and shadow before the bowl had finished forming around them. It's in the condensation that drips on a schedule no one quite explains. It's in the way sound pools at the bottom of the shaft like the water does, and in the way newcomers report, after a few days, that they've stopped hearing the engines at all — that the engines have become a kind of held breath, a thing the whole Underglade does together, slowly, in the dark.

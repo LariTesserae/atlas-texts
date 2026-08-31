@@ -1,0 +1,33 @@
+# The Hollow in the Canopy
+
+High on the shoulder of a mountain whose name no one now remembers, there is a place where the forest has grown so thick it has become architecture. Miles of moss-furred trunk and rope-thick liana, fern crowns stacked on fern crowns, layers of leaf so dense that from below the sky is a rumor and from above the ground is a myth. The forest is its own country. It has been here a long time — long enough that certain trees have begun to lean on each other like old friends and fuse at the shoulders, long enough that the wind has carved soft corridors through the upper galleries, long enough that everything unnecessary has been worn away and what remains is settled, weathered, in balance with itself.
+
+And somewhere inside this green mass, perhaps two-thirds of the way up, there is a room.
+
+Not a room anyone built, though someone once tried. A hollow. A pocket. Where three enormous trunks have grown together and then apart again, leaving a chamber roughly the size of a chapel, open at the top to a single vertical shaft of light that comes straight down through the canopy like a held breath. The light is extraordinary — filtered through so many leaves above it that it arrives already green-gold, already sanctified, and it pours into the hollow and fills it the way water fills a cup. All day the beam moves a few degrees. All day the hollow is bright.
+
+The chamber itself is nearly empty. That is its strangeness. Outside, the forest is chaos — riot — every cubic inch spoken for by root or frond or climbing thing — but inside the hollow, for reasons no botanist would accept, almost nothing grows. The floor is smooth bark-wood polished by centuries of something. A few pale lichens. A cup of moss here and there. The walls curve upward, living, breathing slowly with the weather, but the air between is open. You could walk ten paces in any direction. You could lie down.
+
+Someone did, once. Against the far wall there is a small stone cairn, waist-high, with a shallow bowl carved into its top stone — a rain-catcher. In the bowl, when you visit, there is almost always a little water, because up here the mist comes through in the mornings and condenses on every leaf and drips down through the shaft, and the bowl catches what the shaft delivers. Beside the cairn: the remnants of a wooden bench, collapsed, half-returned to soil. A clay cup, unbroken. Nothing else. Whoever made this place has been gone for generations. The forest has respected their work without quite understanding it.
+
+But the hollow is not quiet, and this is what stops the breath of anyone who climbs into it.
+
+It is full of birds.
+
+Not within the hollow itself — the hollow remains empty — but all around it, in the living walls, in the canopy above, in the galleries below, the fauna is total. Thousands upon thousands of birds, and the particular wild feeling of the place comes from the fact that they are constantly in motion, a weather of wings, shifting and reshuffling, launching and landing, a hurricane of small bodies held just outside the chamber's threshold. Tanagers, honeyeaters, tiny iridescent things with no name. Troops of monkeys move through the high branches and send whole flocks up at once in green-and-red explosions. A hornbill passes overhead and the light stutters. The canopy churns. The hollow holds still at the center of it all, like the calm eye, like a held note inside a symphony.
+
+And yet — and this is the other strangeness — the hollow is mostly quiet. Sound does something odd here. The curved living walls absorb most of it. The shaft above swallows the rest upward. So the thunder of ten thousand wings arrives as a hush, a distant susurrus, the noise of a sea heard from far inland. You can hear your own breathing. You can hear the drip of condensation into the stone bowl: *tok. tok.* You can hear, occasionally, a single bird-call come straight down the shaft as if delivered specifically to you, clear as a bell, and then gone.
+
+The temperature is cool. Up this high the air has a thin clean edge to it even at midday, and inside the hollow it is a few degrees cooler still, because the shaft vents heat upward. If you sit against the wall the living wood is faintly warm against your back — the tree is alive, after all, it has its own slow temperature — and the air in front of you is cool, and the contrast is one of the quiet pleasures of the place.
+
+It rains sometimes. Not often, and never hard inside the hollow — the canopy breaks most of what falls — but a soft intermittent dampness comes through, beading on the moss, darkening the bark. The stone bowl fills. Everything in the hollow has the slightly glossy look of a thing that has been wet and is drying. The smell is of wet wood and green leaf and something faintly mineral from the stones, and underneath all of that the hot sweet animal smell of a forest absolutely stuffed with living things, drifting in from outside.
+
+The rules of the place, as far as anyone can discern them:
+
+Birds do not enter the hollow. They pass over it, they perch on its rim, they nest within inches of its inner wall, but they do not cross into the volume of air it contains. Whether this is because the geometry confuses them, or because the person who built the cairn made some bargain with the forest, or because the hollow simply *is* the empty place and birds are full places and the two do not mix — no one can say.
+
+The water in the bowl is always fresh. Even when the rains have not come for weeks. This is probably condensation, probably the shaft, probably nothing miraculous. Probably.
+
+And the light holds. Whatever the weather does outside — and the weather up here is turbulent, storms boiling up the slopes most afternoons, the canopy thrashing, the birds scattered into chaos — inside the hollow the shaft of light continues to descend, softened perhaps, silvered perhaps, but present. The canopy is so deep that storms happen at a different altitude. The hollow exists beneath the weather, inside the forest's own internal sky.
+
+It is a small place. You could miss it entirely, climbing past. Most do. The forest is vast and the hollow is the size of a chapel and the mountain does not advertise it. But if you find the right confluence of trunks, and pull yourself up through the fern-curtain, and squeeze through the gap where the three trees once parted — you come out into the stillness, and the green-gold light, and the distant weather of wings, and the stone bowl with its mouthful of clean water, and the cup beside it waiting to be used.

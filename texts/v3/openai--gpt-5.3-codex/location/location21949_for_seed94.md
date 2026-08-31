@@ -1,0 +1,29 @@
+At first it seems like a single mountain range in rain, and then it keeps unfolding until you realize it is not a range at all, but a whole high country: a lifted, weathered continent of plateaus, drowned saddles, and long-backed ridges where cloud and ground are almost the same thing.
+
+The rock is old. Not jagged-young, not volcanic drama—worn basalt, dark schist, pale ribs of granite rubbed smooth by ages of freeze and thaw. Slopes have settled into their final grammar: broad shoulders, rounded breaks, ravines that know exactly where to be. Water has had a long time to negotiate with stone here, and won without violence. It seeps, beads, spills, and hangs. Cliffs weep from a thousand hairline fractures; ledges grow curtains of moss that drip even in clear weather. The water table is so close to the skin of the land that almost every footfall, if there were feet, would wake a shine.
+
+It is high enough that air stays cool even under full daylight. Not bitter, but sharp and clean, with that thin metallic edge that comes from altitude and constant wet rock. Breath would plume in mornings. By afternoon the sun is ordinary and white, never theatrical, but there is always vapor somewhere: valley fog pooled in bowls, torn cloud dragged through conifer crowns, condensing beads on needles and reeds. Rain comes often, rarely as a stormfront; more often as weather being born in place. One ridge steams. Another drizzles. A nearby basin is suddenly under a soft, private downpour while the next one over is clear.
+
+Nothing is empty. That is the first real law here.
+
+Every surface is occupied: boulder faces lacquered with lichen mosaics, then overlaid with liverwort and thread-moss, then crossed by roots. Soil, where it exists, is a woven thing—peat, mycelium, root hair, insect tunnel, standing water. Even open water is crowded: sedge rafts, floating pollen films, diving beetles, amphibian eggs in clear gel ribbons. Fallen trunks do not lie bare; they become low green districts of fungi, ferns, and nursery saplings before the bark has finished loosening.
+
+Vegetation is lush but compressed by cold and wind into dense, layered forms. Forests are stunted in height and immense in thickness—black conifers twisted by weather, canopies knitted with wet needles, understories of broad-leaf shrubs and giant horsetails in seep corridors. In flatter high basins, the forest opens into marsh meadows bright with rushes, dwarf willow, and flowering plants that bloom fast in brief warm windows. On exposed ridgelines, growth lies close to the ground: cushion plants, creeping juniper, red-brown mats of sedum that hold water like living felt.
+
+From far above, this place looks less like wilderness and more like production at colossal scale. Not built production—no walls, no roads, no cut lines, no artifact anywhere—but process everywhere, relentless and organized.
+
+Water is lifted, condensed, harvested, and released in loops. Mineral-rich seepage runs through iron-bacteria beds that stain channels orange and black; algae films thicken and peel; peat swells and stores; fungi break wood into dark humus; roots pump that humus upslope in living capillaries. Lightning favors certain ridges where wet stone and upright trees make natural conductors; after strikes, nitrates pulse into the basin soils and bloom cycles accelerate. Entire valleys function like quiet refineries, turning rock and cloud into biomass. You can feel an industrial logic without seeing a single machine.
+
+Fauna is equally abundant and equally packed into niches.
+
+Herd animals graze the sedge plains in shifting groups, broad-hoofed for bog ground, moving in slow arcs that keep to the firmer hummocks. Small predators thread reed tunnels and root galleries, nearly invisible except for ripples in standing water. Above the canopy, heavy-winged scavengers circle thermal seams where cold air meets sun-warmed rock. Amphibians crowd every pool margin. Insects rise in low swarms at dusk, then vanish as quickly when mist thickens. Nothing here behaves theatrically; life is busy, constant, and economical, as if every species has learned to work within narrow weather windows and never waste motion.
+
+And yet it is quiet.
+
+The density swallows sound. Moss damps impact. Fog shortens distance. Even running water is usually muffled by vegetation before it can become a roar. What remains are close sounds: drip onto leaf, reed-stem knock, the small suction of mud releasing trapped gas, wingbeats like cloth, distant throat calls from unseen animals. Sometimes, far below, there is a periodic stone-deep thud where a saturated slope settles by centimeters. It is the only bass note in a mostly hushed world.
+
+The unusualness is subtle and accepted by everything living there. Certain groves glow faintly blue-green at twilight where fungal webs pulse under bark. Some marsh pools carry a permanent skin of silver bacteria that mirrors the sky too perfectly, making depth hard to judge. On dry days, static gathers along grass heads and fur; animals avoid ridgelines before lightning as if reading electric weather directly through their bodies. Rivers occasionally vanish into porous lava shelves and reappear kilometers away already filtered, colder, and rich with dissolved minerals, creating sudden bands of intense fertility that move as channels shift.
+
+So the landscape is never still, though it looks settled. Clouds form and collapse. Slopes creep. Channels braid and unbraid. Herds rotate grazing grounds. Predators map them. Bloom, rot, seep, freeze, thaw, bloom again.
+
+A vast high wet engine, old and self-maintaining, with no builder and no ruin—only processes layered so densely that “wild” and “industrial” are no longer opposites, just two words for the same continuous work.

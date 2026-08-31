@@ -1,0 +1,30 @@
+## The Stillstone Vale
+
+Perched at the roof of the world, where the sky thins to a bruised purple, there exists a place forgotten by the gradients of time: the Stillstone Vale.
+
+It is not a valley in any conventional sense, but a fracture. A single, sheer-walled bowl bitten from the flank of a primordial peak, its rim a jagged crown of black basalt three kilometers above the cloud sea. The air here is cool and sharp, carrying a permanent, metallic chill that settles into the bones. Light is a dim, diffuse currency, filtered through a perpetual high-altitude haze and the dense, interlocking canopy above, casting the world in tones of deep green, grey, and twilight blue.
+
+**Terrain & Materials:**
+The floor of the Vale is a single, continuous carpet of life, but life of a strange order. There is no soil, only a deep, resilient sponge of root-matter and solidified sap, covering ancient, water-smoothed stone. The rock itself is dark, volcanic glass, worn not by rivers but by eons of abrasive wind and the chemical weeping of the flora. Scattered throughout are smooth, monolithic hummocks of stone, like the backs of sleeping giants, their surfaces polished to a dull sheen. This is an established landscape; every curve, every hollow speaks of immense, patient age, having settled into a state of perfect, unmoving balance.
+
+**The Vegetation – Lush Without Water:**
+Water, as the universe knows it, does not exist here. Not as liquid, not as ice. The lushness is fed by something else: **Vapor**. From a thousand hairline fissures in the stone floor and walls, a thick, heavy mist seeps upward. It is not steam, but a mineral-rich, slightly luminous gas—the **Aether-ichor**. The flora of the Vale has evolved to drink this directly.
+
+The forest is **packed**, saturated to the point of claustrophobia. There is no *between*. Bulbous, rubbery **Sacculeafs** grow in overlapping mounds, their surfaces covered in microscopic, hair-like filaments that absorb the vapor. Between them, towering **Spire-Reeds** shoot up twenty meters, their hollow, jointed stems whistling softly in the wind. Thick, cable-like **Creepervines** weave everything into a single, inseparable mass, their surfaces hard and lacquered. The most dominant species are the **Stillwood Trees**. Their bark is like polished ironwood, and instead of leaves, they hold out millions of needle-fine, crystalline filaments that condense the Aether-ichor into a viscous, sap-like energy source. These filaments glow with a faint, internal bioluminescence—the primary source of the Vale's dim, haunted light. The colors are deep emerald, bruised violet, and iron-grey. Nothing decays; fallen structures are simply incorporated, overgrown, and preserved in the static equilibrium.
+
+**Atmosphere & Sound:**
+The air is thick with the smell of ozone, damp moss, and a sharp, almost alcoholic tang from the vapor. The **sound** is **loud**, constant, and layered. It is not a living cacophony, but an industrial drone of nature: the deep, subsonic **hum** of the earth vents exhaling the Aether-ichor. The high, keening **whistle** of wind through the Spire-Reeds and across the vale's rim. The low, tectonic **creak** of the Stillwoods, their immense structures settling but never truly moving. It is a symphony of stasis, a permanent white noise that blankets all else.
+
+**Ecology & Rules:**
+There is **no animal life**. No insects, no birds, nothing that moves with intent. The ecology is purely botanical, but it is not passive. The plants are engaged in a silent, frozen war for access to the vapor vents. Growth is not a process of becoming, but of *holding*. A plant that secures a fissure will maintain its position, unchanging, for millennia. Reproduction is rare, a seismic event triggered only when a vent clogs or a Stillwood falls—events that may happen once every few centuries. Then, in a violent, silent burst, spores or runners will erupt to claim the new territory, before everything locks back into equilibrium.
+
+Death, too, is different. A plant that is deprived of vapor doesn't wilt; it **vitrifies**, turning into a glassy, fossilized statue that remains standing, part of the dense, packed architecture of the place.
+
+**Built & Tech – Scattered Industrial:**
+Scattered through the understory are the **remains**. Small, windowless structures of corroded steel and pitted concrete, half-consumed by the relentless flora. They are mining outposts or research stations, built by someone who sought to harvest the Aether-ichor or study the timeless ecology. Their technology is **industrial**, not digital: rusted pump housings, great fan blades frozen solid, networks of pipes now serving as trellises for Creepervines. A few still have power, drawn from geothermal taps. Their lights—cold, flickering halogens—create tiny pools of stark white in the bioluminescent gloom, and their machines emit a rhythmic, grinding clank that adds another layer to the soundscape. They are not maintained; they simply persist, like everything else, in a state of arrested failure.
+
+**The Weirdness:**
+The strangeness is in the details. The vapor sometimes coalesces into brief, shimmering shapes—phantom fronds or geometric patterns—before dissipating. The light from the Stillwood filaments sometimes pulses in slow, synchronized waves across the vale, for no discernible reason. Time feels not slow, but **absent**. A visitor could watch for hours and see not a single leaf tremble, not a single shadow shift, only the unending hum and glow. It is a pocket universe that has reached the end of its equation and now simply *is*.
+
+**In Summary:**
+The Stillstone Vale is a lush, breathing machine made of plants and stone, humming on a mountaintop. It is a sealed, hidden room where the rules of fluid and time have been rewritten. It is loud, cool, crowded, and utterly, profoundly still. To walk here is to walk through a forest that is also a museum, a factory, and a mausoleum, all operating on a fuel that is not water, toward an end that does not change.

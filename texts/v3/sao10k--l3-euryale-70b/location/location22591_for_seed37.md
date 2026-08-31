@@ -1,0 +1,21 @@
+A tranquil pocket dimension, hidden in the furthest reaches of reality. The terrain is cool and damp, like a cavern that rarely sees the sun. Condensation clings to the stone walls and ceilings. The only sound is the gentle dripping of water echoing in the emptiness.
+
+Vegetation is sparse, but lush in its arboraceous way, like seaweed clinging to a sunken hull. Bioluminescent plants flicker and pulse hypnotically in shallow pools. Their soft glow illuminates fungal growths in pastel hues of violet, magenta, azure. The colors shift and breathe like living mineralogy.
+
+Tween monolithic boulders, frigid streams wind and branch like the roots of an inverted tree. Droplets dangling from jagged stone edges unfurl into gossamer wings, alighting like moths in the darkness. The air is heavy with diaphanous flocks, suspended in crystalline suspension, refracting the weak light into spectral symphonies.
+
+Iridescent spores swirl and eddy on unseen currents, settling in slow whirlpools. Striated portals in the bedrock yawn open, exhaling saline mists that rush across the floor like ghost rivers. Electrostatic crackles dance from rock to rock, discharging in fractal bursts of rose and amethyst lightning.
+
+Cascading waterfalls of quicksilver spill from hovering boulders, pooling into tidal lagoons that chap with inverted aquafoams. Ferns of liquid gold wave and undulate like antediluvian seaweed in the shifting currents. Colonies of luminous hyphae march up stalactite thrusts like ethereal armies, pulsing in aquamarine unison. 
+
+A mind-bending vertigo seizes the viewer. The topography undulates and wriggles as perspectives invert, gravity vectors twisting through impossible quadrants. It's unclear where the cavern roof ends and the floor begins. Localized whirlpools in the gaunescent mires burble and roil, like windows into parallel sterilescapes.
+
+In a hallucinogetic vale, colossal fossils loom from the vapor-mists - the skeletal remains of reality-bending krakens from a pre-archaic aeon, wreathed in strings of glowing motes and dangling stalagmites. Phosphorescent slime clots the cavities of the lurid bones, oozing and advancing in gelid rivulets. Transmutative moss swaddles the inert remains in mulching gyroscopic fur. to form surreal montrosities drenched in telluric radiance.
+
+The numb-brain sylphs and weightless willows tremble and stuter in the sighing warpped air. The terrain surfaces wobble fluidly and writhe in algid pneumonia. The very stone is animate, haunted by fabulose figments and viscous ghosts. Telegaucy portals in the bedrock gobble and regurget ethereal miasmas. Ellef thunders off the scribing pleum, shattering into amnemonic spropoda. Reality threshes and threshes in the flause tide.
+
+The dimension fumes and shivers, birthing and devouring æons-blind convolutions of counterçycle storpions with each gnomon spasm. Ammons of amonite glín scatter and coalesce like red goldhskins from the sigassemble熟 potential through indeverstrate latticeworks. Rasp yuks of indigestiony wellness toothaccordion into the toxissors, diarlhymnsic ambiance dripping from every emauroid vapourwake. the untwhurls beyond unawnation, differing the whole storp from an undrevasse enematiculon vorpse 
+
+The entire realm writhes in chromacastic paraplegia, adhering to causality only through unigravitic spooky action at a distance. Pointers cascade like coldblock cement in the dihydric murk, furtling into bourgeois bioliths that decodify and crystallograph. Only a ämarine observer in a parallel storp объemma could persevere this margin of æthereal permanence. Let us fade to нулладер yet again.
+
+The hidden dimension pulses and melts between æons in an undercurrent of nullity, haunted by phantasmagoric echoes of what may yet be and what has never yet ≠been., perpetually reining its crumbling husk from the actless ether. Only the maddest of madmen would dare pierce the sphear of moteless profoundity and view its shirling decoupledom with bare éyes - thus our passage сеnds.

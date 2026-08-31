@@ -1,0 +1,21 @@
+# The Suspended Terraces of Shai-Vos
+
+A whisper of a place, almost invisible until you know how to find it: Shai-Vos clings to the sheerest face of Mount Kasantir, its countless narrow terraces stacked impossibly high along the vertical rock. From a distance, the settlement appears as nothing more than an irregular discoloration on the mountain's eastern face, a dark smear against grey stone that seems to shimmer when clouds pass.
+
+The terraces are new—geologically speaking. Barely two decades have passed since the quantum excavation machines began their work, carving platforms mere meters wide into the near-vertical cliff. Each terrace is linked to others by a labyrinthine network of narrow stairways, some so steep they require handholds. The rock still bears the crystalline patterns of recent cutting, edges not yet softened by weather or time.
+
+Moisture seeps constantly from the mountain's heart. Not enough to form proper streams, but sufficient to create a perpetual dampness that collects in shallow basins carved into each terrace floor. From these reservoirs grow the dense gardens of Shai-Vos—thickets of engineered vegetation that thrive in the low light conditions. The plants grow rapidly upward and outward, their broad leaves competing for what little sunlight filters through the perpetual mountain mists. Their trunks and stems press against one another, a silent battle for space leaving no ground unclaimed.
+
+The plants emit a faint bioluminescence—blue-green tendrils of light that provide much of the settlement's illumination. This ghostly glow bathes everything in subdued, shifting patterns as the vegetation sways in occasional breezes. The effect is mesmerizing, a rippling ocean of light suspended in air.
+
+Between the dense vegetation rise the habitation pods—small, geodesic structures crafted from a material that appears like burnished copper but behaves more like living tissue. These dwellings respond to their occupants, walls thinning to transparency or thickening for privacy, reshaping their interiors based on unspoken needs. Some have begun to merge with the vegetation, plant stems and leaves incorporating themselves into the architectural elements in ways that suggest collaboration rather than invasion.
+
+The most remarkable features of Shai-Vos are invisible: microfilament networks running through everything—rock, plant, dwelling—knitting the settlement into a unified system. These semi-sentient threads maintain structural integrity, regulate moisture distribution, and facilitate communication between the settlement's components. The entire place functions as a single organism, still in its infancy, still learning what it means to exist.
+
+Sound here is muffled by the vegetation and the ever-present moisture. Occasionally, you might hear the soft hiss of a pneumatic transport capsule arriving or departing through the tunnels that connect Shai-Vos to the world below. More often, there is only the gentle rustle of leaves and the almost imperceptible hum of the microfilament network—a sound felt more than heard.
+
+Time passes differently in Shai-Vos. The settlement grows incrementally, new terraces being carved higher up the mountain face as the existing ones become fully integrated into the collective system. The quantum excavators work slowly, their progress measured in centimeters per day. The vegetation expands at a similarly unhurried pace, though still faster than natural plants would grow.
+
+No animals dwell here—by design. The fragile balance of Shai-Vos cannot yet accommodate complex fauna. The only movement comes from the occasional human inhabitant navigating the narrow pathways, the subtle shifts of the responsive architecture, and the gradual reach of growing plants.
+
+Shai-Vos exists in a perpetual state of becoming—neither fully formed nor merely conceptual. It is a whispered conversation between human ingenuity, mountain stillness, and vegetative persistence. A place suspended between what was and what might be, held in the slow embrace of forces still learning each other's names.

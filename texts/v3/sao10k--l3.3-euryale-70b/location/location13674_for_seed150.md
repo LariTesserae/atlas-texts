@@ -1,0 +1,11 @@
+Luminous, glacial waterfalls cascade down the rocky slope, catching the dim, low-angle light that filters through the dense canopy. The sound of rushing water fills the air, punctuated by the distant rumble of thunder. The climate is cold, with frost coating the rocks and the thick, crystalline water.
+
+Mist rises from the waterfall's base, creating a perpetual veil that obscures the surrounding landscape. The terrain is young and sharp, with jagged rock outcroppings poking through the dense foliage. The ground is slick with moisture from frequent rainfall and condensation, making every step precarious.
+
+The vegetation is total, with massive, gnarled tree roots traveling like veins across the rocky terrain, while foliage hangs thick and heavy in the air. Some of the trees tower high above, their thick, column-like trunks supporting a roof of delicately-laced twigs and leaves. The air is heavy with compact, wet earth and the sweet scent of fresh snow, making it humid and hard to breathe.
+
+The landscape is small, confined by the rocky outcroppings and the mist that shrouds the surrounding area. The density of the foliage is oppressive, with vines and creepers snaking up every available surface and curtains of vines or masses of epiphytes filling the air. Roots and trunks create a sturdy and thick foundation, giving the sense that the landscape itself is alive.
+
+The area is urban in the sense that it is thickly settled by the forest, with each plant and tree filling a specific niche and providing for many different types of life. It feels like a natural city, with the waterfalls serving as both water source and monument to the land and its history. The sound of birdsong and rustling in the underbrush fills the air, giving a sense of alien life to the area.
+
+The environment is fully organic, with nothing interrupting the view or the soundscape. The climate is dynamic and active, with water noises and the faint echo of distant calls filling the air. A lightning flash illuminates the mist, revealing labyrinthine water flows, tall columns and wide walkways of rough, peeling bark, and native architecture that could be rooted or mere lichen, calling to the timeless aspects of plants.

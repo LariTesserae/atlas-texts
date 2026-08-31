@@ -1,0 +1,17 @@
+The air hangs thick and cool, heavy with moisture that beads on every surface. Condensation drips constantly, a slow, insistent rain within the enclosed spaces. This isn’t a natural cave, but an interior – a vast, low-ceilinged room carved from some dull grey stone. The scale is disorienting; you could fit a small village in here, but the roof presses down close, making it feel cramped.
+
+It's a place of echoes. The drip, drip, drip of water amplifies, blending into a constant susurrus. But other sounds rise above that: the skittering of countless legs, the rustling of unseen things in the shadowed corners. The fauna *is* abundant, of the small and scurrying variety. Imagine a thousand tiny clocks ticking, each a beetle or a spider or some creature unseen, moving across the damp stone.
+
+This is a built environment, though "built" feels too strong a word. "Excavated and modified" might be closer. The stone walls are smooth in places, roughly hewn in others. Crude carvings decorate sections, geometric patterns that seem almost organic, like the branching of roots or the veining in a leaf. The tools that made them were simple: hammer and chisel, perhaps, wielded with a patience that stretches back generations. This place feels old, deeply weathered, as if it has been in this state of slow transformation for centuries.
+
+Despite the cool temperature and gloom, there's a sense of intense activity. This is no stagnant ruin. Water trickles along deliberately carved channels in the floor, forming shallow pools that teem with life. Tiny, bioluminescent organisms pulse with an ethereal light, casting a faint, shifting glow across the lower reaches of the room. The walls themselves seem to breathe, covered in a thin film of algae and lichen that provides sustenance for the teeming creatures.
+
+The sparse vegetation consists primarily of fungi. Grotesque, bulbous mushrooms sprout from cracks in the stone, their caps a sickly yellow-green. They release spores into the damp air, adding to the already oppressive atmosphere. There are also patches of pale, translucent moss that cling to the walls, drawing sustenance from the moisture.
+
+The weirdness permeates everything. It's not just the strange combination of underground dampness and crude construction. It's the feeling that this place is actively being shaped, not by grand design, but by the slow, relentless work of tiny hands and the patient erosion of time and water. It's the unsettling sense that every creature here has a purpose, a role in this strange, enclosed ecosystem, and that you, the observer, are an intruder, a glitch in the system.
+
+The sounds magnify that feeling of intrusion. Scrabbling turns to clicking, clicks to hisses, rising and falling around the room. An ecosystem in overdrive, tiny predators chasing tiny prey, life eating life in miniature, played through countless generations in a room where nothing rots and everything is recycled.
+
+The darkness is full of eyes if you wait still enough. The world is reduced to the single point where those eyes rest on you, and the wet cave is a theatre built to amplify tiny sounds.
+
+There are places in the stone where the water runs faster, the growth is thicker, the sound louder. It is easy to imagine this place has a heart.

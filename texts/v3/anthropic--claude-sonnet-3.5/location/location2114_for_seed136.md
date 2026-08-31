@@ -1,0 +1,17 @@
+In the heart of a vast expanse lies the Arboreal Metropolis, a sprawling urban ecosystem where the line between nature and technology blurs into an intricate tapestry of life. This strange, cool realm defies conventional understanding of city and forest, melding the two into a singular entity that pulses with quiet energy.
+
+The foundation of this world is not earth or stone, but a dense mat of intertwining roots, vines, and mycelial networks. These form a living substrate that stretches for miles in every direction, creating a low-lying landscape that undulates gently like a green sea frozen in time. The surface is young, its features sharp and defined, as if the entire ecosystem had recently erupted from some hidden seed deep below.
+
+Towering above this organic foundation are the city-trees: colossal plant structures that serve as both natural growths and engineered habitats. Their trunks, as wide as city blocks, are riddled with windows, doors, and balconies. Elevators of woven vines and pulleys transport inhabitants and goods up and down these living skyscrapers. The branches interlock overhead, forming a canopy that serves as an upper level of the city, complete with suspended gardens and aerial walkways.
+
+Despite the lush vegetation, there is a notable absence of water. The plants have evolved to be incredibly efficient, recycling moisture in a closed system. Thin, silvery tubes run throughout the city-trees, carrying precious water and nutrients in a highly regulated flow. The air is cool and slightly dry, with a faint, sweet scent of photosynthesis perpetually hanging in the atmosphere.
+
+Amidst this verdant expanse, there are clear signs of industrial development. Factories are seamlessly integrated into the larger plants, their machinery quietly humming as they process the abundant plant matter into various products. Solar panels are woven into broad leaves, capturing energy to power the city's needs. Pipelines of hollow vines carry sap-like fuels and lubricants throughout the metropolis.
+
+The entire ecosystem thrums with an eerie vitality. In the absence of animal life, the plants have developed complex mechanisms for movement and interaction. Tendrils reach out to make connections, leaves unfurl to reveal intricate circuitry, and flowers bloom to release clouds of spores that carry information and resources throughout the city.
+
+The soundscape is surprisingly subdued. The rustle of leaves and the soft whirr of machinery blend into a low, constant murmur. Occasionally, this quiet is punctuated by the deep, resonant tones of the largest plants communicating through their root systems, sending vibrations that can be felt rather than heard.
+
+As day turns to night, bioluminescent flowers and fungi ignite, bathing the city in a soft, ethereal glow. The light reveals the constant motion of the city - leaves adjusting their positions, vines creeping along surfaces, and machinery shifting to accommodate the changing needs of the plantscape.
+
+This is a place of perpetual growth and adaptation, where the boundaries between natural and artificial have long since dissolved. The Arboreal Metropolis stands as a testament to the strange possibilities that arise when vegetation is left to evolve and flourish in the absence of other forms of life, creating a world that is both alien and somehow deeply familiar.

@@ -1,0 +1,31 @@
+It is not a cave, not really. It is where the surface gave up.
+
+A long time ago the limestone sagged and then dropped, a perfect, almost shy collapse — not wide, maybe thirty meters across at the lip. From above you would miss it under the scrub. The jungle floor just ends. From below, you never see the sky whole.
+
+You climb down, because there is no other way in. The walls are not walls but old earth cut clean and then softened again by time: pale, pitted limestone gone amber and green and black with water-stain, living rock in the truest sense. The erosion here is not violent. It is settled. Everything that could fall has fallen. Everything that wanted a shape has found it. Undercut ledges like shelves, shallow bowls where water has worried the stone for centuries into drinking cups, roots as thick as your thigh that left the sun a long time ago and now hang straight down fifty feet, not touching the bottom, just hanging, drinking the air.
+
+It is much hotter down here than it should be. The heat gets in in the late afternoon as a solid column of light and then cannot get back out. It stays all night. The air is weighted, damp in a way that is not wet — not a swamp, not a river. The stone sweats. The air sweats. In the morning the condensation beads on every surface, on every leaf and every cold spot of rock, and runs in slow, bright lines down to join the other dampness. By noon the pockets steam. 
+
+Light comes in broken. One ragged hole straight above, half-laced over with strangler figs and hanging vines, lets in a shifting pillar of dusty gold that never reaches the floor directly. It catches the moisture and makes it visible. Everything else is indirect, bounced light, green-filtered and cool to the eye but not to the skin. You can see — your eyes adjust to a perpetual dusk — but colors stay deep. Moss so dark it is almost black. Leaves so glossy they look oiled.
+
+And it is lush in a way that shouldn't fit in a room this small. This is not sparse cave growth. This is a compressed jungle trying to live in a bowl.
+
+The walls are gardens hung vertically. Ferns grow out of cracks no wider than a fingernail, a thousand of them, overlapping, frond over frond so there is no stone left. Below that, bromeliads stack themselves in the cliff like red and green fists, each holding its own private cup of rainwater from three days ago. Lianas come down and then, finding no ground to root, just keep growing down, then up again. The bottom is not ground but a mat — half an inch of soil that has built itself from leaf-fall over a thousand years, black and rich and sour-smelling, lying directly on rock, so full of roots it feels springy, like a muscle. From it rise things that love shade and punishment: elephant-ear leaves big as shields, their backs beaded with water that never falls; thin white mushrooms that appear overnight and are gone by evening, eaten; ginger lilies that never flower because they don't need to.
+
+There are structures here, but you have to let your eyes forget green to see them. Low, scattered. Not a city. A suggestion. Three or four courses of cut limestone blocks making a cistern-edge around what is now the deepest damp hollow — trying, a very long time ago, to catch what the rock was already catching. A smaller shrine niche, knee-high, its carving worn to a thumb-smooth suggestion of eyes. A stair that isn't a stair anymore, just flat stones set into the west wall climbing toward the light, now half-swallowed by fig roots that have lifted and tilted them with patient strength. No metal. No pottery that hasn't already melted back into clay. People came here when it was already old.
+
+It is crowded here, obscenely crowded, and quiet.
+
+The fauna does not announce itself. You think you are alone for a long time because nothing calls. Then you start to see the density. The walls move. On every fern there are six small frogs, the color of wet stone, throats not inflating. They watch. When condensation drips, they flick. Geckos, translucent pink, cling upside down beneath the leaves, each one perfectly still. Above, bats sleep shoulder to shoulder in a dark undercut by the thousands — a living fur of the wall — and their breathing is so synchronized you don't hear it until you stop listening for anything else. 
+
+In the bromeliad cups: mosquito larvae in clouds, tiny crabs the size of a fingernail, beetles like polished seeds. Flies that do not buzz walk instead. On the mat, leaf-cutter ants make a dark highway that never stops, green flags going one way, nothing going the other, endlessly, silently. A snake the color of dead leaves passes over your foot and you feel it more than see it. Things are eating things constantly, here, in the layering — a spider wrapping a moth without a struggle, a fungus taking a beetle from inside — but it happens with a hush that feels reverent. The most sound is water. A fat drop gathering at the tip of a root, thinning, letting go, striking a leaf below with a soft *tok*. Another answers. Another. The rock itself ticks as it cools.
+
+The rules of this place are simple and old.
+
+1. Nothing leaves if it can stay. The heat traps the scent, the walls trap the heat, the damp traps everything. Seeds fall here and sprout here. Water falls here and stays here until it becomes air and falls again.
+2. Down is the only direction that grows. Leaves angle down to catch falling moisture. Roots grow down through air. Even the light seems to fall, heavier than it should.
+3. It is not dark enough to die, and not light enough to live quickly. So everything lives slowly and close together, sharing the same pocket of air over and over.
+
+If you stay until the pillar of sun passes, the whole bowl exhales. Warm air rises at last in one smooth drafts, carrying the smell of hot stone and bruised green and bat and rot. The ferns shiver though there is no wind. The frogs, all at once, blink.
+
+It is a small place. You could cross it in twenty steps. But you would have to push through six layers of life to do it, and every layer would close again behind you, damp and dense and active, healing the gap as if you were never here.

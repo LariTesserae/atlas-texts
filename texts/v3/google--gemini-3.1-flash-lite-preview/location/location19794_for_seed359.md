@@ -1,0 +1,17 @@
+The environment is a self-contained, subterranean atrium known as the "Vitrified Thicket." It occupies a series of interconnected, copper-lined chambers no larger than a city square, yet within these walls, the concept of "outside" has been completely erased.
+
+There is no water here. The atmosphere is a humid, thick vapor of suspended mineral dust and breathable ozone that clings to the skin like a warm, dry coat. The ground is not earth, but a rigid, tessellated floor of hand-polished ceramic tiles, interlocking in complex, fractal patterns that suggest a geometry that shouldn't be possible in three dimensions.
+
+The vegetation is lush and aggressive, though it is entirely artificial. Vines of woven copper wire and spun glass fiber drape from the vaulted ceiling, glowing with a soft, bioluminescent hum. These "plants" do not grow through photosynthesis, but through the patient, manual winding of their metallic tendrils by the inhabitants. Thick, velvet-like moss made of pulverized pigments and resin patches the corners, soft to the touch and smelling faintly of scorched cinnamon.
+
+The tech is primitive—simple levers, hand-cranked pulleys, and stone-weighted looms—yet it is used to maintain a world of impossible paradoxes. 
+
+The weirdness is the marrow of the place. Because the world is "young" and sharply defined, the reality here is brittle. If you stare too long at a singular leaf of glass, it may begin to fray at the edges, dissolving into a stream of numerical sequences or shifting color palettes before knitting itself back into a solid form. Shadows do not always follow the light; they occasionally linger, detaching from the objects that cast them to pace the tile floors like independent entities.
+
+The fauna is dense. Small, clockwork-like beetles made of carved shale and brass click rhythmically as they crawl over the vegetation, their movements precise and slow. Larger creatures, resembling spindly, flightless birds with bodies of wrapped silk and eyes made of polished obsidian, perch on the copper branches. They do not vocalize, choosing instead to communicate through the rhythmic tapping of their beaks against the metal, a sound that echoes in the stillness like a heartbeat in a hollow room.
+
+It is a quiet, warm, and stagnant place. The air is stagnant, recycled through ancient, groaning vents that require manual labor to turn. Everything is constructed; there is not a single grain of dirt that hasn't been placed by a hand or a simple wooden tool. 
+
+Yet, there is a strange, slow pressure here. Because the space is small and the density of life is high, the inhabitants—gnarled, stooped figures of leather and bone—live in a state of perpetual, quiet vigilance. They are effectively the gardeners of a museum of static, manufactured life. They believe that if they stop working, if they stop winding the vines or polishing the tiles, the reality of the atrium will finally shatter, and the space between the tiles will leak into the void that lies beyond their walls—a void they describe as "the place where nothing has been made," which they fear more than death itself. 
+
+Time here is a crawl. Cycles of light are managed by tilting stone panels on the ceiling to catch shafts of sun that shouldn't exist, filtering them into long, amber afternoons that seem to last for years. It is a world held together by the stubbornness of human craft, a lush, synthetic pocket of warm, dry permanence, shivering on the edge of its own collapse.

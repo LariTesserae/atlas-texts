@@ -1,0 +1,33 @@
+# The Sintered Antistrat
+
+You stand on the Sintered Antistrat—a continental plateau so old its very concept of “age” has been eroded away. It is a desert the size of continents, but not of sand. It is a desert of sintered mineral, of dust-fine crystal and glassy slag, flattened by Processes older than weather into a surface smoother than a worn river stone, yet vast enough to hold its own weather. The sky is a dome of smoked quartz, normal in its light but unnerving in its clarity—there are no clouds, no birds, no haze. Only an endless, pale blue emptiness that seems to press down with weight.
+
+## Terrain & Scale
+The plateau is a single, coherent lithic skin, cracked in a few places by mile-wide fissures that descend into absolute darkness. The elevation is extreme—you are higher than any mountain range on a water-world, but there are no peaks. The land has been planed flat, not by ice or wind, but by a kind of gravitational or temporal smoothing, as if eons of time were passed over it like a relentless, slow iron. The scale is planetary. You can see the curvature of the world on the horizon, a gentle, disturbing arc where the flawless plain meets the seamless sky. Between you and that horizon: nothing but the same flawless, featureless plain, rippling in one place with the faintest suggestion of a thermal gradient, or in another with the ghost of a magnetic anomaly that makes your compass spin in silent delirium.
+
+## Surface & Materials
+The ground is a composite: part volcanic glass, part precipitated metallic foam, part something that resembles fossilized radio waves. It crunches underfoot with a sound so high-frequency you feel it in your molars more than you hear it. There is no soil, no organic detritus. In the rare patches where the sinter is broken, you find not bedrock, but layers of stratified time—sediments of compressed moments,each band a different hue of gray, each containing trapped, frozen instances of light from stars that no longer exist. The material is cool to the touch, a passive cold that leaches warmth without feeling icy.
+
+## Built & Tech
+The “scattered” structures are not buildings. They are *remnant geometries*: a perfect tetrahedron of fused silica, five miles on a side, half-buried and mostly dissolved back into the plain; a lattice of black monofilament, floating a foot above the ground in a precise 30-mile square, humming with a vibration you sense in your bones; a series of smooth, cylindrical shafts that descend at impossible angles, their mouths ringed with a faint, cold aurora—nanoscale engineering laid down continent-scale, now failing or inert. They are faded, integrated, half-gone, as if the civilization that made them didn’t build so much as *point* at the physics and let it happen, then walked away. The tech is beyond modern not in its flashiness, but in its *quietness*—it operates on principles that feel like violations of common sense, like a door that is also a direction.
+
+## Atmosphere & Ecology
+There is no water. The air is thin, dry, and carries a faint, metallic tang—ozone and chlorine and something else, like the smell of a struck match that never goes out. Vegetation is sparse: not plants, but *mineral lichens*—patches of iridescent, slow-growing crystal that photosynthesize gamma rays from the deep earth. They are rare, isolated, and seem to pulse with a geologic heartbeat. Fauna is rarer still. You might, once in a thousand square miles, see a “thing”: a cluster of self-organizing dust that takes the shape of a drifting, many-limbed shadow for a few minutes before dispersing; a slow, blind mound that moves a foot per year, feeding on geothermal ions. They are not alive as you know life. They are processes that have attained a temporary, persistent shape.
+
+## Sound & Dynamic Turbulence
+Sound is 0.1—near silence. But the dynamic is 3.0—turbulent. The contradiction is the heart of the place. The turbulence is not sonic. It is *spatial* and *material*.  
+- **Gravity storms**: Every few hours, in a random quadrant of the plateau, gravity will shift by a few percent, making you feel lighter or heavier without motion. Sometimes it reverses locally, causing dust to fall upward in silent, shimmering geysers.  
+- **Crystal blooms**: In the sintered plain, slow-motion avalanches of micro-crystals will erupt in a soundless flash, spreading like geometric lichen across miles in minutes, then stabilizing into new, faintly glowing patterns.  
+- **Temporal shear**: Distant objects—a monofilament lattice, a far tetrahedron—may appear to flicker, their edges blurred as if seen through water, because the local flow of time differs by fractions of a second per mile.  
+- **The Quiet Tempest**: The most common turbulence is a continent-wide, ultra-low-frequency vibration that makes the entire plain resonate like a giant bell. You don’t hear it. You feel it in your skeleton, in the way dust never settles completely, in the way your shadow trembles at the edge of vision. It is the planet’s final, settling sigh.
+
+## Weirdness & Rules
+The weirdness is 1.1—unusual, not alien. The rules are subtly wrong.  
+- **Distance lies**: The horizon is not as far as it looks. A structure ten miles away might take three days to reach because the space between folds.  
+- **Mirror logic**: Polished surfaces don’t reflect; they *imply*. Look into a smooth patch of sinter, and you don’t see yourself—you see a possible version of this place from a different angle, or a different time.  
+- **No center**: There is no “middle” of the plateau. Every point is equally central and equally peripheral. Attempts to map it create recursive, impossible diagrams.
+
+## Synthesis: The Feeling
+The Sintered Antistrat is a place that has outlasted its own geology. It is a desert whose sand is made of dead ideas and failed constants. The silence is profound, but it is the silence of a library after the last book has been written, not of a tomb. The turbulence is the library’s HVAC system, still running on forgotten power, struggling to maintain a climate for ghosts. The scattered tech are the marginalia in that final book, written in a script that makes sense only if you already know the ending.
+
+You are not alone. You are surrounded by the echoes of a physics that gave up, by processes that have slowed to near-stasis but never quite stopped, by a vast, cool, empty intelligence that has flattened itself into a plain and now dreams in slow, crystalline, soundless gusts. The wind here does not blow. It *considers*.

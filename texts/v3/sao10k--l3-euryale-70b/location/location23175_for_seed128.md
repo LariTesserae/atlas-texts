@@ -1,0 +1,9 @@
+Dripping sounds echo through the misty caverns. Water oozes from the nanotech-tangled walls, condensing into beads that drip-drip-drip to the soggy substrate. The soft ground squishes with each tentative step, impregnated with processor-infused fluids that pulse through its pores. Bioluminescent fibers twine through the rock, seeping eerie pale light.
+
+The air is heavy and humid, charged with the complex odor of exotic organic compounds. Particulates of liquid carbon shudder in the dimness, hovering in stasis. Sprays of atomized water hum in swirls of nanite maintained currents, vortexing around the central pool.
+
+Plant life flourishes in nooks and hollows throughout the space. Twining roots and tendrils, glinting with biometal that has accumulated within the spongy tissue. Spongy none-petals drip nectar that tingles electric as it splashes against the twitching, peristaltically churning walls. Odd fungi cluster in clusters, fist-sized bulbs twitching on top of thin stems, pigmented caps flushed with flashing tints from embedded cells.
+
+Tyler dipping in and out of sphincters that open and close with the beat of the cavern's hydraulic pulse. Slender notoquine tendrils stretch out, grappling for nutrients stirred into the pool. The water is slightly thick and syrupy with the load of micro-scale machinery clotting its flow. Schools of minute crustacean life skitter beneath the surface, flashing an array of metallic capture that shimmers in the dim light.
+
+The whisper of the cavern's fluids predominates the air, a susurrous overrride to the minute sounds of life. The low, eerie hum of the cavern's power generation thrums rise and fall like floating whale-song, interlacing with the susurrous sounds in odd harmonics that whirl and plummet. a a distant roar echoes deep in the walls, setting teeth on edge.

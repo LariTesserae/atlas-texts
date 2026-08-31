@@ -1,0 +1,29 @@
+# The Steaming Peaks of Shambara
+
+At the uppermost realm of breathable air, the Steaming Peaks of Shambara loom like ancient watchmen, their shoulders worn smooth by eons of existence. These mountains are not the jagged upstarts of younger ranges but grand elders, broad-backed and rounded, their once-sharp edges polished away by time beyond counting. From their summits, the world below appears as through gauze—a vast tapestry of haze and distance that seems to belong to another reality altogether.
+
+The heat here is relentless and profound, a living presence that presses against your skin and fills your lungs. But unlike the scorching dryness of deserts, this is a wet heat that makes the very air feel like soup. It comes from deep within the mountains themselves, where the world's ancient bones still hold primordial warmth.
+
+Water is the great paradox of Shambara. Despite the extreme elevation, moisture is everywhere—seeping from the porous stone, collecting in countless pools that terrace the mountainsides, and rising as perpetual steam that wraps around the peaks like living garments. The mountains weep constantly, tears tracking down their weathered faces in rivulets that merge into rushing, warm streams. In some areas, the ground squelches underfoot, revealing hidden marshes that have formed in the gentle depressions of the ancient slopes.
+
+The vegetation follows the water—not blanketing the landscape but clustering in exuberant communities around the moisture sources. Massive ferns unfurl leaves the size of a man's body. Mosses create pillowed carpets in extraordinary colors—not just greens but purples, blues, and golds that seem to shimmer in the steamy air. Flowering vines drape between tall reeds that grow straight and true from the shallow pools, their blooms sometimes larger than your head, their scents powerful enough to dizzy the unprepared.
+
+Between these oases of green abundance stretch vast expanses of emptiness—bare, smooth stone in hues of ochre and rust, uninterrupted for kilometers at a stretch. These spaces feel almost contemplative, as though the mountains themselves are taking deep breaths between the clusters of life they support.
+
+The sound is what strikes most travelers first and stays with them longest. The Steaming Peaks are never, ever quiet. The constant background is water—dripping, flowing, trickling, sometimes rushing in sudden cascades when hidden reservoirs overflow. But dominating everything is the fauna—the absolute teeming, overwhelming presence of creatures that have evolved in this strange isolated realm.
+
+Insects are the primary source of the deafening symphony. Cicada-like beings the size of small birds cling to the reeds and emit pulsating calls that rise and fall in waves. Swarms of iridescent flies move like living clouds, their combined wing-beats creating a constant thrum that vibrates in your chest. In the shallow pools, amphibians add deeper notes—croaks and bellows that sound almost melodic against the insect backdrop. Occasionally, something large crashes through the vegetation, unseen but definitely present, adding percussive punctuation to the endless concert.
+
+Birds are rare but spectacular when they appear—usually massive, soaring creatures with wingspans that cast shadows over entire pools. They seem to patrol rather than hunt, circling lazily in the thermal updrafts before disappearing beyond the peaks.
+
+The primitive traces of human presence appear in careful harmony with this wild world. Stone structures—never higher than a person's chest—cluster near the edges of the larger pools. These aren't ruins but were built low intentionally, semi-circular walls with spaces that frame specific views or catch particular sounds. Their purpose seems ceremonial rather than practical, though some contain simple hearths or shallow stone basins that collect the purest water.
+
+More intricate are the carved channels that occasionally appear, redirecting water between natural pools—evidence of deliberate cultivation of this harsh landscape. Small stone markers, worn almost smooth but still showing faint spiral patterns, stand at crossroads of natural game trails.
+
+The few people who still inhabit these heights move through the landscape with the same deliberate pace as everything else here. They wear little in the intense heat, their skin darkened and toughened by constant exposure. Their tools are simple—stone, wood, and occasionally copper that gleams with careful polishing. They harvest from the pools and vegetation clusters but never to excess, taking only what's needed for the day.
+
+Time feels different here, stretched and warped by the constant heat and sound. Days blend together, marked primarily by the subtle shift in the quality of light rather than any change in temperature. The steam thins somewhat at night but never disappears entirely, sometimes glowing with faint bioluminescence from airborne organisms too small to see individually.
+
+When storms come, they transform the entire landscape. Rain falls not in drops but in sheets, hammering the bare stone and turning every depression into an instant pool. The normal symphony of sound is completely drowned out, replaced by the overwhelming roar of water striking stone. Lightning plays between peaks, sometimes seeming to linger unnaturally long, illuminating the steam clouds from within like giant paper lanterns.
+
+This is an ancient place that has found its equilibrium—not dying but perfectly adapted to its extreme conditions. The Steaming Peaks of Shambara don't care for human presence or absence; they simply continue their slow, hot breathing as they have for millennia beyond count, while life adapts, evolves, and thrives in their unusual embrace.

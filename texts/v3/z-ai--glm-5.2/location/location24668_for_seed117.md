@@ -1,0 +1,51 @@
+# The Weeping Vault
+
+You descend three steps cut into limestone and find yourself in a room the size of a chapel — though no chapel ever held a ceiling so low, or wept so steadily from its walls.
+
+## The Space
+
+The vault is roughly twenty meters across, longer than it is wide, its ceiling ranging from two to four meters high. The rock is dolomite — pale grey streaked with iron oxide — and it has been here, in this shape, for a long time. The surfaces are smooth in the way that only centuries of moving water achieve: rounded edges, scalloped walls, the gentle undulation of stone that has accepted its own softening. Nothing here is sharp anymore. The erosion is complete and ongoing, a settled patience.
+
+Water is everywhere, though you would not call it a pool. It is more like the stone itself has become saturated, has reached some threshold of holding and now must release. Beads form on the ceiling in clusters of dozens — small, clear, patient — and grow until their weight overcomes adhesion and they fall. The rhythm is irregular but constant. Every surface gleams. The floor is wet stone divided by shallow channels no deeper than a finger, carved over millennia, carrying thin films of water toward the vault's lowest corner where a drain — not natural, not entirely artificial — accepts what the rock gives up.
+
+The air is damp and cool, perhaps eleven degrees, and carries a mineral taste. You can feel moisture condensing on your forearms. Breath here feels thick.
+
+## What Grows
+
+There are no plants. Not one. No moss, no alga, no root or leaf or stem. The absence is conspicuous — this much water and this much stone would normally be colonized. Instead, the biological niche belongs entirely to fungi and to things stranger than fungi.
+
+The dominant organism is a pale, rubbery growth that coats the lower walls in overlapping shelves — like bracket fungi but horizontal and slightly translucent, the color of skim milk. They are wet to the point of dripping, and where they overlap they fuse into continuous surfaces. Each shelf is perhaps the width of a hand. They cover the walls in dense, layered banks, and in the dim light they seem to faintly luminous — not glowing, exactly, but holding light in their translucence the way frosted glass does, so that the room seems brighter than its light source should allow. The effect is that the walls themselves appear to be the source of illumination, a diffuse grey-blue ambience with no clear origin.
+
+Between the fungal shelves, in the gaps and crevices, thinner filaments emerge — white threads, hyphae, reaching outward into the air itself. They tremble in air currents you cannot feel. They are looking for something.
+
+In the floor's shallow water channels, there are biofilms — thin, iridescent skins of microbial life that shift color when disturbed. They coat the water's surface in patches of oil-slick purple and green. They are the simplest life here and perhaps the oldest.
+
+## What Moves
+
+The fauna is the surprise. The vault is *full* of animals.
+
+Pale crustaceans — something between a woodlouse and a shrimp, flattened, segmented, the size of a thumbnail — cover the fungal shelves in their hundreds. They graze on the hyphae, mandibles working steadily, and their bodies are so close to the color of the fungi that you see them only when they move. Which they do, constantly, in small scuttling shifts. The sound is like dry rice poured slowly onto paper — a granular whisper, the closest thing the vault has to ambient noise.
+
+Above, clinging to the ceiling's wet stone, there are worms. Not earthworms — these are thinner, longer, pale as the fungi, and they maintain small depressions in the rock where they secrete something that keeps the water beading around them rather than on them. Each worm sits in its shallow cup of dry stone in a wet ceiling, and from this position it extends a mucus thread into the air, a fishing line tipped with a droplet of some secretion. The pale crustaceans, climbing the walls to reach ceiling fungi, occasionally brush these threads and are caught — lifted, slowly, by the worm's contraction, into the ceiling cup where they are consumed. The worms are patient. The threads are nearly invisible. You notice them only when one catches a droplet of falling water and sways, a tiny pendulum in the dim air.
+
+In the water channels, something larger moves — a salamander-like creature, perhaps fifteen centimeters long, dark grey, nearly eyeless, with external gills that fan outward like dark feathery crowns on either side of its head. It is not alone. There are several. They move through the shallow films of water with slow, deliberate undulations, pausing to root in the biofilms, consuming the microbial layers with small sucking motions of their mouths. When they encounter the pale crustaceans that have fallen into the channels, they eat those too. Their pace is unhurried. They have no predators here. They are the largest animals in the vault and they know it, in whatever way a nearly-blind salamander can be said to know anything.
+
+There are also smaller things — mites, barely visible, crawling on the fungal surfaces; nematodes in the water films, detectable only as the faintest threads of motion; and something in the deepest crevices that you never see clearly but hear, occasionally — a soft wet click, like a tongue against a palate, coming from the dark gaps between stone where the shelves meet the wall. Something lives in those gaps. Something that does not come out while you are here.
+
+## What Was Built
+
+The industrial remnants are scattered and half-assimilated. Near the vault's entrance, a metal pipe — iron, badly rusted, perhaps eight centimeters in diameter — emerges from the wall at chest height and extends two meters before ending in a ragged, corroded break. Water does not flow from it now, but the stone around its entry point is stained orange-brown, and a residue on the pipe's interior suggests it once carried something acidic. The fungal shelves grow around it but not on it, leaving a halo of bare metal — or rather, bare rust, which is its own kind of surface.
+
+In the floor near the lowest corner, where the channels converge, there is a grate. It is iron too, square, perhaps thirty centimeters on a side, set flush into the stone with a care that suggests someone measured and cut and fitted it with purpose. The gaps between the bars are narrow — five millimeters, perhaps less — and the water flows through them into whatever lies below. The grate is partly clogged with biofilm and mineral deposits, and the salamanders nose at it sometimes, testing the edges, unable to pass.
+
+On the far wall, at the back of the vault where the ceiling is lowest, there is a machine. Or the remains of one. A metal housing, roughly box-shaped, half a meter tall, bolted to the wall with four heavy bolts that have oxidized into dark nodules. The housing has a faceplate — partly detached, hanging at an angle — behind which you can see gears, small ones, interlocking, seized with corrosion and mineral scale. A cable, insulated with something that was once rubber and is now a brittle black crust, runs from the top of the housing into a hole drilled in the ceiling. Whatever this machine did, it did it mechanically, with gears, and it did it in relation to the water above or beyond the stone. It has not functioned in a very long time. The fungal shelves have begun to colonize its base, climbing the housing the way they climb the walls, slowly incorporating it into the vault's living surface.
+
+These are the built elements. There may be more, buried in the stone, concealed behind fungal banks, but these three — the pipe, the grate, the machine — are what the vault offers to a visitor's attention. They suggest that someone, once, treated this space as a site of work. That water was moved, or filtered, or measured. That the vault had a function in someone's design. But the design has been absorbed. The vault has returned to its own purposes.
+
+## The Atmosphere
+
+The light — what there is of it — comes from a source you never fully identify. It may be the fungal shelves themselves, holding and diffusing some faint luminescence. It may be a crack in the ceiling, invisible among the water-beads and the worms, admitting a thin grey light from a surface world that is dimmer than this place. The overall effect is of being inside a moonlit cloud — everything soft, everything slightly visible, nothing brightly lit. You can see the whole vault, but details emerge only at distances of two or three meters. Beyond that, shapes become suggestions.
+
+The sound is mostly water. The impact of drops on stone, on fungal surfaces, on water films — each surface receiving the drops differently, the stone giving a faint tap, the fungi a muffled soft contact, the water a tiny liquid sound that is almost more vibration than noise. The crustaceans add their granular scuttling. The salamanders, surfacing occasionally to gulp air — for they do have lungs, however rudimentary — produce a small wet gasp that echoes more than it should in the low space. The machine, seized and silent, contributes nothing. The grate, when water flows across it, gives a faint metallic ring, almost subsonic, felt in the feet more than heard.
+
+The overall impression is of a room that has been in process for a very long time — the stone softening, the water flowing, the fungi growing, the animals eating and being eaten, the iron rusting, the biofilms forming and reforming — and that will continue in this process for a very long time after you leave. Nothing here is in a hurry. Nothing here is finished. But nothing here is newly begun, either. Everything is mid-process, settled into its own continuation, and the effect is curiously restful, if you can accept the damp and the dimness and the sense that you are standing inside a living digestion — a room that is slowly, patiently, consuming itself and its contents and its past, and producing, from that consumption, the thin pale light by which you see.

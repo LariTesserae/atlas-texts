@@ -1,0 +1,39 @@
+The place is a low basin of black stone, no larger than a town, enclosed on three sides by worn escarpments and on the fourth by a wall of industrial construction. Nothing rises very high except the chimneys and the old gantries, but the whole settlement has been built downward: streets sunken below the surrounding ground, workshops dug into the rock, pipes crossing overhead like the ribs of a buried machine.
+
+The stone is dark, dense, and faintly metallic. Long use has polished it in some places to a dull shine. Elsewhere it is flaked by weather and furrowed by channels where water has run for centuries. There is no soil. No grass has found a crack, no weed has climbed a wall, no moss softens the foundations. The bare mineral surfaces are marked instead by pale deposits—chalky rings, green-black stains, and thin crusts of salt that appear wherever condensation gathers.
+
+Water comes irregularly. Sometimes a cold rain falls from the low gray sky, hard enough to drum on every roof and pipe, then stops after minutes. Sometimes the basin remains dry for weeks while moisture beads out of the stone at night. It collects in gutters, sumps, and shallow hollows, never forming a true river. Every pool is temporary in appearance but ancient in habit. The same puddles return to the same depressions. The same damp stains climb the same walls to the same height.
+
+The settlement is industrial rather than inhabited. There are narrow streets between foundries, pumping houses, storage sheds, and structures whose purposes have become indistinguishable from their repairs. Most buildings are squat, windowless, and heavily braced. Their doors are sized for machinery, not people. Elevated conveyors run from one roof to another and vanish into the cliff faces. Their belts still move, though nothing visible is loaded onto them. Pistons rise and descend behind grilles. Great flywheels turn at a steady rate, their surfaces furred with rust.
+
+The machinery does not produce goods so much as maintain the conditions of the basin. It draws water from the rock and returns it as mist. It heats certain chambers and cools others. It scrapes mineral scale from the streets and feeds the scrap into furnaces, which reduce it to a black powder and release it through vents. Nothing accumulates. Nothing is completed. The factories perform the same sequence endlessly, with the calm certainty of tides.
+
+Their noise is immense.
+
+The air is filled with the concussion of presses, the grinding of gears, the shudder of generators, and the deep intermittent thump of pumps below the streets. Metal plates tremble underfoot. Speech would be useless. Even the spaces between buildings are loud, because sound rebounds from the cliffs and hangs beneath the gantries in a continuous mechanical weather. Yet the noise has no crescendo and no decline. It is not the sound of activity but the permanent sound of the place, as fixed as gravity.
+
+In this machinery lives the fauna.
+
+They are everywhere, though rarely gathered in one mass. Pale bodies cling to walls, crowd under stairs, lie folded inside pipe mouths, and line the edges of drainage channels. Some are small as hands; others are long enough to bridge a street. Their forms vary from district to district, but all possess the same unsettling quality of being perfectly adapted to metal, stone, pressure, and vibration.
+
+There are flat, many-legged animals that move along vertical surfaces without sound, their undersides shining with a clear adhesive fluid. There are blind, jointed things that occupy the warm spaces behind furnaces, emerging in slow processions whenever a door opens. There are heavy six-limbed grazers that scrape mineral films from walls with ringed mouths. Their hides are gray, ivory, or the blue-black of wet iron. Some have translucent bodies through which pale organs pulse in time with the machinery.
+
+The largest creatures do not seem to move at all. They hang beneath bridges or rest across roofs like collapsed cables. Only the occasional contraction of a flank reveals that they are alive. Smaller animals nest in their folds. Smaller still pass through them, entering and leaving through pores or soft seams. The great bodies absorb the basin’s vibrations and turn them into warmth. The warmth supports the smaller animals, while the smaller animals clean the bodies of mineral growth. Every creature is both shelter and resource.
+
+Their abundance is overwhelming, but their arrangement is sparse. There may be hundreds on a single building, yet each maintains a precise distance from the next. Lines of them occupy the walls in measured intervals. Pools have one watcher at each corner. Along the roads, animals cross at regular, unhurried moments, never colliding, never hurrying to avoid one another. A whole population fills the settlement without ever becoming a swarm.
+
+They do not fear the machinery. They use it.
+
+When the great presses descend, the animals beneath them flatten themselves into the grooves of the floor. When a conveyor passes overhead, dozens rise on their hind limbs and attach themselves to its underside, carried through the darkness to another quarter of the basin. They gather around leaking valves and condensation vents. They drink the water that forms on cooling pipes. Some feed on rust. Some feed on the oily films produced by friction. Some appear to feed on sound itself, opening petaled ears or membranes toward the engines until their bodies glow faintly.
+
+There are no signs of predation in the ordinary sense. At intervals, one animal will open along its length and admit another. The second disappears inside; the first closes again. Later, the larger animal divides, producing two bodies of the same size and condition. Elsewhere, a creature may be dismantled by its neighbors, not violently but methodically, its parts sorted into different feeding groups. The remains vanish into drains. The drains carry them beneath the settlement, where pumps return their dissolved substance to the walls.
+
+The ecology is not a cycle of growth and decay so much as a closed arrangement. Nothing seems to be born young. Nothing seems to grow old. The animals emerge already suited to their place, already knowing the rhythm of the machines. A creature that is removed from its assigned district becomes still within minutes, then hardens into a mineral shape that resembles its body. These shapes are used in construction. Many of the walls are made from them.
+
+Light falls normally here: a cool, diffuse daylight under a clouded sky, bright enough to reveal detail but never warm enough to offer comfort. At night, lamps come on along the streets and beneath the factories, each enclosed in thick yellow glass. Their illumination is steady. No lamp flickers. No shadow moves unless an animal passes through it, and even then the shadow returns to its original shape almost immediately, as if the darkness remembers where it belongs.
+
+The basin is old, but not ruined. Its erosion has settled into an equilibrium. Corners are rounded, edges are worn, and every crack has reached its final width. Rain does not deepen the channels. Rust does not consume the machines. The cliffs shed no stones. Even abandonment would be another stable condition: the factories would continue, the animals would remain, the water would appear in its appointed hollows.
+
+Nothing changes here, but nothing is truly still.
+
+The presses descend. The pipes breathe. Condensation gathers and falls. Pale bodies cross the black walls in their measured intervals. Beneath the constant industrial roar, one can sometimes hear a softer sound: the collective clicking of countless small mouths scraping the mineral surfaces clean.

@@ -1,0 +1,29 @@
+The horizon is not a line where the earth meets the sky; it is a blur where the resolution of the world fails. This is a place of scale so immense that the curvature of the planet feels like a tautness in the gut, a vertigo induced by the sheer weight of the distance.
+
+You stand on a plane that is not rock, nor stone, but Material. The ground is comprised of a dense, dark, metallic ceramic, shot through with veins of gold and copper that have long since oxidized into dull, flat blues. It is the **Total Built** taken to its absolute limit: there is no "nature" here in the geological sense. The crust of this world has been stripped away and re-laid, machined into a single, continuous planetary logic board.
+
+But the logic is ancient.
+
+The defining characteristic of this place is the **Erosion**. It is not the erosion of wind and rain—there is almost no water here, scoring a mere 0.5 on the index, and what little exists is bound up in complex non-aqueous chemical solutions, likely coolant or lubricant rather than solvent. No, this is the erosion of Time. The surface has been planed down. Where once there may have been soaring spires or intricate data-cathedrals, eons of processing and thermal cycling have rubbed the sharp edges into nubs. The world is low, vast, and hauntingly smooth. It resembles an ocean floor frozen in the moment before a wave breaks, captured in hexagonal basalt columns, but here the columns are trillions of identical, black processing units packed shoulder-to-shoulder (Density 1.9).
+
+Because of this **Deep Aging**, the topography is subtle. You are walking across a landscape that is technically "low elevation," a vast continental plain, yet it feels suffocatingly dense. The ground beneath your feet hums with a low-frequency vibration that you feel in your teeth rather than hear with your ears.
+
+The **Light** here is the tyrant of the environment. It scores a 2.8 on the scale—a blinding, remorseless white brilliance. There is no sun in the sky, but rather a diffuse, omnipresent luminosity that seems to emanate from the atmosphere itself, perhaps the exhaust glow of the planet’s own operating systems. Shadows are sharp and ink-black, devoid of ambient fill. There are no clouds to soften the glare, only a faint, shimmering heat haze rising from the black surface.
+
+It is **Warm** (1.8), a dry, sterile heat that smells of ozone and ancient dust. The air is thin, likely recycled, and despite the temperature, it feels devoid of moisture. It leaches the sweat from your skin instantly.
+
+In this blinding, silent oven, the **Silence** (0.3) is the loudest thing. The lack of water means no splash, no gurgle, no rain. The lack of atmosphere means no howling wind. The "noise" of the place is purely internal—the thermal expansion of the ground clicking like a thousand castanets, and the rush of your own blood. It is a silence that feels watchful.
+
+Yet, the place is **Active** (2.1). It is alive with processes, though they move at a glacial, tectonic pace. This is not a dead ruin; it is a machine that has settled into its final, steady state.
+
+Looking out across the **Vast** expanse, you see the "weather" of this world. The surface is not static. Every few hours, the hexagonal plates of the ground will breathe—a rhythmic dilation, a micro-millimeter shift that ripples out like a shockwave across the horizon. This is the "tide" of the planet. It is the active retrieval and archiving of data, the physical movement of the architecture itself as it shuffles information through its substrate.
+
+In the distance, vast, geometric "dunes" rise—artifacts of the planet's layering. These are not sand, but mounds of processed material, slag heaps from the world's own self-repair cycles, rising hundreds of feet into the air. They are smooth and wind-swept, carved into perfect parabolas by the nanite-storms that occasionally scour the surface.
+
+**Vegetation** (0.7) is a cruel joke here. There is no green. The only flora that survives are "Silicon Gardens"—strange, fractal crystalline structures that sprout from the cooling vents of the super-structure. They are not biological; they are accretions of mineral waste, growing slowly over millennia into branching, tree-like shapes of obsidian and glass. They do not photosynthesize; they grow by drawing up heavy metals from the deep, their "leaves" actually heat sinks glowing dull red in the twilight.
+
+**Fauna** (0.6) is equally rare. You might see the "Striders"—immense, spindly constructs that walk on the horizon. They look like crabs made of surgical steel and glass. They are not alive in the Darwinian sense; they are autonomous maintenance drones, the size of mountains, picking their way across the dense fields of processing units to repair a broken sector or lay down new cabling. They move with a terrifying, liquid grace, their many legs clicking silently against the ceramic plain. They ignore you; you are smaller than the dust motes to them.
+
+The **Weirdness** (1.5) lies in the physics. Because the **Tech** level is beyond modern (2.6), the rules of space and distance feel optional. Sometimes, looking down a long avenue of the processing blocks, the light seems to bend, folding space so that things miles away appear inches from your face. Gravity fluctuates slightly; walking up a slope feels effortless, while walking down requires heavy exertion. It is a landscape where physics is a suggested guideline rather than a law.
+
+You are standing on the motherboard of a god that has forgotten it is a god. It is a desert of pure function, vast enough to generate its own weather patterns of heat and logic, bright enough to blind, silent enough to drive you mad, and active enough to outlast the stars. It is a place that has finished becoming, and is now simply, endlessly, being.

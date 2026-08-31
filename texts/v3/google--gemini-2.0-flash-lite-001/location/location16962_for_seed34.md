@@ -1,0 +1,17 @@
+The world breathes.
+
+The air is cold and heavy, a constant mist clinging to the sheer rock faces that dominate the landscape. This is not the biting, crisp cold of the high peaks; it’s a damp, bone-chilling cold that seeps into everything. Water is everywhere, yet it's not a landscape *of* water but one of its dominion. It falls, it condenses, it weeps, it pools.
+
+The high elevation is subtly deceptive. The land doesn't plummet or soar, but rather undulates in great, slow curves. The scale is vast, continental, as the parameters suggest, but it’s not *open*. Dense formations of stone rise everywhere, though they don’t feel built so much as *grown*. They are a deep, charcoal gray, almost black in places, streaked with veins of lighter rock where the water bleeds through. These are not sharp, jagged mountains. Instead, the stone has been softened by the ages, sculpted by relentless erosion into flowing, organic forms. They rise and fall, sometimes miles across, like colossal, petrified waves.
+
+Vegetation is sparse, clinging to the cracks and crevices of the stone. What *is* there is low and hardy, a moss-like growth in deep shades of green, brown, and grey. It's not a vibrant, lush verdancy, but a patient, tenacious clinging to life in a place that seems to actively work against it. These plants pulse with a soft, bioluminescent light at night, the only true light source here besides the overcast sky.
+
+The ‘built’ environment is found within the stone itself. There are no signs of human touch, no structures that we would recognize. Instead, the formations of rock themselves rise as if they'd been planned that way: rising and falling in organized patterns. The internal structure feels deliberately formed, a city built into the bones of a planet -- a landscape of stone carved in time. There is a density, the way that the rock itself comes together, how it holds the moisture, how it has an inherent weight and gravity to it.
+
+The sound is one of near-silence. There is no wind, or if there is, it is swallowed by the stone. Occasionally, a drip of water echoes with absurd clarity, the sound swallowed, then a soft rumble in the vastness. But mostly, it's a silent world. In a place so rife with moisture, sound should be sharp and resounding. But here, everything seems…muted.
+
+Fauna is rare. What lives in this place is deeply suited. The creatures blend seamlessly with the environment, almost as if they are made of stone and moisture. They are adapted to the cold, to the mist, to the scarcity. At times, a glint of movement, a ripple of shadow, but each creature has the near-invisibility of a predator perfected. Their lives, and perhaps the very rules of the world, are shaped by the constant presence of water, the slow, relentless erosion, the scale. They have adapted or they are gone. There is no middle ground.
+
+The active dynamic is reflected in the perpetual state of flux; a place in constant change. The water never stops moving, the stone never stops shifting, and the fauna must constantly adapt. Weather cycles are slow yet relentless. The light is normal, but filtered through a perpetual veil of mist, casting long, diffuse shadows.
+
+The land feels ancient, a relic of a time before cities were built, a monument to the relentless power of nature; it is a landscape of long, slow processes, waiting. It breathes.

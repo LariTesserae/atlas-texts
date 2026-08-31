@@ -1,0 +1,41 @@
+The basin has no true horizon.
+
+It is too broad for a hollow and too low for a plain, a shallow expanse of black mineral water spread beneath a sky the color of old steel. The land falls away by almost imperceptible degrees, though the eye keeps finding new edges: a pale shelf in the distance, a ridge of folded stone, a corridor of vapor, a darkness that seems at first to be a far shore and then proves to be the underside of the sky.
+
+Water is everywhere, but never in the same form twice. It lies in thin sheets over the stone, beads in the pores of the ground, seeps from cracks, hangs in the air as cold condensation, and rises in slow vertical threads from depressions that should have dried ages ago. The exposed rock is dark gray, blue-black, or faintly metallic, its surfaces worn smooth by immense intervals of flooding and retreat. Here and there, ancient erosion has reduced whole ridges to low backs of stone, rounded as bones under a tongue. The basin feels less like a landscape newly formed than one that has already reached its final shape and has been waiting in it for an unbearable length of time.
+
+Nothing grows.
+
+There are no stems, leaves, mosses, or even the pale films that might be mistaken for them from a distance. The absence is absolute enough to become a presence. Every surface is visible. Every movement crosses bare mineral, wet mineral, or the dark, soft-looking water gathered between them. Along the farther flats, the ground is crowded with things that resemble stones until they move: low-bodied animals armored in layered plates, translucent beneath their joints, packed so tightly together that the plain seems to ripple. Some are no larger than hands. Others are broad as overturned boats and drag themselves through the shallows on hundreds of fine, jointed limbs.
+
+They do not appear to belong to a single ecosystem. There are long, blind things that hunt by vibration, lifting their heads from the mud whenever one of the basin’s deeper sounds passes through it. There are clusters of pale, many-eyed creatures that cling to the vertical faces of eroded shelves, opening and closing in unison like valves. There are black, membranous animals that skim the water without breaking its surface, leaving behind brief geometries of silver. Their bodies are cold-looking, but the air around them trembles with the heat of intense internal work.
+
+They are abundant beyond any comfortable measure. The open ground is full of them, though nothing has been built there and nothing has been planted. They fill every channel, every ledge, every shallow. They press against one another in slow, muscular traffic. Where the water narrows, they knot into moving dams, and the water climbs over their backs. Where the basin widens, they spread into densely packed herds whose collective motion travels across the plain in pulses.
+
+The noise is industrial.
+
+It comes from no visible factory, yet the entire lowland operates with the volume and persistence of one. Beneath the water, enormous mechanisms turn. Their rhythm is felt first in the soles of the feet: a repeated concussion, almost regular, followed by the grinding shriek of stone against something harder than stone. Every few minutes, a pressure wave passes through the basin and causes all the animals to pause. Then the water lifts in straight-sided ridges, as though pushed from below by a machine with an immense hidden piston.
+
+There are other sounds: the hiss of vapor venting through cracks; the clatter of thousands of shells striking together; deep metallic calls from animals somewhere beyond the visible shelves; sharp bursts like electrical arcing in the mist. At times the entire basin rings with a sustained note. It is not music, though the note has harmonics. It is the sound of the ground being used.
+
+The place has no towers, roads, pipes, cables, or ruins. No hand has assembled anything here. Nevertheless, its processes are scaled, coordinated, and brutally efficient. Water is drawn down through apertures in the floor and returned in boiling columns. Mineral deposits are stripped from the rock, sorted by density, and carried in organized streams toward unseen depths. Certain animals act as mobile furnaces, their ribbed sides glowing faintly beneath wet armor as they digest the basin’s dissolved metals. Others gather in great circular formations around vents, extracting charge from the air with quivering crowns of crystal.
+
+What looks like wildlife is also industry. What looks like industry may be digestion.
+
+Cold hangs over everything. The air does not bite so much as occupy the lungs with a dense, wet weight. The mist is dimly luminous, but the light has no clear source. It may come from the cloud cover, or from the water, or from the mineral veins beneath the ground. Colors are difficult to keep fixed. A blue surface becomes gray when watched. A black animal acquires a red outline only when it moves away. Reflections sometimes show the basin under a different sky: brighter, crowded with vertical shapes, or flooded far above the present waterline.
+
+The weather is not quite weather. A veil of condensation sweeps across the flats, and wherever it passes, distance changes. Near objects remain near, but far objects draw together until entire shelves appear stacked against one another. A creature glimpsed at the edge of the mist may be seen again behind you, dripping and unaltered, as if the fog has carried it around the world. Rain falls upward in some of the lower channels. Droplets rise from the water, pause at shoulder height, and vanish into a ceiling that cannot be seen.
+
+The animals seem accustomed to these failures. They follow rules the landscape has kept even after reality has stopped keeping its own. When the basin’s deep machinery reverses, every creature turns toward the same absent point. When a sound comes from above, they flatten themselves against the ground. When the light dims—which it does without warning—the densest herds separate, leaving narrow corridors through which water rushes, though the corridors close again before the water has passed.
+
+Beyond the nearest flats, the basin continues through multiple zones of erosion: a field of low black islands, a drowned terrace crowded with pale bodies, a broad mineral fan where the ground slopes upward by the height of a hand over several miles. Far off, a line of stone rises and bends at an impossible angle, not high enough to be a mountain, only wrong enough to be noticed. Its lower half is reflected in the water, while its upper half is reflected in the water as well, displaced by several hundred yards.
+
+There are no tracks. The surface closes behind every passage almost immediately, not through softness but through correction. Footprints fill with clear water, then become shallow pools, then smooth stone. Anything left behind is absorbed into the operating landscape: a dropped scale is pulled beneath the mud; a dead animal is disassembled by smaller animals in seconds; a broken limb continues moving with the current until it reaches one of the dark apertures in the floor.
+
+At the center of the basin, where the water is deepest, the crowded life thins into a vast circular absence. The water there is perfectly still. Around it, animals gather in concentric ranks, packed shoulder to shoulder, all facing inward. Their bodies shiver with anticipation or fear. From below comes a low, ascending vibration, and the surface of the central water begins to show things that are not reflections: a dry landscape, a warm sun, green growth, structures made by hands.
+
+Then the image folds inward.
+
+The basin answers with a tremendous mechanical roar. Water rises in a wall. The animals break formation and scatter across the flats. For a moment, the whole lowland is illuminated from underneath—every creature, every channel, every ancient scar in the stone rendered in cold white detail.
+
+And beneath the mineral floor, something vast changes shifts, beginning another cycle that may have been running since before there was anything alive here to witness it.

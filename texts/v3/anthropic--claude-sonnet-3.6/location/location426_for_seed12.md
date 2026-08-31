@@ -1,0 +1,15 @@
+Through the thick glass of the observation dome, the water column stretches up into darkness. We're at the summit of one of the Risen Cities - ancient urban cores that were submerged for centuries before theological engineers raised them toward the surface atop massive stilts of living coral and stone.
+
+The water here is warm and surprisingly clear despite its depth, with visibility extending perhaps fifty meters before dissolving into deep azure murk. Vast sheets of translucent algae drift between the buildings, their delicate fronds glowing with dim bioluminescence. The algae farmers tend these gardens with long poles from their precarious walkways, though you rarely see them - the city's population is sparse these days.
+
+The architecture seems to be constantly in flux between destruction and emergence. Ancient concrete structures wear away in the currents while new growths of coral-stone slowly extend them, creating hybrid forms that are neither fully natural nor artificial. Bridges of braided kelp connect the upper levels, swaying gently in the endless underwater breeze.
+
+Most striking are the bubble-gardens - spherical pockets of trapped air maintained by the complex root systems of specially adapted mangroves. Their leaves spread across the inside of each bubble's surface, creating inverted forests where the few remaining residents cultivate plants that can't survive underwater. The bubbles range from intimate spaces barely big enough for two people to vast chambers housing entire orchards.
+
+The overall impression is of a city still being born, or perhaps reborn, from the bones of what came before. New structures grow with geological patience while the old ones dissolve into the warm waters. Schools of tiny silver fish dart through the remains of what might have once been streets, now canyons lined with swaying anemones and colonies of jewel-bright tunicates.
+
+Sound travels strangely here - the constant low moan of water moving through the city's canyons is punctuated by the occasional crystalline ping of snapping shrimp or the distant songs of deeper-dwelling creatures. The builders used this acoustic peculiarity deliberately, positioning resonance chambers throughout the city that transform the water's movement into haunting melodies.
+
+At night, the bioluminescent algae dims and brightens in slow waves, creating the impression of breathing. The few artificial lights from inhabited sections catch and scatter in the drifting particles, forming ghost-like columns that reach up toward the unseen surface. Time moves differently here - the city's rhythms are measured in the slow pulse of tides and the gradual accumulation of coral rather than the cycles of day and night.
+
+This is a place of perpetual twilight and gradual transformation, where the line between growth and decay, between the built and the organic, has long since dissolved into something altogether more ambiguous.

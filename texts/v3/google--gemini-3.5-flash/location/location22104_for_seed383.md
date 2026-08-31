@@ -1,0 +1,25 @@
+The light in the deep basin does not suggest the underworld; it is flat, white, and searchlight-bright, pouring down through vertical rifts in the ceiling that open to some high, cold sky miles above. These light-shafts cut through the cool, damp air like solid pillars of milk, illuminating a subterranean valley so vast its limits are lost in a pale, humid haze. 
+
+There is no green here. The world is built entirely of mineral and wet silt, smoothed by epochal time into a landscape of sweeping, aerodynamic curves. The floor of the rift is a grey sheet of ancient, water-worn basalt, polished to a dull shine. It looks like frozen water, but it is bone-hard. There are no plants, no lichens, not even the velvet of moss. Instead, the dampness is purely physical: a cold, thin dew that collects on every horizontal surface, dripping occasionally from the high, curved ceilings with a slow, rhythmic *doop... doop* that only emphasizes the profound, deadening quiet. 
+
+Occasionally, this moisture pools in shallow, perfectly circular basins carved into the basalt. These pools are clear as glass, their bottoms lined with fine, white limestone dust that has settled out of the water over thousands of years. 
+
+Across this polished grey floor sits an immense, sparse city. It does not feel like a ruin, though it is constructed with the most elementary means. Thousands of slender, tapering towers rise from the stone, some thirty or forty feet high, made entirely of flat, grey slates stacked dry without mortar. They resemble piles of coins or the vertebrae of colossal, segmented beasts. Winding between these towers are low, hand-built stone dikes and wide, paved avenues that lead from one empty square to another. There is an urban geometry to it—an organized intent—but it is stretched thin over miles of empty space. Two towers might stand fifty yards apart, with nothing but polished, glistening stone between them.
+
+The technology of this place is stubbornly pre-industrial, almost pre-metal. There are no wires, no pipes, no glass, no wheels. Where structures are joined, they are bound with thick, stiff cords of plaited animal hide or sinew, grayed by dampness and age. Heavy, unglazed clay jars, large enough to hold a man, sit at the corners of the stone avenues, catching the slow drips from the ceiling. 
+
+Yet, despite the ancient, stone-and-string technology, the valley is in a state of frantic, chaotic draft. 
+
+It is populated by an immense, silent fauna. They are pale, segmented creatures—somewhere between land-crabs and soft-bodied woodlice—ranging in size from small dogs to draft beasts. They do not make a sound. They have no throat-sacs, no wings to rub together, no hard hooves to clack on the stone. Their undersides are padded with thick, damp felt, and they move across the polished basalt in absolute, ghostly silence. 
+
+The turbulence of the landscape is entirely theirs. Millions of these creatures are in constant, swirling motion, driven by an incomprehensible, hive-like industriousness. They do not build permanent homes; instead, they are constantly, obsessively rearranging the city. 
+
+A traveler watching from a high ledge would see a long gray line of these creatures, thousands strong, flowing quietly down a basalt avenue. They carry flat stones in their mandibles. They arrive at a tall, dry-slate tower, and with terrifying, efficient speed, they begin to dismantle it. Stone by stone, the tower vanishes. Within three hours, the materials have been carried half a mile away and restacked into a long, low crescent wall. Meanwhile, another swarm is already dismantling the crescent wall to build a series of small, beehive-shaped cairns. 
+
+Nothing stays in its final form for more than a few days. The city is a shifting, liquid puzzle of dry stone, perpetually rising and falling in silence under the cold white glare of the sun-shafts. 
+
+The air is cool—not freezing, but the damp, heavy cold of a cellar that has not been opened in a century. When the creatures move in large masses, they displace the air, creating sudden, cold drafts that smell of wet lime and old leather. This wind is the only thing that speaks. It whistles low through the dry-slate joints of the towers, a faint, sighing hiss that rises and falls as the towers themselves are built and destroyed.
+
+Sometimes, two opposing currents of these creatures meet in an open plaza. There is no violence, no sound of clashing shells. They simply weave through one another like water-striders on a pond, their soft, white bodies sliding over one another in a silent, undulating carpet, before separating to carry their stones to some new, temporary monument. 
+
+Underneath the frantic, silent choreography of the fauna, the geology remains utterly still. The great basalt waves of the floor, smoothed by water that dried up before these creatures ever crawled, hold the shifting stone towers like a tray. It is a world of permanent transition built upon a foundation of permanent end.

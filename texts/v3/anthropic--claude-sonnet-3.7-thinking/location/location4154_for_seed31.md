@@ -1,0 +1,21 @@
+# The Silent Heights of Alvamist
+
+The highland plateau of Alvamist stretches before you, an expansive terrace carved into the mountainside that extends far beyond your immediate view. At this elevation—nearly eight thousand feet above the valleys below—the air should be thin and dry, yet moisture pervades everything. The plateau glistens perpetually.
+
+Water seeps from countless fissures in the steep rock faces that form the plateau's northern boundary. These are not majestic waterfalls but patient, persistent weepings that have slickened the stone walls for as long as anyone can remember. The rock itself seems to sweat, feeding thousands of rivulets that converge into shallow, crystalline streams crisscrossing the plateau's floor. The ground beneath your feet never quite dries—always slightly spongy, resilient, the thin soil perpetually saturated.
+
+The settlement of Alvamist occupies the central portion of the plateau, several hundred stone structures arranged in concentric rings around a cluster of seven major springs. The buildings are simple but effective—cut from local basalt and limestone, their foundations raised on stone pillars to allow the omnipresent moisture to pass beneath. Narrow channels have been carved alongside every lane and alleyway, directing the ceaseless water flow through the town and beyond to the plateau's edge, where it cascades down to feed the forests far below.
+
+Vegetation thrives in this unusual high-altitude wetness. Not dense, but strategic—clumps of hardy bushes with waxy leaves cluster around water collection points. Purple-stemmed reeds stand in organized groves where the townspeople cultivate them for weaving and building. Moss carpets every north-facing surface, while lichen paints the stone walls in subtle patterns of sage and rust. In the communal gardens, terraced plots support root vegetables and grain that have adapted to the constant moisture.
+
+The geology here is young and raw. The mountains haven't had time to soften their angles; they rise in sharp, dramatic thrusts of stone. Recent enough that many rock faces still bear the glossy fracture surfaces of their creation, unweathered by time. Where water runs across these new formations, it carves precise channels rather than meandering beds.
+
+What's most striking about Alvamist is its silence. No birds call from the reed beds. No insects buzz between the marsh plants. The plateau existed before animal life found its way to this isolated height—and for reasons no one understands, it remains that way. The only sounds are the gentle gurgle of water, the occasional soft conversation between residents, and the rhythmic tapping of stone on stone as craftspeople shape new blocks for building or repair.
+
+The light here is clear and bright during day, throwing every wet surface into prismatic display. At certain hours, the entire plateau seems to shimmer as if covered in glass. By night, the starlight reflects in every puddle and stream, creating a mirror-image sky below your feet.
+
+The people of Alvamist move with deliberate slowness. Their tools are simple—wooden handles with carefully knapped stone heads, bronze needles for finer work, clay vessels burnished to a water-resistant shine. Time seems suspended here. The water has always flowed; the stone buildings have always stood. The inhabitants speak of their great-grandparents building the first ring of homes, yet the inner structures bear the unmistakable patina of much greater age.
+
+This high, wet world exists in perfect equilibrium. The water never floods nor recedes. The temperature remains consistently warm despite the elevation, as if the constant moisture creates a microclimate that defies the mountain's normal patterns. Nothing changes in Alvamist—not the flow of the springs, not the growth patterns of the marsh plants, not the methods by which the people harvest reed and stone.
+
+As you walk the raised stone pathways between buildings, water always within sight and sound, you sense that you've entered a place that operates by its own rules—a plateau out of time, continuously moistened by weeping stone, silent except for water and human voice, unchanging as if it exists in a single, perfect moment.

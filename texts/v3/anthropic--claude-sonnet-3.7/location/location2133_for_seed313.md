@@ -1,0 +1,23 @@
+# The Glass Seed
+
+Beneath the fractured husk of a colossal amber-hued crystal dome, a hidden pocket-world thrives in defiance of the waterless badlands surrounding it. This enclosed microcosm—no larger than a small village—pulses with frenetic life and searing heat. The locals call it the Seed.
+
+The dome itself is ancient, its origin unknown, but the settlement within is young—perhaps only a generation old. The crystal surfaces, which might once have been smooth, now bristle with fresh crystalline growths like jagged teeth, their edges still mathematically sharp and unworn by time. These new formations jut at precarious angles from the floor and walls, creating a maze of reflective corridors and plazas between primitive dwellings.
+
+The air is thick with humidity that never condenses. It has nowhere to go, trapped in this sealed environment, recycled eternally through the dense vegetation that crowds every available surface not claimed by crystal or dwelling. Massive succulent-like plants with translucent tissues store not water but a viscous amber fluid that serves the same biological function in this ecosystem. Their bulbous forms pulse visibly with internal circulation, leaves unfurling with audible pops and stretches in the intense heat.
+
+Despite the lushness of the vegetation, the space between things feels strangely empty—vast negative spaces separate the crystal formations and plant clusters, creating an architecture of absence. Sound travels oddly through these voids, sometimes swallowed entirely, sometimes amplified to painful levels. Conversations fifty meters away might be heard perfectly, while someone shouting beside you goes unnoticed.
+
+The primitive settlement consists of structures woven directly from living plant material, coaxed into building shapes through some intuitive understanding between the inhabitants and the flora. No tools are used; the people simply sing to the plants in a complex tonal language, and the vegetation responds by growing in the desired directions. These botanical buildings shudder and creak constantly as they continue to grow and adapt.
+
+The few animals here have evolved strange symbioses with both plants and people. Translucent arthropods the size of small dogs scurry along the crystal edges, their segmented bodies capturing and reflecting light in hypnotic patterns. Occasionally they freeze, unfold previously hidden appendages, and begin to vibrate, producing sounds like struck crystal that seem to communicate something essential to the plant life.
+
+The most overwhelming aspect of the Seed is its soundscape—a constant cacophony of vegetative growth (creaks, pops, stretches), crystalline resonance (high singing tones as new formations emerge), and the inhabitants' perpetual song-speech. During peak activity, when the crystal dome captures and intensifies the external heat, the entire environment enters what locals call the "Quick"—a period of accelerated growth and change where new structures emerge within hours, plants visibly reach toward the ceiling, and the arthropods perform frenzied dances across the crystal facets.
+
+Most disorienting to visitors is the constant rearrangement of space itself. What was a broad plaza in the morning might be filled with a new crystal formation by midday. A path that led reliably to the central gathering space might suddenly terminate in a wall of vibrating plant flesh. Nothing remains stable except change itself.
+
+Despite this chaos, the inhabitants move with practiced ease through their ever-shifting home, reading subtle cues in crystal reflections and plant postures that are invisible to outsiders. They appear unbothered by the heat that makes the air shimmer visibly, their bodies adapted to temperatures that would desiccate ordinary humans.
+
+No technology exists here—not because it couldn't, but because the natural systems have developed such complex behaviors that technological intervention seems redundant. The crystal dome itself may be the remnant of some ancient technology, but if so, its purpose has been forgotten or transformed beyond recognition.
+
+When the external sun reaches its zenith and strikes the dome at the perfect angle, every crystal surface ignites with golden light, creating a daily moment when sound briefly ceases and all movement pauses in what the inhabitants call "the Breath"—the only moment of stillness in this otherwise turbulent micro-world.

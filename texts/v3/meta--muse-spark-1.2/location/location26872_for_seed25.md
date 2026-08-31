@@ -1,0 +1,41 @@
+It is low country.
+
+Not a pit or a canyon, but a broad, shallow bowl in the continent, kilometers across, where the land has sagged and settled and stayed. The elevation is so slight you feel it more in the air than in contour — the wind stops here, the cold pools here. From any rise, which are never more than a few meters high, you can see to the far rim where the dark ground simply dissolves into more dark. Open, on a valley scale. Not infinite. You could walk from one side to the other before your legs gave out, if anything could walk straight.
+
+The ground is stone, but stone that has been worked a very long time. Weathered, established, in balance with itself. Basalt and shale and something paler — chert, perhaps — all rounded down, potholled and scalloped, not sharp. No cliffs, no fresh breaks. Even the boulders are smoothed into loaves and pillows, as if they have been tumbled in place for a million years. Between them are flats of fine, compacted silt and sheets of black glass where old flows cooled, now crazed with hairline fractures. No soil. No humus. No root holds anything together. It is a mineral world.
+
+And it is damp. Not wet. There is no standing sea here, no lake. Water arrives on the stone as condensation. The air is cool — a steady 8 or 9 degrees, late-autumn cool, the kind that makes stone sweat. You breathe and your breath doesn't plume so much as hang. A sheen covers everything below knee height. Every shallow, every groove in the basalt holds a film, a pocket, a bead. Occasional rain passes through without light or thunder, a cold mist that lays itself down for an hour and then lifts, leaving the whole basin glistening. Narrow, braidless streams cut no deeper than your ankle, dark water moving with no hurry between the stone pillows, disappearing under slabs and reappearing meters later. It never feels dry. The stone smells like wet iron.
+
+There is almost no light. Not cave-dark, but the dark of a sky that never cleared. A uniform overcast so low and thick it erases sun and moon and stars, leaving only a bruise-purple dusk that never becomes day or night. You can see, after a while — shapes, movement, close things — but color is gone. Everything is a value of wet gray-blue and black. Far distance is lost in haze. The darkness is not empty. At first you think the ground is moving because your eyes are adjusting badly.
+
+Then you understand the ground *is* moving.
+
+There is nothing green here. No grass, no moss, no lichen, no tree. The stone is bare where you can see it, which is almost nowhere. Because this dense, low, cool bowl is covered.
+
+Fauna. Overwhelming, uninterrupted fauna. Not herds. Not flocks. A living crust, a layered, near-touching mat that extends as far as the low light allows — and further.
+
+At a distance they look like stone themselves — a dark, shifting pavement that contracts and swells. Closer, they separate. They are not one species. They are thousands, but they share rules: low, flat, damp-adapted, lightless-adapted. The dominant forms are broad and overlapping like slate tiles, each the size of a hand or a dinner plate, with a smooth, chitinous back that collects condensation in beads. They are black or translucent-gray, rimmed with fringes of cilia that flick constantly. Underneath, briefly exposed when one lifts to crawl over another, you see a pale underside crowded with stubby, tufted legs and a soft, puckered mouth that squeegees biofilm off stone.
+
+Between and over and under those, are others. Thinner, eel-like things as long as your forearm but no thicker than a rope, threading through the gaps, glossy and blind, feeling with whiskers. Pill-shaped grazers that roll rather than walk, leaving a faintly luminous mucus trail that fades in seconds. Things like upright, leathery anemones anchored in cracks, opening and closing a crown of filaments to filter the damp air. And everywhere — *everywhere* — smaller forms: mites and lice and springing specks in the millions per square meter, a granular, crawling static on top of the larger bodies. You cannot set a foot down without stepping on dozens. There is no bare stone larger than a palm.
+
+It is dense in a way that stops being a count and becomes a texture. Layered two or three deep in places. Not piled in a frenzy, but settled, interlocked, like cobblestones made of flesh. They tolerate touch. They crawl over one another without aggression most of the time, a slow, tidal shuffling as the whole biomass respires and repositions toward moisture. If you stay still, they will move over your boots, up your legs, tasting the salt.
+
+The rule of this place is: stone feeds film, film feeds mouths, mouths feed mouths.
+
+With no plants, the base of the whole mountain of animal is invisible. A bacterial and mineral slick — a dark, iridescent skin on every wet surface, chemosynthetic, feeding on the dissolved iron and sulfur in the seep water. You smell it as a faint, metallic, low-tide tang. The tile-creatures and rollers graze it constantly, their mouths making a soft, ceaseless scraping. And then other things eat them. The ecosystem is active, always active, at a low, cold, patient pace that never sleeps.
+
+You see it happen without drama. One of the rope-things will pause, rear a head that has no eyes, and then snap sideways into the fringe of a tile-creature, worrying at its edge until it flips. The underside is exposed, legs paddling. Within seconds three other kinds of scavengers converge, filament crowns snapping shut, small jumping things swarming like dust. No chase. No roar. Just the constant, quiet turnover of a meadow where the grass is meat.
+
+The strangeness is not in any one animal but in how wrong the whole picture feels together — that this much animal life exists without any visible plant to hold it up, that sound comes from nowhere and everywhere, that behavior seems coordinated when it isn't.
+
+Because of the sound.
+
+It is deafening.
+
+At first, with the darkness and cool and damp, you expect silence. What you get is a wall of noise so dense it has pressure. Not loud in the way of an explosion, but loud in the way of a factory floor or an insect summer turned up beyond endurance. Every creature contributes. The tile-things stridulate — a dry, high *tik-tik-tik* made by rubbing their fringed edges together, thousands upon thousands of them at slightly different tempos, merging into a sawtooth hiss that never breaks. The rollers click when they move. The anemone things make a soft, popping *plop* as their crowns open. The air itself hums with the wings of things you can barely see, clouds of gnats no bigger than ash, vibrating in place over the streams. And underneath, a lower, wetter, constant rustle and slap and sucker-pop of countless bodies shifting on wet stone.
+
+You cannot hear your own breathing. If you speak, your voice is swallowed half a meter from your mouth. If you stand for a long time, the sound begins to feel like a vibration in your sternum. It does not ebb. There is no dawn chorus or night quiet — the light never changes and neither does the chorus. It is territorial and mindless and endless, the sound of a place that is fully occupied and intends to stay that way.
+
+If you crouch down — and you will, because the darkness forces you close — you see that some of them make light that does not illuminate. Faint, cold pinpoint glows along the backs of the larger tiles, or a brief worm-like flash when a rope-thing is disturbed. Bioluminescence without purpose you can parse, too dim to see by, only enough to make the crowded, shifting surface glitter faintly, like condensation catching a light that isn't there.
+
+This is an old, settled, weathered place that has found its equilibrium without us, without green, without sun. The stone will not change. The water will continue to bead and run in its shallow, established channels. The cold will hold. And the mat will keep shifting, scraping, feeding, breeding, dying, layered so thick you cannot tell where one animal ends and the next begins, filling the whole low bowl from rim to rim with a deafening, glistening, mindless rustle in the dark.

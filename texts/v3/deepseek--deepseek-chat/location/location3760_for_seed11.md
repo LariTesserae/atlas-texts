@@ -1,0 +1,19 @@
+### **The Drowned Plateau**  
+
+A vast, shattered tableland rises from the mists, its edges crumbling into the sky like the broken rim of a colossal bowl. This is an ancient place, worn down by epochs of wind and water, its once-mighty heights now softened into undulating waves of stone. The plateau is open, stretching beyond sight, yet empty—so empty that the few scattered signs of life feel like whispers in a cathedral.  
+
+The land is damp, but not soaked. Water exists in hidden ways: dew clings to the lichen-crusted rocks in the mornings, thin rivulets snake through the cracks of the stone, and sudden mists roll in without warning, swallowing the world whole. There are no true rivers here, only the memory of them—dry channels where water once ran, now filled with smooth, water-worn pebbles. Sometimes, after the rare rains, shallow pools form in hollows, glinting like shards of mirror before vanishing again into the thirsty earth.  
+
+Vegetation clings stubbornly to the plateau, lush in patches where the stone has surrendered to soil. Mosses and low, gnarled shrubs dominate, their roots gripping the rock like desperate fingers. Strange, bulbous fungi rise in clusters, their caps glowing faintly in the dim light, pulsing as if breathing. In the deeper crevices, where moisture lingers, ferns unfurl in delicate spirals, their fronds trembling in the wind.  
+
+The air is warm, thick with the scent of wet stone and decaying leaves. The wind is a constant presence, howling across the open expanse, carrying with it the distant roar of unseen waterfalls—somewhere beyond the edge, water is plunging into the abyss, but the sound is distorted, echoing as if through a dream. At times, the wind grows deafening, a force that could knock a man to his knees, screaming through the rock spires like a chorus of lost voices.  
+
+The plateau feels primordial, a place that has settled into its final form long before the first creatures walked the earth. The stone is smooth in places, polished by millennia of erosion, yet elsewhere it is jagged, split by some forgotten cataclysm. Strange formations rise like the bones of long-dead giants—arches, spires, and hollowed-out domes that hum when the wind hits them just right.  
+
+Human presence is sparse, almost ghostly. A few crumbling stone huts stand in the lee of boulders, their walls half-buried by time. Tools lie abandoned—simple things, chipped flint and worn wooden handles—left by people who either moved on or vanished. There are no cities here, no roads, only the occasional fire pit or cairn marking a path long forgotten.  
+
+The few animals that dwell here are rare and elusive. Winged things flit between the rocks, too fast to see clearly. Sometimes, a shadow moves at the edge of vision—something low to the ground, many-legged, skittering into the cracks. There are no large beasts, no herds, only the silent watchers that vanish when you turn your head.  
+
+And then there are the moments when the world shifts. The plateau is not still. The wind does not just blow—it writhes, twisting the mist into shapes that almost look deliberate. The stone itself sometimes groans, as if settling deeper into the earth. Storms come without warning, the sky turning black in an instant, and in their wake, the land is subtly different—a boulder split open, a new crevice yawning where there was none before.  
+
+This is a place of echoes, of things half-seen and half-heard. A place where the water hides, where the wind speaks in tongues, where the stone remembers more than it should. A place that feels, in its emptiness, like it is waiting.

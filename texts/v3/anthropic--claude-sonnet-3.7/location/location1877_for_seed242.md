@@ -1,0 +1,21 @@
+# The Resonant Undercity
+
+The first thing you notice is the sound—a physical force that presses against your ears and chest. It comes from everywhere: the constant, thunderous percussion of water striking stone, amplified by the acoustic properties of the vast cavern system. This isn't a gentle drip or pleasant babble, but a cacophonous orchestra of liquid impact, rushing currents, and the responding groan of the stone itself.
+
+You stand on the edge of Hollowsong, an ancient settlement that sprawls beneath the earth in a network of connected caverns. The ceiling arches twenty to thirty meters above, occasionally pierced by narrow shafts that admit pale, watery light from the world above. These beams catch the perpetual mist that hangs in the air, creating ghostly columns in the dim expanse.
+
+The city is carved directly into the stone, thousands of dwellings packed so densely that they appear to grow from one another like crystalline formations. No space is wasted—homes stack vertically along the walls, connected by precarious wooden ladders and rope bridges that crisscross the open air of the cavern. The architecture follows the natural contours of the rock, embracing rather than fighting the cave system's organic form.
+
+Water is everywhere, but never quite enough to flood. It weeps from the walls in constant rivulets, collecting in channels carved into the stone floors. These channels—some natural, some clearly hand-hewn with crude tools—form a complex network that directs the flow through the settlement. The water is put to immediate use: turning simple wooden water wheels, filling communal pools, feeding patches of pale fungi and lichen that provide sustenance to the inhabitants.
+
+The vegetation is sparse but specialized. Luminescent fungi cling to walls, providing islands of soft blue-green illumination. Thick mats of specialized mosses grow where water consistently flows, creating small, cushiony areas of life. Occasionally, you spot the white, eyeless fish that dart through the deeper pools and channels—one of the few fauna that thrive in this strange domain.
+
+The inhabitants themselves are everywhere, moving with the practiced efficiency of those who have lived generations in tight quarters. They are pale but sturdy, dressed in woven fungi-fiber garments dyed with mineral pigments. Their voices add to the din as they shout to be heard over the constant water-roar, using a language that seems to incorporate the rhythms of the cavern's natural sounds.
+
+The air is cool and perpetually damp, heavy with the scent of stone, mineral-rich water, and the earthy smell of the fungi gardens. Breath fogs visibly, and surfaces glisten with condensation. Nothing ever fully dries here; the people have adapted with waterproof containers made from treated fungi caps and sealed clay vessels.
+
+Movement defines Hollowsong—the constant flow of water, the bustle of its inhabitants, the slow but perceptible growth of their stone-carved home. Recent excavations have opened new chambers, their edges still sharp and unworn, their surfaces not yet softened by the constant touch of water and hands. These newer sections contrast with the ancient heart of the settlement, where generations of touch have polished the stone to a gentle sheen.
+
+What makes Hollowsong truly strange is the resonance. The particular shape of the caverns creates acoustic properties that amplify certain tones produced by the falling water. The inhabitants have learned to harness this, carving sound chambers and water channels that produce specific notes when the flow is properly directed. During certain times, when they partially dam or redirect the flows, the deafening cacophony transforms into something more deliberate—a thunderous, primal music that vibrates through stone and bone alike.
+
+The technology here is simple but ingenious—all stone, wood, fiber, and clay. Metal is rare and precious, seen only as small ornaments or specialized tools. Yet the engineering knowledge runs deep, passed through generations of careful observation of how water and stone interact. Nothing here exists in isolation; each dwelling, water channel, and sound chamber serves multiple purposes in the dense, interconnected ecosystem of Hollowsong.

@@ -1,0 +1,21 @@
+The world here is constructed around a single, overwhelming note. 
+
+At the baseline of a colossal, lightless fissure—so deep its ceiling is lost to a perpetual, cold fog—lies a tiny, sheltered ledge of basalt. It is an intimate room of stone, perhaps twenty paces across, suspended above an immense and empty nothingness. 
+
+To stand on this ledge is to be drowned in sound. The sound is not an explosion or a crash, but a continuous, pressurized roar that fills the skull and vibrates through the soles of the feet. Somewhere in the vast, hollow basalt veins of the low country, miles of cold air are being forced through a narrow subterranean throat. The result is a deafening, low-frequency hum, so deep and massive that it behaves like a physical solid. It compresses the chest, stills the lungs, and renders speech impossible. In this space, sound is the ground; everything else is built upon it.
+
+Yet, despite the roar, there is no wind here. The ledge is tucked inside a deep, protective fold of the cliff, a pocket of absolute stillness.
+
+Because of this stillness, moisture has accumulated. It does not rain, but the air is thick with a cold, heavy condensation that blankets the dark stone. Water doesn't flow in streams; instead, it exists as a silver glaze over every surface, pooling in the small, shallow depressions of the basalt. It is a slow, damp world. Drops form on the overhangs with agonizing slowness, hanging for hours as trembling spheres before falling into the dark below. 
+
+In this cold, dim shelter, life has taken hold with a quiet, dense ferocity. Robust, dark-leaved vegetation covers every inch of the ledge that isn't bare wet stone. The plants are small but lush, adapted to the dark and the chill. Thick carpets of black-green liverworts, slick to the touch, drape over the rock face like wet velvet. From the deep cracks grow dense clumps of pale, fleshy ferns whose leaves are coated in a natural waxy grease to shed the constant condensation. They do not rustle—the air is too still—but their fronds shiver constantly in sympathy with the deep, rumbling vibration of the earth.
+
+The cold here is damp and marrow-deep, hovering just above freezing. There is no sun, only a dim, diffused twilight that seems to rise from the damp rocks themselves. It is a world of monochrome shades—payne’s grey, deep charcoal, and the bruised, dark emerald of the moss. 
+
+On the far edge of the shelf, where the green carpet gives way to the open void, are the marks of ancient, primitive occupation. 
+
+There are no metal fixtures, no complex machines. Instead, a low, semi-circular wall of dry-stacked basalt slabs stands as a barrier against the drop-off. The stones are weathered, their edges rounded by centuries of condensation-induced decay, settled into a perfect, interlocking balance that looks as though it grew from the cliff itself. Inside this shelter, several shallow basins have been hollowed directly out of the bedrock. They were carved with stone tools; the rough, stepped tool-marks are still visible beneath a layer of green slime. The basins are full to the brim with clear, cold condensation. Nearby, a heavy hand-adze made of dark, chipped flint lies forgotten on a stone step, its handle-groove worn smooth by a palm that departed long ago. 
+
+Fauna is nearly non-existent in this acoustic chamber. The deafening vibration keeps most things away. But if one watches the wet moss for long enough, a single, pale creature might emerge: a thick-bodied, blind slug, the color of curdled milk, moving with glacial slowness across the leaf-mold, entirely indifferent to the roar that shakes the stone beneath it.
+
+Time in this pocket operates on an immense, geologic scale. The plants grow leaf by microscopic leaf in the dark. The stone basins catch their single drips. The primitive wall settles a millimeter closer to the bedrock every hundred years. The roar continues, unchanging, a monument of air and stone, while the tiny, lush room clings to its edge, dark and dripping in the throat of the earth.

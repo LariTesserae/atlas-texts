@@ -1,0 +1,17 @@
+A vast field of self-replicating machines stretches across the rolling highlands, their forms both delicate and inevitable - like crystal formations that grew according to ancient mathematical laws. These are not the crude mechanisms of human design, but rather the end result of some long-ago industrial process left to run for centuries or millennia, each generation of machines producing slightly modified copies of themselves using the raw minerals of the warm, dry earth.
+
+The machines work in perfect silence. Their movements are so precise, so well-worn by time, that even the friction between their countless components produces nothing more than the faintest whisper of metal on metal. The air itself seems reluctant to carry sound, hanging still and heavy in the perpetual twilight cast by the dust-choked sky above.
+
+The landscape undulates in long waves, like a sea frozen in mid-surge, though there has never been water here. These slopes are built entirely from discarded machine parts - the accumulated shells and casings of countless generations of mechanical evolution. The pieces have fused together over time into a dense metallic soil, oxidized to deep oranges and browns that glow dully in the dim light.
+
+At regular intervals, slender towers rise from this mechanical terrain. These are not built structures but rather the emergent result of the machines' endless working - places where particular patterns of replication have created slow-growing spires of interlocked components. Some reach hundreds of meters into the hazy air, their surfaces etched by the same fine dust that dims the sky.
+
+The machines themselves are small, most no larger than a human hand, but they work in such vast numbers that from any elevated vantage point they seem to flow across the landscape like schools of fish. Their movements follow complex but unchanging patterns, gathering raw materials from deeper layers of the mechanical soil, processing these materials through their internal mechanisms, and depositing new machines or components in precisely determined locations.
+
+The air is warm - not from the wan sun above, but from the collective heat of millions of tiny mechanisms working in concert. This heat rises in visible waves from the denser clusters of activity, creating subtle distortions in the already murky air. The temperature remains remarkably constant, as if the entire system had long ago found its optimal operating conditions and now maintains them with perfect precision.
+
+There is no organic life here, not even the simplest bacteria. The machines have optimized their environment for their own needs, and those needs have no place for the messy inefficiencies of biology. The only movement is mechanical, the only growth is replication, the only change is the endless repetition of patterns established eons ago.
+
+Looking closer at any individual machine reveals impossibly fine details - gears smaller than dust motes, articulated joints that seem to bend in impossible ways, surfaces textured with precise patterns that serve unknown but clearly essential functions. Yet step back, and the entire landscape takes on the quality of a single vast organism, or perhaps more accurately, a single vast machine, endlessly maintaining its own existence through the coordinated actions of its countless components.
+
+This is a place of perfect stasis, of eternal continuation. Whatever set these machines in motion is long forgotten, but their work continues unchanged, unsupervised, and unending.

@@ -1,0 +1,7 @@
+The chamber was vast and cavernous, an immense subterranean vault carved out of twisting bands of layered rock. Luminous mineral seams glowed softly throughout, bathing the space in rich hues of violet and azure. The air hung hot and humid, laden with the musky tang of damp stone and unseen grottoes.
+
+Beads of water condensed on the undersides of craggy outcropping, dripping in slow, stately paces to form small but deep pools on the chamber floor. The floor itself was a tumbled landscape of broad flats and jutting plateaus, threaded through with below-surface waterways. Purplish fungi clung to shadowed nooks and crannies, casting a mats of sponge-like mycelium and tortured, brilliantly-colored sporocysts over every surface they touched.
+
+An occasional bright splash of streaked glass marked where ancient magmatic flows had upwelled and rapidly cooled, tectonically preserved in the moment of their crystallization into glittering obsidian. Under the uncanny luminescence, even the rock itself seemed to pulse with subtle colors.
+
+A constant susurrus of watery flow and slow drainage echoed from the deepest recesses of the chamber. The susurrus thrummed and underscored a strange, tuneless keening that some argued was the mass resonance of hidden water. Through the shifting patterns of pressure-ruled flow and static, turgid air, the keen could be heard as either instant or eternal.

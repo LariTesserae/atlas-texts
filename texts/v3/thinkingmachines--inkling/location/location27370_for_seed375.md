@@ -1,0 +1,19 @@
+The hollow is not large. You could cross it in a long afternoon, if crossing meant anything here. It sits low—no hills, no view—an enclosed plain no bigger than a forgotten town square, though its edges are sharp, freshly broken, as if the ground cracked open only yesterday and revealed what was always waiting beneath. The air is cool, still, and so dry that moisture feels like a myth told elsewhere. There is no water. Not in pools, not in vapor, not even locked in stone. Life here, what little there is, runs on other chemistries—dust, salt, the slow digestion of mineral.
+
+Above, the ceiling is low and dimly luminous—not sky, not sun, but a faint, sickly glow that seems to come from the walls themselves, offering just enough light to see the architecture without ever illuminating it fully.
+
+And there is architecture. Not built—grown, or accreted, or arranged by a patience without hands. Parallel rows of vertical plates rise like ribs, like streets lined with buildings, creating a grid that looks unmistakably urban: avenues, intersections, plazas where the plates cluster into arches and hollow towers. The material is bone-pale, porous, layered—organic in origin but mineralized, as if an enormous colony of silent beasts spent millennia secreting shelter and then retreated into dormancy. There are no doors, no windows, no marks of use. The settlement-scale order is present—layered construction, infrastructure density—yet there is no technology here, no tool, only biological precision. It is a city made by bodies that needed no minds.
+
+The space between these structures is enormous relative to their presence. Density is near-void. You stand in a corridor wide enough for a procession, yet the walls are far apart, and above them is only dark, empty volume—hollow, cathedral-scale emptiness. The structures occupy perhaps a tenth of the space; the rest is pure absence.
+
+Yet it is not dead. The dynamics are active, though silent. The plates shift—imperceptibly, but constantly. A slow respiration: the rib-walls expand and contract by fractions of a millimeter, drawing in the dry air, exhaling nothing audible. In the intersections, fine mineral dust settles and is lifted again by some invisible current, cycling through the grid like a weather system without water, without wind as we know it. The sparse vegetation—thin, papery films of grey-green—clings to the cooler-facing plates, growing not toward light but toward chemistry, digesting the faint phosphorescence, releasing spores that hang motionless in the stillness.
+
+Fauna is rare—so rare you might think the place is uninhabited. But if you wait, silent and still, you may see one: a flat, translucent form no larger than a palm, drifting between the ribs like a leaf in zero gravity. It moves without sound, feeding perhaps on the falling dust, on the spores, on the mineral weep that the walls excrete in their slow breathing. There are not many. They do not interact. Each is alone in the grid.
+
+The erosion is young—the edges of the hollow are sharp, unrounded, the mineral surfaces fresh and unweathered. This place emerged recently, geologically speaking, and has not yet been worn smooth by time.
+
+Weirdness permeates it not as spectacle but as wrongness in the familiar. The streets form perfect right angles that serve no traffic. The towers are hollow and open to the dim glow, yet they shelter nothing. The city is complete—functional in appearance—yet utterly empty of purpose. It is urban form stripped of humanity, of intent, of noise.
+
+Sound is absolute zero. Not quiet—silent. The air does not carry echo. Your own presence here seems to vanish at the edge of perception, absorbed by the porous walls or by the sheer absence of reflecting surfaces.
+
+Everything is cool, low, enclosed, dry, strange, and active—moving in its own silent, mineral rhythm: a settlement without settlers, growing and breathing in a small, sharp-edged world without water.

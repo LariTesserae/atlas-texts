@@ -1,0 +1,11 @@
+In the depths of a confined, almost microscopic ecosystem, a vibrant yet parched landscape unfolds—a terrarium of extreme contradictions. The space is no larger than a closed fist, yet within it sprawls an entire world of intense, compressed vitality.
+
+The ground is not soil, but a crystalline substrate of salt and mineral fragments, pale and sharp-edged, recently fractured as if the entire terrain is still in its geological infancy. Despite the near-total absence of water, impossible vegetation erupts through the mineral crust—not plants as we know them, but dense, rubbery growths that seem to condense moisture from the very air. These plants are deep crimson and electric green, with membrane-like leaves that pulse and contract, capturing whatever ambient humidity exists in this sealed environment.
+
+The temperature is relentless—not just hot, but a constant radiant heat that seems to generate from within the crystal ground itself. This heat creates shimmering waves that distort vision, making the tiny landscape seem to breathe and pulse. Sound dominates this space: a constant, thrumming noise that might be the metabolic sounds of the vegetation, or the grinding of microscopic geological processes, or both.
+
+Rarely, a fauna emerges—something between insect and fungal growth, translucent creatures that move with jerky, unpredictable motions. They seem more like animated fragments of the landscape than discrete beings, blending into and out of the crystalline ground.
+
+The entire environment feels like a contained explosion, a moment of chaotic creation perpetually unfolding. Despite its microscopic scale, there's an sense of immense energy, as if this tiny world contains the compressed potential of entire planets. Urban-like structures of organic material rise from the crystal ground—not buildings, exactly, but complex organic architectures that serve as both habitat and organism.
+
+No technology exists here. This is a pure expression of biological possibility, a self-contained universe of constant, turbulent transformation.

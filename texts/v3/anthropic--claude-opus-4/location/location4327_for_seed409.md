@@ -1,0 +1,13 @@
+The alcove breathes condensation against your neck.
+
+Hidden within the frozen industrial sprawl, a pocket of impossible warmth persists—though warmth is relative here, where ice forms in your lungs. This cramped refuge, no larger than a supply closet, thrums with stolen heat from the city's deep geothermal pipes. The walls weep constantly, mineral-rich moisture bleeding through porous concrete that was never meant to hold this much temperature differential.
+
+Above, the highland city sprawls in terraced brutalism, its factories and processing plants carved into the mountainside over centuries. Steam vents puncture the urban crust like breathing holes, their output freezing instantly into ice-crystal plumes that drift silently across empty boulevards. The machinery runs itself now—pneumatic hammers striking ore in distant tunnels, conveyors grinding forward beneath sheets of frost, turbines spinning in their housings with nobody left to maintain them.
+
+But here, in this wet sanctuary, moss grows. Not much—sparse patches of arctic cushion moss clinging to the warmest spots where pipe insulation has failed and blessed heat leaks through. The moss glows faintly bioluminescent in the dim space, having adapted to the perpetual twilight that filters down through gratings and service hatches. Water droplets form and fall in irregular rhythms, each one carrying dissolved minerals from the city's corroding bones.
+
+A single drain beetle scuttles across the wet floor, its carapace adapted to process the chemical runoff. It's the only fauna you'll find here—these thumb-sized scavengers that feed on bacterial mats and industrial seepage. They move between the wall cracks on mechanical legs, part creature, part creation, engineered long ago to clean the city's hidden spaces.
+
+The sound is almost nothing—just the subtle plink of falling water, the distant hum of automated systems many levels above, the beetle's metallic clicking as it feeds. Your own breathing seems loud here. The space muffles everything, contains everything, holds you in its humid embrace while the dead city continues its purposeless production overhead.
+
+Strange fungi bloom where warm pipe meets cold wall—not quite plant, not quite machine, processing heat differentials into chemical energy. They pulse slowly, on a timescale between mechanical and biological. The whole alcove exists in this liminal state: too warm to freeze, too cold to thrive, too hidden to matter, too persistent to die.

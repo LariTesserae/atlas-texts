@@ -1,0 +1,23 @@
+# The Suspended Metropolis of Nimbostrata
+
+In the mountain range locals call the Spine of Dawn, a city defies comprehension. Nimbostrata hangs between peaks so high they pierce the troposphere, where the air grows thin and moisture clings desperately to existence. The city doesn't sit upon the mountains so much as it floats among them—suspended in a perpetual state of becoming.
+
+The ground beneath Nimbostrata isn't ground at all. The city rests on massive platforms of newly-formed stone that materialize from the mist, particle by particle. These geological births happen slowly, almost imperceptibly, yet constantly—raw matter condensing from a strange atmospheric alchemy that scientists have studied for decades without consensus. The stone is pristine, showing no signs of weathering, its edges crystalline and sharp. Where new formations emerge, they glow with a faint phosphorescence, illuminating the perpetual twilight.
+
+Buildings rise from these floating foundations in a haphazard array of industrial architecture—brick factories with tall chimneys, steel frameworks supporting glass domes, copper-roofed observatories, and concrete apartment blocks. But unlike conventional cities, Nimbostrata's structures often appear incomplete. A wall might fade into transparency at its edges; a tower might loop impossibly back into itself. Windows sometimes look out onto entirely different districts than they should, and doors occasionally open to yesterday or tomorrow.
+
+The light here never brightens beyond a dusky glow. The sun remains a theoretical presence above the near-constant blanket of clouds that envelops the city. Phosphorescent moss and lichen substitute for sunlight, coating surfaces in patches of blue-green luminescence. Industrial lamps and gas streetlights cast pools of amber in the mist, their halos diffused by the perpetual dampness.
+
+Water exists in a state of restless transition. It beads on surfaces, runs in narrow rivulets down newly-formed stone, and occasionally gathers in shallow pools that reflect the city's distorted image. Every few hours, a gentle rain falls—not enough to drench, but sufficient to maintain the slick sheen on every surface. The moisture feeds the surprisingly vibrant vegetation that erupts in pockets throughout the city—ferns unfurling from crevices, moss carpeting vertical surfaces, and strange orchid-like blooms that open only in darkness.
+
+The sparse arrangement of Nimbostrata's districts creates a sense of isolated islands in a fog sea. To travel between them, residents use a network of cable cars and narrow bridges that sway slightly in the mountain winds. The journey between districts can take hours, marked by the slow mechanical rhythm of gears and pulleys that echo across the vastness.
+
+What truly makes Nimbostrata remarkable, however, is its fauna. Animals from incompatible ecosystems coexist in defiance of natural law. Mountain goats leap impossible distances between floating platforms. Tropical birds with luminescent plumage nest in industrial smokestacks. Translucent salamanders larger than dogs crawl up vertical surfaces. Most disturbing are the phase foxes—creatures that flicker in and out of visibility, sometimes appearing with too many tails or eyes that see through time rather than space.
+
+The soundscape is a constant industrial symphony. Steam whistles mark the hours. Mechanical looms clatter day and night. The low thrum of massive engines that prevent certain districts from drifting too far permeates everything. And beneath it all, a bass resonance—the sound of stone being born from nothingness.
+
+Nimbostrata's inhabitants have adapted to its peculiarities. They wear goggles with adjustable lenses to navigate the variable visibility. Their clothing incorporates copper wire meshes said to stabilize their position within reality. They speak a dialect that includes terms for colors visible only in Nimbostrata's unique light conditions and concepts related to their city's fluid relationship with physical laws.
+
+The city's boundaries remain undefined, its edges literally unformed. Explorers who venture too far into the peripheral mists sometimes return changed—speaking of temporal eddies and spatial folds where the fabric of existence hasn't yet decided what it wants to be. Others don't return at all, though residents occasionally claim to see their silhouettes in the fog, still searching for a way back.
+
+In Nimbostrata, reality itself is under construction, a work eternally in progress.

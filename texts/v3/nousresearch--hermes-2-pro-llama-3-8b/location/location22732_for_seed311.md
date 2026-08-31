@@ -1,0 +1,13 @@
+Nestled in the heart of a pocket-scale world, the landscape is a unique blend of submerged aquatic splendor and architecture reflecting the progress of a thriving urban city. The water parameter, a rating of 2.8/3, describes vast oceanshaped bodies of deep liquid, submerging all land formations and submerged cities. These waters are atmospheric and comprise peculiar compositions, being partially composed of water, wallsofrain, and post-flood remnants.
+
+Despite the water's dominance, vegetation holds a rating of only 0.7/3, indicating sparse and scattered growth across the landscape. However, these remnants of plant life persistently struggle to stake a claim on the rugged terrain, the elevation rating of 1.0/3 rendering the landscape low-lying with sharp features.
+
+The young erosion rating of 0.7/3 means the landscape is emerging from an early-formation stage, with fresh features and impressively youthful ambiance. Intertwined with this young landscape is a peculiar sense of scale, hidden within the layers of infrastructure and tightly packed spaces. The inhabitants, movers, and shakers of this world are experienced within a micro-environment that feels intimate and romantic, as though one has become embedded within a membrane.
+
+The city parameters, boasting a rating of 2.6/3, signify a society that has surpassed modern comprehension, introducing engineering feats belying their physical principles. This world is filled with clever constructions possessing nanoscale or perhaps cosmic implications, marvelous to behold amid the sub-aquatic landscape.
+
+Though natural light shines normally, illuminating the vibrant colors and structures, the lack of animal life proves heartbreaking - the fauna rating holds a mere 0.1/3 - shuttering an essential chapter of existence in this mysteriously beautiful world.
+
+This landscape is loud, a raucous and boisterous symphony, contradicting the absence of fauna but conforming to the chaotic, active nature receiving a rating of 2.2/3. These pockets brim with dynamic processes, forming an immersive world of weather cycles, ecosystem movements, and substantial urbanization. The active nature of this place, where every action feels interconnected, induces a strange and ominous wonder, as the watermark for weirdness stands at 2.0/3.
+
+This hidden cityscape, jam-packed and sopping, is an architectural marvel that shows how potent poetry can be when utterly strange, forging a masterpiece where water battles land, while cities hug the ocean bed. In this labyrinthine masterpiece, wonderment rules, an enigmatic meeting ground of surreal elegance, extraordinary technology, and unique survival against all odds in the deep sea.

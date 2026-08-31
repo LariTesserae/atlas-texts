@@ -1,0 +1,29 @@
+# The Drowned Cordillera
+
+Start with the altitude. You're high — high enough that if this were ordinary mountain country, the air would thin into glass and the only living things would be lichen and the occasional hawk riding updrafts. But this is not ordinary mountain country. The peaks here have been worn down across such an unfathomable span of time that "peak" is the wrong word — they are shoulders, hummocks, the rounded knuckles of a range that has forgotten it was ever sharp. And every cleft, every saddle, every basin between them is full of water.
+
+Not lakes. The whole upper world is submerged. A shallow inland sea, perhaps thirty or forty meters deep over the high plateaus, plunging into trenches where the old valleys still remember their shape. From above — if you could rise above it — you'd see a flooded archipelago of soft green-grey mounds, the ancient summits breaking the surface like the backs of grazing animals. The horizon goes on. Island after island, channel after channel, a regional drowning that took eons to settle into this final, stable form.
+
+The water is cold. Not killing-cold, but the kind of cool that makes your hands ache after a minute — meltwater cool, glacier-fed, oxygen-rich. And because it is cold and shallow and bathed in real daylight (the sun comes through, refracted, dancing on the rock floors in those characteristic nets of light), it is *crowded* with life.
+
+The forests here grow underwater.
+
+Kelp-analogues, but freshwater, or brackish — long ribboned stalks rising twenty meters from anchored holdfasts on the old summits, their canopies forming a swaying ceiling just below the surface. Beneath them: a layered understory of broad-leafed water plants, fern-like fronds, mosses thick as carpet on every stone. Where the islands break the surface, the vegetation continues into air — stunted, wind-shaped trees on the exposed crowns, dripping with epiphytes, their roots tangled into the submerged forest below so that the boundary between aquatic and aerial growth is less a line than a slow handoff. Dense. Layered. You cannot move through any vertical meter of this place without parting something living.
+
+And it is *loud*.
+
+This is what surprises, the first time. The volume. There are waterfalls everywhere — not great cataracts but a constant minor music, water moving from one basin to the next through gaps in the old ridges, white tongues pouring between islands, the whole drowned cordillera draining and refilling and rebalancing itself with every shift of pressure. Wind comes through hard and cold across the open water, raising chop, slapping it against rock. Birds — and there are so many birds, diving birds, fishing birds, things like cormorants and things like terns and things with no name — scream over the channels. Below the surface, the kelp groans in current. Fish schools turn with a sound like rain.
+
+And then there are the engines.
+
+This is what makes the place strange, or rather, this is the human note inside the ancient one. Scattered across the islands — not many, never crowded, but persistent — are the works. Small structures clinging to the higher knobs: stone-and-iron things, weathered, with stacks. Pumping stations. Hydroelectric houses tucked into the falls between basins. A processing shed on one island with a corrugated roof rusting orange. Cables strung between summits on creosoted poles, humming. Somewhere out of sight, larger: the deep thump of a turbine hall, felt in the chest more than heard, transmitted through rock.
+
+Someone is *working* this drowned country. Harvesting it, maybe — the kelp, the fish, the gradient between basins. The technology is not advanced. It is industrial in the older sense: riveted, greasy, smoke-stacked, the kind of mechanization that announces itself with vibration and steam. A boat moves between two islands now, low and broad, its engine coughing across the water, towing something netted and heavy. A man on the deck in oilskins, hooded against the spray.
+
+The dynamism of the place is what stays with you, though. The parameters say turbulent and they don't lie. Despite the deep age of the landforms — these mountains finished *becoming* a hundred million years before anything stood up to look at them — the surface state of the world is in constant rearrangement. The water never stops moving. Storms come through fast and hard at this elevation; you can watch a squall line crossing channels two valleys over while you stand in sunlight. The kelp canopies heave. The birds scatter and re-form. A waterfall doubles its volume in the space of an afternoon and then halves again by evening. The boats reroute. The fish move in great pressure-driven migrations between basins. Even the cloud cover is restless, tearing on the higher summits, snagging, releasing.
+
+It is a place that has settled into its final shape — soft, drowned, cool — and within that final shape has become the most active and crowded version of itself. Nothing here is going anywhere new. Everything here is, at this moment, in motion.
+
+If you stood on one of the higher exposed crowns and turned slowly, you would see: green water, grey rock, green water, the rusting roof of the processing shed, a streak of waterfall, a boat, a squall, more water, an island shaped like a sleeping bear, more water, the curve of the world, more water. And under it all, that thrumming — the turbines, the falls, the kelp-thick currents, the schools turning together, the wind on the chop, the birds — a sound you stop hearing only because there is nowhere it isn't.
+
+This is the country at the end of erosion. It is full.

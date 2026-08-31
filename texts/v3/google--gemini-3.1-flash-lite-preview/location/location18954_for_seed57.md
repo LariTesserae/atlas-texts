@@ -1,0 +1,15 @@
+The world here is contained within the hollow of a single, colossal geode, buried deep beneath a crust of lightless basalt. It is a pocket-universe of saturated liquid, a globe the size of an atrium, suspended as if in the dark, cool womb of the earth.
+
+The water is not merely water; it is a dense, viscous amber-thick medium, clinging to every surface like a living syrup. It does not flow so much as it occupies. Because the scale is so intimate, every movement creates a ripple that disturbs the entire geography of the room. You are looking at a hyper-condensed ecosystem, a micro-sea.
+
+There is a sense of "young" formation here, as if the landscape is still hardening from some primordial chemical spill. Jagged, crystalline spires—too sharp to be natural rock—pierce the darkness, glowing faintly with a cold, bioluminescent bruising. They are covered in a dense, moss-like velvet that vibrates with a low-frequency hum, the only sound in the suffocating quiet. This vegetation does not photosynthesize; it feeds on the reality-tears that ripple through the center of the sphere, where space folds back on itself and reveals fleeting glimpses of a starry void that should not exist inside a stone.
+
+It is packed, utterly saturated. There is no empty space; the water is thick with suspended pollen-like spores—bioluminescence in decay—that drift like dying stars. 
+
+Scattered among the crystalline spires are the partial remains of something that predates biology—or perhaps follows it. They look like bone-white porcelain arches, porous and delicate, partially dissolved by the acidic brine. They are faint, ghost-structures that seem to exist in two places at once; if you stare directly at one, it flickers out of existence, only to reappear in your peripheral vision as a solid, imposing monument.
+
+There is no heat here. The temperature is a persistent, damp chill that mimics the sensation of being held underwater in a winter night. The cycles are glacial; a single bubble takes days to rise from the floor of this pocket to its zenith, and when it finally pops, it releases a scent of ozone and crushed wet stone that lingers for weeks.
+
+Because the fauna is so rare—perhaps only a single, translucent cephalopod-like entity drifts through the gaps, translucent and trailing sensory tendrils that map the reality-breaks—you feel the density of the presences around you. The landscape feels like it is watching itself. The rules of gravity here are local and negotiable; the water occasionally pools upward toward the concave ceiling, forming globes that tether themselves to the sharp, crystalline tips of the flora.
+
+It is a place of profound, stagnant patience. It is an environment that has forgotten the sun, existing only to refine the dark, rearranging its own atoms within the stone shell, waiting for the geode to crack open—an event that, in the slow, liquid logic of this place, is still billions of heartbeats away.

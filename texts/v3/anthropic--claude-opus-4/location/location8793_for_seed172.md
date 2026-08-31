@@ -1,0 +1,17 @@
+The Vertical City drowns upward.
+
+What was once a metropolis now exists as a liquid column rising forty kilometers into the bruised atmosphere. The water doesn't fall—it *builds*, held in place by fields that twist physics into new grammatical structures. Each tier of the submerged architecture generates its own gravitational eddy, creating pockets where water flows sideways, pools in midair, or corkscrews through dissolved lobbies.
+
+The heat comes from the infrastructure itself. Every surface radiates the fever-dream temperature of overclocked processors calculating the water's impossible geometries. The original city's bones—ceramic composites and programmable matter—glow dull orange through the murk, their surfaces sprouting new additions like silicon coral. Buildings grow into each other, their smart materials responding to pressure differentials by extending tendrils of fresh construction. A half-formed bridge crystallizes between two towers, its molecules organizing themselves from the mineral-rich water.
+
+Through the dim light that filters down from somewhere above the water ceiling, you can see the density of it all. No space exists unused. Even the water itself is infrastructure—packed with utility fog, microscopic machines that form temporary structures as needed. A school of data packets manifests as a shimmer of golden particles before dissolving back into the medium. Maintenance systems build themselves when required, perform their function, then disassemble into the ambient technological soup.
+
+The few plants that survive here aren't really plants anymore. Engineered kelp-analogues trail from window frames, their fronds incorporating circuit patterns that help regulate the local water temperature. They grow sparse and strange, more machine than organism, their photosynthesis running on the infrared glow of the city's fever.
+
+Sound travels wrong here. The water carries vibrations that shouldn't exist—the hum of gravitational manipulators creates standing waves that manifest as zones of perfect silence. In these quiet pockets, the only sound is the occasional groan of new construction crystallizing into existence, or the whisper of water reorganizing itself along impossible pressure gradients.
+
+The whole system churns with slow activity. Convection currents carry heat and matter in vast loops. The water itself migrates through the structure, filtered and processed by the building-organisms that drink and excrete it in endless cycles. New floors appear at the top of the column while others dissolve and rebuild elsewhere. The city is always under construction, always incomplete, always becoming something else.
+
+At the very peak, where the water finally meets air, reality stutters. The surface isn't a surface—it's a probability cloud where liquid and gas negotiate their boundaries through quantum uncertainty. Sometimes the city extends higher, pushing towers of water into the sky that hang there for hours before remembering to collapse. Sometimes the boundary drops, exposing half-built spires that immediately begin growing protective shells against the killing air.
+
+This is architecture as ecosystem, construction as continuous birth, a place where the distinction between natural and artificial has been dissolved as thoroughly as the streets beneath the eternal flood.

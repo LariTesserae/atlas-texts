@@ -1,0 +1,21 @@
+The Fallen Foundry
+
+High in the mountains, where cool air should carry only the whisper of wind through stone, there is instead a thunderous mechanical heartbeat that shakes the very bones of the earth. This is the place where an entire industrial complex tumbled from the sky generations ago—not crashed, but settled, as if gravity had finally claimed something that was never meant to be airborne.
+
+The wreckage spans a natural bowl carved between three peaks, perhaps half a mile across. Massive brass and iron structures lie scattered like the vertebrae of some impossible beast, their original purpose lost in the tangle of pipes, gears, and turbines that continue to turn with relentless, deafening purpose. Steam erupts in rhythmic geysers from split boilers buried beneath moss-covered debris. Conveyor belts snake between twisted girders, carrying nothing but accumulated leaves and mountain mist, their motors grinding with mechanical persistence.
+
+The sound is overwhelming—a symphony of industrial chaos. Whistles shriek as pressure builds and releases. Hammers fall on phantom anvils in clockwork rhythm. Turbines spin freely, their bearings worn smooth by decades of purposeless motion. The noise echoes off the surrounding peaks and returns amplified, creating a feedback loop that makes conversation impossible and thought difficult.
+
+But nature has begun its patient reclamation. Thick moss carpets every surface, thriving in the constant mist thrown off by the machinery. Ferns unfurl from the joints of massive gears, and vines cascade like green waterfalls from broken catwalks suspended in mid-air. The cool mountain air carries condensation that beads on every metal surface, creating an ecosystem of perpetual dampness. Small pools of water collect in the curved bowls of overturned machinery, fed by the endless drip of condensation and occasional mountain drizzle.
+
+The vegetation grows in startling abundance wherever water accumulates, creating pockets of lush green that contrast sharply with the expanses of bare metal and stone. Delicate mountain flowers bloom in the cups of massive gears, their petals trembling with each mechanical pulse. Moss trails like prayer flags from the guy-wires of derricks that lean at impossible angles, somehow still standing after their great fall.
+
+There are no birds here—the sound drives them away. No insects brave the percussion. Even the hardiest mountain creatures avoid this place of endless noise. The only movement comes from the machines themselves and the plants that sway in the heated air rising from the steam vents.
+
+Scattered throughout the wreckage are suggestions of human habitation—a single stone watchtower that predates the crash, built into the mountainside and now vibrating constantly. A few corrugated metal sheds, added later by someone trying to make sense of this place, their walls buckled by the endless sonic assault. Abandoned tools rust in careful piles, as if workers had simply set them down and walked away when the noise became too much to bear.
+
+The entire scene pulses with chaotic energy. Steam pressure builds and releases in unpredictable cycles. Gears slip and catch, sending waves of motion through connected machinery. Water overflows from one catch basin to another in cascade patterns that change with the weather and the mechanical rhythms below. Nothing here is stable, yet nothing quite breaks—as if the system has found its own strange equilibrium between collapse and continuation.
+
+In the perpetual twilight created by the overcast mountain sky, the brass and copper surfaces gleam dully through their coating of moisture and moss. The darkness is not complete, but heavy—the kind of mountain gloom that makes high noon feel like evening, where the light seems muffled by the very air itself.
+
+This is a place caught between worlds: the industrial and the natural, the fallen and the growing, the impossibly loud and the profoundly isolated. It exists in its own pocket of reality, where the normal rules seem suspended and something magnificent and terrible continues its work, though no one remembers anymore what that work was meant to accomplish.

@@ -1,0 +1,19 @@
+# The Swarming Dark
+
+The chamber is vast but finite, a natural dome hollowed from black volcanic glass that absorbs what little light filters through the narrow fissures in its ceiling. The heat is oppressive, pressing down like a physical weight, radiating from the obsidian walls that have been polished smooth by millennia of contact. This is a high place, tucked into the upper reaches of some ancient mountain, though from within there is no horizon, no vista—only the curved walls rising and falling away into shadow.
+
+The air shimmers with movement. At first, your eyes struggle to distinguish anything in the darkness, but gradually you perceive the chamber's true nature: it is utterly saturated with life. Billions of tiny winged creatures fill the space, their bodies no larger than grains of rice, their wings gossamer-thin and nearly transparent. They move in vast, undulating clouds that sometimes condense into pillars or vortices before dispersing again. The collective heat of their bodies is what makes the chamber so stifling.
+
+These creatures—not quite insects, not quite birds—have evolved in this isolated ecosystem, adapted to survive without water or plant life. Their bodies extract moisture and nutrients from the mineral-rich dust that accumulates on the glass walls, which they harvest with specialized appendages. The dust itself is their excretions, processed and reprocessed countless times over centuries, a closed system of resources that has reached a peculiar equilibrium.
+
+The sound they make is subtle—a soft, persistent rustle like distant paper being crumpled, occasionally punctuated by higher-pitched chirring when swarms collide or change direction. Despite their overwhelming numbers, they move with surprising coordination, as if guided by some collective intelligence.
+
+Scattered across the chamber floor are strange structures: small cairns of the same volcanic glass as the walls, but arranged with an unsettling precision. Each is no taller than your knee, formed of stacked fragments that somehow maintain impossible balance. They appear to have been constructed, yet there are no tool-using creatures here—just the endless dance of the swarm. Perhaps over decades or centuries, the movement patterns of the tiny beings have inadvertently created these formations, the way water might shape stone.
+
+In some areas, the glass floor bears faint scratches that almost resemble writing—parallel lines and spirals that could be mistaken for some alien script. These too seem to be the accumulated result of countless tiny impacts, the swarm's movement patterns etched physically into the chamber over time.
+
+The few narrow shafts that admit the merest suggestion of light have become focal points for the swarm's activity. At irregular intervals, portions of the mass will suddenly surge toward one of these openings, creating a dense, twisting column that reaches toward the faint illumination before dissolving back into the greater collective. It's unclear whether they're drawn to the light or reacting to subtle air currents from the outside world.
+
+Despite the frenetic energy of the swarm, the chamber has a timeless quality—this ecosystem has likely existed in near-isolation for thousands of years, evolving its own strange patterns and rhythms, disconnected from the world beyond its glassy walls. The heat, the darkness, the constant motion—all exist in a balance that feels both precarious and eternal.
+
+Those who stumble upon this place rarely stay long. The heat is too intense, the air too thick with tiny bodies, the darkness too complete. But those who pause to observe might witness moments when the entire swarm suddenly freezes in place for several heartbeats, creating a three-dimensional snapshot of perfect stillness before erupting back into motion—as if the collective momentarily became a single entity, holding its breath.

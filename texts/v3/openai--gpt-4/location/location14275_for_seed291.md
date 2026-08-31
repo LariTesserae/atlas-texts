@@ -1,0 +1,17 @@
+Welcome to the paradox town of Iunarium, a place of encoded oddities, where industrial ampleness encounters the primordial, almost embryonic stages of elemental nature. 
+
+Crumbled amidst a valley bordered by low, softened mounds, Iunarium is spread seductively in the grandeur of the open spaces, escaping the boundaries of one’s expectations and the trembling of the eye’s horizon. The urban fabric, dense to the point of saturation, jumbles together buildings like they were put in a second-hand box, squeezed then scattered on a giant canvas. Feel the metallic taste of the sight before you, of factories and container houses clothed paradoxically in a comforting, old-world charm, like drops of industrial revolution woven into the fabric of a modern fairy tale.
+
+Structures seem disjointed, yet harmonious. All exuding the grandeur of industrial designs: towering brick chimneys flirting shamelessly with steam clouds, corrugated iron houses stained by the blushes of cold rust, and buildings enameled with ivy, breathing out fragments of ancient stones. 
+
+In the whispering cold, the town appears amidst a swirl, a scene touched by frost yet cradled by life. Water runs in veins of the town's infrastructure, manifesting in barely a river, now slow, now madly rushing, steaming fountains, and occasional pockets of still water mystically mirrored with condensed breaths of adjacent buildings. It rains seldom, but when it does, it makes the cobblestone streets echo with delicate clicks and clops. Underneath, subterranean arteries feed moisture to the spongy ground, creating an odd dampness that feeds the unlikely lush vegetation.
+
+Green life is oddly zealous for such a cold environment. Ferns spilling out from the cracks in the pavements, moss sneaking its way on the stone walls, and even trees rising in scattered succession, their branches stooping low, heavy with the weight of frost and age. Walking through the streets can be a dance with deceptively sparse willow branches etching silhouettes against the normal light cast by spherical industrial-borne lamps that hang like little moons from steel threads.
+
+The abundant fauna is peculiar. You see no pets or birds, only insects: overgrown fireflies spinning their bioluminescent tales to misty nights while beetles and spiders of exotic species treat the city as a grand ecological stage. It’s a strange sight, yet somehow there's an organic synchronization that brings about an unsettling harmony. 
+
+Although a town of industry, it maintains a serene tranquillity. The usual city noise is but a far, fanciful rumor, diluted by the wide-open spaces. Instead, only the rhythmic yet dissipating hum of factory machines merges with the occasional wind or water gurgle. It’s a lull, a bare-there chant, a quasi-meditative music that, ironically, composes Iunarium’s industrial silence.
+
+Weather in Iunarium is a moody artist - unperturbed on some days and turbulent at other times, transforming the atmosphere from mellow hues into raucous splashes of clashing fronts. Change hangs heavy in the air, a dynamic flux that keeps inhabitants continuously adapting and the town morphing into new shapes.
+
+Iunarium is strange, yes, but in its juxtaposed blend of industrial strength and delicate, abundant life, it weaves a theatrical narrative of a town under the enchantment of quiet vitality and stark resilience. Step into its wide, winding streets - who knows, perhaps you might find your own story whispered back at you.

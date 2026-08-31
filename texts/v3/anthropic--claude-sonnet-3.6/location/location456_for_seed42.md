@@ -1,0 +1,15 @@
+In the depths of a vast freshwater sea, there is a city in the canopy of a drowned forest. The trees here grew tall before the waters came - ancient conifers that now pierce hundreds of feet up through the cool, clear depths. Their trunks are massive, twenty or thirty feet across, with bark long ago worn smooth by the endless gentle currents.
+
+The forest spreads across an underwater plateau, and in its branches, life has found a way to persist. The needled boughs have adapted over centuries, becoming translucent and membranous, filtering the diffuse sunlight that reaches this depth. They pulse slowly with the water's movement, like sea fans, creating ever-shifting patterns of shadow and gleam.
+
+Between these swaying branches, a community thrives. The tree-dwellers have built their homes from woven plant fibers - great spherical chambers that cluster in the crown of each massive tree. The structures look almost like massive seed pods or fruit, ranging from intimate family dwellings to larger communal spaces where dozens can gather. Bridges of braided kelp and vine connect the pods, creating three-dimensional neighborhoods that span from tree to tree.
+
+The builders themselves are amphibious - humanoid but with gills and webbed hands, skin in mottled patterns of blue-grey and green. They tend gardens of luminous fungi and specialized water plants that grow in the crooks of branches and along the woven walls of their homes. These plants provide food, medicine, and building materials, carefully cultivated over generations.
+
+The water itself is alive with sound - the deep resonant songs of massive filter-feeding creatures that drift between the trees, the constant chatter of small bright fish that dart through the branches, the rhythmic tapping of the builders at their work. Sometimes a low vibration passes through everything as somewhere, far below the plateau, something ancient stirs.
+
+Near the heart of this settlement is a gathering space they call the Quiet Chamber - a huge spherical structure woven so densely that it holds a pocket of air inside. Here, the builders can sit in their more human form, speaking in air-voices rather than the clicking water-speech they use outside. The chamber walls are lined with bioluminescent moss that paints everything in soft blue light.
+
+The pace of life here is governed by the slow pulse of seasons - the yearly cycling of different fish populations, the sporadic blooming of the giant anemones that carpet the forest floor far below, the gradual growth and renewal of their living homes. Change comes slowly to this place, each modification carefully considered for how it will shape the next hundred years of life in the canopy.
+
+Despite the constant motion of water and life around them, there is a profound sense of stability here - a culture and ecosystem that has found its balance and holds to it with patient dedication. The builders see themselves not as conquering their environment but as part of it, one more species in the complex web of relationships that makes this drowned forest thrive.

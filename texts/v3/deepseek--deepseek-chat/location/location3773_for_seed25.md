@@ -1,0 +1,11 @@
+**The Drowned Chorus**  
+
+A vast, lowland basin stretches beneath a sky choked with perpetual twilight—not quite night, not quite day, but a dim, bruised gloaming that smothers the horizon. The air is cool, thick with the scent of damp stone and something metallic, like iron leached from wet rock. The ground is a labyrinth of shallow pools and slick, blackened stone, their surfaces glazed with a film of moisture that never quite dries, never quite floods. Water seeps rather than flows, gathering in depressions before vanishing into unseen fissures, as if the land itself is breathing it in.  
+
+No plants grow here. Instead, the basin is alive with movement—an overwhelming density of *things* that are not plants, not animals in any familiar sense. Towering spires of porous stone hum with unseen vibrations, their surfaces riddled with holes that exhale warm, wet air in rhythmic pulses. Strange, gelatinous masses cling to the rocks, shifting colors in slow waves, their edges rippling as if tasting the air. They are neither fungus nor flesh, but something older, something that thrives in the absence of light.  
+
+The sound is deafening. Not noise, but *sound*—a chorus of clicks, thrums, and low, resonant drones that vibrate through the bones. The porous stones sing as wind funnels through them; the gelatinous masses shudder and release harmonic shudders; unseen creatures, if they *are* creatures, scrape and whistle in the dark. The basin is an orchestra of unseen instruments, a place where the boundary between living and nonliving is thin, where the rocks themselves seem to *participate* in the cacophony.  
+
+Occasionally, something larger moves—a ripple in the pools, a disturbance in the layered hum. The fauna here is overwhelming, not in numbers but in *presence*, in the way the air itself seems to watch, to react. Shapes flit at the edges of vision, not quite solid, not quite shadow. They do not hunt so much as *absorb*, merging with the landscape before reemerging elsewhere.  
+
+This is a place of erosion, but not decay. The stones are worn smooth, the pools have etched their paths over centuries, yet nothing rots. Everything is in flux, but nothing is lost. The water comes and goes, the chorus rises and falls, and the basin endures—strange, saturated, and deafeningly alive.

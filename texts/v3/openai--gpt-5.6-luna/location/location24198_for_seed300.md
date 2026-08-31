@@ -1,0 +1,27 @@
+The place is a low basin no larger than a village green, though it has no center and no true boundary except the raised ground around it. Water gathers here from every direction. It lies just beneath the surface, in the peat, beneath the concrete, inside the rusted pipes and the hollows of the stone. After rain, the whole basin seems to breathe.
+
+The ground is divided into narrow islands by channels of dark water. They are not quite paths and not quite ditches: some are old drainage cuts, some are trenches made for machinery, and some have formed where the earth simply gave way and remained that way. Their edges are smooth with age. The mud is black-brown and close-textured, crossed by pale roots and threads of mineral deposit. In places it has hardened into a skin like cooled tar. In others, a boot sinks to the ankle and meets water immediately below.
+
+The basin may once have been a small industrial works. Scattered structures remain: a brick pump house with half its roof gone, a low shed of corrugated metal, a concrete platform carrying three vertical tanks, and a line of squat electrical cabinets tilted toward one another as though conferring. Pipes cross the channels on narrow bridges, some still intact, some broken and submerged. They are thick with rust, but not dead. Every so often one gives a tiny shudder. A valve turns by itself a fraction. Somewhere beneath the mud, a motor engages without quite starting.
+
+Nothing here operates continuously. Instead, the works perform in fits.
+
+A sluice snaps open, and a whole channel drops several inches. Water races backward through another trench. A pump coughs once, then falls silent. A bank collapses in a soft, deliberate folding, sending ripples through all the connected pools. The movement is excessive and abrupt, but never entirely destructive. The basin has been doing this for so long that its disorder has become a kind of balance. What is washed away is replaced by silt. What rusts through is held together by mineral growth, root fibers, or the pressure of water behind it.
+
+The water is not clean, but neither is it foul. It is brown with peat and carries thin iridescent films near the machinery. Rainwater beads on its surface and remains beaded, even when the wind moves across it. In the deepest channels, the water appears almost still until a pale current passes underneath, lifting leaves, stones, and drowned cables from below. Sometimes the current moves against the visible slope. Sometimes a pool drains upward into a pipe, vanishing with a sound too faint to hear.
+
+Vegetation is sparse, though every available surface is occupied by some small insistence of life. Low sedges stand in clumps along the firmer banks, their blades gray-green and slick. There are mats of moss on the shaded concrete, black algae on the waterline, and a few bent shrubs with tiny leaves lacquered by constant damp. No tree has managed to establish itself. The roots would find too much water, or the channels would cut around them, or the machinery would eventually lean into them and pull them down.
+
+The air is cool and wet enough to taste. Mist collects at knee height in the morning and gathers more densely around the tanks. The farther structures lose their edges first: a pipe becomes a dark line, a wall becomes a floating plane, a warning sign becomes a patch of red without letters. Condensation runs down every vertical surface. The brick sweats. The metal shines as though recently oiled.
+
+There are few animals. Small dark insects gather beneath the electrical cabinets, appearing and disappearing in sudden clouds. Something narrow and pale moves through the reed roots, but never surfaces long enough to identify. A heron may stand at the edge of the basin for hours, perfectly still, then leave without taking anything. The only abundant presences are microbial or mechanical: films spreading on the water, rust blooming over bolts, pumps waking, currents changing direction.
+
+Sound is strangely limited. The turbulence is visible everywhere—water buckling, mud sliding, cables twitching, distant pressure shifting through the pipes—but the basin absorbs its own noise. A collapsing bank makes only a wet sigh. A metal sheet slams down with the softness of cloth. The machinery communicates through vibration more than sound: a tremor in the soles, a faint rattling in the teeth, a pulse felt through a hand resting on the pump house wall.
+
+There is daylight, ordinary and gray, but it never seems to arrive from a definite sky. The basin is bright enough to see across and dim enough that every object carries a private shadow. The wet surfaces return the light in dull patches. Rust is the strongest color: orange on the pipes, red-brown beneath the water, and dark stains spreading like old wounds across the concrete.
+
+The rule of the place is that stillness is temporary. Any apparently settled thing is already changing beneath its surface. A dry plank softens from within. A closed gate holds back water that is slowly rising on the wrong side. A wall remains upright because its collapse has not yet found the correct sequence.
+
+Yet the place is not hostile. It is occupied by processes rather than intentions. If one stands quietly on the old concrete platform, the basin eventually arranges itself around that presence: channels empty, pumps pause, mist thins, and the reeds turn their narrow leaves toward the same unseen direction. For a moment, everything appears calm.
+
+Then, beneath the platform, the water changes course.

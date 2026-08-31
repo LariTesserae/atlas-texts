@@ -1,0 +1,13 @@
+In the heart of what was once a greenhouse complex, reality has grown soft and permeable. The glass walls dissolved years ago, but their ghost-geometry persists in the way vines and creepers grow - rising in perfect verticals before making sharp ninety-degree turns, forming transparent architecture of pure vegetation. The air is thick and warm, carrying the complex harmonics of thousands of leaves drinking and breathing.
+
+This hidden pocket-world exists in perpetual twilight despite the clear sky above, as if light itself has become uncertain how to behave. Water droplets hang suspended, neither falling nor rising, catching what light there is and refracting it into slowly shifting patterns. The droplets seem to chime against each other with crystalline notes that echo longer than they should.
+
+The floor is a living weave of roots and mycelia, pulsing slowly with bioluminescent patterns that may be communication or may be dreams. Every surface hosts life - not just covered in growth, but fundamentally composed of it. What looks like wooden boarding reveals itself, on closer inspection, to be tightly packed stems grown in deliberate patterns, the ghost of human design persisting in vegetable form.
+
+Primitive tools lie half-absorbed into the living walls - copper trowels, clay pots, woven baskets - their forms still recognizable but their substances gradually transmuting into plant matter. They seem both ancient and new, as if time here has become as malleable as everything else.
+
+The space feels simultaneously vast and intimate - corners fold away into impossible geometries, yet everything seems within arm's reach. Occasional movements suggest small creatures, but they vanish when looked at directly, leaving only the impression of fur or scales that might have been leaves all along.
+
+The air is thick with the sound of water moving through countless vegetable vessels, a constant organic percussion underlaid with deeper thrums that might be vast root systems communicating far below. Every few minutes, a wave of activity passes through - leaves unfurling in sequence, stems swaying to unfelt breezes, spores releasing in synchronized clouds that form momentary mandalas in the humid air.
+
+This place feels less like a location and more like a process caught mid-transformation - architecture becoming ecosystem becoming something else entirely, with the boundaries between categories growing as fluid as the water that refuses to fall. It's unclear whether this is the result of nature reclaiming a built space or if reality here has simply forgotten the difference between grown and made.

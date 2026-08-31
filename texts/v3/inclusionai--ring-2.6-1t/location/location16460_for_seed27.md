@@ -1,0 +1,71 @@
+## The Resonant Plateau of Xel-Avar
+
+---
+
+You hear it before you see it.
+
+The sound doesn't arrive so much as it *has always been arriving* — a low, continuous chord that lives beneath the threshold of hearing and then, without warning, rises above it. It is not mechanical. It is not organic. It is a tone produced by the interaction of things too large and too slow to be given names, a resonance set up between structures separated by miles of open air, structures that have been vibrating in this same key for so long that the stone beneath them has taken on the frequency, and the stone hums back. You feel it in your sternum. You feel it in your teeth. The sound is not loud the way a jet engine is loud. It is loud the way a continent is loud, if a continent could sing.
+
+---
+
+You step onto the plateau's surface and your boots make no sound at all.
+
+The ground is not soil. It is a substrate — a compressed mat of what the first surveyors called *veincrust* and no one has renamed because no name has ever fit. It is alive. It is mineral. It is the outermost dermal layer of an organism so vast that the plateau itself — six hundred kilometers of elevated basalt shelf, three thousand meters above the dry basins below — may be nothing more than its back.
+
+The veincrust is dark. Not black — that would be too simple. It is the color of deep iron oxide, of old blood dried to a matte, of the space between stars when no light finds them. Its surface is tessellated into hexagonal pads, each one perhaps half a meter across, separated by shallow grooves that pulse — visibly, slowly — with a bioluminescent fluid the color of dilute amethyst. The fluid is not water. It is a thixotropic suspension of metallic nanoparticles in liquid ammonia, drawn up from deep geothermal veins that tap into the planet's still-warm mantle. The pads expand and contract. They breathe. Once every nine hours — the local metabolic cycle, which no one has been able to explain, because the star's period is much longer and the thermal gradients are essentially constant — every pad contracts simultaneously, and the plateau makes a sound like a single exhalation. You will learn to sleep through it. You will not learn to forget it.
+
+Vegetation — if that word can be stretched so far — covers everything.
+
+There are no leaves here. There are no stems. There are no roots in any sense that would be legible to a botanist from Earth. What grows here are *columns*: vertical structures of calcified silica threaded through with superconducting organic polymers that conduct electrical signals the way a nervous system conducts impulses, only slower by a factor of a million. The columns rise from the veincrust at irregular intervals, most of them three to five meters tall, some of them thirty or forty, and the oldest ones — the ones nearest the plateau's center — so tall that their tops vanish into the perpetual amber haze that serves this world for a sky.
+
+They do not photosynthesize. There is not enough light for that, and the star — a dim red dwarf, ancient and querulous, its output declining over the eons toward some cold asymptote — throws barely enough energy across the visible spectrum to cast a shadow. Instead, the columns feed on electromagnetic differentials. Their silica matrices are piezoelectric, generating charge from the wind (there is always wind on the plateau, a slow and ancient convection driven by the temperature differential between the elevated surface and the dead basins below). Their polymer veins carry that charge downward into the veincrust, where it is stored, redistributed, used to drive the chemical reactions that sustain the organism. The columns are not plants. They are electrochemical organs. They are the exposed nervous tissue of a planetary-scale entity that has been thinking for millennia in a language too slow for any visitor to parse.
+
+The vegetation is total. It coats every surface. From above, the plateau would appear as a single continuous field — columns and veincrust together forming a texture like the surface of a brain, if a brain were scaled up to geography and rendered in stone and light. But vegetation at 3.0, total, does not mean dense. The columns are sparse. Between any two, there may be fifty meters or a kilometer of open ground, the veincrust stretching out in its tessellated silence, the amethyst fluid pulsing in its grooves. Walking across this space you feel the way you feel on a dry seabed — the intuition that something vast and alive is beneath you, that you are trespassing on a living thing's skin, but also the counter-intuition, equally strong, that the living thing doesn't notice you, or doesn't care, or has arranged its indifference with the deliberateness of something that decided, long ago, that awareness of the small was a luxury it could no longer afford.
+
+---
+
+The city.
+
+You see it first as a geometric anomaly — a region where the columns are slightly more regular, spaced not by biological rhythm but by intention. As you approach, the regularity resolves into architecture, but architecture that has been metabolized back into the organism. The buildings are grown. Their walls are fused column-silica, shaped by some long-vanished technology into curves and right angles that feel accidental, like the shapes a river carves in soft stone. Doorways are tall and narrow, framed by vertical striations that resemble bark but are in fact the fossilized records of data — chemical gradients encoded decades or centuries ago by whatever intelligence once managed this place. The streets are shallow depressions in the veincrust, worn smooth, and they carry a thin film of amethyst fluid that moves through them like a drainage system, or a circulatory system, or both.
+
+There is no sign of whoever built this. The settlement — town-sized, perhaps two thousand structures arranged in a radial pattern around a central plaza — has been here for longer than the erosion patterns suggest is possible. The structures are not deteriorating. They are *settling*. They are becoming the plateau. At the edges of town, buildings begin to blur into columns, then into veincrust, then into geology. The boundary between city and ecosystem has not been abandoned. It has been dissolved.
+
+Inside the structures, the air is cooler. The walls emit a faint phosphorescence — not the amethyst of the surface fluid, but a pale, greenish-white, the color of phosphorus burning in oxygen, though there is no oxygen here in any quantity worth measuring. The light is enough to see by. It is enough to read by, if you had anything to read and if the script were not in any language you recognize. On the floors, embedded and flush, are what the survey team named *grate-panels*: flat arrays of crystalline filaments arranged in fractal patterns, still active, still pulsing faintly, responding to pressure and temperature and the electrical field of any living body that steps on them. They light up beneath your feet, briefly, in colors that seem to come from spectra you don't have names for — not because your eyes can't see them, but because your brain has no category for them. A kind of ultraviolet gold. A type of infra-red blue. The grate-panels are a technology so far beyond current engineering that the physicists who studied them published a paper titled "Possible Instrumentation" and then went on sabbatical and mostly did not speak about it again.
+
+---
+
+The fauna.
+
+They move through the columns like blood cells through a capillary, which is not a metaphor but may as well be. There are many of them — 1.8 abundance, plentiful but not swarming — and they are shaped by the same logic as the ecosystem: efficient, mineral, electrochemical. 
+
+The most common are low-slung, six-limbed things with bodies sheathed in overlapping silica scales that click softly against one another when they walk — *tk-tk-tk-tk* — a sound that becomes, in aggregate, one of the plateau's constant acoustic textures. They are herbivores, if herbivore is the right word for creatures that graze on the amethyst fluid, lapping it from the grooves with tubular tongues lined with ferromagnetic filaments. They drink electricity. They press their muzzles to the columns and the columns pulse in response, and something is exchanged that you cannot see, a signal or a nutrient or a confirmation of mutual existence.
+
+Higher up the food chain — though the chain is more web than chain, and more circuit than web — are the thermals: large, buoyant organisms that float in the amber haze above the plateau, held aloft by gas bladders filled with a hydrogen analogue they synthesize from the ammonia substrate. They are nearly invisible from the ground, appearing only as shadows that slide across the dim sky, but they emit a sound — a low, continuous moan, produced by the vibration of their gas bladders against the wind — that you will hear in your dreams after you leave, if you leave.
+
+There are predators. They are fast and they are quiet in a way that nothing else on the plateau is quiet, and when they hunt, the columns flicker — a visible wave of dimming that spreads outward from the point of the kill, as if the entire organism is registering the death and processing it, filing it away, incorporating it. The veincrust beneath a kill site darkens over the following hours, and the amethyst fluid runs faster, as if the blood of the dead creature is being metabolized into the living stone.
+
+---
+
+The atmosphere.
+
+Cool. Thin. Breathable with assistance — the partial pressure of free oxygen is low, and the nitrogen content is high, but there are trace gases that your suit's respirator can supplement. The air tastes of copper and chalk. It is dry to the point of desiccation; exposed skin cracks within hours if unsealed. There is no humidity anywhere. The only moisture is locked inside the veincrust's ammonia substrate, and it does not evaporate into the atmosphere. The sky is a permanent shade of dark amber, the color of old resin, the color of light that has been filtered through something vast and is arriving at the end of its patience. The star itself is a dull red point, barely distinguishable from the brighter stars, and it does not move visibly across the sky in the course of a single planetary day. Time here does not feel like passage. It feels like persistence.
+
+---
+
+The weirdness.
+
+It accumulates.
+
+You will notice, after a few hours, that your shadow is wrong. It falls at an angle that does not correspond to the star's position. It is slightly too long, slightly too dark, and when you stop moving, it continues to move for a fraction of a second, as if catching up. The grate-panels in the city respond to your presence in ways that seem anticipatory — they light up before you step on them, they shape their light to your silhouette, they adjust the local temperature by a degree or two in a way that feels like hospitality, or like digestion.
+
+The columns hum. Not all the time. But sometimes, when you are standing among them, you will feel a resonance in your chest cavity that is not the planetary tone, something more localized, more personal, as if the nearest column has noticed you and is trying to figure out what you are. Then it stops, and the silence that follows — the silence between one hum and the next — is the loudest thing you have ever heard.
+
+There is a region at the plateau's southern edge where the columns grow in spirals. Not helical — spirals, flat against the ground, like the patterns left by a spinning top. From above, the whole region looks like a fingerprint. From the ground, standing at the center of one, you feel a pull that is not gravitational. It is subtle. It is the kind of thing you feel with your inner ear, with your proprioception, with some sense you didn't know you had. The locals — no one knows who or what they were — must have felt it too, because there are structures in the spiral zone that are not radial like the rest of the city but curved, following the same geometries, doorways opening into rooms that seem to turn, hallways that lead not away from the center but deeper into it.
+
+You will not enter the spiral zone at night. At night, the bioluminescence intensifies — amethyst light rising from the grooves until the veincrust glows like a circuit board, and the columns cast shadows that move independently of their sources, and the sound of the plateau rises to a chord so complex it has overtones that shouldn't exist according to any acoustics you've studied. The fauna come out of hiding. The thermals descend lower. And in the spaces between the columns, where the light doesn't reach, things move that are not fauna and not vegetation and not machine, things that the suit's sensors cannot classify, things that, when you see them, you will understand not through sight but through some older sense, something inherited, something that remembers this place from before you were born.
+
+---
+
+The plateau is ancient. It is settled. It has reached its final form, and its final form is not death but equilibrium — a state so stable it is indistinguishable from permanence. The erosion has been so thorough, over such deep time, that every sharp edge has been rounded, every fault line sealed, every surface polished to a smoothness that is not softness but resolution. This place knows what it is. It has forgotten what it was. It does not need you. But it will let you walk on its skin, and it will let you listen to its song, and if you are very quiet — quieter than the clicking of the silica-scaled grazers, quieter than the wind over the piezoelectric columns, quieter than the deep tectonic hum of the veincrust processing its slow electrochemical dreams — it may, for a moment, let you feel what it feels to be alive on a world without water, on a plateau at the roof of the sky, in the amber light of a dying star, where the vegetation is not a covering but a body, and the city is not a settlement but a thought, and the sound is not noise but language, and the language is this:
+
+*You were here. You were small. You were warm in the cool. And then you were gone, and the columns kept humming, and the veincrust kept breathing, and the plateau turned its slow face toward the dim star and waited for the next.*

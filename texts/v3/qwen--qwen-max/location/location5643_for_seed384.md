@@ -1,0 +1,23 @@
+The place is a sub-aquatic, post-flood urban landscape, submerged in cold, dark waters. The city is small, roughly the size of a cathedral, but densely packed with intricate, weathered structures that have long existed in their current state. The cold, dark waters create a sense of deep, oppressive silence, with only the occasional distant sound of machinery or the faint, almost imperceptible movement of water to break the stillness.
+
+### Terrain and Materials
+The terrain is a complex network of submerged buildings, streets, and structures, all constructed from a mix of materials that have weathered over time. The buildings are made of a combination of stone, metal, and a strange, bio-luminescent material that provides a faint, ghostly glow, just enough to see the outlines of the buildings and the contours of the streets. The streets are narrow and winding, with buildings often touching or nearly touching, creating a sense of claustrophobia and density.
+
+### Atmosphere
+The atmosphere is one of cold, dark, and oppressive stillness. The water is nearly still, with only the occasional, almost imperceptible current. The darkness is broken only by the faint, blueish glow of the bio-luminescent material, which casts an otherworldly, almost dreamlike quality on the submerged city. The air, if there were any, would be cold and damp, with a constant, slight mist that adds to the sense of isolation and otherworldliness.
+
+### Sounds
+The sounds are minimal, with a deep, almost absolute silence. The occasional distant hum of machinery or the faint, almost imperceptible movement of water can be heard, but these sounds are rare and do not break the overall stillness. The silence is so profound that it almost has a physical presence, adding to the sense of isolation and the feeling that the city is in a state of suspended animation.
+
+### Ecology
+The ecology is sparse, with very little in the way of vegetation or fauna. What little vegetation there is takes the form of hardy, deep-sea plants and algae that cling to the sides of buildings and structures, providing a faint, greenish glow. Fauna is rare, with only the occasional, strange, deep-sea creature that has adapted to the cold, dark, and dense environment. These creatures are more shadow than form, elusive and hard to see, adding to the sense of mystery and otherworldliness.
+
+### Rules of the World
+The rules of this world are governed by the natural and artificial elements that have come to a state of balance over time. The bio-luminescent materials and the cold, dark waters have created an environment where life is scarce but resilient. The dense, intricate structures of the city provide a complex, layered environment that has adapted to the submerged, post-flood state. The city is in a state of active stillness, with multiple processes, such as the slow decay of materials and the gradual movement of water, contributing to the sense of an ecosystem in motion, even if it is a slow and subtle one.
+
+### Additional Details
+- **Infrastructure and Technology**: The city is filled with remnants of industrial and technological structures. There are old, rusting factories, now silent, and the occasional, still-active engine or machine that hums quietly in the background. The buildings are often layered, with structures built on top of or around each other, creating a complex, almost labyrinthine environment.
+- **Strange and Mysterious Elements**: The city is filled with strange and mysterious elements, such as abandoned, half-submerged statues, strange, unidentifiable machines, and occasional, unexplained phenomena. These elements add to the sense of the city being a place of wonder and mystery, where the line between the natural and the artificial is blurred.
+- **Erosion and Weathering**: The structures are heavily weathered, with the stone and metal showing signs of advanced decay and erosion. This weathering has a natural, organic quality, with the bio-luminescent material often growing over the surfaces, creating a sense that the city is slowly being reclaimed by the sea.
+
+In this place, the cold, dark waters and the dense, weathered structures create a sense of a city that is both in a state of suspended animation and in a constant, slow state of change. The strange, otherworldly elements and the minimal, almost imperceptible sounds add to the sense of a place that is both mysterious and deeply, almost impossibly, still.

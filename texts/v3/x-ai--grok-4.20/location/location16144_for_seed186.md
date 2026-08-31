@@ -1,0 +1,27 @@
+The place has no name that any tongue still living could pronounce.
+
+It is called, by the few who have seen it and returned, the Hollow Crown.
+
+You stand on the lip of a colossal cirque carved into the roof of the world. The elevation is murderous: 2.9 on any scale that measures breath. The air is so thin it feels like inhaling powdered glass. Every twenty or thirty heartbeats the wind simply stops, as though the mountain itself has forgotten how to breathe, and in that stillness you can hear your own blood roaring behind your ears like a distant factory.
+
+Water is not abundant here, yet it is everywhere in small, secret betrayals. Glaciers high above calve silent blue tears that trickle down black cliffs in braided threads no wider than a finger. These threads vanish into crevices, only to reappear hours later as cold fog that condenses on every surface. Mosses the color of oxidized iron drink the mist and grow in thick, dripping pelts that hang from overhangs like wet beards. Occasional rain falls upward—thin, silvery needles sucked out of the clouds by the vacuum between peaks and then spat back upward by some inversion only this altitude understands.
+
+The vegetation is absurdly lush for such cold and thin air. It has abandoned all decency. Towering rhododendrons with leaves like lacquered obsidian crowd the lees of every ridge, their trunks twisted into impossible knots by centuries of wind. Ferns taller than a man unfurl fronds that glow faintly phosphorescent in the perpetual twilight. Entire valleys are carpeted by a single clonal colony of something between heather and coral, its tiny flowers opening only when the temperature drops below −18 °C. The plants here do not compete for light. They compete for heat.
+
+There is almost no built thing. No ruins, no cairns, no forgotten drill rigs. Yet the tech parameter lingers in the air like a half-remembered dream. Deep in the rock you can sometimes feel the subsonic heartbeat of ancient geothermal turbines that no one built and no one maintains. Their housings have been swallowed by living stone and root. Occasionally a rusted iron root—thick as a man’s thigh—bursts from the mountainside, leaking black oil that the mosses drink like nectar. The oil smells of cinnamon and high-voltage discharge.
+
+The light is almost gone. What remains is not night exactly but a permanent bruise-colored dimness, as though the sun has been bled out and only its shadow remains. Stars are visible at noon. They do not twinkle; they stare.
+
+Fauna is abundant in the way that deep-sea trenches are abundant: mostly invisible, yet everywhere once you learn how to look. Vast herds of pale, six-legged browsers the size of yaks move in total silence across scree fields, their fur the exact color of wet slate. They leave no tracks. Something that might be a bird but has too many joints drifts between cliffs on wings of membranous fog. At the edges of hearing you catch the industrial clicking of what must be insects the size of dinner plates, their chitin forged into delicate pressure valves and piston-like limbs. They mine the inside of rotten tree-fern trunks for metals.
+
+The strangeness is not theatrical. It is structural.
+
+Gravity here is tired. Things fall slowly. A pebble thrown off a ledge may take four full seconds to strike stone far below, and when it does the impact sounds like a coin dropped onto carpet. Time itself loosens. You can watch a glacier crevasse open in real time, its blue lips parting with the languor of a yawn. Predators do not chase prey; they schedule appointments. A certain species of translucent centipede will stalk a herd for nine days, matching their pace exactly, until on the tenth day the chosen animal simply lies down and offers its throat.
+
+The soundscape is almost nothing. Wind moves without noise through the hollow stalks of iron-ferns. The glaciers calve in absolute silence because the air is too thin to carry the roar. Only once every few hours does the world make a sound: a single, enormous clang, like a dropped locomotive far away in another valley. No one has ever found its source. The animals never react to it. They have heard it all their lives.
+
+Everything is in motion, yet nothing seems to change. The ecosystem is a vast, slow engine running at the very edge of what physics will permit. Condensation becomes rivulet becomes fog becomes glacier becomes condensation again in a cycle that has run since before mammals had names. The clonal heather expands by a few centimeters per century. The iron roots grow new rust-flowers every seventy years. The clicking insects perform their inscrutable maintenance on machines older than language.
+
+You are not welcome here, but neither are you forbidden. The place simply does not notice you. It has its own ancient, industrial, biological business to conduct among the impossible peaks, under a sky the color of a bruise that will never heal.
+
+If you stay long enough, you will begin to feel the slow piston-stroke of the mountain’s heart beneath your boots. You will taste iron on the back of your tongue. And eventually, without ever deciding to, you will lie down among the glowing moss and wait for your appointment.

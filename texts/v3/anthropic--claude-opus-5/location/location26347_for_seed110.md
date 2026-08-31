@@ -1,0 +1,43 @@
+## The Unworn Room
+
+**Getting there.** The mountain is high enough that the air thins and the wind has a metallic edge, but the way in is not on the summit; it is a third of the way down the south face, behind a slab that looks like every other slab. There is a ledge in front of it about the width of a sleeping body. On that ledge, in a row, sit forty-one lamps.
+
+They are clay, most of them, some no bigger than a thumb-joint; a few are hollowed stone; two are bronze and older than the rest, green-skinned. All of them have wicks. None of them has ever been lit. The rule about the lamps is the first thing anyone learns, and it is not written anywhere, because writing would require bringing something in that made a mark, and marks are the beginning of wear.
+
+**The throat.** The entrance is not a mouth but a fold — you go in sideways, exhaling, and the slab's edge is sharp enough to shave with. That sharpness is the whole character of this place, and it takes a while to understand how strange it is. Every stone edge here is *new*. There is no grit underfoot. No sand collects in the low corners. There is no dust on any surface, anywhere, at any height, because dust is the residue of things being ground down, and nothing here is being ground down.
+
+Six paces in, the cold of the outer rock stops as if you had crossed a curtain, and the warmth begins — blood-warm, close to the temperature of the inside of a mouth. The air thickens with water. Within ten breaths your skin is beaded and your clothes are heavy and you can taste the room: faintly saline, faintly like struck flint, and under that a sweetness that is not sugar but is not far off.
+
+**The room.** It is five paces by four, and it takes an hour to cross.
+
+This is because the room is crowded. Not cluttered — crowded, the way a young forest is crowded, everything reaching from a floor that has no space left on it. Formations rise from below and hang from above and jut from the walls at every angle, and they are dense enough that the gaps between them are the shape of a person only in certain places, and only if that person is patient. You learn the route with your palms. You go in along the low left, under the fan; you turn on your hip at the place where two spires cross like fingers; you rise through a gap that closes at your shoulders and then opens, and then you are in the small clear space at the centre, which is the size of a seated adult and which is, as far as anyone can tell, the reason the room exists.
+
+The formations are not the smooth, licked, layered stuff of old caves. They are prismatic. They are *facets*. Under the fingers they read as sheaves of blades, hexagonal columns bundled and splayed, tiny cathedrals of edge — and every edge is a fresh edge, uncomforted, never once softened by the passage of a single grain of anything. There is no crust of old growth over new growth. There is only new growth. Some of the needles are so fine that they bend against a fingertip and spring back, and touching them makes a sound in the bone of the finger rather than the air.
+
+**The water.** It arrives everywhere at once, without a source you can find. It weeps from the ceiling, from the crystal, from the seams; it moves down every surface as a film thinner than skin oil. It never forms a drop large enough to fall, and so the room does not tick. The floor at the room's low edge holds a pool the length of a forearm and the depth of two knuckles, and that pool has been exactly that length and exactly that depth for as long as anyone's grandmother's grandmother could report.
+
+The water is empty. That is the word for it. It carries nothing — no silt, no clay-taste, no floating film. Drink it and it is less than nothing on the tongue, a kind of absence with warmth. It is water that has passed through a great deal of stone and taken none of it, and this is the second strangeness of the room, and the deeper one: the water and the stone are not in a struggle here. There is no dissolution. The stone accretes; the water passes; the accounts balance to the last atom, forever.
+
+Elsewhere a mountain is something being taken apart. Here, in this one pocket, the mountain is still being *made*, and it is making itself from the inside out — this room first, complete, and then, at an unmeasurable rate, outward. The room is the mountain's oldest thought and its newest surface at the same time.
+
+**Vegetation.** Down through a fissure in the ceiling's north side come the root-hairs of a single tree that grows on the ridge above — a stunted, wind-cut thing, no taller than a man, that has found this warm humidity and sent a rope of roots eleven arm-lengths down to drink at the air. In the room they are pale, hairless, and warm to the touch, and they hang in a curtain you must part with your forearm. They do not root in anything. They drink the atmosphere and go back up.
+
+The only other living green — if it is green; nobody has ever seen its colour — is a film on the north-facing crystal, slick as egg-white, which is where the sweetness in the air comes from. It grows only where the water is thinnest. It does not spread. It has not spread in living memory. It is exactly as much as it has always been.
+
+**The built.** In the clear centre, someone long ago cut three shallow steps into a single block, so that a person may sit. The cuts are as crisp as the day they were made; the tool marks are legible under the thumb, and they are the marks of stone on stone, no metal, a patient percussive craft. The bronze lamps outside are strangers here. The room's own work is older than smelting.
+
+In a niche at knee height: three bowls. The first holds a coil of cord, plant-fibre, three-strand, which has not rotted and will not. The second holds nine small carved forms, each the size of a plum stone, each a different animal, none of them an animal that lives on this mountain. The third bowl is empty and is meant to be. Along the sill of the niche, one hundred and some tally-notches, cut by different hands with different rhythms, recording either visits or years or something else. Whoever counts them gets a slightly different number each time, and this is not considered a mystery worth solving; it is considered evidence of poor counting in the dark.
+
+**Fauna.** Something lives here. Perhaps two of them. In an hour of sitting you may feel a brush along the ankle — warm fur, dry despite everything, moving without haste. It has never been heard. It has never been caught. It does not want the food you leave and the food you leave is still there, unspoiled, on your next visit, which is its own small horror. The best guess is that it eats the sweet film, and that it eats so little that the film does not notice.
+
+**Sound.** The density kills sound. Speak, and your voice goes a hand's-breadth and is absorbed by ten thousand facets; there is no echo, and no reverberation, and a whisper is louder here than a shout because a shout simply vanishes and leaves you feeling that you did not speak at all. What is left, when you stop making noise yourself, is: the sub-audible hiss of the water film, everywhere, like a held breath; the faint pock of your own pulse in the ears; and now and then, from deep in the crystal, a single dry *tick* — the sound, they say, of one more layer arriving. It comes perhaps four times an hour. It never comes twice from the same direction.
+
+**The rules.**
+
+No light. Not because light would be punished, but because nobody who has brought light has been able to describe what they saw, and all of them have declined to return.
+
+Nothing may be removed, and nothing removed has ever been found to be worth having.
+
+Anything left stays as it was left. This is the room's gift and its whole difficulty. Rope does not fray. Bread does not mould. A grief brought in and set down in the empty third bowl is, when you come back for it, precisely the weight it was.
+
+And: do not break a spire. Not for reverence — for arithmetic. A break is the only thing in this room that does not undo itself, cannot be worn smooth, will not be absorbed into the balance. Somewhere in the low left, under the fan, there is one snapped column with an edge that is not new. You will find it with your palm on the way in. It is the only old thing here, and it will still be exactly that old when the mountain, working outward from this small warm room at the rate of one dry tick, four times an hour, has finished making itself.

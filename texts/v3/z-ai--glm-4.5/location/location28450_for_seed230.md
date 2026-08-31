@@ -1,0 +1,19 @@
+The air here is cool and thin, carrying a metallic taste that settles on the back of the tongue. This is the Shelf, a high limestone plateau perched at the edge of the world’s gravity, worn smooth by millennia of patience.
+
+The scale of the place is intimate, confined to the dimensions of a cathedral or a large courtyard. It does not sprawl. It sits. The ground is a single, continuous expanse of grey flagstone, smoothed to a dull polish by the passage of feet that are no longer there. There are fissures in the stone, deep and narrow, running in geometric patterns that suggest both chaos and intent.
+
+Water is the only true resident of this plateau. It does not fall as rain, nor does it flow as a river. It exists as a constant, patient dampness. The moisture condenses directly out of the cool air, beading on the slick stone and gathering in the hollows of the rock. The environmental parameters suggest a dampness of 0.8, and here it manifests as a sheen—a wet glaze that makes every surface reflective. The sound is never a rush or a gurgle, but a rhythmic, microscopic dripping: *plink… plink… plink…* echoing from the fissures. It is a sound that marks time without measuring it.
+
+The "urban" nature of the location is defined by the dwellings. They are primitive structures, built from the very stone of the plateau, hewn with simple hand tools—hammers, chisels, and levers. No metal binds them; no mortar fills the gaps. They are stacked and balanced, dry-stone architecture raised to the level of a small city. The buildings are low, rounded huts and rectangular storehouses, huddled close for warmth but separated by narrow, alley-like corridors that channel the wind.
+
+Yet, the density is sparse. There is room to breathe here. The structures are not packed tight; they stand like solitary monks in a loose order, respecting the emptiness between them. The "city" is more of a network of individual cells, a hamlet that has grown into a town without ever losing the isolation of its parts.
+
+Vegetation is rare and struggles to maintain a foothold. The moisture is enough to sustain life, but the cool temperature and the high elevation keep growth stunted. Occasionally, a patch of grey-green lichen clings to the northern face of a stone hut, or a solitary, wind-bent scrub bush emerges from a crack in the flagstone, its leaves tough and waxy. These plants do not seem to grow; they merely persist. They are as fixed as the stone, caught in the same equilibrium.
+
+This is the defining characteristic of the Shelf: the total absence of change. The dynamic is frozen. The erosion has established a perfect balance; the stone wears away at the exact same rate that the moisture hardens the surface minerals. The water drips at a steady, unvarying interval. The light, though normal in intensity, feels static, casting shadows that seem to have been etched permanently into the ground.
+
+Fauna is virtually non-existent. There are no birds in the sky, no insects buzzing in the damp air. Occasionally, a silent, lizard-like creature might be seen sunning itself on a rock, but it moves so slowly it could be mistaken for a carving until one looks away and looks back hours later to find it has inches forward. The ecology here has reached a point where predation and decay have cancelled each other out.
+
+The atmosphere is heavy with silence. The "mostly quiet" parameter manifests as a cushioning of sound. The wind does not howl; it slides over the plateau, a low, steady hum that serves only to accentuate the stillness. The smell is of wet dust and ancient, cold stone.
+
+To stand on the Shelf is to stand in a moment that refuses to progress. It is a high, damp, lonely city built by hands that understood the language of stone, waiting for nothing, changing for no one. The dripping water continues its ancient rhythm, a metronome for a song that ended long ago, leaving only the rhythm behind.

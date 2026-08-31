@@ -1,0 +1,13 @@
+The environment occupies a space no larger than the interior of a shipping container, yet it is so densely packed with movement that it feels infinite. There is no water here; chemical reactions take place through the exchange of pressurized, iron-rich dust and the rhythmic friction of grinding plates.
+
+To step inside—or to peer through the viewing port of this self-contained, subterranean vault—is to witness the final, frenzied metabolism of an industrial clockwork ecosystem. The ground is a patchwork of ancient, pulverized mineral basins. Millions of years of erosion have rendered every surface smooth, matte, and uniform, save for the incessant scratching of the inhabitants.
+
+These inhabitants defy conventional biology. They are semi-metallic, insectoid clusters that operate like living ball bearings. They are the fauna of this world, a swarm of thousands, their bodies composed of polished volcanic glass and conductive, amber-hued filaments. They do not eat; they harvest the kinetic waste of the environment. Every time two plates of the floor shift or a gear-toothed pillar grinds, these creatures rush to the point of friction, feeding on the sparks and the heat.
+
+The sound is constant and overwhelming—a cacophony of metallic chirping, the rhythmic *thrum-thrum* of internal pistons, and the abrasive hiss of dust being swept across crystalline planes by convection currents. It is the sound of a machine that has forgotten its original purpose but continues to run out of pure, deep-seated habit.
+
+Scattered amidst the swarm are the "Built" remnants: small, obsidian-black spires that act as atmospheric stabilizers. They are the only fixed points in a world that is otherwise in constant motion. These spires hum with a low, electromagnetic pulse, regulating the ambient cool temperature that keeps the creatures’ gear-like segments from shattering.
+
+There is a sense of "end-life" here, but not in the sense of decay—rather, a state of settled, terminal efficiency. The light is neutral, pale, and static, pouring from luminescent strips embedded in the ceiling baffles, casting zero shadows. 
+
+Every inch of the environment is occupied. If a creature dies, its casing is immediately broken down by the others, repurposed, and integrated into the very floor it walks upon. The floor is slowly thinning, grinding down into finer and finer particles as the cycle repeats. There is no exit, but there is no desire for one. The ecosystem is in perfect, locked-step equilibrium: a frantic, crowded, and loud monument to a world that has finally finished turning.

@@ -1,0 +1,15 @@
+# The Cistern Corridors
+
+The air is warm and close, holding the city's breath underground. You are in a maintenance tunnel carved beneath a transit hub — not a natural space but something built to contain what flows beneath the built world. The walls are raw concrete, unfinished where the infrastructure doesn't reach, and where water has been seeping through fractured seams for years, a slow mineral archaeology has begun to form: pale veins and blooms of calcium carbonate, stalactites no longer than a finger, barely emerged, still chalky and new.
+
+Water is present but not visible. It announces itself through sound — a persistent drip, a subsonic hum of pressure in the pipes, the distant slosh of drainage channels running parallel to the walkway. Moisture beads on every surface. The concrete sweats. Where light falls from the occasional industrial fixture, halos of condensation blur the yellow-white glow, making the tunnel feel deeper than its actual width. Between fixtures, darkness reclaims the space.
+
+Sparse vegetation clings to the margins: moss in the dampest corners, a single枯蕨 fern rooted in a crack where water pools and evaporates in slow cycles. The heat rises from the machinery housed here, from the compression of transit infrastructure, from the city above pressing its warmth down through the stone. The tunnel is a warm intestine in the belly of the built world.
+
+And the fauna is everywhere. Rats move through the space in waves — not fleeing, not aggressive, just *present* in overwhelming numbers. They occupy the drainage channels, the space beneath the walkway grating, the wall crevices where the concrete hasn't sealed. Cockroaches emerge in the stillness between footfalls, their carapaces catching dim light, dispersing at the slightest vibration. The sound is layered: the drip and hum of water, the high-frequency chatter of rats organizing their movements, the occasional screech of metal settling, the bass heartbeat of compressors running slow cycles. It is loud without being chaotic. A city of small bodies going about their slow, patient work.
+
+The built structures — pipes, junction boxes, cable trays, inspection hatches — are organized but imperfect, accumulated over decades of expansion. Industrial, scaled, maintained enough to function, not maintained enough to be clean. The scale is bounded: you are in a room-sized corridor with a clear end you can almost see, a defined space with boundaries you could touch. Sparse density — life is present but scattered, occupying its territories, leaving spaces between.
+
+You could stand here and listen for a long time and the sound would not change much. The water seeps. The pipes breathe. The fauna moves in patterns older than the infrastructure, patient and gradual, a slow dynamic of occupation and consolidation. The erosion is still emerging: the mineral blooms still forming, the cracks still widening, the concrete still being reclaimed. This space is pre-formation, still becoming itself.
+
+It is hot and wet and alive with small bodies. A world beneath the world, patient and slow.

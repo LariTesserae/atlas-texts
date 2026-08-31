@@ -1,0 +1,53 @@
+# The Plateau Works
+
+---
+
+The plateau extends far enough that its edges are rumor. Stand at the center and the horizon is a clean line in every direction — not mountains, not forest, just the world ending at the agreed-upon distance where haze takes over. The surface underfoot is pale limestone, the color of old teeth, worn so smooth over so long that it holds a faint shine in diffuse light. Rain has found every crack and followed it down for centuries, so the rock is grooved in long parallel channels, like something enormous once drew its fingers across the whole face of the plateau in the same direction, patient and without hurry. In those channels, water sits. Not flowing — just present, occupying its assigned place, glinting.
+
+It rained recently. Or perhaps it always rains recently here; the air carries that quality of recent rain permanently, the smell of wet stone and something mineral underneath, sulfurous but not unpleasant, like the earth is breathing slowly through a mineral mouth. The rock weeps where it can. Seams in the limestone face low outcroppings at the plateau's scattered breaks and shelves, and from these seams water beads and collects and runs in thin continuous threads that go nowhere dramatic — they just run until they pool in the next groove and stay. The atmosphere is not quite mist, not quite clear. There's a suspended quality to the light that gives distant objects a slight softening, as if the air has not fully decided to be transparent today.
+
+The vegetation is an afterthought. Pale grass in specific places, growing where it can find the soil that has accumulated in depressions — shallow roots, wind-bent, surviving without thriving. Occasional low scrub, dark-leaved, tough, the kind of plant that made a deal with difficulty long ago and has been honoring it ever since. No trees. The scale of the plateau defeats trees, or the substrate does, or something about this place simply hasn't asked for them. What grows here grows low and patient and doesn't draw attention to itself.
+
+Warm. This matters. The warmth is not tropical — it's a high-altitude warmth, a warmth that has to work for itself against the elevation and the persistent wet, and the result is something particular: standing in sunlight on this plateau is comfortable, almost comfortable, the stone radiating back a stored heat that contradicts the bite the wind occasionally suggests might arrive. The warmth sits on the skin in a way that makes the wet air feel almost kind.
+
+---
+
+There is a city here. This is the strange part. Not near here — *here*, on the plateau itself, spread across it the way a stain spreads across cloth, without apology, organized but not contained. It has been here long enough that it has stopped being an imposition and become a feature of the geology, the way a reef becomes part of a coastline. The buildings are limestone and brick and something that might have once been industrial cladding, now oxidized to a color between green and black. They are low — nothing reaches above three or four stories — and they spread instead of rising, following the channels in the rock, the streets laid in the same direction as those ancient finger-grooves, so that in rain the gutters run with channeled water that knows exactly where to go.
+
+The city is sparse for a city. That is the first confusion: it is clearly urban — there is infrastructure, there are organized blocks, there are what appear to be factory buildings with chimney-stacks that still stand even where the factories may have changed their purpose — but there is space between things in a way that most cities negotiate away. Lots sit empty without being abandoned. Distances between buildings feel considered. Whether this sparseness is original design or long attrition is impossible to determine from the outside, and perhaps also from the inside.
+
+---
+
+The sound is the governing fact of this place. 
+
+It arrives before anything visual resolves, when you are still far enough away that the city is just a dark thickening on the pale plateau. A sound so low in frequency that it enters through the sternum before the ears register it. A sound that the body interprets, initially, as *concern* — some mammalian caution-response, some deep register saying *attend to this, something large is happening.* Then it resolves, or rather, you resolve to it: engines. Many engines. Engines of substantial displacement running at steady load, not revving, not straining — just turning, continuously, at the pace of continuous work. The city runs on power generation, or water management, or the processing of something that comes up through the plateau's interior, and whatever that work is, the machines doing it are running all the time.
+
+Walking into the city, the sound becomes layered. The low engine-throb is the floor everything else rests on. Above it: the rhythmic percussion of heavy machinery doing something repetitive — not chaotic, precisely timed, like a press or a stamp or a mill-wheel, coming from the large low buildings on the city's eastern spread. Above that: the harmonic resonance the limestone itself produces when sound travels through it, so that the rock underfoot hums faintly, and the buildings' walls hum at their own frequencies, and the city is not so much loud as it is *vibrating*, a place where sound is a physical material filling the spaces between structures.
+
+Human voices, when they exist, shout. Not with urgency — with practice. Everyone here has learned to project, has calibrated conversation to carry over the constant industrial floor. Children grow up speaking this way. Meetings happen with mouths closer to ears. The old ones, long-adapted, have developed a code of gesture that handles the things not worth competing with the engines to say.
+
+At night — and this is when the strangeness becomes available to examination — the sound does not change. The engines do not rest. The rhythm-percussion of the factory processes does not slow. Night here is the same as day in terms of sound, so that darkness arrives as the only signal that time has moved. The stars, when the sky clears, are very close — high altitude, thin air — but they are silent, and their silence is strange against everything below.
+
+---
+
+There is water in the lower streets. Not flooding — managed water, water that is supposed to be there, running in channels cut deliberately into the stone roadways, crossed by small bridges that are also old, their corners worn round. Where the water from the weeping limestone seams meets the city's drainage system, something has been done to direct it, to make it useful, and the network of these small flows through the streets has been here long enough that moss has established itself on the channel walls, a vivid green against the pale stone, the most intense color in the landscape. Children drag sticks through these channels. Old people rest on the bridge edges.
+
+The water sounds — the trickle and collect and drip of it — are almost inaudible under the engines. You know the water is there because you see it and feel the cool that rises from it, not because you hear it.
+
+---
+
+Animals are rare but not absent. There are birds of a type that has adapted to the sound — whether they came because of the warmth or the exposed rock or something else is not clear, but they nest in the chimney-stacks and on the limestone outcroppings at the city's periphery, and they have calls loud enough to occasionally cut through the engine-register. They are plain-colored, utilitarian birds, without the extravagance of birds from more forgiving places. Something lives in the water channels — small, quick, visible only as a disturbance. On the open plateau beyond the city, very occasionally, something larger crosses at a distance that makes identification difficult. It moves without hurry.
+
+---
+
+The strange part — or a strange part, since strangeness here is distributed rather than concentrated — is what happens to the limestone channels outside the city when the rain has been recent. The water that sits in the grooves has, over time, deposited something: a thin mineral crust on the channel floors, pale pink, almost iridescent in certain light, which is neither rock nor living thing but occupies the category between. When the water is present, this crust is hidden. When the water has evaporated — which takes days, given the wet air — the crust is exposed and it reflects light at angles that shouldn't be available given the angle of the sun, so that there are moments, early morning when the direct sun is still low, when the plateau surface flickers, when the channels light up in sequence as the light-angle shifts, when it appears briefly that the channels are flowing with something luminous rather than sitting still with something ordinary.
+
+The people here have a word for this. It's a short word, two syllables, and they use it casually.
+
+---
+
+Change, here, is slow enough to require testimony across generations. The city has been in its current approximate form for longer than writing about it has been kept, or the writing hasn't been kept well, or the city predates its own record-keeping in ways that are not fully resolved. Walls have been repaired so many times that the original stones are interior, nested inside later courses of stone, archaeological layers in a building that has never been demolished. Streets have been re-channeled as the limestone erodes further, a millimeter per decade, the grooves deepening almost imperceptibly. The factory buildings process something; what they processed originally may not be what they process now, but the buildings don't remember the distinction.
+
+The plateau itself is patient in a way the city has perhaps absorbed. Things do not happen quickly. Problems are addressed across the timeframe of their slow arrival. There is no emergency posture to the place, no sense that anything needs urgent attention — even the engines, which seem urgent with their continuous noise, have been running so long that they are simply *weather*, simply the condition of being in this place, like warmth or wet stone or the haze that sits at the horizon and waits.
+
+The grooves in the limestone go on. The water in them glints or flickers or sits still depending on the time of day. The engines turn. The buildings hum at their own frequencies. The birds call above it all, or try to. Somewhere at the city's edge, the scrub grass bends, unbends, bends again in a wind too slight to feel on the skin.

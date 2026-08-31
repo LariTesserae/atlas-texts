@@ -1,0 +1,15 @@
+In the cold, dim light of perpetual dusk, the vertical world rises like a breathing organism. Massive rock faces, striated and weeping with constant moisture, create a landscape of vertical wetness. Terraced mountainsides are not merely slopes, but living membranes where water seeps and condenses, creating hanging ecosystems that drip and pulse.
+
+Primitive rope bridges and wooden platforms cling to cliff faces, connecting small clustered settlements built directly into the rock's folds. These settlements are not separate from the landscape but embedded within it—dwellings carved into stone, roofs covered in thick moss, walls blending with the surrounding geology. The architecture feels organic, grown rather than constructed, with narrow passages and sudden openings that suggest the builders understand the mountain's own logic.
+
+Thick vegetation crowds every possible surface. Moss-covered lichens create dense green carpets that pulse and breathe. Strange, low-growing plants with translucent leaves collect moisture, becoming living water collectors. Twisted shrubs with multiple branching tendrils reach out from impossible cliff-side niches, their roots somehow anchored in minimal soil.
+
+The fauna here is startlingly present. Creatures that seem part rock, part animal move with surprising agility—six-legged climbing mammals with mottled camouflage skin, bird-like entities that more float than fly, using membrane wings that catch mountain updrafts. Their calls are loud, echoing through stone corridors, creating a constant auditory landscape of chirps, clicks, and resonant howls.
+
+Water is everywhere but never still. It streams from rock faces, condenses on surfaces, pools in hanging gardens, runs through carved channels. The atmosphere itself seems humid, almost alive, with moisture constantly cycling and transforming. Each breath feels like drinking.
+
+The technological level suggests deep adaptation rather than mechanical complexity. Tools are beautifully crafted from local materials—stone, wood, bone, woven plant fibers. Everything looks hand-shaped but with generations of refinement. Climbing gear, water collection systems, and shelter construction show profound understanding of the environment's demands.
+
+There's an underlying strangeness—a sense that the ecosystem's rules are slightly askew from familiar biology. Plants seem to communicate through moisture transfer. Animal behaviors suggest collective intelligence. The mountain itself feels sentient, with its constant water-breathing, its slow geological pulse.
+
+Temperature hovers just above freezing, creating a perpetual state of potential transformation. Ice could form, but doesn't. Water remains liquid, dynamic, moving. The landscape exists in a constant state of becoming—not static, but continuously reshaping itself through water, life, and slow geological movement.

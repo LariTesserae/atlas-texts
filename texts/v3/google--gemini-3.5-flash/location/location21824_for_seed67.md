@@ -1,0 +1,27 @@
+This is a world that has never known a seed. 
+
+From horizon to horizon, the ground is an endless plain of interlocking plates—not of stone, but of a dull, greyed-green nickel-iron alloy, warm to the touch. The seams between these massive plates are sealed with thick, black caulking that smells faintly of cold grease and paraffin. There is no soil, no sand, no clay. Everything here is fabricated, laid down in vast, continental configurations that mimic the low, flat basins of a natural world but share none of its materials.
+
+The landscape is wet, but it does not rain. Instead, the warm, saturated air perpetually condenses against the structural columns that rise like dead trees into the upper haze. These columns—hollow cylinders of ribbed copper, twenty feet thick and miles high—weep continuously. Water does not run in streams; it sheets down the vertical metal faces in silent, glittering films and pools on the floor below. 
+
+The water is shallow, rarely rising above the ankle, but it is everywhere. It fills the broad, rectangular depressions of the plated floor, turning the entire continent into a single, partitioned marsh of warm, mineral-rich industrial runoff. It is chemically pure but dead, carrying only a slight alkaline slickness that leaves a grey residue when it dries on the skin. 
+
+There are no plants. The only thing resembling vegetation is the growth of mineral dendrites along the edges of the water basins—sharp, fragile crystals of bismuth and zinc that self-assemble from the saturated pools. They look like frozen, angular ferns, glistening with a pale violet luster, but they are cold, brittle, and do not grow by cellular division. They simply accumulate, layer by atomic layer, in the static warmth.
+
+Despite the lack of green, the world is crowded. 
+
+Beneath the shallow, lukewarm water, the metal plates are completely obscured by life. It is an overwhelming, silent carpet of identical, hand-sized organisms. They are shaped like segmentless, ivory-colored shields, their shells made of a smooth, porcelain-like substance. They have no eyes, no antennae, and no mouths that are visible from above. Beneath their heavy rims, dozens of hair-like, silicon-tipped legs move in rhythmic, synchronized sweeps, clinging to the nickel plates. They do not compete, they do not fight, and they do not cry out. They simply sit, packed rim-to-rim, millions of them in every square kilometer, filtering the warm water through microscopic vents in their carapaces. 
+
+When you step among them, they do not flee. They merely slide apart with a soft, wet, collective click, like thousands of porcelain tiles shifting in a tub, only to close the gap behind your heel the moment it rises. The sensation of walking here is the sensation of stepping onto a living, moving floor that yields slightly but never breaks.
+
+The light of this world is flat and constant. There is no sun, no moon, and no stars. Two miles above the flooded floor, the sky is closed by a ceiling of ribbed white glass, glowing with a diffuse, sourceless luminescence. It is the light of a perpetual noon in a well-managed warehouse. Because the light never shifts, there are no shadows, only soft, grey gradients where the massive copper columns meet the floor. 
+
+The scale of this place is difficult to comprehend, because there are no natural landmarks to offer perspective. The copper columns recede into the warm, white mist in perfect, mile-wide grids. If you climb one of the rare, sharp-edged maintenance gantries that rise from the water, the view is always the same: a flat, silver-grey checkerboard of flooded metal, dotted with the white specks of the porcelain fauna, stretching out until the curvature of the world or the thickness of the humid air swallows the detail.
+
+And it is quiet. 
+
+For all its density and its industrial scale, the world makes almost no sound. There are no engines roaring, though the deep hum of power running through the subterranean conduits vibrates through the soles of your feet—a sub-audible purr that is felt in the marrow of the bone rather than heard. The air is so heavy and humid that it dampens sound, trapping it. The only noises are the slow, rhythmic *drip-plip* of condensate falling from the copper ribs into the shallow pools, and the low, collective rustle of the porcelain creatures as they slide over the metal sheets. It is the sound of a billion wet fingernails gently tapping on a kitchen counter.
+
+Nothing here changes. The water does not rise or fall; its depth is managed by tiny, intake grates set into the corners of every nickel plate, which gulp the excess water and pump it back up through the copper columns in a closed, perpetual loop. The temperature remains at a constant, sleepy warmth—twenty-eight degrees Celsius, day after day, century after century. 
+
+There is no wind. The air is perfectly still, heavy with the smell of wet metal, distant ozone, and the clean, chalky scent of the porcelain creatures. The sharp, un-eroded corners of the metal plates—which look as though they were milled only yesterday—will look exactly the same in ten thousand years. The world exists in a warm, wet, industrial stasis, a monument of infinite scale that has achieved its final, motionless equilibrium.

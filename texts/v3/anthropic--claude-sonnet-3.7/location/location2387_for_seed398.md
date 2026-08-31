@@ -1,0 +1,17 @@
+# The Heatsink Forest
+
+The heat hits you first—relentless, oppressive, inescapable. This is the Heatsink Forest, stretching across an entire continent, perhaps the entire planetary surface. It's a world consumed by vegetation unlike anything in human experience: trees that aren't trees, plants that aren't quite plants.
+
+The forest canopy towers hundreds of meters overhead, a dense interlocking mesh of copper-colored fronds that capture every photon from the dim red star that hangs perpetually in the hazy sky. The "trees" are actually singular organisms—vast colonial structures with metallic-looking trunks rising like pillars to support the endless canopy. Their surfaces are ridged and finned, maximizing surface area to dissipate the tremendous heat they generate. These aren't photosynthesizers but thermosynthesizers, harvesting energy from the temperature differential between the scorching ground and the marginally cooler upper atmosphere.
+
+Between these great columns stretches an impossible emptiness. No underbrush, no fallen debris—just bare, cracked substrate that might once have been soil but now resembles a ceramic plate, glazed by centuries of heat. The spacing between trunks is mathematically precise, as if planted by design rather than nature. The emptiness is deliberate, engineered by the dominant organism to maximize airflow.
+
+The sound is what gets to you next—a constant, thunderous drone that vibrates through your body. The plants are singing. Each colossal trunk resonates with a deep thrumming that rises and falls in complex patterns. It's the sound of fluids being pumped through vast internal networks, of thermal energy being converted and transported, of an entire planetary ecosystem in perfect equilibrium. The forest has found its stable form and maintains it with deafening efficiency.
+
+High on the western ridge—one of the few elevations that break the otherwise level expanse—stand the remains of what might have been a research station. Metal frameworks, heat-warped and colonized by climbing vine-cables that have integrated the structures into the greater organism. Solar collectors, once positioned to power human habitation, now redirected to feed energy into the plant network. A communications array, its dish serving as a vast bell, vibrating with the forest's resonance.
+
+There are no animals here. Nothing that moves independently of the forest's rhythm. Yet the place isn't dead—it teems with a single, planet-spanning life. The forest is the world and the world is the forest.
+
+In the distance, barely visible through heat haze, industrial structures rise—not ruins, but active, functioning facilities. Cooling towers release vast plumes of steam. Mechanical arms extend from plant-material walls, maintaining themselves with methodical precision. These aren't human factories but biological industry—the forest's way of maintaining itself. The plants have developed mechanical appendages, a way to interact with the physical world beyond mere growth. They harvest rare minerals from deep deposits, process atmospheric gases, and maintain the delicate balance that allows the entire system to persist.
+
+The Heatsink Forest is both ancient and unchanging. It reached this state of equilibrium eons ago and now simply maintains, neither evolving nor declining. The sound never stops, the heat never abates, the emptiness between trunks never fills. It is a world that has found its perfect form and sees no reason to deviate.

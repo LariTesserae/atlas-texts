@@ -1,0 +1,13 @@
+You find yourself standing upon a vast, windswept plateau of jagged obsidian shards that stretches out towards a blazing horizon. The air is thin and bitterly cold, but the glare of the brilliant crimson sun overhead is almost blinding, casting stark shadows across the fractured glassy terrain.
+
+Towering monolithic structures of dark metal and twisting pipes loom all around, remnants of some ancient industrial civilization. Rusted pipes and conduits snake across the ground between the looming edifices, like the desiccated veins of a long-dead giant. Overhead, banks of solar panels and mirrored collectors slowly track the sun's movement, harvesting its intense energy.
+
+Despite the cold and lack of water, the landscape is not entirely lifeless. Scattered across the glassy plains, clustered around the warmth of the metal structures, strange semi-translucent creatures graze and crawl. Like living crystals, they seem to absorb and refract the bright sunlight, using its raw photonic energy to sustain their alien biology.  
+
+Some of the creatures resemble grazing herds of four-legged behemoths, their shimmering chitinous flanks picking up the hues of the ruddy sky. Others are smaller, skittering across the sharp shards like living prisms. In the distance, swirling clouds of glittering motes drift on thermal winds, moving with an eerie collective intelligence.
+
+The structures themselves seem cobbled together from scavenged parts, melted down metal, and repurposed industrial machinery of a civilization long fallen to ruin. Faded hieroglyphs and worn pictograms cover their surfaces, hinting at some lost language and long-forgotten meaning. What remains intact has clearly been re-purposed for more basic survival needs by the crystal-grazers.
+
+There is an aura of profound alien age and slow decline to this high desert of razor shards and rusting metal monoliths. Yet the photonic crystal beings go about their languid cycles, drifting and grazing on the infinite light that bathes this stark world, oblivious to the long-cold remnants of their predecessors' once great works.
+
+The only sounds are the low subsonic groans of drifting thermal winds across the jagged plains, the faint tinkles of shifting crystal formations, and the metallic creak of ancient struts and panels slowly turning to track the sky. An eerie quiet settles over this blasted, airless, slowly eroding monument to worlds lost and civilizations ground away to their barest essence by the ceaseless cycling of light and time.

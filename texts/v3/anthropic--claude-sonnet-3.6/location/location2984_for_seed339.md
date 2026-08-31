@@ -1,0 +1,17 @@
+The cavern stretches vast and hollow, its ceiling lost in a perpetual haze of industrial steam that rolls and churns in slow motion. This is Deepwell City, though "city" suggests a density that isn't quite right - the structures here float like sparse constellations in the void, connected by impossibly delicate bridges that look like spider silk caught in morning dew.
+
+The buildings themselves are brass and copper spheres, their surfaces alive with condensation that beads and runs in ever-changing patterns, collecting in crystalline catchments that pulse with bioluminescent algae. These droplets are precious here - the city harvests every one, feeding them through transparent arteries that wind between the structures.
+
+The walls of the cavern weep constantly, but it's not water - not exactly. The liquid is thick and opalescent, seeping from veins of pale mineral that branch like frost across the rock. Where it pools on the scattered platforms and terraces, it nurtures strange gardens: phosphorescent fungi tall as trees, their caps unfurled like solar panels toward the artificial suns that drift through the space - great glass globes filled with specialized bacteria that emit a cool, steady light.
+
+Between the floating structures, mechanical elevators crawl up and down on tracks that seem too thin to hold them. They move with deliberate slowness, their gears turning in perfect silence. The quiet is profound here - sound seems to fold in on itself, absorbed by the vastness and the thick atmosphere.
+
+The city's inhabitants are visible mainly by their absence - doors opening and closing autonomously, lights shifting in windows, the occasional movement of maintenance drones that look like translucent jellyfish. But the true life of the cave thrives in the spaces between: colonies of blind fish swarm through the air like schools in slow motion, their scales reflecting the ambient light. Moth-like creatures with wingspans of several meters glide between the buildings, their wings collecting moisture that they exchange for nutrients at designated feeding stations.
+
+At regular intervals, massive filters at the cave's floor activate, drawing the heavy steam downward in visible currents, processing it through beds of engineered coral that extract trace minerals and pollutants. The cleaned vapor rises again, continuing the cycle that keeps this ecosystem in balance.
+
+The temperature hovers just above freezing, but the constant moisture makes it feel colder, creating micro-climates where ice crystals form in mid-air, hanging suspended until they gather enough weight to fall. These ice-falls create a scattered percussion through the silence - the only consistent sound besides the occasional low hum of machinery cycling through its maintenance routines.
+
+In certain areas, the cave walls are carved with circuit-like patterns that pulse dimly with piezoelectric energy, harvested from the constant pressure of the rock above. These ancient carvings seem older than the city itself, hinting at previous inhabitants or perhaps the original engineers of this space.
+
+The overall effect is of a dream half-remembered - a place that follows its own logic, where the boundaries between natural and artificial, living and mechanical, have long since dissolved into something entirely new.

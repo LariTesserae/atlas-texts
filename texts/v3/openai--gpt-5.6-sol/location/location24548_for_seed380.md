@@ -1,0 +1,55 @@
+The place lies below the surrounding ground, though not properly underground. It is a sunken ward, a shallow city dropped into an old erosion basin and enclosed on all sides by retaining walls. From above, if the upper streets can be found through the fog, it resembles the open interior of a machine: slate roofs, narrow channels, iron footbridges, brick housings, and a few tall cylinders packed into a hollow no larger than a village green.
+
+The walls are older than the ward. Water made them before they were faced with masonry. Their shape is soft and settled: long concavities, undercut shelves, gutters worn deep enough to hold a hand. The builders did not straighten these contours. They pressed bricks into them, fitted arches beneath the overhangs, and drove black iron staples through stone and mortar together. In places the facing has fallen away, revealing pale rock polished by centuries of seepage. These exposed patches weep continuously. Each bears a transparent skin of water, too thin to run and too persistent to dry.
+
+There is no central street. The bottom of the basin is divided into platforms of stone and rust-dark metal, separated by drainage canals. The canals are narrow but deep. Their water moves almost imperceptibly beneath mats of reflected darkness. Here and there it broadens into square settling pools built against workshop walls. Rainwater, groundwater, condensation, and industrial runoff all meet in them, yet the water remains oddly clear. Bolts, animal bones, coins, and drowned gauges can be seen far below, magnified and apparently close enough to touch.
+
+The buildings are urban in their arrangement but subdued in number. They stand apart from one another, leaving unexpected intervals of wet paving and empty air. A pump house occupies one ledge. A row of six worker dwellings follows the curvature of the western wall. Across the canal is a boiler hall with a roof like the back of a resting animal. There are small depots, valve kiosks, an electrical substation enclosed by green ceramic panels, and a round tower filled with slowly descending chains. Nothing is monumental on its own. Together, the structures make a dense idea of industry inside a sparse physical space.
+
+Most construction is brick, basalt, lead, and riveted iron. Wood survives only where it remains soaked: sluice handles, submerged pilings, doorframes swollen permanently shut. Copper pipes pass between buildings at shoulder height, beaded with cold condensation. Their joints are wrapped in grey fabric and stamped with faded municipal seals. Some vanish directly into the rock. Others emerge from one wall only to enter another a few feet away, with no visible purpose.
+
+The machinery is active, but it does not behave like machinery elsewhere.
+
+Flywheels turn once every several minutes. Pistons sink under their own weight and rise with the gradual filling of hidden chambers. Belt drives hang slack for long periods, then travel a single measured span before becoming still again. Pressure needles tremble near zero. Glass indicators fill drop by drop with luminous blue water and empty at intervals too long for a visitor to anticipate. The whole ward appears to be in the middle of one enormous operation conducted at the pace of geology.
+
+No one agrees on what it produces.
+
+Crates remain stacked beneath awnings, though their boards have softened into black pulp. Conveyor tracks lead from the cutting house to a blank section of retaining wall. The old loading crane periodically lowers its hook into an empty courtyard, waits, and raises it again bearing nothing visible. In one workshop, arrays of steel teeth comb moisture from the air. The gathered droplets are sorted by size into lead-lined cisterns. The smallest are piped away beneath the dwellings; the largest are sealed individually in little glass ampoules.
+
+It is cool enough that breath shows faintly. The temperature varies less between day and night than between one side of a doorway and the other. Some rooms hold the chill of deep wells. Others are warmed by pipes no hotter than skin. The damp enters cloth, paper, hair, and mortar. Metal rarely feels dry. Leather acquires a pale bloom. Even sound seems waterlogged.
+
+Light comes from above as a weak, diffuse greyness. The rim of the basin is usually hidden by low cloud or condensation gathered beneath the overhead lattice of bridges. Lamps burn behind ribbed glass in a few windows, but their amber circles do not reach far. Blue electrical arcs occasionally crawl along the substation insulators without crack or flash. They move slowly, like luminous snails, leaving a clean trail in the grime.
+
+Vegetation is sparse and highly particular. There are no broad carpets of moss, despite the wetness. Instead, single plants occupy exact sites. A white reed grows from each overflow drain, never more than one to a drain. Black liverwort traces the mortar only along north-facing arches. In the settling courts stand a few thin, leafless trees whose roots enter iron grates rather than soil. Their bark is smooth and mineral-grey. Once every few years they produce translucent fruit filled with cold rainwater.
+
+Fungi favor the warmest machinery. Small shelves grow from gasket seams and valve housings, ivory on top and red beneath. Workers once used their appearance to judge pressure: a ring of open caps meant a line was safe; tightly folded caps meant it should not be touched. Whether the fungi sense steam, vibration, or something moving inside the pipes is unknown.
+
+Animal life is everywhere, though seldom conspicuous enough to make the ward feel crowded.
+
+Long-legged water mice move along the canal margins, placing their feet carefully on the surface film. Pale eels inhabit flooded cable conduits. Moths rest on walls in such numbers that whole bricks seem furred until the insects open their wings and reveal the masonry again. Drain crabs live in the culverts, carrying washers, numbered tags, and fragments of blue ceramic on their backs. They arrange these objects in concentric patterns around the grates.
+
+There are also the bell-throats: soft, fist-sized amphibians that cling beneath iron bridges. Their bodies are nearly transparent, their slow hearts visible through the skin. They do not croak. When the air pressure changes, the cavities in their throats resonate with nearby metal, producing a single low note. Because they seldom sound together, the ward may go for hours without one. Then, from under a bridge, comes a muted tone like a distant buoy heard through fog.
+
+Birds nest in the rafters of the boiler hall, but they have lost most of their voices. They communicate by tapping pipes with their beaks. Different pipes carry the taps to different quarters, and at dusk faint answers travel back through the walls. A newcomer may mistake this for workers signaling from sealed rooms.
+
+Larger creatures are glimpsed only in the water. Something broad turns beneath the main settling pool, disturbing no more than a line of reflected light. Rounded backs sometimes block the sluices from below. The mechanisms pause when this happens. They never crush or drive the creatures away. Pressure falls throughout the system; flywheels stop; the blue indicators empty. Hours or days later, when the obstruction has moved on, the machinery resumes from the exact point at which it halted.
+
+For a place so full of animals and apparatus, the ward is mostly quiet. Water ticks from iron edges. Cloth belts whisper. Once in a while a chain advances through the round tower with a soft succession of clicks. The deeper pumps are felt through the soles rather than heard. Their pulse comes perhaps twice an hour: a gentle compression of the paving, as if the basin has drawn breath.
+
+Loud noises do not echo normally. A shout is absorbed by the damp walls and returns much later in altered form—sometimes from a drain, sometimes as a vibration in a handrail, sometimes as a brief agitation among the moths. The delay can be minutes or seasons. There are records of demolition blows heard in apartments decades after the demolition was completed. For this reason, old residents avoid slamming doors. They say the ward retains every sound until it finds an appropriate surface on which to release it.
+
+Water obeys a similar rule. It remembers its most established route.
+
+A newly cut ditch may remain dry while water beads and flows across the stone beside it, following a gutter worn away generations before. Pipes cannot permanently persuade it otherwise. Given enough time, their interior flow shifts toward the routes in the surrounding rock; seams begin to seep, brick darkens in old channels, and the water resumes a path that may predate the city. The industrial works have therefore become less a system of command than one of negotiation. Valves delay. Pumps borrow. Cisterns hold water only until it recognizes where it is.
+
+This makes change slow but not absent. Rust thickens in deliberate layers. Canal edges retreat by the width of a fingernail over many years. A staircase descending to a workshop may, over several generations, become a shallow cascade. Buildings are not demolished so much as surrendered room by room. A doorway is bricked up when condensation starts forming on its inner face. A machine is decommissioned by disconnecting nothing and simply ceasing to record its measurements.
+
+There are signs that the basin itself is still deepening. Door thresholds sit higher than old street markings. Iron bridges have been extended downward by adding new steps at their ends. Windows once at eye level now look over sunken courts. Yet the ward does not feel ruined or endangered. Its subsidence is too old, too regular, too thoroughly incorporated into daily construction. Each generation builds slightly lower than the last.
+
+At the lowest accessible point is a circular plaza paved with worn stone. Its center is occupied by a capped well surrounded by gauges. The needles point inward, toward the well, rather than toward numbered scales. Condensation slides down the glass faces and gathers at their bases. Animals avoid the paving but watch from the roofs and canal edges.
+
+Once each year—or once each time the basin has settled by another measurable fraction; the distinction is unclear—the well cap descends a few millimeters. Every machine in the ward moves at once. Chains tighten. Pumps complete a stroke. The empty crane lifts its hook. Lamps dim to embers. Thousands of moths open their wings, and the drain crabs turn their decorated shells toward the plaza.
+
+There is no roar, no alarm, no release of steam. Only a low adjustment travels through brick, water, bone, and iron.
+
+Then the ward returns to its patient work: collecting the wet air, lowering itself around the old paths of water, and making—very slowly—whatever it has been making all along.

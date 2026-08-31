@@ -1,0 +1,35 @@
+The place lies beneath a low, cracked plateau where the ground gave way only recently, perhaps within the memory of the machines that now occupy it. From above it would be easy to miss: a shallow seam in pale, heat-baked earth, fenced with three lengths of rusting rail and a warning board whose paint has curled away. Warm air issues from the seam at dawn and disappears into the hotter day. At night, when the surface cools, the breath becomes visible: a slow white vapor smelling of iron, wet stone, and green things kept from sunlight.
+
+Below is not a vast cavern but a contained underworld, the size of a small station or a buried courtyard. The ceiling is low in places, high enough elsewhere for darkness to collect. It is made of fresh stone—black basalt split along clean, cruel edges, and bands of clay still raw-looking, as though the earth has not finished deciding how to close around the wound. Some walls have the glazed sheen of heat. Thin roots penetrate through the cracks from the world above, but most of the growth belongs here.
+
+Vegetation gathers in separated colonies, each one flourishing around its own source of moisture. There are broad-leaved ferns with nearly translucent fronds, rubbery vines that climb the rock and then hang in loose vertical ropes, mats of liverwort spread over ledges, and pale, waxy plants rooted in gravel at the edge of the sump. They are not uniformly green. In the near-dark they show deep blue, soot-black, and a dense red-green that only appears where a lamp passes over it. Their leaves remain wet long after the water has stopped falling.
+
+Water is never abundant enough to become a stream. It enters in private ways: a periodic drip from a split in the ceiling; condensation gathered along the cold metal of a pipe; sudden warm rain descending through a vertical shaft during storms above. The floor holds it briefly in shallow basins before the heat drinks it back. Every puddle has a pale mineral rim. Every damp patch grows something.
+
+The temperature is close and tropical, but not natural in its warmth. Part of it rises from below through the young fractures in the stone. Part of it comes from the machinery.
+
+There are only a few machines, distributed with unusual care through the chamber: a squat pump beside the largest basin; an electrical control cabinet mounted on a stone pier; a narrow conveyor, stopped halfway through its intended route, its belt slack with age; an old generator housed in a corrugated-metal shed too small for a person to stand upright in. The shed is a box inside the cave, its walls stippled with condensation. A single cable runs from it up through the ceiling shaft, vanishing toward the surface installation.
+
+None of the machinery is quite dead. That is what makes the place uneasy.
+
+The pump turns for seven minutes every third evening. It does not roar. Its motor gives a low, submerged vibration that can be felt through the soles of the feet and seen in the trembling water of the basin. The control cabinet wakes with one dim amber indicator. Somewhere inside the shed, a relay clicks once. Then the machinery returns to its long stillness, and the cave reclaims the sound before it can become an echo.
+
+Its original purpose is unclear. Perhaps the chamber was opened to reach a mineral seam; perhaps it was discovered during a survey and equipped to prevent flooding; perhaps the little industrial arrangement is a failed attempt to cultivate something that should have remained unmeasured. The conveyor ends at a rectangular pit covered by a grid. Below the grid is darkness, warmth, and the smell of wet leaves. No one has recently used it. Ferns have begun to grow through the teeth of the belt.
+
+There are human marks, but few. A steel stool stands beside the cabinet, one leg sunk into a soft patch of moss. A yellow hard hat rests upside down on a cable spool, full of clear water. On one wall, an old painted line points toward an exit with the word **UP** beneath it. The arrow has been altered by mineral runoff until it seems to point not upward but inward, toward a fold of black stone where roots emerge.
+
+The light is mostly borrowed. A dim service lamp near the pump burns behind a wire cage, its weak cone ending after several paces. Another lamp hangs deeper in the chamber but has gone out, leaving its pale shade suspended like a fruit in the dark. At intervals, a blue-white flicker travels through the cracks in the basalt—not lightning exactly, but the momentary ignition of some gas or mineral charge far below. It is too brief to illuminate the space fully. It merely rearranges it: reveals the wet backs of leaves, the sharp newborn edges of stone, the damp gleam on the machinery, then leaves all of it uncertain again.
+
+There are no animals here. No insect hum gathers around the lamps. Nothing skitters in the leaf litter. The plants are untouched except by water, heat, and their own slow competition for ledges and seams. Even decay seems quiet. Fallen leaves soften into dark paste without being chewed. A white fungus occupies the underside of a pipe, delicate as frost but warm to the touch.
+
+Without animals, the room’s silences become specific. Drops strike metal. Condensation slips from a leaf. Hot air moves through narrow cracks with a sound like someone far away drawing breath through their teeth. The ceiling occasionally gives a small dry tick as the young rock settles. Most of the time, however, there is no audible proof of activity. The place feels less abandoned than paused.
+
+Its rules are patient ones.
+
+Heat rises, but moisture travels sideways, following metal before stone. Plants grow only where light is not strongest; the exposed lamp-lit areas remain comparatively bare, as if the vegetation distrusts direct illumination. Fresh fractures appear in the walls after heavy weather, opening thin black mouths that exhale warmth for several weeks and then seal with mineral bloom. Nothing moves quickly except rain, when it comes. After a storm, the entire chamber changes: new rivulets thread down the walls, old dust becomes ochre mud, leaf surfaces shine, and the dark pool beneath the grid rises almost to its cover. Then, over the following days, the water retreats, leaving salt, silt, and new green at its margins.
+
+The chamber does not expand much. It is young, but its growth is restrained. The earth is pressing around it. The industrial fixtures have been installed in anticipation of collapse, and their sparsity gives each one the gravity of a monument. Between them are broad patches of untouched floor: dark gravel, clay rippled by old runoff, and stones sharp enough to seem freshly broken from a larger body.
+
+To stand here is to feel enclosed by several kinds of unfinished work. The cave has not settled. The machines have not fully ceased. The plants have not yet made the chamber into a garden. Water has not chosen a permanent course.
+
+Yet all of them are slowly agreeing to remain together: the warm stone, the dark leaves, the intermittent drip, the sleeping pump, the small amber eye that comes on every third evening and watches nothing at all.

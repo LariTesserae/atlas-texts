@@ -1,0 +1,51 @@
+At the back of the altitude station, behind three pressure doors and a service corridor too narrow for two people to pass, there is a wet room.
+
+It is not called that on any map. The map gives it a number, a filtration purpose, a thermal-exchange class, a dozen permissions. But anyone who has worked near it calls it the wet room, because before the inner hatch has fully opened the air reaches out and touches the face: warm, close, mineral, beaded with condensation. It is the smell of rain caught indoors for a hundred years.
+
+The place is small. Not a cavern, not a garden, not really a chamber. More like a notch hidden in the body of the station, a contained ravine built between machine organs. Its ceiling is low in some places and lost in dark vapor in others. The floor steps down in overlapping shelves of black composite, each shelf made to resemble stone only because water needs something like stone to persuade it into rivulets. Nothing here is natural substrate. The “rocks” are cast ceramics and capillary alloys, pitted by design, grooved by long use, mineral-furred where the water has chosen the same path too many times. The “soil” is a porous maintenance mat beneath grates, seeded with microbes and binding threads. Even the mud is manufactured, a brown gel that clings and releases according to the room’s cleaning cycle.
+
+Still, after so long, it has become a place.
+
+Water comes from everywhere. It trembles out of seams in the walls. It sweats from overhead cooling fins. It gathers beneath handrails, fattens, drops. It slides down ribbed surfaces in silver cords, vanishes through slots, reappears lower down as warm seepage. There are shallow pools no wider than a basin, channels the width of a wrist, damp ledges where a heel would slip if anyone stepped without care. The water is never deep, but it is constant, and it gives the whole room the feeling of being at the edge of a marsh compressed into machinery.
+
+Beyond the hull, the station is high above a hot mountain belt, in air too thin and bright for unprotected lungs. But in here the height is present only as pressure in the ears and the faint ache in metal. Pumps labor to keep the room’s atmosphere heavy. Heat exchangers hold it at a soft, tropical warmth. The air has weight. Breathing it is like breathing through wet cloth.
+
+There is little vegetation, or little that would satisfy an old definition of it. A few pale fronds grow from slots in the lower walls, each one clipped and monitored by tiny grazing machines. Lichens form dark green punctuation around screw heads and old welds. Filament moss hangs in short tassels where condensation is most reliable, but it never forms a carpet; the maintenance system thins it before it can clog the sensors. Small reedlike stems stand in one corner under a failing amber lamp, their leaves narrow as needles, their roots sealed into transparent nutrient tubes. They look less planted than permitted.
+
+Fauna, though, is everywhere.
+
+Not large animals. The room could not hold them. But abundance does not require size. It clicks, skims, pulses, clings. Soft-bodied filter crawlers line the water channels, opening and closing like wet eyelashes. Jointed cleaning crabs, no bigger than coins, patrol the grates in busy processions, their translucent shells stamped with faint manufacturer’s codes worn nearly illegible by generations of mineral film. Threadfish—engineered maintenance fauna, bred to eat biofilm and sensor bloom—move in sudden synchronized flashes through the shallow pools. Their bodies are black in dimness until they turn, and then they show a blue metallic seam along the spine.
+
+There are moths too, or something close to moths: warm-air pollinators kept from some earlier ecological module, now feral in miniature. They sleep on the underside of pipes, wings folded like damp paper. When the vibration of the room changes, they lift all at once and become a flickering soot-cloud in the low light.
+
+The sound is enormous.
+
+It is difficult, at first, to believe such a small place can contain so much noise. The station’s outer turbines send a bass roar through the walls, a permanent weather of machinery. Pumps hammer in staggered rhythms. Water falls everywhere, not in a single stream but in a thousand small impacts: ticking, splashing, hissing down mesh, pattering onto polymer stone, gurgling beneath panels. Fans breathe from hidden vents with a throat-deep rush. Pressure valves bark and sigh. Somewhere under the floor, a recycler spins at a pitch just high enough to enter the teeth.
+
+No sound remains separate for long. The chamber folds them together until they become a physical element, like humidity or heat. You do not stand in silence and hear water; you stand inside the engine-noise of a constructed rain.
+
+The light is low because the room does not need much light. Most of its inhabitants navigate by chemical trace, vibration, electric field, thermal gradient. Human-visible illumination is a courtesy installed along the walkway: dull amber strips behind fogged glass, occasional blue service diodes, the intermittent white pulse of diagnostic scans moving like distant lightning across wet walls. The pools hold fragments of these lights and break them whenever something moves beneath the surface. Metal handrails shine only where palms have polished away the mineral crust.
+
+The whole place is made, but not new-made. Its age shows in equilibrium rather than decay. Edges have softened where water has run for decades. Fasteners have accumulated halos. Ceramic stone has darkened along habitual routes. The maintenance swarms have learned the room’s preferences and no longer return every surface to factory condition. Some stains are now tolerated because removing them causes worse imbalances. Some leaks are listed as functional. A little seepage feeds the moths, and the moths feed the vents’ bacterial veil, and the veil stabilizes condensation on the heat fins. The room has negotiated with its makers and won small concessions.
+
+There are rules here.
+
+Do not touch the black growth under the eastern baffles; it is part of the pressure chemistry and bruises easily. Do not block the narrow channel with the brass-colored lip; it is not decorative, and if its flow slows, the whole room warms by two degrees in under a minute. Do not shine a bright lamp into the lower pools, because the threadfish scatter into intake screens and die there. Do not stand still too long on the lowest grate, where the cleaning crabs mistake boot rubber for dead polymer and begin their patient work.
+
+Every few hours the rain changes direction. It does not fall from above then, but condenses from the walls in waves, as if the chamber exhales moisture sideways. Droplets appear simultaneously on thousands of surfaces, swell, and release. The noise rises to a hard, shimmering applause. The moths wake. The filter crawlers open. Warm mist thickens until the far wall disappears, though the far wall is only a few strides away.
+
+Then the system drains.
+
+Pools lower by a finger’s width. Grates glisten and steam. Hidden membranes in the wall flex, drawing excess water through capillary engines whose design belongs to a later science than the rest of the station. These engines do not pump in the ordinary sense. They persuade fluids through fields that seem almost tactile, organizing droplets into threads, threads into sheets, sheets into invisible passage. Water climbs when it should fall. It gathers along the underside of ledges in disciplined beads, then vanishes through solid-looking ceramic as if the material remembers being porous.
+
+For all its advanced machinery, the room feels practical rather than miraculous. Its strangeness has been domesticated by routine. The impossible physics is panelled over, labeled, damp, and loud. A worker can curse at it. A crab can nest beside it. Mineral scale can dull its casing.
+
+The terrain is intimate but complicated. A person moving through it must turn sideways between pipe-clusters, duck under sweating conduits, step over a braided run of warm water, avoid a nest of silver maintenance larvae trembling beneath a mesh cover. There are tiny cliffs and tiny deltas, a marsh-edge compressed into arm’s reach. On the upper ledges, water beads and waits; on the lower shelves, it spreads into slick flats. The largest pool is hardly wider than a table, yet it has shores, currents, territories. Pale rootlets hang into it from nutrient tubes. Threadfish defend the shadow beneath the diagnostic column. Cleaning crabs avoid the center, where a soft predator like a folded ribbon lies buried in brown gel and strikes at passing legs.
+
+Nothing here has much room, so everything overlaps. Fauna moves through machinery. Machinery hosts biofilm. Biofilm feeds grazers. Grazers clear sensors. Sensors regulate rain. Rain shapes mineral crust. Mineral crust redirects water into new microhabitats. Each presence is near another, often touching, often interfering, and the system persists through correction rather than purity.
+
+The warmth makes the metal smell alive. The dimness makes the chamber seem deeper than it is. The noise makes thought heavy and private.
+
+If you stay long enough, the place stops resembling an installation and starts resembling a weather system that happens to have bolts. Its constructedness remains total—every surface chosen, every organism introduced or tolerated, every drop accounted for by some distant maintenance intelligence—but age has given it the dignity of a ravine. It has no sky, only a ceiling lost in vapor. It has no earth, only engineered matrices and wet composite stone. It has no wildness in the old sense, but it has appetite, rhythm, shelter, danger, and habit.
+
+At the center, where three channels meet beneath a sagging veil of moss, the water is almost quiet for a moment before entering the drain. The quiet is relative; the walls still roar, the pumps still pound, the vents still breathe. But there is a small dark convergence there, a thumb-sized estuary in the body of a high machine, warm and dim and densely inhabited, where made water follows weathered paths and small lives have learned the shape of them.

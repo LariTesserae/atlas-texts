@@ -1,0 +1,21 @@
+# The Clockwork Caverns
+
+The first thing you notice is the relentless ticking—thousands upon thousands of timepieces beating in near-unison, creating a syncopated rhythm that fills the vast underground expanse. Not natural caves, but manufactured caverns stretching kilometers in all directions, their ceilings propped by enormous brass columns spiraling upward like giant corkscrews. The walls themselves are constructed of interlocking gears, some turning imperceptibly slow, others whirling with alarming speed.
+
+Condensation beads on every metal surface, dripping in musical patterns that somehow complement the mechanical symphony. The moisture doesn't rust the mechanisms—it seems to lubricate them, gathering in shallow copper basins before being pumped back through transparent tubes that wind throughout the structure. In certain chambers, this water falls as precisely timed artificial rain, nurturing the vegetation that has become integral to this impossible ecosystem.
+
+Plants grow everywhere, their roots finding purchase in the narrow seams between manufactured components. Vines with luminescent blue leaves twist around spinning axles without catching. Ferns unfurl from the faces of clock gears. Most striking are the bell-shaped flowers that open and close in time with specific mechanisms, their petals acting as dampeners that modulate the caverns' acoustics. The plants aren't merely surviving here—they're collaborating with the machinery.
+
+The air is warm and humid, like a tropical greenhouse. Steam occasionally vents from brass gratings, temporarily fogging sections of the cavern before being reclaimed by collection systems. The warmth appears to come from deeper levels—there must be enormous engines far below, their distant rumbling felt more than heard beneath the omnipresent ticking.
+
+This place was built long ago, yet maintains itself. The machinery has achieved equilibrium—worn smooth in some places, adapted in others. Pendulums swing in hypnotic arcs, their brass weights polished by decades or centuries of motion. Numerical displays flip with soft clacking sounds, recording values whose meaning is no longer evident.
+
+You occasionally glimpse small creatures—mechanical rodents scurrying along designated paths, or butterfly-like constructs that seem half-organic, half-metal. They are rare and skittish, disappearing into specialized apertures in the walls. Are they maintenance systems? Evolved symbiotes? Impossible to tell.
+
+The most disorienting aspect is how space behaves here. Turn a corner, and a corridor might stretch longer than physically possible. Look through certain gear-framed windows, and you'll see other sections of the cavern that cannot logically connect. Some chambers appear simultaneously above and below others. Temporal anomalies manifest in subtle ways—water droplets that fall upward, plants that bloom and wither in minutes, shadows that move independent of their sources.
+
+The deeper you venture, the more the boundary between mechanical and organic blurs. Plants seem to transform into machines mid-stem. Gears occasionally sprout leaves. The walls themselves sometimes ripple like living tissue before resuming their metallic nature. Reality feels negotiable, as though the normal rules were suggestions rather than laws.
+
+Despite the constant noise—the ticking, chiming, steam-hissing, water-dripping cacophony—there's a strange sense of purpose. This isn't chaos; it's a system so complex it merely appears random. The Clockwork Caverns aren't breaking down—they're evolving, reconfiguring, becoming something new while maintaining functions established ages ago.
+
+And somewhere, deep within the impossible geometry, you sense something is watching, calculating, adjusting the system with microscopic precision. Whether it's the soul of the machine or something that has emerged from the interaction of all these components, you cannot tell. But it knows you're here, measuring your presence against the grand equation of its existence.

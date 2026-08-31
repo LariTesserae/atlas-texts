@@ -1,0 +1,31 @@
+The world here is an ocean carried up to the mountaintops, a continent drowned but not lifeless, where the cold kisses your skin even through the thick embrace of water. Imagine standing — or rather, hovering and swimming, carefully, as gravity’s hand is familiar but softened — in an unfathomably broad, storm-ravaged, half-sunken valley high in what was once a mountain range, the terrain’s proud bones worn down by epochs, defiant in their age but yielding, smoothed and settled into undulating shelves and plunging canyons.
+
+**Terrain and Materials:**  
+These are summits made flat by endless time — the peaks now gentle domes and ridges, their jaggedness erased, surface rich with overlapping sediments, veils of silt and ash, smooth boulders the size of buildings, chiseled only by the slow movement of water and the endless gnawing of life. The rock is dark, ancient: layered basalt and schist, twined with seams of lighter minerals, often exposed where the ferocious undersea currents scythe away the softer debris. The valleys between are broad chasms and plateaus, stepping down in terraces, the work of endless aeons of crumbling, infilling, and compaction. Yet even here, some surfaces gleam — not from youth, but from the polish of millennia.
+
+**Water, Light, and Atmosphere:**  
+Everything is submerged. Water stretches upwards until your vision wavers, terminating in a sky-roof of riotous, cloudlike plankton blooms. Light filters through with a dusky clarity: noon here is an endless twilight, beams splitting and diffusing in the crowded water, trembling with particles, giving the entire scene a muted, stormy radiance. Sometimes bursts of greater light surge — when fissures open above or stormfronts collide on the drowned surface, spearing glares down even to these depths.
+
+The pressure is tangible. To creatures shaped for this domain, it is comfort; for you, it is an insistent embrace. The water is cold, briskly so, invigorating — a balm against the fever of decay. Here is no stagnant abyss, but a place of constant motion. Torrential currents roar and eddy, surging up the flanks and plunging over the stepped cliffs in underwater “waterfalls,” vast flows battering against stone and swaying forests alike. Sometimes, rain falls into water from the sky above — immense sheets impacting the surface, setting off renewed storms of current and sending pulses of aerated water down into these depths.
+
+**Vegetation:**  
+Lushness in three dimensions. Everywhere, except for the most exposed promontories, is clothed in thick, waving gardens: colossal kelps arch like cathedral vaults, their leaves layered and interwoven, a green-gold-black maze. Tangled mats of red and violet algae coat the older stone, thick as upholstery. Spongy coralline masses rise like hedgerows, crusted with lichens and symbiotic mosses, while fungal and bacterial veils drift in the water’s gentle pull.
+
+Wood here grows surprisingly, pushing broad, buttressed trunks from the most stable shelves — strange aquatic trees adaptively rooted, their bark slick and glistening, canopies spreading wider than any terrestrial kin, festooned with floating vines and drooping, water-laden boughs.
+
+**Ecology and Fauna:**  
+The soundscape is cacophonous: a thunder of currents and beating waves, overlaid by the shriek and clatter of mechanized fauna, the pulsing and chittering of living things. Fish, in dazzling shapes and colors, dart in clouds so dense they obscure the background; long-bodied creatures undulate between the kelp; bulbous crustaceans clamber over the rocks with the rhythm of a living drum.
+
+Every available niche is crowded: filter-feeding animals blanket every surface, shelled and soft-bodied alike. Swarms of motile invertebrates flash in pulses, chasing the chemical signals of their prey. Amphibious mammals and reptiloids, thickly furred or armoured, move in organized families, grazing or hunting along the kelp-beds and coralline fields. Above, in the higher light, immense, whale-sized plankton-feeders pass like shadows, trailed by flocks of smaller scavengers and opportunistic predators.  
+
+**Built and Industrial:**  
+Artifacts of intelligence are scattered and battered — relics of an industrial age long lost, their design rusted but not erased. In sheltered pockets, remnants of machines persist: fragmentary turbines half-buried in silt, stone-walled intakes, rails woven with living vines. Occasional towers of once-bright metal, now colonized by shellfish and trailing barnacles, hint at power harnessed and lost — a civilization that once clustered here, now mostly surrendered to growth and water, their industry decaying into habitat as if this too were part of the natural order.
+
+Yet, some industry endures: deep in the clearer water, subtle traces of maintained machinery hum and vibrate. Perhaps local beings — unseen, or perhaps inconspicuous — continue to manage, rebuild, or repurpose. You sense the whine of buried pumps, the shudder of ancient engines reignited, the faint, orchestrated glow of submerged electric grids, barely fighting the encroachment of growth.
+
+**Dynamics and Rules:**  
+Life here is in constant, fevered churn. No surface is allowed to remain bare; whatever is not scoured clean by the strongest current is rapidly overrun by growth or colony. Predation, symbiosis, decay, and rebuilding are all one force. Weather is wild, with cycles of turbulence and occasional, almost eerie, stillness. Technical artifacts are colonized and re-colonized, subsumed, and re-emerge; nothing lasts as it was for long.
+
+Gravity is essentially normal (if muffled by water’s support), and the rules of physics hold their course, but here entropy manifests as both ancient stasis and hyperactive renewal. This is no “weird” world; all its strangeness is the immense logic of ecology unfolding through impossible time and persistent circumstance.
+
+Noise reigns: the crash of energy, the thrum of life, the mechanical shiver of old and new technology, ricochet and echo in a dense, layered, turbulent medium. It is a landscape whose age is written into every smoothed edge and crowded corridor, but whose present is explosively alive, roaring in endless, cool tumult, high atop the drowned and ancient earth.

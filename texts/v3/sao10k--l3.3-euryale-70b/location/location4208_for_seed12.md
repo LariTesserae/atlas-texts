@@ -1,0 +1,13 @@
+Vegetation: 1.8
+
+The terrain here is volcanic, with craggy black outcroppings and fine-textured ash deposits beneath the feet. A Roman aqueduct marches across the landscape, its arches rooted in both ash and rocky scarps and ringed by scrubby bushes. The air is warm and dry at midday, shading to quite comfortable as the sun sets. The atmosphere is dominated by clouds of tiny particles settling out of the air.
+
+Light flickers. Before dusk, it's difficult to find. Some individual bits of terrain may be dimly illuminated, but it's hard to see anything at all. After dusk, each ray of starlight has a long thin directional shadow overhead, dancing and scintillating through ripples of the atmosphere. There's not much erosion, so the partially built aqueducts and half-finished houses of the sparse settlement bear square-cut edges, rugged blocks of volcanic rock piled neatly to be enlarged upon.
+
+There are a few dense clusters of buildings over the ranges, some larger than others. Some are very nearly the open texture of a village, while the largest approaches the compact feel of a city center. Though there are long stretches of absolutely nothing, the cluster nearest the viewer is at a mid-range scale, presenting buildings extending past the immediate scene, as if there's a town or valley here.
+
+All the tech visible here is primitive, with only hand tools available. Wooden beams serve as shoring between jagged black rock walls. Scars left in trees and walls show where temporary scaffolding has been removed. Space is conserved carefully indoors, since the structural black volcanic stone for the building skeletons is hard to work by hand. Yet some decorative stones have been carved with authority, showing that this sort of work is at the edge of their achievable quality.
+
+The region is warm even after dark due to residual heat from a broad curve of molten rock. Every night, molten outpourings that crest the horizon carve out a bright orange line across the sky just after dusk. While the effect is warm, the overall fauna of the area is rare, and you may find long stretches of time without seeing a creature.
+
+The area is characterized by the erratic change possible in the processes producing it. Dramatic water flows come predictably with a wide threat radius but do not reliably change things long-term. Waves crash against islands, probably amounting to feet or even yards or much less on this scale, pushing in muddier areas over time, driven by ebb and flow where dark water enters the bright. They wear at obdurate blackΙΑΚ AREA....most of the details here are honor troll этой manner

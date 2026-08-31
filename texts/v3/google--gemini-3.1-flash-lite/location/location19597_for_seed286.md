@@ -1,0 +1,18 @@
+The landscape is the **Great Filtration**, a planetary-scale lattice of biological machinery suspended within a pressurized, high-altitude fluid suspension. It is a world of eternal, static equilibrium, where the distinction between "organism" and "industrial component" has been erased by eons of convergent evolution.
+
+**The Medium**
+The world does not sit upon a solid crust. Instead, it exists at an altitude where the atmosphere has thickened into a liquid-dense supercritical state—a cold, translucent fluid that carries nutrients in shimmering ribbons. You are submerged in an ocean of heavy air. It is cool, constant, and still. There are no currents, no tides, and no wind, because the density of the fluid is perfectly mediated by the plant-substrate that holds the vacuum at bay.
+
+**The Architecture of Growth**
+Everything is botanical, yet everything is functional. Massive, translucent stalks—some miles in length—reach through the damp gray light. These are not merely trees; they are pipes. Their porous skins are veins of polished, chitinous fiber that move fluids through rhythmic, thrumming pulsations. There is no decay, no growth, and no death. Every leaf and valve is locked in a state of eternal functionality. The "buildings" are bulbous, translucent chambers that have grown into geometric precision, their walls thick with spiraling vascular conduits that hum with a steady, low-frequency industrial drone of chemical processing.
+
+**The Industrial Breath**
+This world is a massive, continent-scale filtration engine. At the center of these gargantuan, leafy apertures, pistons of calcified wood drive amber-colored fluid through biological turbines. These are not made artifacts; they are the result of an evolutionary trajectory that stumbled upon the physics of the engine. The sound is constant: a deep, booming *thrum-thrum-thrum* that vibrates through the very marrow of any traveler, an industrial heartbeat that governs the stillness of the ecosystem. 
+
+**The Fauna**
+Between the massive, sparsley placed vegetable-factories, creatures drift like translucent dirigibles. They are bioluminescent, slow-moving entities that possess metal-plated carapaces—natural alloys pulled directly from the filtered mineral content of the fluid. They do not hunt or play; they drift along magnetic pathways established by the root-systems, acting as mobile circuit-breakers or organic relays for the planetary network. They emit short, rhythmic flashes of cool-white light, mirroring the blink-rate of the nearby valve-chambers.
+
+**The Physics of Stasis**
+Time does not pass here in the conventional sense. The "Dynamic: 0.0" nature of the world means the light levels never shift; the sun is a permanent, blurred orb behind the thick veil of the fluid-atmosphere. There is no erosion because there is no friction. Everything is perfectly lubricated, perfectly balanced, and perfectly locked. The "industrial" aspect is not a human imposition; it is the fundamental morphology of the universe. 
+
+To exist here is to feel the weight of a clockwork machine rendered in pulpy, veined green flesh. You are suspended in a high-altitude, sub-aquatic garden of heavy industry, where the silence of biology meets the roar of the piston. You are drifting through a massive, frozen lung, and it has been breathing at the exact same tempo, with the exact same output, since the beginning of time.

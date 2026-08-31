@@ -1,0 +1,9 @@
+Deep beneath the ocean's icy surface, an immense underwater city sprawls across the abyssal plain. Colossal steel domes, each the size of a major human metropolis, are situated atop artificial mountaintops carved from the seafloor. Atop each dome, spinning dynamo-style generators thrum and tower into the dark, sparkling with embers inside electromagnetic fields. They churn the frigid seawater into a cyclone of currents swirling between the city's peaks and valleys. 
+
+Winding between the steel behemoths are spindly copper tubes that pulse with the beat of the generators' power. They tunnel through the bedrock and siphon superheated water from geothermal vents. At times, one will burst and a geyser of steam will shoot through the inky waters and collide with the arctic sea currents.
+
+Towering over the city is the Gas Giant, a trillion-ton battleship far larger than the domes that glance its obsidian bulk. Compartments in its hull open like mechanical flower petals to release waves of bioluminescent AI-drones hurrying between the peaks on glowing tentacles, tended by the eerie song of their dielectric pompoms. Silences punctuate the drone of machinery, when one hits a malfunctioning dynamo and pops into sputtering smoke and oil.
+
+Occasionally, a descendant of some terrestrial creature, adapted to this strange bioluminescent ecosystem, will swim past - a mantis shrimp with forelimes for molten-scissors, bio-implants for actuators, a chitin carapace with lucent circuitry. Geezers, some of them as old as these mechanical beasts. They dart through the throbbing jetsam and polymer hair of synthetic krill to their telesocial sacrament in the dynamo domes' heart.
+
+At times, a new sound susurrates out of data - a sound in its final, data transmission, unuable sound, that descrambles the drones around it in perturbance - evidence of a brand new city rising from the dark, a new landmass to network with the others.

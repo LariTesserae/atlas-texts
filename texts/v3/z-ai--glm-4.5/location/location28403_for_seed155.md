@@ -1,0 +1,23 @@
+The air up here is thin and brisk, tasting of cold iron and wet moss. It sits at a temperature that nags at the extremities—a cool, pervasive dampness that settles into the lungs like a fine mist. This is the High Rind, a plateau elevated so high that the clouds frequently snag on the jagged tops of the structures below, draping the landscape in shifting veils of gray.
+
+The ground is not earth. It is not stone. It is wood, but wood so ancient, so compressed, and so heavily modified by time that it behaves like sedimentary rock. You are walking on the accumulation of a billion dead seasons—a compacted lignite pavement that stretches to the horizon. This is the substrate: total vegetation. There is no bare soil, no mineral dust. Everything is biological, or the fossilized ghost of something that once was.
+
+The landscape is defined by its sparsity. Despite the "total" nature of the vegetation, the density is low. It is an open plainscape, a region of vast distances and stark visibility. Rising from the lignite floor are the Pillars.
+
+These are the city-scaled trees. They stand like the skyscrapers of a forgotten metropolis, arranged in a loose, sprawling grid that implies an urban planner’s hand, though no human hand ever touched this place. The Pillars are colossal, their trunks as wide as town squares, covered in bark that shimmers with a metallic, oily sheen. They do not branch out until they are thousands of feet up, where they interlock to form a continuous, vaulted ceiling—a roof that filters the normal daylight into a soft, industrial twilight.
+
+It is quiet in the way a machine room is quiet when the heavy machinery is idling. The silence is not empty; it is filled by a low-frequency thrumming that vibrates in the soles of your boots. This is the sound of the place: Loud, but a difficult, internal loudness. It is the grinding of cellulose against cellulose, the hydrostatic pressure of gallons of sap pumping vertically at high speeds, and the creaking of woody fibers under immense tension.
+
+This is an industrial ecosystem. The vegetation does not just grow; it manufactures.
+
+Every few miles, great vents in the sides of the Pillars exhale plumes of warm, sweet steam. The air is thick with pollen that sparkles like conductive dust. Between the massive trunks, the "buildings" of this organic city are visible: vast, bulbous excrescences that hang like fruit the size of cathedrals. These are the processing centers. Inside their translucent membranes, alchemical brews of captured rainwater and filtered sunlight are churning. The occasional *clank* or *hiss* echoes across the open spaces—the sound of valves opening or pressure seals releasing, originating from biology that mimics hydraulics.
+
+Water is the currency here, but it is damp, not flowing. There are no rivers, only the omnipresent condensation. The moisture drips constantly from the high canopy, creating a permanent, fine rain that slicks the ground. This condensation is harvested by the "streets"—raised runnels of vascular tissue that snake across the lignite floor, carrying the runoff back to the central Pillars.
+
+The erosion here tells a story of the end of time. Nothing young exists. The ground is worn smooth, polished by the friction of countless growth cycles. The Pillars are in their final form, stable and unyielding. They have settled into a state of primordial perfection. It feels as though evolution has finished its work and switched over to maintenance mode.
+
+Fauna is rare. There are no birds in the sky, no insects in the air. The only movement is the slow, rhythmic dilation of the vents and the drifting of the pollen-clouds. Occasionally, something large and sinuous moves in the upper canopy—a silhouetted shape detaching itself from a branch—but it is silent and unseen, a ghost in the machine.
+
+The weirdness lies in the uncanny geometry. The angles are too perfect. The Pillars stand at exact ninety-degree angles to the horizon, yet the horizon itself seems to curve unnaturally. The "ruins" of older, collapsed plants lie in the distance, their skeletons forming perfect cubes and spheres, as if they decayed according to mathematical laws rather than biological ones. Here, the boundary between the built environment and the grown environment has dissolved. The factories are alive, and the forests are assembled.
+
+You stand in the center of a plaza made of polished root-wood, looking up at a canopy that is weeping cool mist. A deep, guttural horn sound blows from a Pillar miles away—a signal of the changing shift in the sap-pressure lines. The sound rolls across the open space, reverberating for a long time, and it feels like the land is breathing. It is lonely, immense, and entirely, terrifyingly alive.

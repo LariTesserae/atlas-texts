@@ -1,0 +1,28 @@
+Call the place the Humidior Plate.
+
+It rises three vertical kilometers above a cloud-choked depression, but the altitude is not the reason it feels so high. The actual atmosphere on top of the Plate is a metallic-cold 7 °C, yet gravity itself has been coaxed to slacken by 11 %. A forever-bright arc-lamp sun, fixed in an empty zenith, bleaches the sky and carves hardveldt shadows. There is no visible free water, only the ghost of it locked inside the biomass—water as biological debt, not as seas.
+
+What grows here grows on and through itself, until “terrain” and “flora” quit being distinguishable. The continent-sized plateau is a single perforated vegetal lattice, seventy metres thick at the edges and deepening toward the centre into kilometres of living strata: lignified domes, tortuous pneumatic chambers six hundred metres high whose wet-black inner walls pulse slowly like capillary lungs. Roots that take freight elevators must turn sideways every thousand paces to let the harp-string arteries go by. The colonnades are chlorophyll pillars but also water main-lines; the floor is felted moss six metres deep, but also coral springs from which mechanical fibres extrude themselves and then retract. Light falls in razored sheets through gaps whose geometry rearranges itself hourly as petiolar shutters yawn or close.
+
+Everything is plant. There are no stones. When wind-damage shears off a buttress, the wound sutures itself with streaming sap that hardens in minutes into load-bearing timbers eight metres thick. These new beams are distinguishable from the old shell only in colour: deep teak bleeding amber.
+
+Wind is constant. From every direction it arrives at 60 kmh, refracted off the surrounding void so that the Humidior Plate cradles its own cyclonic microclimate. The sound is theulation—not whistling but entire cathedral choirs sustaining one bronze E-major chord for twelve hours straight, then leaping half a step down and holding again. Persistent, deafening, yet somehow unwearying, like the white-water roar from beyond a waterfall that you come to treat as silence. Gusts entering the hollow trunks and ducts give voice to huge subterranean pipe-organs made of heartwood. 
+
+At this pitch the air vibrates metals to life. The werkwinds carry precisely meters streams of magnetic dust—iron from oxidised sap, microscopic ferromagnets riding on fungal hairs. The dust becomes galvo-textile; spools of it plant themselves on internal struts. Where seams close, tiny spark gaps appear that give micro-electrobatics: crop-neon that crackles in the cavities like ghosts arc-welding. No architect ever laid a circuit; the fibres are just plant error correcting itself in a hurry. Yet the aggregate behaves like any machine-age grid, if the age loved ginseng turbines and chlorophyll dynamos. The lattice hums with fifty-three megawatts, a continent-wide heart voltage.
+
+Fauna are scarce by surface area but abundant by ordination. Every animal is a mobile organelle of the vegetal city. The Parlor Cranes walk on four pneumatic stalk-legs; their necks have become carbon-fibre struts wired to solar panels laid flat between the wings. They harvest surplus photosynthate, and when required they nest-leach: attaching themselves like limpets to towering rhytidome spires and pumping warm sugar back down into the hollow root-borings. Darts of mint pollen attract centaur gnats the size of sheepdogs. Their wings are membranous paper charged with static; every landing happens under the light of drifting static-flash flora, brief auroral after-images.
+
+Death is not decay here but reformatting. A toppling column strikes neighbouring columns; the entire block dissolves into a gush of copper-green spore-foam that races ceiling-ward and re-deposits itself overnight into a new arcade, orientation 12° from former. The vastness is therefore not static; it is a slow continuous turbulence engineered by itself. A migrant ecologist—if one ever arrived—would measure six different sequential continental maps over a decade inside the same square kilometre.
+
+Rules of this world:
+
+- Aerial moisture precipitates only inside the plant. Anything wanting to drink must tap the hollow vines directly.  
+- Anything born here inherits the unconcern of aphids for higher systems; purpose is negotiated down to cellular subroutine.  
+- Consensus on warmth is bi-plutonian: thermodynamic peaks are built and dismantled faster than any creature suffers frost.  
+- Energy scales abound. To a grazer a 100-MW node is thunderstorm, to a botanist a leaf tipping the kilowatt.
+
+A constant macro-image: you look out across the plateau and the forest-continent tilts upward in sheets like overlapping planes of origami bronze, glittering under indifferent noon. You cannot escape the light; shadows are only fluorescent gloom. You cannot escape the sound; vibration massages your bones. You cannot escape the plant; she absorbs every footprint within an hour, repurposes the tread, knits its memory into her next thunder rattle.
+
+And still the edges corrode millimetre by millimetre, every promontory frost-splitting, regrowing, trading viscosities, passing her zones of improbable still-living engines: condensers that sweat liquid nitrogen into root-line cups, whose harvesters—naked bioluminescent squirrels—carry the flasks away in spiral, seal them into vacuum-knot trunks, form a stockpile for the eventual drop in planetside evapotranspiration a thousand centuries hence.
+
+Nothing was built. Everything still is Industry.

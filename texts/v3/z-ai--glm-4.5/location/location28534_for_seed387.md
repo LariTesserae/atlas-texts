@@ -1,0 +1,19 @@
+The world is warm, heavy, and loud.
+
+It is a pocket reality, a submerged cavity hollowed out of the dark—a single, vast room of a place that feels infinite in its claustrophobia. You are below the surface, suspended in a fluid medium that is not quite water. It is thicker, viscous like warm mineral oil, a silken, amniotic darkness that presses against the skin with the heat of a fever (2.0/3). It is temperate here, a tropical stagnation that rots the iron.
+
+There is no plant life (0.5/3). Green is a forgotten dream. The surfaces do not support chlorophyll; they support only concretion. The "vegetation" of this place is mineral—ferrous coral, rust blooms that spread like orange lichen across the steel flanks of the structures, and crystalline salt deposits that beard the gears in white, itching stubble.
+
+You float within a drowned metropolis (1.9/3), but it is a city built for giants who ran on steam and voltage. It is an industrial sprawl (2.1/3) frozen in the act of working. Great riveted girders rise like pillars of a cathedral, disappearing into the gloom above. They are encrusted with the sludge of ages, settled into a state of weary erosion (1.9/3). The metal is pitted, worn smooth by centuries of friction, yet the geometry remains rigorously organized. Streets are suggested by the alignment of vast pipes and conduits, all converging on a central, throbbing darkness.
+
+The scale is deceptive (0.2/3). It feels like an ocean, but it is merely a micro-environment, a single submerged chamber of a larger, impossible machine. The "sky" is merely the ceiling, lost in dim murk (0.7/3), illuminated only by the failing, strobe-like pulse of dying arc-lights that flicker deep within the housing of the machines.
+
+And the noise (2.9/3). It is deafening, a violence of vibration that rattles the teeth. In this dense medium, sound does not just travel; it punches. It is a constant, roaring thrum—the sound of a thousand turbines spinning in frictionless harmony, the scream of high-pressure pumps, the rhythmic *clank-hiss-clank* of enormous pistons shoving the fluid through the system. There is no silence here, not even in the deepest corners. The acoustic pressure is physical, a weight on the chest that competes with the water.
+
+The water is turbulent (2.6/3). It is not a still grave; it is a chaotic wash. Currents rip through the chamber unpredictably, sucking toward intake valves the size of houses, then blasting out from exhaust vents in scalding jets. You are tossed in the churn, a speck in the digestive tract of the engine. Bubbles of vapor rise in frantic columns, carrying the shriek of escaping pressure.
+
+It is an empty place (0.3/3). There are no fish, no crustaceans swimming in the gloom. The density of life is zero. The only movement is mechanical and hydraulic. The vast spaces between the rusted pillars are hollow, occupied only by the drifting silt of oxidized metal and the violence of the currents. It is a void populated solely by industry.
+
+But there is a weirdness to it (0.7/3), a disorienting quality of time. The machines show no sign of stopping, yet they show no sign of maintenance. They run on a logic that predates their current isolation. They churn the warm, dark water in an endless cycle, pumping fluid from one hidden reservoir to another, generating energy for a master that is no longer present.
+
+You are inside the heart of a sunken factory, a pocket of warm, noisy darkness where the rules of biology have been replaced by the relentless, grinding laws of thermodynamics. It is a room of rust and roar, a warm, wet tomb that refuses to sleep.

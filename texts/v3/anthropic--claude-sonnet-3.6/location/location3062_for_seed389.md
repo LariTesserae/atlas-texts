@@ -1,0 +1,15 @@
+A sealed industrial dome stretches across roughly three city blocks, its crystalline panels refracting the harsh external light into a constant, saturated brightness that fills every corner. The structure is old but maintained, its titanium-alloy framework developed into delicate filaments of frost-like corrosion that somehow strengthen rather than weaken the overall architecture – a peculiar quirk of the local metallurgy.
+
+Inside, the air is thick with suspended particulates: metallic dust, ceramic microspheres, and artificial pollen that drifts in precise geometric patterns between the densely-packed machinery. These particles catch the light, creating shifting constellations that serve as navigation markers for the dome's inhabitants. The temperature hovers just above freezing, necessary for the optimal function of the quantum-cooling arrays that thread through everything.
+
+The ground level is a maze of compressors, turbines, and processing units, stacked so closely they form narrow corridors that wind between them. Each machine has its own rhythm and resonance, contributing to a cathedral-like drone that oscillates between subsonic rumbles and piercing harmonics. The machines' surfaces are worn smooth by decades of particle erosion, their once-sharp edges rounded into organic curves that make them look almost grown rather than built.
+
+Sparse vegetation exists in the form of engineered crystalline structures that grow in the gaps between machines – not truly alive, but not entirely artificial either. They slowly accumulate and process the metallic dust, forming delicate fractal patterns that occasionally chime when they reach critical mass and shatter, only to begin growing again.
+
+The few living things here are highly specialized: colonies of thermophilic bacteria that form slowly shifting patterns on the cooler surfaces, and occasional swarms of mechanical pseudo-insects that maintain the more inaccessible parts of the machinery. Their movements create bright flashes as their polished surfaces catch and reflect the omnipresent light.
+
+Above the ground level, suspended walkways and maintenance platforms create several more layers of navigation space, though many are only accessible to the maintenance drones. The air grows thinner but paradoxically more visually dense higher up, as the suspended particles cluster into distinct strata.
+
+The whole environment pulses with activity: pressure systems cycling, thermal gradients shifting, particle flows adjusting, yet all of it follows patterns established centuries ago. It's an industrial ecosystem that has found its own equilibrium, as artificial and intentional as a circuit board but as complex and interrelated as any natural system.
+
+The dome's purpose might once have been clear, but now it seems to exist primarily to maintain its own intricate balance, a mechanical tide pool evolved far from the seas that first inspired such analogies.

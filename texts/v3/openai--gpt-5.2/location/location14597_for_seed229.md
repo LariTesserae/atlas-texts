@@ -1,0 +1,57 @@
+It’s high ground—not the kind of height that feels clean and alpine, but a perched, weathered prominence under a lid of bruised sky. The air is warm and thin, carrying the faint bite of minerals the way ocean air carries salt, except there is no ocean here and almost no water at all: no streams, no seep, no wet soil, no dew you can wipe from a leaf. Everything that lives has learned to do without liquid water, or to hoard it so completely that “without” and “within” become the same thing.
+
+The place is small enough to be held in mind as a single feature: a basin in the crown of a ridge, like a shallow amphitheater carved by time and wind. Its boundaries are legible. To one side, a broken escarpment drops away into a haze of lower lands you can’t quite see through the dimness. To the other, leaning pillars of rock form a half-ruined colonnade. The basin itself is cathedral-scale: not vast, but tall in its proportions, with verticality in every shape—spires, stalks, ribbed stone, and the stretched silhouettes of creatures that have learned to make a living in the updrafts.
+
+The ground underfoot is not sand exactly; it’s a crust, mottled pale and iron-dark, made of fine ash fused with salts and glassy grains. It crunches in some places and rings in others. Here and there the crust has buckled into plates, and between the plates are seams of powder as fine as flour. Erosion has had a long time to find its equilibrium: the ridges are softened, the sharper edges blunted, the talus slopes arranged as if someone combed them. You can see the history in the stone—old wind-scouring, old collapses, old channels that were never rivers but *look* like riverbeds until you notice they are lined with crystals and soot, not rounded pebbles.
+
+And then there’s the vegetation—lush, undeniably, but not in the wet way your body expects.
+
+It comes in patches that feel almost deliberate: groves separated by open breathing-spaces of bare crust. The density is sparse at the scale of the whole basin—empty reaches between presences—but each grove is thick with life, layered and intricately occupied. The dominant plants stand like candelabras made of dark, waxy material, their “bark” more like resin or cured hide than wood. Many have translucent veins that catch what little light exists and carry it downward in slow pulses, as if the grove itself has a heartbeat.
+
+Leaves are not thin, thirsty membranes here. They are plates, scales, cups, spirals—forms that minimize exposed surface. They make their chemistry in sealed pockets, and their colors are tuned to dimness: deep purples, bruised greens, soot-blues that almost vanish until lightning reveals them. Some plants wear a dust-coat intentionally; the dust is not dirt to them but a tool, a solar filter, a cloak against desiccating wind.
+
+If you look closely, you see how they “drink.” Not from puddles or from damp loam—there is none—but from the air and from stone. Their roots don’t seek water; they seek *salts*. Thick, probing tendrils thread into cracks where hygroscopic minerals have accumulated over centuries. These minerals steal vapor from the atmosphere molecule by molecule, holding it as bound water so tightly it is more property than liquid. The plants don’t free it. They use it where it sits, in microscopic chambers, letting reactions happen on the surfaces of crystals. Life proceeds by contact and catalysis, not by flow.
+
+Some of the vegetation doesn’t even bother with that. It taps electricity.
+
+Because the basin is turbulent.
+
+The sky above is always in motion, and the light is always dim, as if seen through smoked glass. Cloud layers slide past each other in conflicting directions. Fine ash and mineral aerosols make the air conductive. Static crawls over exposed rock. Hair rises. The plants have grown into the habit of it: many carry thin, filamentous spines—“storm-hairs”—that lift when the charge builds, turning the grove into a forest of antennae. When lightning finally comes (and it comes often), it doesn’t strike as a single spear; it *braids*, branching and looping between stalks, crawling down spires and jumping across gaps with a sound like tearing canvas.
+
+That sound is part of the loudness of the place, but not all of it.
+
+Wind is the constant instrument: a high, steady roar at the rim of the basin, falling into variable gusts and vortices inside. It finds every hollow and makes it sing. Some of the rock pillars are perforated with old bubble-holes from when the stone cooled; wind through them produces organ tones that shift as the gusts shift. In the groves, leaves rattle like bones. In the open crust, loose crystals skitter and whisper, and occasionally a whole plate of salt-glass pops loose with a sharp report, like a snapped plank.
+
+Fauna fills in the rest: abundant, restless, never truly quiet.
+
+Much of it is small and fast—clicking, chirring, thrumming. Insects, or things doing the job insects do, are everywhere: hard-shelled runners with mirrored backs that deflect heat; hovering drifters that ride charge gradients the way fish ride currents; burrowers that chew the crust and excrete pellets that sparkle with refined salts. Their collective sound is a constant grainy hiss in the background, like rain you never get.
+
+Larger animals move through in bursts. There are gliders that launch from the pillars and coast on the uplift, wings stretched thin and ribbed like dried leaves. They don’t drink; they metabolize oils stored in the seeds and fleshy nodules of the storm-plants. There are herd-creatures that look wrong at first glance because they are *too light* for their size, their bodies laced with hollow chambers. They walk on wide, splayed feet that spread their weight across the crust. When startled they don’t flee so much as *spill* sideways in coordinated panic, their hooves drumming a hollow thunder that sets loose dust-plumes and makes the basin feel smaller than it is.
+
+Predators exist too—quiet only by comparison. One of the strangest is a patient, stone-colored thing that nests in the colonnade of broken rock. It has no obvious eyes; it senses vibration and static. When the wind rises and the grove’s antennae begin to lift, it moves closer, not to the plants but to the animals drawn to the coming discharge. During lightning events it strikes with sudden precision, and the air fills with the metallic tang of ionized minerals and the hot, sharp smell of ruptured resin.
+
+The weirdness isn’t only in the organisms. It’s in the rules the basin seems to obey.
+
+Fire behaves oddly here. Not because it can’t burn—plenty of resin and oils exist—but because the air is thin and dust-laden, and the plants are built to compartmentalize. Flames don’t race through canopy the way they might in a dry forest. Instead, fires *pocket*: they bloom within a plant’s sealed chambers and then choke, leaving behind charred windows you can see into like broken lanterns. After a storm, you’ll find these blackened cavities glowing faintly with slow chemical heat, like embers that forgot how to die.
+
+Sound travels in tricks. The hollow pillars throw voices around. A click in one corner arrives as a clap in another. The wind’s organ-notes can make you feel watched, because they resolve into patterns that resemble call-and-response. Some of the animals exploit this; they vocalize into one opening and listen at another, hunting by echo through stone.
+
+And the basin is not stable despite its ancient, settled shapes. Turbulence is its heartbeat. It is a place that is constantly remade in small ways.
+
+A gust can strip a grove’s dust-coat clean in minutes, exposing glossy surfaces that will overheat unless the next storm comes. A lightning braid can fuse a patch of crust into new glass, sealing burrows and forcing whole micro-ecosystems to relocate. A sudden downdraft can roll a sheet of salt-crust like a carpet, revealing beneath it a darker layer of mineral-rich grit that will, within days, be colonized by threadlike pioneer growth.
+
+Even the groves move—slowly, over years—not by walking roots, but by succession. Plants at the windward edge get scoured and die; their bodies become windbreaks and mineral traps. In their lee, new shoots take hold, feeding on the concentrated salts. The grove migrates like a living dune, leaving behind a littered trail of hardened stalks that clatter when the wind hits them.
+
+Within this half-chamber of rock and storm, you find the marks of people—scattered, primitive, careful.
+
+Not a village, not even a camp in the usual sense. Just structures that acknowledge the place’s violence and make small bargains with it: low stone rings with roofs of woven fiber and resin-coated hides; cairns built in lines that seem at first like trail markers until you realize they are arranged to *break wind* and reduce static buildup in certain corridors; pits lined with glazed shards where seeds and fatty nodules are stored away from predators. Some pillars have been notched with hand tools—simple metal, perhaps, or stone with embedded grit—to create steps up to a sheltered ledge. Up there, blackened by countless discharges, there’s a shrine-like frame made from bones and storm-hair stalks, hung with thin strips that snap and crackle when charge builds. A warning device. Or an instrument. Or both.
+
+On the ground near those shelters are tools dulled by abrasive dust: scrapers, awls, woven traps stiffened with resin. There are also odd little artifacts that suggest adaptation to the basin’s rules: insulated handles wrapped in layered fibers; masks with filters of felted plant-down to keep the mineral air from scouring lungs; jars sealed with waxy plugs, holding not water but pale crystals—the true currency here, the stolen vapor bound in salt.
+
+When the storm-cycle peaks, the basin becomes almost unbearable in its liveliness. Wind slams into the amphitheater and rebounds, setting up spirals that tug at clothing and skin. The organ-pillars howl. Filament spines rise across the groves, transforming them into fields of needles. Animals press low or climb high depending on their strategy, the entire food web shifting posture in anticipation. Then lightning begins to braid, and the world flashes in strobing revelations: every resin leaf becomes a mirror, every crystal seam a line of fire, every moving creature a sharp-edged silhouette.
+
+And yet, because the light between strikes is so dim, the afterimage persists. The basin seems to keep each flash inside it for a moment, as if remembering.
+
+When the turbulence eases, it doesn’t become quiet. The loudness simply changes character: the crackle fades into a steady hiss of settling dust, the howls into a lower moan. The grove’s antennae relax. Gliders resume their looping patrols. Burrowers come up to repair what was fused shut. In sheltered pockets, you can hear a soft ticking as cooling glass contracts.
+
+This is a lush place built out of dryness—a green that is really purple, a forest that is really an electrical machine, an oasis that holds no water. It endures not by resisting the storm, but by making the storm part of its ecology, its architecture, its music. The basin has existed long enough to find its balance, and its balance is not stillness. It is perpetual, weathered upheaval contained within a small, high bowl of rock: a living instrument that plays itself whenever the sky remembers to move.

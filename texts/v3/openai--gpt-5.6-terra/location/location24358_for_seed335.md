@@ -1,0 +1,27 @@
+The place is a shallow basin no wider than a house, hidden in a low field of black sedge and winter grass. One could pass within a few paces of it without seeing it. The ground gives no warning except for a change in the color of the moss: ordinary brown-green becoming a bright, wet iron green, and then the earth lowers abruptly into a hollow.
+
+It is not a pond exactly. Water is everywhere, but it refuses the simplicity of a pond. It beads in hollows of new stone, threads beneath clear skins of ice, pours in pencil-thin falls from the basin walls, and breathes up through the peat in slow bubbles. The floor is a quilt of black mud, russet plant matter, pale mineral crusts, and pools with an oily blue depth. A person stepping into it would sink only ankle-deep in some places, then suddenly find a foot descending through rootless water toward coldness.
+
+The basin seems recently opened. Its rim is raw: torn clay, fresh gravel, plates of dark rock tilted at sharp angles. Rain has not yet had time to round anything. The cuts in the earth are clean as broken ceramic. From several of these cuts, water seeps continuously, making fine silver curtains. In the dim light they seem to hang still; only when watched closely does their motion become apparent.
+
+There are no buildings, no paths, no cut timber, no discarded objects. Nothing here was made by hands.
+
+And yet the hollow works.
+
+Beneath the mud is a stratum of mineral-rich peat and a network of bacteria that turn cold water, buried gases, and dissolved iron into energy. The basin has the character of an engine not because it contains machinery, but because every part performs. Iron blooms grow around the springs in velvety orange mats. Sulfur-whitened films spread across black water, tear open, and knit themselves together. Gas rises from the peat in regular pulses. At intervals, a pocket vents with a low, forceful chuff, sending rings across a pool and shaking beads of rain from the sedges.
+
+The sound is astonishing for such a small, hidden place.
+
+Water taps rapidly on stone. Seepage hisses. Mud gulps. The close-packed stems of reeds knock together like dry bones whenever the wind reaches down into the basin. Above all this is the living noise: frogs with voices too large for their bodies; water beetles clicking beneath the surface; clouds of tiny midges whining in the still air; unseen birds giving harsh, metallic calls from the field beyond. When the cold wind drops, the basin does not become quiet. Its own wet processes continue, busy and loud, as if the earth is breathing through a clenched throat.
+
+Vegetation is thick only where it can hold on. Sedge bends over the water in dense, wet fans. Moss climbs the raw walls with greedy speed, filling cracks in green fur. There are short willow shrubs at the rim, their branches red-black and bare except for swollen buds. In sheltered pockets, pale fungi spread through rotting grass like spilled milk. A few small flowers, prematurely bold, lift their faces barely above the mud: yellow stars, purple throats, white blossoms with petals transparent from rain.
+
+The cold never quite leaves. Even in daylight, breath gathers in the hollow. Thin ice forms at the edges of every still pool and is broken again by seepage before it can cover much. Rain falls often, but never dramatically. It arrives as a fine, persistent drift that darkens feathers, collects on spider silk, and turns every surface reflective. The air smells of wet stone, rust, bruised leaves, and the deep sour sweetness of thawing ground.
+
+Animals make use of the basin with a confidence that suggests they know it better than the surrounding world. Newts shelter beneath flat stones, their bellies bright against the black water. Small frogs occupy particular pools and defend them loudly. Water voles tunnel through the sedge roots. Beetles skate the surface of warm mineral slicks, where the water does not freeze as quickly. A heron sometimes stands at the lip of the hollow, so motionless it could be mistaken for a dead stump, then strikes into the water with shocking violence.
+
+At night, the basin becomes brighter than it should be. Not truly luminous, not enough to read by, but certain pools carry a faint blue-green sheen where bacteria bloom in the disturbed water. The pale mineral crusts take what little sky there is and hold it. The eyes of insects catch the dimness. A passing animal makes the mud glow in brief, cloudy strokes, as though it has walked through submerged starlight.
+
+The rules of the place are simple but strict. Nothing remains dry for long. Nothing stays smooth: new water finds a flaw, new roots widen it, new frost splits it open. Life gathers wherever heat leaks from below, and where life gathers, it makes noise. The basin is young enough to be changing visibly. Each rain rearranges the gravel. Each thaw opens a fresh seam in the rim. A pool present in the morning may be only a slick of dark mud by evening, while another has appeared beneath a collapsed shelf of peat.
+
+It is an intimate landscape, but not a gentle one. It does not offer a view. It offers immersion: knees wet with sedge, fingers numbed by seep-water, the close roar of a world working at a scale small enough to overlook and powerful enough to remake itself overnight.

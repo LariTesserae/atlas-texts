@@ -1,0 +1,15 @@
+The locale is a living, concave bowl—a geode of wet, breathing pulp, no larger than a city plaza. 
+
+Here, the "architecture" is a riot of fungal-calcified capillaries. Thick, vein-like stalks of spongy, porous cork rise from the basin floor like twisted columns, interlocking into a lattice that is both building and biomass. These structures are hollow and weeping; the air is thick with a rhythmic, percussive *drip-hiss*—the sound of moisture being exhaled by the pores of the floor and inhaled by the thirsty, velvet-tipped stalks above.
+
+There is no sky, only a ceiling woven from the interlocking canopy of weeping fronds that glow with a rhythmic, sickly amber luminescence. The air is warm, cloying, and perpetually humid, smelling of bruised peaches and ozone. 
+
+The most striking feature is the density of the *noise*. The sound isn't atmospheric; it is biological. Thousands of wingless, cicada-like entities—glistening, translucent husks the size of human palms—clatter against the stalks in a frantic, unceasing chorus. Their movement is a blur of motion, a static-filled frenzy that mimics the sound of a rainstorm trapped inside a metal bucket. This is the "infrastructure" of the place: a constant, grinding churn of insectoid life acting as the digestive system of the bowl.
+
+The geometry of the space is compromised. If you look at a corner long enough, it appears to fold inward, revealing a momentary gap into a different, darker forest before snapping back into a wall of moss. Reality here is thin, worn away by the relentless cycle of growth and decay. Walls move horizontally when you aren’t watching, sliding like tectonic plates of soft, damp bark. 
+
+Because the scale is small and the density of objects is low, you occupy the center of a grand, lonely theater. You are isolated in a void between these massive, weeping biological pillars. You feel exposed, watched by the thousands of light-sensitive facets of the husks crawling along the ceilings.
+
+There is no earth here, only tiers of decay. The "floor" is a thick, springy carpet of bioluminescent lichen that pulses in time with the roaring sound of the insects. When you step, the ground groans—a deep, wooden protest—and a pocket of warm, thick liquid rises to coat your feet. It is not water, but a nutrient-rich sap, perpetually recycling through the capillaries of the landscape. 
+
+Nothing stays still. The stalks rotate on their axis, slowly migrating across the basin, rearranging the "streets" of this vegetal city. Should you stand in one place for too long, the living floor will begin to weave itself around your ankles, sensing the caloric potential of your heat. The ecosystem is desperate, starving, and deafeningly loud, a perfect, self-contained machine that has forgotten the sky exists, replaced by the crushing pressure of its own relentless, warm, and hyperactive growth.

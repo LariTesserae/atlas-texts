@@ -1,0 +1,19 @@
+The Furnace Grove exists in a shallow crater, no wider than a monastery courtyard, carved into the crown of an ancient mesa. Here, in perpetual twilight beneath a starless sky, the air shimmers with heat that rises not from any visible sun but from the very stones themselves—a geological fever that has burned steady for uncounted centuries.
+
+The crater floor is a tessellation of hexagonal basalt columns, each one warm to the touch, fitted so precisely that no gap exists between them. These dark pillars rise at varying heights—some knee-high, others reaching toward the shoulders—creating a maze of geometric platforms that radiate heat like a vast, natural furnace. The stone itself seems to breathe, expanding and contracting in barely perceptible rhythms, a slow geological heartbeat that creates the softest of sounds: a whispered *tick-tick-tick* as the columns adjust against each other.
+
+In this waterless, plantless place, life has found another way. 
+
+Every surface crawls. Every column writhes. The heated stone hosts an overwhelming abundance of creatures that exist nowhere else—beings that seem part mineral, part animal, defying easy classification. Crystalline mites the size of rice grains cluster in living carpets across the basalt faces, their translucent bodies pulsing with internal heat-light. Segmented things like metallic centipedes flow between the columns in undulating rivers, their brass-colored carapaces clicking softly as they navigate the geometric maze.
+
+Most numerous are the heat-shepherds: creatures resembling sea anemones made of living copper wire, each one anchored to a column's apex. They wave their filamentous arms in the rising thermals, filtering microscopic prey from the superheated air. When disturbed, they contract with tiny bell-like chimes, creating cascades of metallic music that ripple across the grove in gentle waves before fading back to near-silence.
+
+Stranger still are the thermal dancers—translucent, jellyfish-like entities that drift through the heated air currents, their bell-shaped bodies expanding and contracting as they ride invisible columns of rising heat. They appear and disappear like mirages, sometimes seeming solid, sometimes mere distortions in the shimmering air.
+
+The heat creates its own weather here. Dust devils of fine mineral particles spiral up from between the columns, carrying spores and microscopic life-forms in brief, whirling columns before dispersing into the dark sky above. The air itself seems thick with invisible presence—a sense that every breath contains multitudes of tiny, thriving things.
+
+Scattered among the columns stand a handful of simple stone cairns, clearly artificial yet so weathered by the constant heat that they seem to be slowly melting back into their component rocks. These markers suggest some ancient purpose—perhaps boundary stones or way-markers for travelers who once knew how to navigate this living furnace.
+
+The boundaries of the crater are absolute. Beyond its rim, the mesa slopes away into cooler, emptier stone, but within the grove's confines, the concentration of life reaches impossible density. Every available niche pulses with adaptation, every thermal gradient supports its own micro-ecosystem. The heat that would drive away conventional life has instead become the foundation for something entirely other—a thriving, whispering, gently chiming world where geology and biology have found a strange and ancient partnership.
+
+In the perpetual dusk, with only the faint heat-glow of certain creatures providing illumination, the Furnace Grove exists as a pocket of warm, teeming life carved from the heart of stone—a place where silence is broken only by the softest sounds of a million tiny lives pursuing their incomprehensible purposes in the patient darkness.

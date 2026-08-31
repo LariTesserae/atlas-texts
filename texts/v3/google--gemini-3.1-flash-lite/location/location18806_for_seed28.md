@@ -1,0 +1,13 @@
+To traverse this space is to walk inside a single, reverberating lung.
+
+This is a pocket city, no larger than a cathedral, suspended within a vast, hollow geode deep beneath a crust of iron-rich shale. There is no water here; the chemistry of this place is built entirely on the vibration of resonant crystals and the secretion of a thick, amber-colored resin that serves as both nutrient and structural mortar.
+
+The architecture is astonishingly dense. Millions of tiny, hexagonal dwellings—hand-carved from silicate glass and stabilized by ancient, iterative weaving—stack upon one another in a chaotic, honeycombed sprawl. Because the scale is so intimate and the walls so close, the city feels like a labyrinthine clockwork. Every surface is coated in a sprawling, bioluminescent moss that thrums with a dusty, ultraviolet light. This "vegetation" is not photosynthetic; it feeds on the kinetic energy of the sound that defines the world.
+
+And the sound is absolute. It is a deafening, constant thrum, a low-frequency tectonic groan produced by the settling of the geode’s outer shell, amplified by the cavern’s geometric shape. It is a sonic architecture. The inhabitants, fragile, translucent creatures with segmented limbs, communicate through percussive taps against the walls; they do not speak, for the air is too crowded with the roar of the world to hear a voice.
+
+Everything is warm. The friction of the shifting geode walls keeps the air at a constant, feverish glow. Because there is no water, the "ecology" is one of extreme conservation and chemical synthesis. Droplets of concentrated, metallic dew occasionally bead up on the silicate moss, which the inhabitants harvest with fine, hand-woven fiber nets.
+
+Density is sparse in terms of biomass, but high in terms of construction. You could walk for hours through the narrow, spiraling tunnels of the city and see nothing but the shifting moss and the rhythmic pulsing of the resin-valves. The fauna is rare—a few spindly, chittering scavengers that mimic the texture of the stone walls—but the sense of "active" life is relentless. The city is always breathing, always expanding, with new hexagonal cells being hand-bored into the older, weathered layers of the city wall.
+
+There is a strange, paradoxical peace in the deafening noise. Everything is in a state of long-established, calcified balance. The structures are worn smooth by eons of vibration, polished by the very sound that shakes them. It is a city of bells, built inside a mountain that refuses to stop ringing, where the only thing that changes is the slow, crawling spread of the light-moss and the quiet, manual scraping of stone against stone as the city builds itself further into the dark.

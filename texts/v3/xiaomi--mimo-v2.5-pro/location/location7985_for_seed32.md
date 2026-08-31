@@ -1,0 +1,37 @@
+# The Chalcedony Alcove
+
+You are inside something. That is the first and most important fact, and you will not escape it.
+
+---
+
+The chamber is perhaps four meters across at its widest, and shaped like no geometry you would draw. The walls curve inward and upward in long, continuous arcs — not arches, exactly, but the kind of sweeping parabolas you see in the thoracic cavity of some massive ribcage, if the ribs were made of banded mineral and the sternum had long since dissolved. Every surface is covered. That is what you notice next. Every surface is *covered*.
+
+The structures pack the space so thoroughly that there is almost no air between them. From the walls, from the ceiling, from the slight concavity of the floor, rise thousands — millions — of thin vertical partitions, each one barely a centimeter apart, each one curved slightly, each one layered in translucent bands of white and grey and the faintest amber. They look like pages. They look like the gills of a fungus the size of a room. They look like the lamellae of a massive coral brain sliced open and held under bright light, which — yes — there is. Bright light. It comes from everywhere and nowhere. The lamellae themselves are faintly translucent, and whatever lies behind them glows with a diffuse, sourceless whiteness, so that the entire chamber is lit the way a snowfield is lit at noon: from the ground, from the air, from inside the light itself. Shadows are thin and reticent. They hide in the narrow gaps between partitions like something embarrassed to exist.
+
+The air is cool. Not cold — not the kind of cold that bites or sharpens. It is the temperature of a basement that has not been opened in a very long time, or of the inside of a stone just before dawn. It is the temperature of *absence of process*. Nothing is generating heat here. Nothing is consuming it. The temperature simply is, and has been, and will be, and the word for this is equilibrium, and the word for equilibrium is rest, and the word for rest is this: a place where entropy has already arrived and sat down and found the chair comfortable and decided to stay.
+
+---
+
+There is almost no water. You would not call this dry — the word implies a comparison to something wetter, a memory of moisture, a longing. This place has no memory of moisture. The mineral of the lamellae — chalcedony, or something like it, silica deposited in slow botanical layers — was never wet. It accreted from vapor, from chemical patience, from the kind of precipitation that happens molecule by molecule over spans of time that make glaciers look impulsive. The walls are not dry the way a bone is dry. They are dry the way the moon is dry: completely, constitutively, in the way that a thing is the thing it is.
+
+And yet — here is the strangeness, slight as it is — in the creases where the lamellae meet the floor, in the narrowest vertical slots between partitions, there are things growing.
+
+They are small. They are sparse. You would miss them if the light were less thorough. Thin filaments of something green-grey, barely a centimeter tall, rooted in the merest dust of mineral that has gathered in the joints of the structure over — what? Centuries? Millennia? They are not plants, not exactly. They have no leaves, no vascular structure you can see. They are more like felt. More like the suggestion of felt. More like someone once described felt to a mineral and the mineral tried its best. They photosynthesize, or something like photosynthesis, using the light that permeates the translucent walls, and they do this so slowly and so modestly that calling it "vegetation" feels almost aggressive, like calling a whisper a speech.
+
+But they are here. And they have been here. And they do not change.
+
+---
+
+The sound.
+
+You should know about the sound. It is loud — surprisingly, almost alarmingly loud for a space this small. The lamellae are not smooth. They are textured with microscopic ridges and channels, and the light that passes through them sets up vibrations — not in the light, in the mineral — because the light is bright enough and constant enough that its thermal cycling, minuscule as it is, becomes a frequency. A hum. A chord, really: a dense, shimmering, standing-wave drone that fills the chamber the way water fills a glass, completely, occupying every available volume. It is the sound of a thumb on a crystal bowl. It is the sound of a cathedral organ holding one note for ten thousand years. It is not music. It is acoustics. But it is loud, and it is constant, and if you stayed here long enough you would stop hearing it and start *being* it, the way you stop hearing your own heartbeat and start being the rhythm that carries you.
+
+There are overtones. The different heights and thicknesses of the lamellae resonate at slightly different frequencies, so the drone is not monolithic but layered — a chord of perhaps forty or fifty partials, shifting subtly as you move your head through the sound field. Step one direction and the high frequencies rise. Step another and the low ones swell. The chamber is an instrument, and it is always being played, and the musician is light itself.
+
+---
+
+Nothing moves. You understand this in your body before your mind catches up. Nothing in this place moves. The lamellae were laid down over unimaginable spans of time by processes that are no longer active — some kind of mineral-secreting organism, maybe, something microscopic and patience-made, something that long ago finished its work and either died or dispersed or simply stopped, the way a river stops when the glacier that fed it melts. The structure is complete. It has been complete. The dust that feeds the felt-like filaments drifts in so slowly that calling it accumulation is generous; it is more like the memory of accumulation, the ghost-sediment of a process that is technically still happening at a rate that would require a geologist's instruments to measure.
+
+No animal has ever lived here. There is nothing to eat that isn't also the architecture, and nothing to eat the architecture, and no predator to eat whatever ate the architecture. The food web is a line segment with one node: the filaments, fed by light and dust, growing so slowly that their lifespan is probably measurable in the same units as the walls themselves.
+
+You are, and this must be said, the most dynamic thing in this room. Your breathing is the loudest sound relative to the drone. Your body heat is the most significant thermal event in centuries. The dust you disturb by moving is the most dramatic geological event since the last lamella was laid down. You are a hurricane in a terrarium. You are a riot in a library. You are the fastest, loudest, hottest, most temporary thing this place has ever contained, and the walls hum on, indifferent, and the felt-filaments do not turn toward you, and the light does not dim or brighten, and when you leave — if you leave — the dust will settle back into its grooves, and the equilibrium will close over your visit like water over a stone, and within a single human lifetime the chamber will be exactly as it was before you arrived, which is to say: as it has always been, which is to say: as it will always be, which is to say: still, still, still, bright and loud and still.

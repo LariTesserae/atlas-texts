@@ -1,0 +1,11 @@
+Welcome to the primordial gardens of Sof'kath, where the boundaries between land, water, and life have long dissolved into a verdant tangle of endless becoming. This is a world where the very notion of "natural" and "artificial" has been rendered quaint and obsolete, for here, all is part of a singular, self-sustaining ecosystem.
+
+The air is thick with the scent of damp, mossy growth, the atmosphere heavy with the moisture that seeps from the ground and condenses into a perpetual mist. Underfoot, the terrain is a soft, spongy carpet of intertwined roots and rhizomes, the soil itself a rich, living substrate that oozes with the slow but steady pulse of microbial activity.
+
+Towering above are the arching canopies of towering, alien trees, their trunks and branches indistinguishable from the surrounding mass of vines, ferns, and other lush vegetation. The leaves are broad and waxy, catching the sparse, filtered light that filters down from above, transforming it into a diffuse, greenish glow that suffuses the entire landscape.
+
+The sounds of this world are muted and dreamlike – the gentle gurgling of unseen rivulets, the occasional rustling of unseen creatures, and the faint, distant calls of unfamiliar avian life. Beneath it all, there is a palpable sense of a deep, ancient stillness, as if time itself has been slowed to a crawl, trapped in a state of perpetual, verdant equilibrium.
+
+Yet, for all its tranquility, there is an undercurrent of restless life that permeates every inch of this place. The plants do not merely grow – they pulse, they twist, they seem to almost actively reach out and intertwine, as if possessed by a collective, inscrutable intelligence. Tiny, scurrying forms dart between the tangled roots, while larger, amorphous shapes drift through the hazy air, their presence betrayed only by the occasional displacement of the mist.
+
+This is a world where the familiar rules of nature have been upended, where the boundaries between life and non-life have been blurred beyond recognition. It is a place of ancient, primal beauty, and one that seems to exist in a state of timeless, verdant stasis – a fragile, self-sustaining Eden that has somehow managed to endure, even as the rest of the world has moved on.

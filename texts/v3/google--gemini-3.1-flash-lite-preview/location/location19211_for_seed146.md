@@ -1,0 +1,15 @@
+Deep beneath the crust of a dead planet lies the Basin of Calcified Hum, a space so immense that the vaulted ceiling is lost to the absolute blackness of the heights. There is no water here; instead, the floor is a sprawling, endless field of fine, pulverized silicate dust and sharp, knee-high shards of volcanic glass that glow with a faint, dying inner heat.
+
+It is a world of density. Thousands of pillars—some natural basalt, others carved by archaic, frantic hands—rise like needles from the floor to the roof, packed so closely together that navigation requires a rhythmic, weaving shuffle. Between these monolithic thorns, the atmosphere is thick, not with air, but with a suspension of silicate micro-crystals that catch the ambient dark, creating a shimmering, claustrophobic velvet. 
+
+The temperature is a constant, humid warmth, pressing against the skin like a heavy wool blanket. The air does not circulate; it hangs in a static, crystalline suspense.
+
+There is no vegetation, no photosynthesis, no decay. The ecology is purely mineral and kinetic. Crawling across the jagged floor are the *Scuttlers*—abundant, many-legged creatures composed of fused iron ore and translucent mica plates. They do not eat; they feed on the warmth of the floor and transmit it to one another through rhythmic percussive tapping. They are the fauna of this void, thousands of them huddled in the narrow aisles between pillars, their carapace-joints clicking in a steady, unvarying code. 
+
+The artifacts scattered here are few and baffling. One might encounter a single, perfectly spherical obsidian bowl, waist-high, filled with solidified magnetic soot, or a series of copper-wire loops strung between two pillars that vibrate with a low-frequency hum that never modulates, never rises, and never resolves. These structures were not built for utility or shelter; they appear to be harmonic resonators, meant to anchor the world in its existing state of motionlessness.
+
+Light is a luxury of the rare, chemical kind. Occasionally, a fracture in one of the pillars will release a slow, oozing luminescence—a cold, chartreuse glow that tracks down the stone like thick oil. It does not provide illumination; it merely defines the shape of the darkness, lending the gloom a bruised, sickly dimension.
+
+Time does not flow here. There is no wind to move the dust, no erosion to smooth the glass needles, no seasons to alter the temperature. The soundscape is defined by the *Hum*—a low, flat resonance that might be the planet’s own grinding core or the collective vibration of the Scuttlers’ rhythmic, mechanical existence. It is a drone that has occupied this space for eons, a singular, unchanging chord that binds the vast, dense expanse into a state of permanent, heavy equilibrium. 
+
+Everything is sharp, everything is near, and everything is waiting. To be in the Basin is to understand that the world was finished long ago, and all that remains is the sound of the stone singing to itself in the dark.

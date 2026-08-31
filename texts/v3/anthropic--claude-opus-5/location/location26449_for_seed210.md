@@ -1,0 +1,45 @@
+**The Idling Shelf**
+
+It sits at altitude — high enough that the air has thinned into something you have to insist upon, cool enough that your breath comes back to you as a small private cloud and joins the larger one. A shelf, a hanging basin, no bigger than a village green or the floor of a modest cathedral. You can walk its length in four minutes. You cannot walk out of it, but that comes later.
+
+The rock is fresh. Not fresh as in clean — fresh as in *recent*, as in newly parted from something. The ridges that ring the basin break upward in edges you could cut yourself on, conchoidal, glassy at the fracture faces, the way flint looks in the second after it is struck. There is no scree. This is the first wrongness you will notice, if you know mountains. A young sharp mountain sheds constantly; it is always shrugging pieces of itself downhill. Here there is nothing at the foot of the walls but wet turf and a hairline of pooled water. No debris. No talus, no grit, no crumbs. The mountain has been made and has produced no waste.
+
+Everything weeps. The walls sweat in slow beadwork, and the beads gather into threads, and the threads gather in the moss and make a sound like distant applause that never rises or falls. Water is one to two hands beneath your boots everywhere: step and the ground exhales, a dark star of moisture blooming around the sole. There is a pool near the low end, roughly circular, black-brown, and it stands exactly at its brim. Water enters it continuously from three sides. Nothing leaves it. It does not overflow. Put your hand in and the level does not change; take your hand out and it does not change; the meniscus holds against the lip of turf like a held breath, and has held that way for however long "long" means in a place with no clock.
+
+The vegetation is thick where it occurs and it does not occur often. That is the arrangement here: lushness distributed sparsely, a scattering of intensely alive things across wide fields of nothing. A cushion of moss the size of a sleeping dog, perfect hemisphere, then nine paces of bare wet stone, then a knee-high thicket of dwarf willow so dense you could not push a finger into it, then twelve paces of nothing, then a single upright tree of no identifiable species with leaves like small green spades. The emptiness between them is not barren. It is simply *unoccupied*, deliberately, as though the spacing were specified.
+
+Look closely at the leaves. Each has a seam. A faint raised line running the length of the midrib and around the margin, the sort of flashing you find on a molded part where two halves of a die met. The willow twigs end, some of them, in a small hard nub where they were cut from something they were attached to. The mosses have identical hemispheres because they are identical: sixteen of them across the basin, all the same, all the same size, and if you crawl and compare, the same two brown strands out of true at the same position on each dome. Nothing grew here. Everything was *produced* here, and then production stopped, and nothing has grown since either.
+
+Now the sound, which is the largest fact.
+
+The basin roars. It roars at a volume that makes you speak up, and the roar is unmistakably industrial: a bass three-note chord of large turning masses somewhere under the floor, over it a belt-shriek in a steady cycle, over that the hydraulic sigh-and-clunk of a press that draws breath and never lands, and threaded through it all a high electrical hum with the flat purity of something rectified. It comes up out of the rock and down out of the fog and sideways off the walls. It never varies. Not by a decibel, not by a semitone. You can lie down with your ear to the moss and hear the same chord at the same strength as you hear it standing. There is no machine. There is no aperture, no vent, no shaft, no warmth, no smell of grease — though there is, faintly, the smell of hot oil, hanging where no oil is, along with ozone and crushed watercress and cold stone.
+
+It is a plant running at idle. That is the only honest description. Something enormous is powered up and turning over, holding pressure, waiting for the line to resume, and the line will not resume.
+
+In the gaps of that roar — and there are gaps, tiny ones, in the belt-shriek's cycle — the birds sing. They sing *precisely* into the gaps. Never over. Four notes, dropping, and then the shriek returns and the bird waits.
+
+The fauna is everywhere and it is almost entirely the same nine animals. Pikas on the bare stone, dozens of them, all in the identical posture: front paws down, head at eleven o'clock, one ear folded. Frogs in the seeps, the same frog, brass-flecked, and when one jumps it describes the same arc as every other jump in the basin, and lands, and does not jump again. Beetles with the hard oil-slick sheen of anodized aluminum working over the willow, all clockwise. Something with antlers, low and heavy, stands in the fog at the basin's far end where the fog is thickest, and does not graze, and the condensation on its antlers has beaded to exactly the point of falling and does not fall.
+
+They are abundant beyond any reasonable carrying capacity, and none of them eats. There is no scat. There is no browse line on the willow, no nibbled moss, no bones, no carcass, no smell of animal at all. Abundance without appetite. Population without pressure. They move — that is the strange grace of the place, it is not a diorama — but their movements do not accumulate into anything. Nothing here is going anywhere it has not already been.
+
+The light: dim, and sourceless, and unattributable to any hour. The fog does not glow so much as it *is* the illumination, a low even panel of grey-green luminance in every direction, so that shadows are absent, or rather so that each thing has a faint shadow on every side of itself, a half-tone dilation that keeps its edges from being certain. Look up and there is no brighter patch. Look at your hands and they are lit from below as much as above. It is the light of ten minutes before dusk, without dusk, forever. The hour of nothing further.
+
+And then the seams.
+
+Count the notches along the eastern ridge, left to right: seven. Count them right to left: six. Do it again; the answer is stable, seven and six, and you will not find which notch is the discrepancy, because the discrepancy is not in a notch, it is in the counting.
+
+The basin's edge is a trim line. Walk to it — you can, easily, it is four minutes away in any direction — and the turf ends at a hard perimeter of what can only be called flash: a thin lip of overrun material, mineral-plastic, translucent grey, extruded past the boundary and burred, the excess of a mold that was slightly overfilled. Beyond that lip is not a drop and not a plain. Beyond that lip is *unrendered*, and the honest report is that your eyes slide off it the way a hand slides off wet glass, and if you keep walking you arrive back in the basin from the other direction, having felt no turn.
+
+There is one made thing, and it is not a structure. In the flattest bare stone near the pool there are five circular dimples, twelve inches across, arranged in a shallow arc, each perfectly smooth and each set a millimeter below the surrounding surface. Ejector marks. The place was pushed out of something and released, and these are where it was pushed.
+
+The rules, insofar as they can be stated:
+
+Nothing finishes. The press does not land, the pool does not overflow, the drop does not fall from the antler, the bird's fourth note is its last note and there was never a fifth.
+
+Nothing wastes. Break a twig and there is no fragment; the twig is simply, thereafter, a twig of that new length, and the shortened part is not anywhere.
+
+Nothing accumulates. Your footprints in the moss lift and refill behind you at walking pace. Turn around fast enough and you will see one of them still open — but only one, and only for as long as it takes to see it.
+
+Nothing you do is recorded, and this is not a punishment. Take a stone away in your pocket. From beneath the turf, in the same place, an identical stone rises to the surface with the patience of a thumb pressing up through cloth, and it is not similar, it is the same, and the one in your pocket is also the same, and you will find you cannot make the count come out wrong.
+
+You can leave. People do. But the leaving does not appear in the basin's account of itself: no path worn, no gate, no memory in the pikas, no change in the chord. The machine holds pressure. The fog condenses on the willow and on your eyelashes at the same rate as always. Somewhere under two hands of standing water, something the size of a county turns over at low RPM, warm, ready, and waits for an order that was cancelled before the world got around to being finished.

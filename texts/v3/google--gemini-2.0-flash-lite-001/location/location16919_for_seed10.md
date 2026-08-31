@@ -1,0 +1,21 @@
+The wind howls, a rasping, industrial shriek that seems to tear at the very fabric of the world. It’s a sound built of a thousand individual noises: grinding gears, the hiss of steam, the echoing *thrum* of colossal machinery deep within the earth. Dim, perpetual twilight hangs over everything. The light doesn’t so much *illuminate* as it *reveals*, a ghostly insistence on the forms that press against the gloom.
+
+This isn’t a place of gentle slopes and rolling hills. The elevation is high, but the land itself has been worn down, *ground* down, by a cataclysmic, unending erosion. What remains is a vast, open plateau, a tapestry of wet, dark earth and the skeletal remains of petrified trees – or what *once* were trees. Now, they are vast, stone-like structures, twisted and gnarled, their branches reaching up like supplicating claws. They are the architecture of this world, the framework upon which the plants — so *total* in their presence — are draped.
+
+The water, oh, the water. It’s a constant. It seeps, it weeps, it condenses in the air, a clammy embrace that clings to skin and chokes the lungs. The air itself *feels* wet, saturated with a cold that settles deep into the bones. The ground is a morass, a shifting, unstable terrain. Runnels of black water, slick with an oily sheen, carve pathways through the all-encompassing vegetation.
+
+And the vegetation… it is truly total. It isn't just a covering; it *is* the landscape. Thick, pulpy, bioluminescent fungi and mosses cling to every surface, erupting in bizarre, geometric patterns. Gigantic, fern-like fronds, the color of bruised plums, unfurl and retract with a slow, deliberate grace, whispering as they touch each other. Strange, bulbous growths pulsate with an inner light, casting eerie shadows that dance and writhe. In this place, plants *are* the substrate, and the substrate is alive.
+
+The scale is vast, regional, stretching out to a distant horizon that feels more like the edge of another world. And yet… the density is sparse. There is emptiness between things, a sense of vast spaces punctuated by pockets of intense activity.
+
+Within this landscape, the industrial influence makes itself known, but in a way utterly alien. There are no buildings, no overt signs of construction (that’s a function of the ‘none’ rating). Instead, the landscape *itself* has become a factory. Massive, subterranean machines, their purpose unknowable, groan and churn beneath the surface. Occasionally, a colossal metal arm, impossibly slender yet obviously potent, will emerge from the earth, reaching up to the sky before abruptly retracting. The engines are everywhere, but they are *of* the earth, not separate from it.
+
+The fauna! It *roams*, a restless sea of life. Gigantic, six-legged insects with chitinous carapaces scuttle across the fungal plains. Creatures that defy description – things of shadow, things of light, things woven from the very elements of this world – flit through the air, their movements erratic and unpredictable. Small, birdlike beings with metallic feathers dart in and out of the enormous plant-architecture.
+
+The weirdness is the core of it all. Reality is fractured here, a constant state of flux. Gravity seems to have a capricious personality. The laws of physics are more *recommendations* than rules. Portals shimmer into existence, momentarily revealing glimpses of other worlds before snapping shut. Strange geometries of space unfold and collapse, distorting the distances and directions.
+
+The sounds are loud — a cacophony of engines, wind, and the primal screeches and roars of the abundant fauna. It's a soundscape of the birth and death, of creation and destruction, all happening simultaneously, in a perpetual loop.
+
+The dynamic is turbulent, chaotic, pushing and pulling at the landscape, the sky, the very fabric of existence. There is no stasis here, no rest. Everything is in motion, a maelstrom of entropy and regeneration.
+
+This is a world at the brink, a place where the final moments of an ancient, industrialized civilization are echoing into an alien, flourishing future. It is a testament to the fact that even in the face of absolute destruction, there is always, *always*, the potential for life to find a way.

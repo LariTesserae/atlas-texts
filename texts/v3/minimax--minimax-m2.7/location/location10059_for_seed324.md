@@ -1,0 +1,19 @@
+# The Condensate Chamber
+
+You are standing in a place that should not exist as a place at all — a pocket carved from industry, a room that has become its own landscape.
+
+The floor is steel grating, bolted down in panels. Beneath the grating, you can see water flowing in channels cut into concrete — not natural streams but engineered waterways, shallow runs that carry coolant runoff and condensation weeping from the overhead pipe network. The water catches what little light exists from recessed industrial fixtures, and it moves constantly, murmuring over its machined edges.
+
+The sound is everything here. It is not sound you hear so much as sound you inhabit. Turbines throb through the walls. Hydraulic lifts exhale and inhale in long, wet sighs. Somewhere above, pressure release valves spit steam in rhythmic bursts, each one a sharp crack that echoes and multiplies in this confined space. The noise builds on itself — bounces off the metal ceiling, reflects from the slick walls — until it has weight, density, presence. You feel it in your sternum. Your jaw aches from clenching.
+
+The space is small — intimate, almost — perhaps thirty meters across, though the geometry is hard to read because everything is made: the floor, the walls, the low arched ceiling, the pillars that support nothing you can see. No natural ground anywhere. Every surface is poured concrete or painted steel or rubberized sealing compound. The construction is young — everything here is recent. You can see the seams where new sections were welded to old. The grating is bright, uncoated; the channels have sharp edges. Erosion has barely begun its work. A decade ago this place did not exist. A decade from now it will be different again.
+
+Water is everywhere. Not as weather, not as rain — as consequence. The machinery above produces condensation as a byproduct, and it drips through weeping seals and joints, pooling in the corner sumps where submersible pumps labor endlessly to move it back through the cycle. The walls sweat. The ceiling drips in thin, irregular threads. In the dim light, everything glistens.
+
+There is almost no life. A few pale mosses have found purchase in a crack where sealant has failed — green and tentative, barely holding on. They will be pressure-washed away in the next maintenance cycle. A fungal mat clings to the base of a pipe, pale and soft. No animals. The machinery is too loud, the environment too wet and dark and chemically active. Whatever might live here has not yet adapted, or has chosen elsewhere.
+
+It is cool here — not cold, but perpetually cool, the way a basement is cool, the way a stone room in summer holds the memory of something deeper and colder. Water at this elevation carries temperature with it. The channels run cool. The air holds moisture and chill and the faint mineral smell of treated water.
+
+The light is low. Industrial fixtures cast amber pools, but most of the space is shadow — the shadow of pipe clusters, of the bulk of machinery just beyond sight, of the low ceiling pressing down. Where water moves in the channels, it catches light and turns briefly bright before disappearing into the drains.
+
+This place is not visited. It is maintained — cycled through, inspected, cleaned, repaired — but it is not meant to be inhabited. It is an organ of something larger, a hidden node in a vast system, and it performs its function with the indifference of all made things: constantly, loudly, and without awareness of being seen. The water moves. The turbines turn. The pumps cycle. And the condensation weeps down, down, through channels and sumps and pipes, back to wherever water goes when it has served its purpose in this place that is not a place, this pocket of industry where everything is made and nothing is natural and the sound never stops.

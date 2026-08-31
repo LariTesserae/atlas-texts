@@ -1,0 +1,19 @@
+**The Foundry Pools**
+
+High in the mountains, where ancient peaks have been worn smooth as sleeping giants' shoulders, lies a hidden valley no larger than a cathedral nave. Here, in this pocket of the world that time forgot to finish eroding, warm mineral springs bubble up through countless fissures in the stone, creating a terraced amphitheater of steaming pools.
+
+The water is everywhere—cascading in thin sheets down worn granite faces, pooling in basins carved by millions of years of patient overflow, rising as vapor that catches the brilliant mountain light. Each pool glows like molten amber or jade, colored by dissolved minerals: copper green, sulfur yellow, iron red. The air itself seems half-liquid, thick with steam that refracts the high-altitude sun into prismatic veils.
+
+No grass grows here, no trees cling to the smooth stone walls. This is a world of pure mineral—but it pulses with industrial purpose. Scattered throughout the terraces stand the remnants of some forgotten operation: cast-iron wheels and gears, their surfaces burnished smooth by decades of mineral-rich mist. Brass pipes snake between pools, some still functional, others collapsed into the water where they create strange metallic reefs. A single brick chimney rises from the deepest pool, its top just breaking the surface, exhaling bubbles in a steady mechanical rhythm.
+
+The density here is overwhelming despite the small scale. Every surface hosts some process: crystalline formations growing in spirals along pipe edges, mineral deposits building delicate terraces grain by grain, condensation patterns creating temporary rivers that shift with each breath of wind. The pools themselves are layered—clear water over beds of colored precipitate, oil-slick films floating on surfaces, depths that shift from transparent to opaque as dissolved minerals swirl in thermal currents.
+
+Sound moves strangely in this pocket. The constant gentle burbling of springs creates a white noise backdrop, but metal components occasionally release sharp pings as they expand and contract. Sometimes a gear will catch and turn with a grinding whisper before falling silent again. Steam escapes from unseen vents with soft sighs that seem almost biological.
+
+A few small creatures have adapted to this chemical paradise—pale salamanders that swim between the cooler pools, their skin taking on metallic sheens. Occasionally, something larger moves in the deepest basin, glimpsed only as a shadow against the colored stone, perhaps some ancient thing that remembers when the machinery ran at full capacity.
+
+The light here is extraordinary. The high elevation means thin air and intense solar radiation, but the steam creates a natural filter system, breaking illumination into shifting columns and rays. Metal surfaces throw reflections that dance across wet stone walls, creating a constantly changing light show. At certain times of day, when the angle is perfect, the entire valley becomes a lens, focusing sunlight into beams that seem solid enough to touch.
+
+This is a place caught between eras—too ancient to be truly industrial, too artificial to be purely natural. The thermal activity ensures constant motion: water levels rising and falling with mysterious tides, mineral formations growing and dissolving, steam patterns shifting like slow breathing. Yet it feels settled, final, as if this particular arrangement of stone and metal and heated water represents some equilibrium the earth reached long ago and sees no reason to change.
+
+In the deepest pool, where the brass pipes converge around the breathing chimney, the water stays perfectly clear despite its warmth. Here, if you look closely, you can see all the way down to where the thermal vents open like flowers in the bedrock, exhaling their ancient heat into this small, bright, impossible world.

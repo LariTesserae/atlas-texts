@@ -1,0 +1,17 @@
+**The Last Oasis of the Sky**  
+
+High atop the world, where the air thins and the bones of the earth rise like the ribs of some long-slumbering titan, there is a place untouched by water. The **Stone Garden of Vhalei** clings to the sheer cliffs of a mountain so ancient its peaks have been worn smooth by eons of wind. No rain has ever fallen here, no river carved its face—only the slow, patient abrasion of dust-laden gales has shaped this place over geologic ages. The rock is pale, almost luminous in the dim light, veined with minerals that shimmer faintly like frozen lightning.  
+
+Yet despite the absence of water, life thrives. **Lush vegetation** spills from every crevice, not in the form of ordinary plants, but in great cascades of **crystalline moss**—a living mineral that photosynthesizes through embedded filaments of gold and copper. It grows in dense, fractal patterns, its surfaces prismatic, refracting what little light reaches these heights into spectral shimmers. Towering **spine-trees**, their trunks like braided obsidian, rise from the rock, their branches ending in clusters of glassy leaves that hum faintly in the wind.  
+
+The air is **warm**, heated by some deep geothermal pulse, though the thinness of the atmosphere makes the heat feel brittle, like standing too close to a banked fire. The ground is uneven but not jagged—time has softened every edge, leaving only undulating stone, worn into shallow basins and low, rounded ridges.  
+
+This is a **dense** place, crowded with life and ancient stone. The **fauna** are strange, many-legged things with carapaces of polished stone, their bodies adapted to the dry, mineral-rich environment. Some scuttle along the cliffs, their feet leaving faint phosphorescent trails; others cling to the spine-trees, their mandibles clicking as they harvest the crystalline moss. There are no birds here, but there are **gliders**—flat, kite-like creatures that ride the updrafts, their bodies translucent, their veins glowing like molten ore.  
+
+The **soundscape** is a low, constant murmur—the hum of the trees, the whisper of the wind through the moss, the distant, rhythmic tapping of stone-shelled creatures moving across the rock. Occasionally, a deeper resonance shudders through the mountain, a subsonic pulse from some hidden chamber below.  
+
+Human presence is sparse but not absent. A **small settlement** clings to the leeward side of the cliffs, its structures built from the same mineralized growths that define the landscape. The people here are **primitive**, their tools carved from the bones of the mountain, their clothing woven from the fibrous husks of the spine-trees. They move slowly, deliberately, as if aware that time here is measured in eras, not hours.  
+
+This is a place of **slow cycles**, where change is measured in the gradual thickening of the moss, the imperceptible smoothing of a new ridge by the wind. It is a world that has settled into its final form, a **near-flattened** dream of stone and light, where life has adapted not to the absence of water, but to its irrelevance.  
+
+And above it all, the sky is a dim, endless vault—not dark, not bright, but holding the last glow of a sun that has long since ceased to care.

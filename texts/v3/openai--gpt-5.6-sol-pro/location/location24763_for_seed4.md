@@ -1,0 +1,47 @@
+At first it seems to be only a dark seam beneath a fallen leaf.
+
+Cold water gathers along the seam, swells into beads, and disappears one drop at a time. The leaf above is thick as a roof beam, its underside furred with pale hairs. It has sagged against neighboring stems to enclose a pocket no wider than a small room. Yet within that pocket lies an entire low city.
+
+The ground is not ground. It is the exposed crown of an immense marsh plant: folded layers of root skin, compressed leaf sheaths, wet fibers and translucent nodules where new shoots are preparing to break through. Every surface is alive or was alive recently. Streets follow the shallow grooves between veins. Plazas occupy the smooth scars where old stalks detached. Buildings stand on rootlets that have risen into arches, and the city’s outer wall is simply a living rind trained to curl back upon itself.
+
+Nothing here is level for long. The plant swells at night, slackens during the colder part of the day, and twists whenever the marsh water beneath it rises. A road may narrow over several hours. A doorway may close for a week. Fresh green ridges split through old districts with the clean, sharp edges of recently broken wax. The inhabitants do not speak of permanent property. They speak of places as one speaks of weather: the east stair is open; the lower court is drowning; the white root has turned.
+
+The settlement is built sparsely. Its structures are separated by wide tracts of black, wet leaf-skin. There are bridges of plaited grass over crevices that could be crossed in a few strides, isolated towers made from hollow stalk sections, and little groups of dwellings clustered beneath knots in the vascular tissue. Between them stretch long empty avenues, their surfaces slick with condensed water. The emptiness is deliberate. New growth must have room. Floodwater needs passages. Predators need to be seen coming.
+
+Construction is done with stone splinters, shell blades, thorns, bone awls and wedges of frozen wood. There is little metal, and what exists is treasured in pieces too small to identify: a greenish hook, a dull bright needle, a flake hammered into a chisel and inherited by a whole district. Walls are woven from root hair and sealed with sap. Roofs are overlapping scales cut from seed husks. Doors are discs of bark rotating on sinew pins. Water pipes are natural capillaries teased from the leaf and rerouted through clay collars.
+
+The city has no fires. Flame would poison the air and wake the roof into catastrophic dryness. Heat comes from fermentation chambers buried in old plant pulp, from sleeping close together, and from certain swollen roots that remain faintly warm as they metabolize stored sugars. These warm roots form the civic centers: bathhouses no larger than cupped hands, hatcheries, infirmaries, communal kitchens where starch is softened in sealed pots.
+
+Almost no light reaches the streets. Far above, the outer leaf admits a bruised green translucence for a short interval each day, but down here that brightness becomes no more than a change in the quality of blackness. The inhabitants navigate by touch and by arrangements of pale surfaces. Snail-shell fragments mark intersections. White root hairs outline steps. Beetle wing-cases, polished but not luminous, catch the slightest glimmer and return it as cold blue points. At important doorways, colonies of dim fungi are permitted to grow, though they must be scraped back constantly before their threads enter the living wall.
+
+The air is saturated and very cold. Breath hangs low. Dew forms even on fur and eyelashes. A person who rests too long against the outer rind may find clothing frozen to it. Water is everywhere without becoming a broad open body: in channels, droplets, thin films, bladders, sweating walls and hidden pressure beneath the floor. There are cisterns made from curled leaves, but these are less reliable than the plant itself. A practiced water-keeper can press an ear to a vein, hear the faint tension within it, and know where to make a puncture. The incision is closed afterward with resin and a pad of moss. Taking too much is considered both theft and structural sabotage.
+
+Beyond the built streets, the pocket becomes stranger. New tissue advances through the dark in blunt ivory spears. Moss grows upon liverwort, liverwort upon algae, algae within the fur of the leaf. Tiny vines crawl without ever seeing open air. Their leaves have become colorless cups and hooks. Some feed on sap; others trap drifting organic dust. A few fold shut around heat rather than touch. One species grows only on the warmer sides of sleeping animals, sowing seeds in their bedding before withering by morning.
+
+Vegetation does not decorate this place. It is its geology, climate and law. What looks like a boulder is a gall. What looks like clay is decayed pith. The cliffs are torn leaf edges still capable of healing. The marsh plant responds slowly but decisively to everything done inside it. A heavily traveled street thickens. An abandoned tunnel seals. Excess smoke, salt or blood can cause whole chambers to constrict. The oldest builders understand that architecture here is not imposed; it is negotiated.
+
+Fauna fills every layer.
+
+Most of it is unseen.
+
+Springtails crowd the underside of bridges like gray frost, then scatter in a single silent ripple. Transparent mites graze fungal films from walls. Larvae mine the leaf itself, passing behind the surface as soft shadows. Snails ascend the root towers during the wet phase and descend before the next freeze. Threadworms twist in hanging drops. Pale crickets live in roof folds, their legs longer than their bodies. Beetles push through pulp galleries with the slow force of buried machinery. Small moths, unable to fly in the cramped wet air, run along vertical stems with their wings wrapped tightly around them.
+
+There are predators at every scale. Needle-faced hunters wait beside water channels. Velvet spiders stretch nearly invisible lines across warm passages. A blind salamander sometimes forces its head under the edge of the leaf, vast and pink as a moon, and remains there for hours, breathing the city’s air and taking whatever ventures near. Its arrival is treated as a weather event. Gates are closed. Vibrations are watched. Entire neighborhoods become still.
+
+For all this abundance, the pocket is mostly quiet. Soft bodies move over soft ground. Water is too shallow to splash. Cold slows wings and joints. The loudest regular noises are individual ones: the tap of a shell tool, the minute tearing of a root fiber, a drop striking a stretched leaf membrane. Now and then a beetle clicks from somewhere inside a wall, and another answers far away. During a pressure change, the whole city gives a nearly inaudible series of creaks as its living foundations tighten.
+
+Silence is also a defense. Sound travels efficiently through plant tissue. A careless blow can announce itself across the crown to things that hunt by vibration. Workshops therefore use padded blocks. Bridges are woven to flex without snapping. Messages are often sent through taps too light for larger predators to distinguish from dripping water.
+
+The city is young. Its oldest inhabited layers were exposed only when last season’s flood tilted the mother plant and tore away a sheath of dead foliage. The fresh interior had not yet hardened. Settlers entered through a frost crack, cut the first terraces, and found warm sap rising below. Many streets retain the sharpness of that original rupture. Pale walls have not darkened with age. Unfinished cuts gleam wetly. Survey cords remain tied between roots where districts are expected to grow, though no one knows whether the plant will permit them.
+
+Change comes quickly. The dark pocket floods from below, drains, freezes along its margins, and thaws from the warmth of its own decay. Animals migrate through it in pulses. Eggs hatch all at once when the sap rises. Predators follow. New shoots rearrange the city. Old leaves soften into food and then into voids. Nothing collapses cleanly; it is eaten, absorbed, overgrown or carried away in pieces.
+
+At the pocket’s lowest point is a narrow black basin called the Still Court. It is only a film of water over polished root skin, but in darkness it appears bottomless. The city’s scattered channels converge there. Seeds, skins, shed limbs, crumbs of resin and flecks of fungus gather at its edge. Scavengers arrive without sound. Above them, on thin platforms, the water-keepers measure the rising surface by touch.
+
+When it reaches the third notch, everyone climbs.
+
+The lower streets vanish first. Doors are sealed with moss. Rope bridges are drawn upward. Snails take the walls, mites take the ceilings, and pale worms rise out of the flooded pith. The plant drinks from the marsh beneath, swelling around the city until the chambers become tight and warm. For several hours the pocket is less a settlement than a crowded organ, full of held breath and hidden movement.
+
+Then the pressure releases. Water withdraws through the root. The walls relax. The avenues emerge shining and altered.
+
+In the renewed darkness, tools begin tapping again.

@@ -1,0 +1,54 @@
+### The Caldera of the Knitting Stone
+
+**Scale and Elevation**
+You stand within a high-altitude crucible, a hamlet-sized basin cupped in the palms of jagged, cloud-piercing peaks. The air here is thin but rich, holding a pressure that feels less like atmosphere and more like a held breath. Though the elevation suggests biting cold, the basin is swaddled in a pervasive, humid warmth, radiating from the ground itself. The rim of the caldera is visible, a ragged crown of black basalt against a bruised, twilit sky, but the world beyond is irrelevant. This place is self-contained, a singular organ of geography, no more than a few hundred paces across, yet it feels heavier than a continent.
+
+**Erosion and Terrain: The Anti-Wear**
+Nothing here weathers down. The erosion parameter is inverted; this is a landscape of aggressive *becoming*. The geology is embryonic, raw, and actively writing itself. The terrain does not settle; it accretes.
+
+The ground is a mosaic of half-born matter. Smooth, glassy patches of obsidian bubble up from fissures, expanding like rising dough before snapping into crystalline fractals. Boulders do not sit; they grow. You can watch a fist-sized nodule of grey stone shudder, extrude layers of mica and quartz with a wet *shlick-shlick* sound, and double in size over the course of minutes. The rocks weep constantly. From every pore and crack, a viscous, silver-tinged fluid exudes—the "blood" of the mountain, a nanoscopic slurry of programmable matter that hardens upon contact with the air, adding microns of new reality to every surface.
+
+To walk here is to trespass on a construction site of physics. Footprints fill seconds after you lift your boot, the slurry rushing in to heal the wound, often pushing up slightly higher than before. If you stand still too long, your soles will fuse to the ground, and the stone will begin to climb your ankles, eager to incorporate foreign mass into its design.
+
+**Water and Atmosphere**
+The water rating of 1.6 manifests as a weeping, condensing saturation. There are no rivers, only the omnipresent slickness of creation. The warm air is thick with a mist that tastes of ozone and wet iron. This is not mere vapor; it is aerosolized substrate. The mist condenses on every surface, forming heavy droplets that fall with rhythmic *plinks* into pools of shimmering, heavy liquid that gather in the hollows.
+
+These pools are not water as you know it. They are reservoirs of unformed potential. Their surfaces shimmer with iridescent oil-slicks of data-structures, swirling geometries that hint at the shapes they will become. Dip a hand in, and the fluid clings, warm and heavy, trying to knit itself into a glove of stone or a carapace of chitin before you shake it off. The humidity is absolute; your skin stays damp, your hair beads with droplets that feel slightly electric.
+
+**Light and Dimness**
+Despite the high elevation, the light is dim (1.3), strangled by the dense, substrate-laden fog and the overarching geometry of the growing rim. Illumination comes from within. The weeping rocks emit a faint, bioluminescent pulse—a deep, throbbing amber that syncs with the growth cycles. The scattered structures (see below) glow with veins of cool violet Cherenkov radiation. Shadows are deep and velvety, but they are not static; they writhe as the terrain shifts, and occasionally, a shadow will detach from its caster and slither toward a growth-fissure, consumed as fuel for the making.
+
+**Built Elements: The Choristers**
+Scattered across the basin (Built 1.4, Density 0.7) are the artifacts of the intelligence that drives this genesis. They are not buildings in any human sense. They are the **Choristers**.
+
+These are monolithic spires of matte-black material that absorbs the dim light, standing three to four meters tall, scattered with deliberate randomness. Their surfaces are etched with fractal grooves that shift and reconfigure in real-time. They hum. The sound is a physical vibration that resonates in your sternum. The Choristers are the printers, the regulators, the gods of this small world. They spray jets of the silver slurry in precise arcs, directing the growth of the terrain. Occasionally, a Chorister will emit a burst of coherent sound that causes a patch of chaotic slurry to instantly crystallize into a complex lattice bridge or a hollow dome.
+
+They are beyond modern tech (2.8). They manipulate local gravity to stack matter without support; they transmute energy into mass with casual efficiency. They show no signs of wear, for they, too, are self-repairing, their surfaces flowing like liquid mercury to heal any scratch. They ignore biological life, unless that life interferes with the pattern.
+
+**Vegetation: The Anchors**
+Vegetation is sparse (0.9), struggling against the relentless overwrite of the geology. What grows here are the **Anchor-Mosses** and **Stasis-Ferns**.
+
+These plants are rare, found only in the lee of the Choristers or on ancient, stable outcrops that have finished their growth cycle. They are pale, translucent things with veins of glowing blue. Their roots secrete a chemical inhibitor that halts the accretion process, creating small islands of stillness in the churning sea of creation. A patch of Anchor-Moss is a sanctuary; the ground beneath it is solid, unchanging, and safe to rest upon. The sparse distribution of these plants dictates the movement of everything else; they are the only safe harbors in a world that wants to build over you.
+
+**Fauna: The Lithovores and Shapers**
+Life is abundant (1.9), loud (1.9), and weird (2.0). The fauna has evolved not just to survive the making, but to exploit it.
+
+*   **Slurry-Skimmers:** Swarms of insectoid creatures with wings of vibrating crystal. They hover over the weeping rocks, dipping proboscises into the fresh slurry to drink the raw matter. Their bodies are translucent sacs of digesting stone, and they glow with the heat of internal transmutation. They chitter constantly, a high-frequency screech that adds to the cacophony.
+*   **Resonance Jackals:** Sleek, six-limbed predators that move with fluid grace over the shifting ground. They have no eyes; their heads are dominated by large, parabolic dish-structures of bone. They hunt by listening to the Choristers. They can predict where matter will solidify and where slurry will spray. They ambush prey by standing perfectly still, mimicking a growing rock, then striking when the sound of the spires masks their movement. Their calls are booming, bass-heavy hoots that can disrupt the local growth patterns, causing slurry to splash wildly—a tactic used to flush out skimmers.
+*   **Phase-Leeches:** Small, worm-like entities that live *inside* the semi-solid matter. They burrow through the softening stone, creating intricate tunnel networks that harden behind them. If you step on a patch of ground that sounds hollow, a Phase-Leech might erupt, latching on with a mouth full of diamond-tipped teeth, seeking the heat and moisture of a biological body.
+*   **The Mimic-Orbs:** Floating spheres of gelatinous tissue that drift on the thermal updrafts. They are passive feeders, absorbing the aerosolized substrate. When threatened, they can instantly harden their outer skin into a perfect replica of a Chorister, confusing predators. They emit a low, warbling tone that sounds eerily like a human voice humming.
+
+**Sound and Dynamics**
+The soundscape is overwhelming (1.9). It is a symphony of industry and biology. The grinding of stone growing against stone, the hiss of slurry extrusion, the thrum of the Choristers, the shriek of skimmers, the boom of jackals, and the constant drip-drip-splash of the weeping condensate. The noise is directional and chaotic; echoes warp as the geometry of the walls changes in real-time. A shout might return as a whisper, or not at all, absorbed by a sudden growth of sound-dampening foam-rock.
+
+The dynamic rating (2.4) is extreme. This is an ecosystem in violent motion. Predator-prey cycles play out in minutes. A swarm of skimmers descends on a fresh weep; jackals converge; the Chorister pulses, hardening the slurry and trapping the slowest skimmers in stone tombs; the jackals feast on the trapped; leeches emerge to scavenge the remains. Meanwhile, a new ridge is erupting in the center of the basin, forcing all life to scramble for footing. Weather cycles are local and rapid; heat builds until the mist flashes into a scalding rain, washing slurry into the pools, triggering a bloom of chemical reaction that releases clouds of glowing spores, which the Mimic-Orbs inhale greedily.
+
+**Rules of the World**
+1.  **Stillness is Incorporation:** The land interprets static objects as errors to be corrected or raw material to be used. Keep moving, or find an Anchor-Moss patch. If you sleep without protection, you will wake up fused to the bedrock, or worse, partially overwritten.
+2.  **Sound Shapes Matter:** The Choristers respond to resonance. Loud, rhythmic sounds can influence the growth patterns. A sustained note might cause a wall to bulge; a discordant screech might trigger a defensive spray of rapid-hardening cement. The fauna knows this; travelers must learn it.
+3.  **The Mist is Heavy:** Breathing the air is safe for short periods, but the substrate accumulates in the lungs. Over time, your breath will grow heavy, and your internal tissues may begin to calcify or crystallize. Filtration is essential, or one must consume the sap of the Stasis-Ferns to purge the accumulation.
+4.  **Tech is Indifferent:** The Choristers are not hostile, but they are not safe. They are forces of nature with the precision of gods. They will build a bridge through you if the algorithm demands a connection at your coordinates. They can be predicted by their song, but never reasoned with.
+5.  **Reflection is Future:** The pools of unformed substrate do not show your reflection; they show what you would become if the basin claimed you. Glancing into a pool might reveal your face encased in crystal, or your body twisted into a new, efficient shape suited for this loud, wet, growing world. Some say staring too long invites the transformation to begin.
+
+**The Feeling**
+The Caldera of the Knitting Stone is a place of terrifying fertility. It is a womb of rock and code, warm and wet and loud, where the boundary between geology, biology, and technology has dissolved. It feels alive in a way that makes your own biology seem slow and fragile. There is a beauty in the weeping silver rocks and the violet veins of the spires, a majesty in the relentless creation, but it is a beauty that does not care for you. You are a soft, static anomaly in a world of hard, dynamic becoming. You are a pause in the song. And the song is eager to resume.

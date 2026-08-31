@@ -1,0 +1,41 @@
+# The Pocket Below the Works
+
+You wouldn't find it by looking. You'd find it by falling — by stepping on a plate that wasn't quite load-bearing, by following a drainage channel that dead-ends in moss, by noticing that the floor of Gallery Seven in the old compressor building is not quite level and hasn't been for years.
+
+---
+
+It is a space the size of a large bedroom, though no single wall can be seen from end to end. The ceiling is four feet up in some places, eight in others, shaped like the underside of a blister. It formed recently — geologically speaking, decades at most — where industrial runoff ate through the foundations of the Eastern Foundry complex and theite limestone beneath, dissolving a cavity that the builders never knew they'd made. The walls are sharp. Young rock, newly exposed, crystalline faces catching the dim ambient glow from cracks overhead. Calcium sulfate,ite calcium, traces of metalite salts leached from a century of waste. The formations are not stalactites — they are faster than that, uglier, born from chemical saturation rather than patience. They jut. They shelf out in flat, blade-thin plates. Some are still growing; you can hear them if you press your ear close. A faint, glassy ticking, like a clock wound too tight.
+
+The floor is packed. That's the word. Everything here is *packed.* The density of this place is suffocating in the literal sense — there is almost no empty volume. The rock shelves and blades grow so close together that the space between them reads less as architecture and more as tissue, as if you've cut into something alive and found the interior already full. Every horizontal surface is occupied: by mineral crust, by pooling condensation, by the small and tireless fauna that has made this place a kingdom.
+
+Because the creatures are everywhere.
+
+They are small — most of them — and pale, and busy. The dominant species is a crustacean roughly the size and shape of a thumbnail, translucent-bodied, eyeless, with six legs adapted for gripping mineral surfaces in humid air. They herd across the walls in loose congregations, grazing on the biofilm that slicks every surface with a sheen of grey-green. They are not alone. There are nematodes in the water pools. There is a flatworm, two centimeters long, almost invisible against the calcium plates, that feeds on the crustaceans when they are molting. There are things smaller still — mites, or what function as mites here, moving in threads across the wet stone, so numerous that the rock itself seems to crawl if you watch too long.
+
+The pools are intermittent, as the moisture in this place is intermittent. Water seeps in from above — not steadily, but in pulses synchronized with the rains on the surface and, stranger, with the operations of the machinery still running overhead. When the great compressors in the foundry cycle on, the floor vibrates. Condensation increases. The pools thicken. The fauna stirs into greater activity, the crustacean congregations rippling and reforming as the new moisture gives them wider hunting grounds. When the machines cycle off, the place quiets further, and the pools contract, and the creatures huddle into the dampest crevices and wait.
+
+This is the rhythm of the pocket. It breathes with the factory above.
+
+The warmth is constant — a low, wet warmth like the inside of a mouth. It comes from below as much as above: the foundry's old waste heat, stored in the rock, radiating upward through the dissolved limestone. The air is thick. It carries a mineral tang, something almost sweet, and beneath that a sharper smell — solvent, hot metal, the ghost-chemistry of a hundred years of production. You taste it more than smell it. It coats the back of the throat.
+
+The light is ordinary and nowhere. There are no lamps here. The glow comes through the fractures in the ceiling — diffuse, ambient, the normal grey light of an overcast industrial district filtering through six inches of cracked concrete and eight inches of wet rock. It arrives softened, green-shifted by the biofilm on the ceiling surfaces, and by the time it reaches the floor of the pocket it is barely enough to see by. The creatures don't need it. They have never seen it as anything but a rumor. But it is enough for you, just barely, to navigate between the mineral blades, to avoid the sharp edges, to see the pale bodies moving on the walls and the dark pools shifting on the floor.
+
+There are artifacts here, though the word is generous. A section of corroded pipe, half-dissolved, jutting from the ceiling at an angle and vanishing into the floor crust. A bolt — hexagonal, industrial standard, its edges crisp despite the corrosion — sitting in a pool as if placed there deliberately. Further in, wedged between two growing blades of calcium, there is what appears to be a gauge housing, round, palm-sized, its face clouded and unreadable. These things fell from above, or were washed in, carried by the same runoff that ate the cavity into existence. They are the pocket's fossils of a world it will never fully know.
+
+The weirdness is in the completeness. This place should not work as an ecosystem. It is too small, too sealed, too dependent on the random operations of a factory that doesn't know it exists. And yet. The biofilm photosynthesizes what little light reaches it. The crustaceans graze the film. The flatworms graze the crustaceans. The nematodes process decay. The mineral chemistry supplies what the biology cannot. Everything is accounted for. Everything is occupied. The packing is so thorough that there is a sense — irrational, felt rather than observed — that the system is *overfull*, that there are too many organisms for the volume, that the pocket is running one or two cycles ahead of what it can sustain. The crustaceans are slightly too numerous. The biofilm grows slightly too fast. The mineral plates form slightly too sharp.
+
+Something here is ahead of schedule.
+
+You notice it when you've been in the pocket for fifteen or twenty minutes, when your eyes have adjusted and your breathing has slowed and you've begun to hear the place as more than silence. Beneath the glassy ticking of the growing minerals, beneath the faint click of crustacean legs on wet stone, there is another sound. It is a resonance — felt in the sternum before it's heard in the ears. It is not the compressors. The compressors have a rhythm, a mechanical predictability. This is slower, less regular, more like the pause between breaths of something that is deciding whether or not to wake up.
+
+The floor vibrates differently when it happens. The pools ripple in unison, not from the machinery above but from below, as if the floor itself is flexing. The crustaceans stop. For three or four seconds the pocket holds absolutely still — nothing moves, nothing ticks, nothing breathes — and then the resonance fades and the creatures resume and the place goes on as if nothing happened.
+
+It happens again in seven minutes. Then in four. Then not for twenty.
+
+You could leave. The way back is a climb — up through the fractured concrete, through the drainage channel, back into the grey light and noise of the foundry floor where people work and machines run and the world makes the kind of sense that is expected of it. You could leave and tell someone, or tell no one, and the pocket would go on breathing with its stolen rhythms, its packed and overcrowded life, its strange geometry of too-much in too-little space, its patient and accelerating wrongness.
+
+The crustaceans would not miss you. They have never seen the sky. They do not know that anything exists above the ceiling cracks except more warmth, more moisture, more chemistry to feed the film that feeds them. Their world is complete. It is full to bursting. And below the floor, in the deep-warm limestone that is still dissolving, still opening, still young — something is also full. Something is also close to ready.
+
+The ticking continues. The pools pulse. The foundry runs.
+
+The pocket waits with the particular patience of a place that does not know it is a place — that knows only that it is *here*, and dense, and alive, and growing, and that the resonance below is getting closer to something it can almost name.

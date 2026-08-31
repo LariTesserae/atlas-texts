@@ -1,0 +1,13 @@
+In the thin, swirling mists that shroud primordial peaks, a vast and ancient landscape unfolds. Soaring cliffs and spires of weathered stone, scoured smooth over eons, rise from dense tangles of lush jungle. Vines and moss cling tenaciously to sheer rock faces. In the valleys far below, pockets of still, mirror-like pools gather the constant drip and seep of condensation.
+
+The air hangs warm and heavy with moisture, almost tangible against the skin. Distant birdcalls echo strangely across the immense spaces between towering stone monoliths. Isolated copses of gnarled, serpentine trees cling to crumbling ledges and perch atop lone pinnacles. 
+
+Improbably, crude structures hewn from the living rock mark traces of inhabitants long past. A crumbling staircase, stairs worn concave, winds up an impossible spire. Vine-entwined megaliths, arranged in some indecipherable pattern, stand lonely vigil on a far ridge. Faded petroglyphs adorn a sheer cliff face, their meanings lost to time.
+
+Stillness and deafening sound alternate in the ever-shifting landscape. For timeless moments, no breath of wind stirs the clinging mists. Then in a rush, brief monsoon rains pelt the stones, torrents roar down ravines, and rocks groan as the very foundations of the peaks shift and resettle. Silences stretch taut, then shatter beneath the cacophonous cries of strange beasts, like and unlike any known creature.
+
+Rare glimpses through parting mists reveal the improbable scale of this place of myth and dream - spires rising miles into the glowering sky, chasms and sinkholes plunging into lightless depths, plateaus the size of kingdoms jutting over unfathomable voids. Pockets of fecund life, fed by cascading veils of water, thrive in the sheltered interstices of the weathered heights.
+
+Time and nature dance in the mutable landscape, a pas de deux of erosion and upheaval, accretion and collapse. Boulders hang improbably in sculptural arrays, defying gravity until, in an instant, they crash down to gouge new scars in ancient stone. Stagnant pools evaporate in hours, while new lakes form in depressions carved by freshly fallen debris. 
+
+Mist and shadow shroud the limits of this realm, cloaking its true expanse. But the ever-present sensation of immensity, of unthinkable depths of time written in water and stone, presses in from all sides. To witness such a place is to feel the immensity of nature and the impermanence of all things, even mountains and myths. It is to find a fragmentary, distorted reflection of primeval memory in the dance of mist and vine and water on stone.

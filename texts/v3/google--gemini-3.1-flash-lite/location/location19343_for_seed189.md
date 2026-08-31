@@ -1,0 +1,17 @@
+You descend through a fissure in the crust, expecting the crushing dark of the mantle, but instead, you arrive in the *Trachea of the World*.
+
+It is deep underground, yet it is brilliant. The space is a singular, colossal botanical cavity—an internal lung of the planet. There is no earth here, no stone, no soil. The substrate is entirely living pulpy mass: thick, translucent, pulsating walls of bioluminescent xylem that curve like the ribcage of a giant. Beneath your feet, the "ground" is a spongy, moss-like carpet of interlaced root-hairs that wetness clings to. It is perpetually damp; a fine, warm condensation rolls off the ceilings, dripping in rhythmic, heavy beads that taste faintly of copper and elderberry.
+
+The density is hauntingly low. The space is vast, cavernous, and hollow—a gargantuan, empty chamber where the distant walls are obscured by a shimmering, golden-green haze. You feel small, not because of the presence of things, but because of the terrifying expanse of the void between the growths.
+
+The weirdness is absolute. Gravity behaves as if it is struggling to decide on a direction. Occasionally, a single drop of water will detach from the ceiling and ascend rather than fall, drifting upward until it is absorbed by a hanging, fern-like gill. There is no day or night, but the plants breathe. Every sixty seconds, the entire ecosystem undergoes a *systole*; the walls contract with a low, tectonic groan that vibrates through your marrow, and then expand again with an audible, sharp inhalation—a sound like a thousand wooden flutes played at once.
+
+This is a place of early-formation, fresh as a wound. Tendrils are constantly unfurling, their tips translucent and jagged, snapping into place with the sound of breaking glass. There is no construction here, yet the architecture is sophisticated. Trees do not grow up; they bridge across the void, weaving themselves into living lattices that create hollowed-out, cathedral-like geometries. 
+
+Fauna is rare, but strange. Twice now, you have seen a creature that looks like a bundle of nerves wrapped in wet silk, scuttling across the ceiling-walls, leaving a trail of shimmering, neon-blue fluid that evaporates before it hits the floor. They move with an unnatural, jerky speed, seemingly aware of the room’s heartbeat.
+
+You find a tool resting on a bed of pulsating lichen. It is a handheld object of primitive fabrication—a shard of serrated, fossilized bark bound to a handle made of petrified vein-matter with crude, woven fiber. It is not yours, but the wood beneath it is warm, as if the object itself is trying to integrate into the wall it rests upon, absorbing the tool back into the body of the room.
+
+The light is thick, golden, and ambient. It seems to emanate from the sap circulating within the walls, casting everything in a surreal, deep-amber glow. Every sound you make is amplified, rippling through the hollow air and returning to you as a distorted echo, colored by the rhythmic pulsing of the vegetation. You are standing in the center of a living, breathing internal climate, a place that is not merely growing, but *thinking* in beats.
+
+You are not entirely sure if you are breathing the air, or if the room is slowly inhaling you.

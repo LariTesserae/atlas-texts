@@ -1,0 +1,23 @@
+The caldron breathes.
+
+Deep within the mountain's newest wound—a collapse no more than a decade old—superheated vapor rises through hexagonal vents arranged in perfect mathematical spirals. The chamber spans perhaps thirty meters at its widest, carved from obsidian-black volcanic glass that still holds the memory of its violent birth. Sharp edges catch what little light filters down through the steam, creating brief prisms in the moisture-heavy air.
+
+The sound never stops. It's a resonant thrumming that seems to come from the stone itself, punctuated by the shriek of escaping gases and the percussion of water droplets exploding against surfaces too hot for their survival. The frequency shifts in patterns too complex to be natural—rising and falling in harmonics that suggest design rather than chance.
+
+Scattered across the chamber floor, half-buried in fresh volcanic ash, are structures that shouldn't exist here. Pyramidal forms no larger than a fist, constructed from what appears to be frozen lightning—branching crystalline networks that maintain impossible right angles while following organic growth patterns. They pulse with their own heat signatures, drinking the geothermal energy and converting it into something else. The air shimmers around them with more than just heat distortion.
+
+Vegetation struggles but persists. Thin films of thermophilic algae paint acid-green abstracts on any surface cool enough to support them. In the few spots where condensation pools before evaporating, strange tubular growths emerge—not quite plant, not quite fungus. They're translucent, revealing internal structures that pump and circulate fluids in defiance of what should be possible without a vascular system. When the chamber's harmonic frequency hits certain notes, they contract in unison, releasing spores that glow briefly in the infrared before burning up.
+
+The moisture here is aggressive, opportunistic. It exists as superheated steam one moment, then condenses instantly on cooler surfaces, only to flash back to vapor in seconds. This creates a constant cycle of wet and dry that has etched elaborate patterns into every surface—dendritic channels that look almost like circuitry, carrying brief rivers of scalding water before they vanish again.
+
+Above, where the chamber opens to the sky through a jagged chimney, the outside world seems impossibly distant. The altitude is evident in the thin quality of what air manages to mix with the volcanic gases. During the brief moments when the steam clears, you can see stars even in daylight—cold points of light that seem wrong somehow, as if viewed through a lens that hasn't been invented yet.
+
+The crystalline structures are growing. Measurements would show them adding mass at a rate that violates conservation laws, pulling material from somewhere else. They're building something—a pattern emerging from their placement that suggests they're components of a larger mechanism. The harmonic frequencies are instructions, and the chamber is following them, reshaping itself grain by grain.
+
+Sometimes, in the pocket of relative cool where two steam currents create a small eddy, condensation lasts long enough to form proper droplets. When these strike the crystalline structures, they don't sizzle away. Instead, they're absorbed, and for a moment the crystals sing—a pure tone that makes the volcanic glass resonate in sympathy. It's during these moments that the other sounds emerge: whispers in no language, mathematical progressions expressed as melody, the suggestion of vast machinery spinning just beyond the range of perception.
+
+This is a new place becoming something newer. A wound in the earth that's being retrofitted into something else entirely. The old volcanic forces provide the power, but the design comes from elsewhere—from the crystalline seeds that arrange themselves according to rules that physics hasn't quite caught up to yet. 
+
+The chamber is small enough to cross in fifty steps, but it's connected to something much larger. The frequencies it generates propagate through the mountain's bones, turning the entire peak into a resonating cavity. What's being built here is just the mouth of something—a single note in a composition that requires geological time to perform.
+
+And in the constant cycle of steam and condensation, in the sharp-edged shadows cast by alien geometries, in the sparse life that adapts to impossible conditions, the process continues. The caldron breathes, and with each breath, it becomes more itself—or more accurately, more what it's being instructed to become.

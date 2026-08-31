@@ -1,0 +1,37 @@
+The place is a small basin cut into the summit of a newly risen mountain.
+
+It is not a valley in the usual sense. There is no long approach, no gradual ascent from foothill to high country. The land ends abruptly on every side in dark, young cliffs, and the basin itself occupies no more than a few acres: a shallow bowl of black stone suspended above the cloud line. Beyond its rim, the world falls away into white vapor. Sometimes the clouds lift enough to reveal distant ranges beneath, blue and indistinct, but most of the time the basin appears to be an island in the sky.
+
+The rock is fresh-looking. Its surfaces are sharp, glassy, and only lightly stained by age. Ridges stand in unsoftened blades. Fissures run straight down the walls, still too narrow for roots and too clean for much soil to have collected in them. In places the mountain seems to have been split open only recently, its interior exposed in charcoal slabs and green-black mineral seams. Loose stone lies everywhere, but the stones have not yet learned to become gravel. They are angular fragments, each with a wet shine.
+
+Water is close beneath the surface. It gathers in the seams, beads on the walls, and emerges from the rock in dozens of thin, steady threads. The cliffs weep. Rain is common, but even during clear weather the air remains damp enough for droplets to form on the metal railings and the undersides of leaves. A low mist drifts through the basin at ankle height, collecting in the hollows and spilling over the lower rim like slow smoke.
+
+The warmth is strange at this elevation. It does not come from the sun, though the sunlight is ordinary and bright when the clouds permit it. Heat rises through the stone from below. The basin floor is divided into patches of cool black rock and steaming ground. In some places, moss grows over warm vents and never freezes; in others, the water is hot enough to leave mineral lace around its edges. The air smells of wet iron, crushed leaves, sulfur, and the faint oily tang of machinery.
+
+Vegetation has taken advantage of the mountain’s youth before the mountain has finished forming itself. Lush growth fills every stable pocket. Ferns crowd the cracks, their fronds broad and glossy, brushing against one another whenever the wind moves through them. Low trees—more like dense, twisted shrubs at this elevation—lean out from the cliff walls, their roots gripping shelves of stone. Their leaves are dark, almost blue-green, and shine as though varnished. Vines descend in curtains from the upper ledges, trailing into the mist. Moss covers the older surfaces in thick cushions, while new green shoots push through the black rubble in a constant, quiet assertion.
+
+There is very little soil. The vegetation grows in mats, in root tangles, in accumulated leaf rot trapped behind stones. A single fallen branch can become a garden. Water carries seeds into every depression, and each depression becomes crowded. The plants overlap in layers: moss beneath grass, grass beneath fern, fern beneath climbing stems, all pressed close by the narrowness of the basin. The greenery feels less like a forest than a living fabric stretched over unfinished rock.
+
+Only a few animals live here. Insects are present in small, concentrated bursts around the warm pools, their wings ticking against leaves. Tiny pale moths gather under the lamps of the industrial structures, though no one knows how they reach the summit. Once in a while a long-legged bird crosses the basin in silence, landing briefly on a cable or a broken tower before vanishing into the mist. There are no grazing animals, no predators, no visible nests. The place is too isolated, and the cliffs are too young. The plants have arrived first.
+
+Across the basin stand the remnants of an industrial installation.
+
+It was built into the mountain rather than placed upon it. A narrow line of metal towers follows the highest rim, their bases bolted directly into the rock. Pipes descend from them into the greenery, vanishing among the ferns and reappearing beside the hot springs. There is a squat pumping house at the center of the basin, made of corrugated steel gone orange with rust. One wall has collapsed inward, but the machinery inside still operates.
+
+The engines run continuously.
+
+They do not roar like large generators. Their sound is lower and more physical: a slow, enormous churning beneath the earth, punctuated by the clank of valves and the heavy release of steam. Every few minutes, a pressure system exhales through a pipe, producing a long blast that rolls against the cliffs and comes back altered. The basin is loud even when nothing visibly moves. Water hisses over stone. Fans turn behind grilles. Cables hum in the wind. The metal structures knock and tremble with the patient rhythm of the mountain.
+
+There are no workers. No roads reach the basin, and no landing platform remains intact. A small elevator cage hangs motionless against one cliff, its cables descending into cloud. Its windows are opaque with condensation. A faded warning placard is fixed to the door, but the symbols have been worn down to simple black bars.
+
+The machinery appears to be extracting something from the mountain’s interior—heat, pressure, or perhaps water—but it does so with remarkable slowness. Gauges twitch by fractions over the course of a day. Pistons complete their strokes only once every several minutes. The pumps draw from the deep rock and feed warm water through elevated pipes, where it cools enough to spill into channels lined with ferns. The installation is not failing exactly. It is simply continuing after its purpose has become obscure.
+
+The world here obeys a few quiet rules.
+
+Water always finds a lower surface, but heat can make it climb. Steam rises through narrow cracks and sometimes condenses above them, falling back as warm rain. Plants grow fastest beside abandoned machines, feeding on the minerals and the faint electrical leakage in the soil. Metal left untouched becomes part of the ecology: moss enters its seams, roots wrap around its brackets, and mineral deposits build pale shelves over its bolts.
+
+Nothing changes quickly. A cliff face may shed one stone in a season. A pipe may sink an inch into the vegetation over a decade. The basin’s streams alter their channels by imperceptible degrees, though after many years they have cut new grooves through the black rock. Even the mist seems slow, gathering and dispersing according to a rhythm longer than weather.
+
+The loudness gives the impression of activity, but the place is fundamentally still. Its engines labor without haste. Its water circulates. Its plants thicken. Its sharp geology softens by millimeters.
+
+In clear light, the basin is intensely green against the black stone, with bright metal flashes among the leaves and white vapor rising from the ground. In cloud, it becomes closer and more intimate: a wet room bounded by cliffs, cables, dripping vegetation, and the steady pulse of hidden machinery. The sky disappears. The far world disappears. Only the near surfaces remain—the slick rock underfoot, the crowded leaves, the warm pipes, the trembling rails, and the mountain breathing through its valves.

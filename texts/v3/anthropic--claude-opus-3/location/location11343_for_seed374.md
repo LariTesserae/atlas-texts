@@ -1,0 +1,13 @@
+The first thing that strikes you upon entering this strange town is the oppressive humidity, water droplets clinging to every surface and condensing in the warm air. A fine mist permeates the valley, obscuring details in the dim light and muffling the cacophony of sound that assaults your ears from all directions.
+
+The settlement is densely packed, structures crowding together and piling atop one another in a haphazard jumble. Crude buildings of stone and mud brick jostle for space, linked by a chaotic web of narrow alleys and rickety wooden walkways. In places, dwellings are carved directly into the porous, water-weeping rock of the valley walls.  
+
+Despite the primitive building materials and techniques, the sheer scale and density is staggering - an entire small city crammed into this muggy basin. Everywhere teems with life. In the absence of vegetation, a riotous variety of fungal growths coat every surface in lurid colors. Strange gray mosses dangle from eves and span between buildings like tattered curtains.
+
+But the dominant lifeform is clearly the fauna. A mind-boggling array of crawling, flying, slithering, burrowing creatures saturate the environment in unimaginable numbers. Tentacled snails the size of cats inch along walls. Iridescent beetle-like things skitter underfoot. Pale eyeless fish wriggle in shallow pools. Furry many-legged beasts carry loads along the walkways. A constant drone of chirps, chitters, bellows and eerie undulating calls layer into a deafening din.
+
+The inhabitants seem to have achieved a strange symbiosis with the creatures. Some are clearly domesticated - penned, harnessed, or following human commands. Others roam free, weaving around and between the human activity. Piles of droppings, shed skins and carapaces litter the ground, evidently a key resource in this world devoid of plant matter.
+
+The muggy air is thick with an aroma at once earthy, fungal, animal and faintly sulfurous - not quite foul, but oppressively organic. Cookfires add occasional whiffs of smoked meat and spices to the mix. Oily mud squelches underfoot, and condensation drips steadily from above.
+
+Despite the chaotic energy, there is an aura of ancient timelessness about the place. Buildings are worn and weathered, but show no signs of growth or change. Even the creatures and people move about their tasks with a rote, almost ritualized air. It feels like an equilibrium, no matter how strange - an eternal dance between rock, water, fungus, beast and human playing out forever in this shrouded, pungent, noisy valley.

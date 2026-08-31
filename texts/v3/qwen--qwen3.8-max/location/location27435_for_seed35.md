@@ -1,0 +1,3 @@
+**The Dry Nave**
+
+Below a pale mineral plain, where the surface is crust and crack and no river remembers it, there is a hollow just beneath the rock. It is not deep enough to feel abyssal, nor shallow enough to feel near the sky. It is a sealed room held in the earth’s palm: curving walls, a vaulted roof, a floor broken into low terraces. It has the size of a cathedral nave, but no procession ever crosses it. Its boundaries are close and definite. From the center, one can sense all edges of it, not because the light allows it, but because the sound returns from them in layers.

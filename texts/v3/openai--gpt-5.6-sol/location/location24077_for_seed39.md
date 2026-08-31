@@ -1,0 +1,41 @@
+At nearly five thousand meters, the valley does not look worn into the mountains so much as newly exposed between them. Its floor is broad, shallow, and unfinished: a spread of gray till, blue-black stone, and pale mineral flour left behind by a glacier still withdrawing into the upper cirques. The surrounding summits rise abruptly, without foothills or softened profiles. Snow adheres to their shaded faces in long vertical seams. Where the rock has recently broken, it is almost metallic—greenish slate, iron-dark basalt, fresh granite with quartz shining through it.
+
+There is little soil. Water runs directly over the raw substance of the range.
+
+It comes from many places but seldom gathers into anything grand. Meltwater threads through the gravel in clear, divided channels, vanishing beneath bars of stone and surfacing again farther down. Springs swell silently under the moraine until the ground becomes dark and tremulous. Along the margins of the valley are shallow marshes no deeper than a hand, their surfaces filmed with thin ice each night and released again by afternoon. Rock faces weep even in cold weather. Condensation beads beneath overhangs and hangs there, unable to decide whether to freeze or fall.
+
+Rain is frequent but slight: hard, needling showers carried sideways from cloud banks that form against the peaks. Afterward every stone acquires a black gloss, and the mountain colors briefly deepen—rust, charcoal, chalk, dull violet. Puddles occupy impressions in the till where no basin existed the previous season. Some will persist and become tarns. Others will be filled by the next small collapse of loose ground.
+
+Nothing here has had time to become rounded. Ridges of debris retain the steep, blunt forms in which the ice abandoned them. Boulders sit on top of fine sediment as if unloaded. Streams have only begun to negotiate their courses. They repeatedly divide, block themselves, and start elsewhere. The valley’s erosion is not yet a long history but a set of first attempts: the first undercut bank, the first fan of silt beneath a gully, the first hairline frost crack entering an exposed slab.
+
+The glacier remains visible at the head of the basin. It is not picturesque. Its lower end is dirty, fractured, and purposeful-looking, striped with rubble and crossed by drainage grooves. From a distance it resembles a stalled industrial plant made entirely of pressure and weather. Ice enters from the accumulation fields above; stone emerges crushed, sorted, and conveyed downslope. Hidden water hammers through tunnels beneath it. Frost lifts blocks from the cliffs, avalanches deliver them to the ice, and the ice carries them onward. No one built this machinery, but it operates at continental scale, slowly and without pause.
+
+Its products are everywhere: powder suspended in the streams, ranked heaps of moraine, polished bedrock, boulders scored with parallel lines. On warmer afternoons, the outwash channels turn cloudy silver. The whole valley becomes a processing floor for mountain material—crushing, sluicing, freezing, transporting—yet it remains nearly empty to the eye.
+
+Vegetation survives in low, widely separated patches. There are mats of sedge around the springs, moss pressed flat against wet stones, and dark lichens establishing themselves on faces that have been bare for only decades. Cushion plants form dense green hemispheres in sheltered hollows, each one scarcely higher than a thumb. Their flowers are small and disproportionately bright: yellow, white, occasionally a deep alpine blue. Between these patches lie tens or hundreds of meters of stone.
+
+Nothing grows upright. The air will not allow it.
+
+The emptiness is deceptive because animals are abundant, though most are low, distant, or in motion. Pikas inhabit the moraine, carrying clipped stems into cracks and giving brief, sharp calls before disappearing. Their paths form fine networks through the scree. Colonies may number in the hundreds without more than a few individuals being visible at once.
+
+Above them, raptors work the basin methodically. They circle without flapping, cross the valley, vanish against a wall of cloud, and return lower. Ravens patrol the glacier edge for carcasses and stranded insects. Flocks of small finches descend on the marsh margins, feed rapidly among the sedges, then rise together in a single dark turn.
+
+Farther out on the open flats, herds of wild ungulates move between mineral licks and patches of grass. Their coats are heavy and faded to the colors of the ground. At rest, they resemble scattered boulders; only the coordinated lift of their heads reveals how many there are. Calves test the unstable banks, leaping channels that alter from week to week. Predators follow at great distance, conserving themselves in the thin air. A fox may spend an hour crossing the valley, appearing and disappearing behind ridges no taller than its body.
+
+The wetlands hold a second, less visible abundance. Larvae occupy the cold shallows. Beetles shelter beneath waterlogged stones. Midges rise during brief intervals of calm, forming loose columns over the warmer pools. Frogs, dark and small, remain close to geothermal seeps and sun-warmed margins where ice cannot persist all day. Migratory birds arrive in season and spread across the marshes, feeding in silence except for occasional wingbeats and low contact calls.
+
+Because the land is open, movement can be seen from far away. A herd takes half a morning to cross the basin. A rain squall can be watched coming for an hour, its lower edge trailing gray streamers. Shadows of clouds advance over the till like stains. Sunlight sometimes opens on a single distant slope while the rest of the valley remains dim.
+
+Most of the time the sky is a low ceiling of layered cloud. Light reaches the ground filtered and bluish, without clear direction. Snowfields appear luminous beneath it, while exposed rock loses depth and seems almost flat. In late afternoon, the clouds may thin enough for a cold yellow band to form above the western ridge. It lasts only minutes. Then the basin returns to gray, and frost begins spreading across still water from the edges inward.
+
+The quiet is large but not absolute. Close to the glacier there are internal reports: a crack like distant timber breaking, a muffled collapse, the sudden rush of water released from beneath ice. Gravel ticks down steep faces after a thaw. Wind passes over the open ground with a dry hiss, though the valley floor is wet. Animals contribute brief sounds rather than continuous noise—the alarm note of a pika, hooves striking stone, the rough croak of a raven, wings touching water.
+
+Long intervals pass with only the streams audible.
+
+There are no roads, walls, cairns, cables, cut surfaces, or discarded objects. Nothing establishes a human measure. Distance is judged by weather and by the time animals take to travel. What appears to be a nearby ridge may require hours to reach; what looks like a small patch of snow may be a field broad enough to swallow a herd.
+
+The valley’s governing rule is that almost everything is temporary, but very little is hurried. Water continually redraws the channels. Frost opens the rock. Ice retreats, pauses, and sometimes advances over its own debris. Marshes form on sediment too young to hold them securely. Plants root, trap dust, and begin the first thin manufacture of soil. Animals graze those beginnings, predators harvest the grazers, and bodies return scarce nutrients to the cold ground.
+
+It is an active place without bustle, populous without looking crowded, wet without softness. Its industry is entirely geological and biological: the glacier grinding stone, the streams sorting it, the wetlands catching it, roots binding it, stomachs converting it, winter halting it, and summer starting the line again.
+
+The mountains are immense, but the landscape’s true character lies in these first small operations. It is not an ancient wilderness polished into grandeur. It is a high, cold region still assembling itself.

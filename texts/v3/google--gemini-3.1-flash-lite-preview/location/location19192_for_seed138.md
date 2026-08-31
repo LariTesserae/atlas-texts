@@ -1,0 +1,15 @@
+The air here is a heavy, pressurized soup, tasting of ozone, rusted iron, and hot, stagnant water. This is the **Basin of the Weeping Pistons**, a pocket-sized industrial sprawl sunken into a shallow, limestone depression that never seems to drain.
+
+Everything is locked in a state of absolute, frantic equilibrium. The geography is young—the surrounding walls of raw, jagged stone are still sharp enough to cut skin, showing no signs of age-old weathering, yet they are perpetually saturated by a light, tepid spray that seeps through the porous rock strata. The water doesn't flow; it hangs in the air as a thick, condensing mist before settling into shallow, greasy pools that coat the floor.
+
+The town itself is a dense, claustrophobic arrangement of brass-wrought platforms and riveted walkways, built in cramped, layered tiers that hug the base of the basin. The construction is relentlessly utilitarian—pulleys, hissing hydraulic lines, and copper conduits run like veins across every surface. There is no decay, no entropy, and no evolution. The machines do not break; they do not wear down. They hum with a stable, monotonous roar that vibrates in one’s teeth, a sound that has remained at the same decibel and frequency for an eternity.
+
+Vegetation is a rare sight, and when it appears, it is sickly and sparse: thin, translucent mosses that map the leaks in the piping, clinging to the junctions where steam meets cold iron. They take no nourishment from the soil, instead filtering the aerosolized industrial waste that permeates the room-scale expanse.
+
+The fauna, however, is paradoxically abundant. There are no birds or mammals here, but the pools are teeming with clockwork-like crustaceans—scuttling, segmented shapes that emerge from the dark, warm water to pick at the grease around the gaskets. They move with rhythmic, jerky precision, their chitinous shells clicking in perfect synchronicity with the rhythmic pulse of the ventilation fans above. 
+
+There is no natural light. The environment is illuminated by low-hanging electrical filaments housed in thick, wet-frosted glass globes. They cast a dim, sickly yellow hue that struggles to pierce the fog, leaving deep, unchanging shadows between the machines. 
+
+Movement within the Basin is structured. Because of the frozen-equilibrium, there are no seasons and no degradation; the gears don't rotate to move goods, they rotate because rotation is their fundamental state of existence. The inhabitants—if one can call the small, silent maintenance drones that skitter across the rafters "inhabitants"—never deviate from their paths. They weld seams that don't need sealing; they clear condensation from pipes that are destined to weep again in the next micro-second. 
+
+It is a place of intense, productive motion where nothing is ever accomplished. It is a cathedral to the industrial cycle, small enough to traverse in an hour, yet so heavy with heat and humidity that every step feels like wading through cooling lead. You are not visiting a city; you are visiting a single, permanent note in a machine that refuses to stop and refuses to finish its work.

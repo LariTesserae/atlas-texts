@@ -1,0 +1,15 @@
+As you approach, the first thing that strikes you is the heat - an oppressive, all-encompassing warmth that seems to radiate from every surface. The landscape before you is a dense, chaotic jumble of sharp volcanic formations, their black obsidian surfaces gleaming in the harsh light. These aren't the gentle slopes of an old volcano, but a fresh, angry eruption frozen in time.
+
+The terrain is a labyrinth of razor-edged lava pillars, some as tall as cathedrals, others barely reaching your knees. They're packed so tightly together that navigating between them requires careful maneuvering, the narrow paths twisting and turning unpredictably. The ground beneath your feet is a mosaic of cooled lava fragments, still warm to the touch, creating a treacherous and unstable surface.
+
+Despite the overwhelming dryness, there's a persistent dampness in the air. Steam hisses from cracks in the ground, creating pockets of suffocating humidity. Occasionally, you come across small pools of water trapped in the hollows of the lava formations. These pools are alive with activity - miniature ecosystems teeming with strange, heat-loving microorganisms that tint the water in shades of rust and sulfur.
+
+Vegetation is sparse but tenacious. Hardy ferns with metallic-looking fronds cling to the sides of the lava pillars, their roots somehow finding purchase in the seemingly impenetrable rock. In the areas where steam consistently rises, you find patches of moss-like growth that glow faintly in the dim recesses between the rock formations.
+
+The soundscape is a cacophony of geological activity. The constant background noise is a deep, resonant rumble from beneath the earth, punctuated by sudden cracks and pops as the newly-formed landscape settles. Steam escapes in high-pitched whistles, and occasionally, a distant boom echoes through the maze of rock, hinting at ongoing volcanic activity just out of sight.
+
+Wildlife is scarce, but not entirely absent. You catch glimpses of small, iridescent lizards darting between the rocks, their scales shimmering with heat-resistant properties. High above, large birds with elongated, heat-sensing beaks circle lazily, riding the thermals rising from the warm ground.
+
+There are hints of a past or present intelligent presence, but they're subtle and scattered. You might find a perfectly spherical hole drilled into a lava pillar, or stumble across a series of stepping stones placed with unnatural precision across a particularly treacherous patch of ground. But there are no tools, no structures - just these occasional, puzzling traces that make you question the purely natural origin of this landscape.
+
+As day turns to night, the environment becomes even more alien. The heat stored in the rocks radiates outward, creating shimmering mirages in the cooler air above. The faint bioluminescence of the moss becomes more pronounced, casting an eerie glow through the steam. And in the distance, beyond the maze of lava pillars, a red glow pulses rhythmically, hinting at the living heart of this volatile, ever-changing landscape.

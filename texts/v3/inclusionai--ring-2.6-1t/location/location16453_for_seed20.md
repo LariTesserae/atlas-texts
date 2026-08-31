@@ -1,0 +1,41 @@
+## The Drowning Altar
+
+You hear it before you see it. That is not possible — you are already inside — but the sound arrives first because there is nothing here to look at that could prepare you.
+
+The water is everything, but it does not behave like water.
+
+It hangs. Above you, below you, at every azimuth — water suspended in volumes that should not hold it. Not rain, exactly. Not mist. Something between the two, thick as gauze and twice as heavy, hanging in the cathedral space of a world still being born. The altitude is evident in the ache behind your sternum, the slight reduction of each breath, but up here the air is not air: it is semi-liquid, a medium you swim through standing upright. Your clothes are always wet. Your skin is always wet. The moisture does not bead or run — it sits on surfaces like a second skin, and the light, what little there is, cannot penetrate it cleanly. Everything glows dull amber, the color of a candle seen through resin.
+
+The light comes from nowhere. Or from everywhere. It is diffused so thoroughly by the aqueous atmosphere that shadows do not exist. There are no sources. The dimness is not the dimness of night or of obstruction — it is the dimness of a place where photons have given up trying to travel straight. The water in the air eats light and gives back only a persistent, sourceless murk, like the inside of a cloud that has forgotten what sun it once knew. Occasionally — rarely — something brighter pulses far above, a white-blue flash with no echo, as though the sun is trying to remember how to reach this place and keeps failing.
+
+The ground is young. Terribly young.
+
+It looks like it was poured. Basalt-black, striated with veins ofite and quartz that have not yet dulled to their future smoothness, the surface is a map of violence that happened moments ago in geological terms. Ridges rise in blade-thin fin formations, no wider than your hand, no taller than your knee, packed together like the ridges of a fingerprint or the bellows of some vast calcified lung. There is no soil. No sand. What lies between the ridges is bareite — oriteite smoothingite away — as ifite is in such a hurry to become something else that it cannot pause long enough to disguise itself.
+
+The scale of it, once you are here, is deceptive. From the edge — if you can find an edge — it looks like a bounded place, a room, a basin, something you could walk the perimeter of in an hour. But once you descend into the ridge formations, the space unfolds. It is cathedral-scale not because it is large but because it is *deep*. Vertical. The basalt fins create corridors and chambers and sightlines that compress and expand, and you are never quite sure whether you are looking at something ten meters away or a hundred. The water in the air eats distance the same way it eats light. Acoustics fold. A drip — if it is a drip, if the sound is a drip — arrives from three directions simultaneously.
+
+And the sound.
+
+The sound is the place.
+
+It is not one sound. It is a stack of sounds, layered and simultaneous, at a volume that makes your chest wall feel like a struck membrane. The water — the suspended, stage-mist, not-quite-liquid, not-quite-gas water — vibrates. It vibrates constantly, as though it is being played by something vast and invisible. A low drone underlays everything, a C below the threshold of hearing that you feel in your molars. On top of that: cracks. Tiny, sharp, continuous cracks, like ice forming on a lake the size of a continent, except there is no ice, and there is no continent, and the cracks are happening inside the material of the air-water itself. Minute fractures in the medium. Reality sheeting apart. On top of that: rushing, not like river water but like the sound a landscape makes when it is assembling itself, material arriving from nowhere, stacking, collapsing, reassembling. A continuous debris-flow of something that is not quite matter. And threaded through all of it, a high keening, almost tonal, almost melodic, as though the young basalt is ringing in sympathy with whatever process is shredding and rebuilding the world at ankle-height around you.
+
+The structures — you notice them only after an hour. Maybe longer. It is hard to tell time here. They are scattered, faint things. Not buildings in any sense you would recognize. A column of stacked,ite cobbles rising shoulder-height, un-mortared, trembling slightly in the aqueous air. A low wall of the same basalt fins, curved into an arc that suggests an apse or a hearth but commits to neither. In one direction, a single upright stone, twice your height, with no markings but a surface that seems to shift when you are not looking directly at it — as though it exists more firmly in peripheral vision, as though direct observation destabilizes it. These are not built so much as *left behind* — remnants of an intention that was abandoned before completion, or of a construction process that has not yet learned to be consistent. Scattered. Sparse. The architecture of a world whose relationship to permanence is still under negotiation.
+
+Life here is a rumor.
+
+You see one thing that might be a plant, but it is hard to say. It is a thin,black tendril emerging from a crack in a basalt ridge, no thicker than a vein, rising perhaps thirty centimeters before curling into a shape that looks almost like a question mark. It does not move in the heavy air. It is the only green — almost the only color — in a landscape of black stone and amber murk. You cannot tell if it is alive, if it is mineral, or if it is something the place is still deciding about. No other vegetation. No insects. No birds — there are no birds because there is no sky, not really, only the water-thick ceiling that glows its dim, sourceless glow.
+
+Every few minutes — or what feel like minutes; time is unreliable here, stretching and compressing — something changes. Not dramatically. But noticeably. A ridge you were leaning against is suddenly two meters taller. A corridor you passed through has developed a side chamber that was not there before. The column of stacked stones has reorganized itself into a spiral. The ground ripples — *ripples*, the basalt, the solid ground, rippling like a pond disturbed by a dropped stone, except the stone is the stone beneath it and it is falling upward. This is the dynamic, the turbulence: the place is not finished. It is not becoming. It is *continuing to originate*, and origination is loud, and origination is violent, and origination sounds like everything at once.
+
+There are no people here. There are no paths. The warmth is not comfort — it is the warmth of something that is metabolizing, of chemical reaction running at a pace just below discomfort, the heat of a world that is still converting itself from raw material into something that might, eventually, be stable. Your body warms in response to it. Your breath fogs, but the fog joins the water in the air and is lost.
+
+You do not stay long. Not because you cannot — the place does not forbid it, nothing forbids anything here — but because the sound builds. The longer you remain, the more layers you hear. Under the keening of the young basalt, under the cracking of the air-water, under the rumbling of assembly, there is a sound like language. Not words. A pattern. As though the place is trying to say something and is cycling through every possible combination of pressure and release to find the right one. It vibrates in the water in your lungs. It hums in the blood behind your eyes.
+
+You leave. The ridges rearrange themselves as you go, and behind you the footprint you pressed into the young basalt fills with water that is not quite water and hardens almost immediately, so that by the time you look back, there is no trace you were ever here. The place has already forgotten you. It is too busy becoming to remember.
+
+The water thickens overhead. The light dims further. The sound — the sound stays with you for hours afterward, ringing in the architecture of your own skull, a frequency you cannot name, a volume you cannot escape.
+
+You realize, later, that it was not the place that was deafening.
+
+It was the place trying to hear itself.

@@ -1,0 +1,17 @@
+The place is the Flensing, a district in the belly of the Engine-City of Khrel. Imagine the inside of a vast sea creature, long dead but still animate with the thrum of industry, and you’re close. Everywhere is wet, not with rain or river, but condensation. The air itself weeps, collecting on pipes, dripping from girders, forming slick patches on the gritted-steel walkways. The Flensing is perpetually dim, lit by flickering gaslights and the dull red glow of the slag-furnaces that dominate the skyline.
+
+Vegetation clings to every surface available. Algae blooms in the stagnant pools of coolant that gather beneath leaking valves. Moss, thick and luminous, carpets the brickwork and rusts the metal, glowing faintly in the gloom. Fungal shelves, some soft and pastel, others hard and black as iron, sprout from every crevice, their caps glistening with moisture. The air is thick with spores, a constant, cloying presence.
+
+It is warm, a humid warmth that clings to skin and clothing. The heat emanates from the furnaces, the foundries, the uncountable engines that grind and churn beneath the city. The Flensing is a pressure cooker, a place where the city's byproducts are broken down and reprocessed. The low elevation amplifies this effect; it is a sump, a place where everything eventually drains.
+
+The architecture is a riot of rust and corrosion. Buildings lean against each other for support, their facades stained black by decades of soot and grime. Steel walkways crisscross the district, connecting factories and foundries like arteries. The buildings are old, worn, and densely packed. Everything is layered, added to over time with no coherent plan. This is not a place of grand avenues and imposing facades, but of narrow alleys and hidden workshops.
+
+Erosion is a constant force here. Water and acid eat away at the infrastructure, turning metal to powder and brick to mud. But this is an established erosion, a state of equilibrium. The Flensing has been decaying for so long that the process has become part of its character. The slow, patient decay is part of the rhythm here.
+
+The sound is cacophonous: the roar of furnaces, the clang of hammers, the shriek of saws. It is overwhelming, a constant barrage to the senses. Yet, within that noise, one can distinguish patterns, cycles. The rhythmic thump of a steam hammer, the rising and falling pitch of a ventilation fan, the steady drip-drip-drip of condensation falling into a pool of oil. The sound is loud, but consistent.
+
+This is the Flensing, where industry and decay have reached an understanding. The Engine-City breathes, and the Flensing is the place where its most noxious exhalations are consumed. It’s orderly for all its decay and chaos; the processes run themselves, on cycles that are longer than human lifespans.
+
+Despite the apparent chaos, everything here serves a purpose. The algae blooms filter pollutants from the air. The fungal growths break down waste materials. The dripping condensation washes away grime. Even the erosion plays a role, slowly dissolving the old to make way for the new.
+
+The weirdness emerges from the balance of these forces. The Flensing is unlike any other district. It is a place of transformation, of decay into creation. It is a place of life, though animal life is absent, replaced by the strange ecology that has sprung into existence to fill the void. It is a place of beauty, in its own grimy, decaying way.

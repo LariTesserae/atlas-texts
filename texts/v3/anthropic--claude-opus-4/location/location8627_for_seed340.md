@@ -1,0 +1,25 @@
+The Vertical City of Moths
+
+High in the mountains, where the air grows thin and frost etches permanent patterns on stone, an impossible city clings to a sheer cliff face. The settlement appears at first like a vast fungal growth—pale industrial structures sprouting directly from the rock, connected by a delicate lacework of bridges and cables that span the emptiness between platforms. Each building seems to have grown rather than been built, their forms following some organic logic despite their clearly manufactured nature.
+
+The city exists in perpetual twilight. Though the sun tracks across the sky above, down here in the shadow of the mountain, light arrives filtered and indirect. What illumination there is comes from the factories themselves—a soft, persistent glow emanating from ventilation grids and window slits, the byproduct of whatever silent industry churns within.
+
+And there is industry here, though of a peculiar sort. The factories process no water, grow no plants. Instead, they harvest something from the air itself—invisible currents that flow up the cliff face, condensing into solid form through massive intake turbines that turn so slowly they seem frozen. The turbines' blades are pocked with holes, worn smooth by centuries of operation, creating a geometry that catches the wind without sound.
+
+Between the industrial platforms, vast empty spaces yawn. A dropped tool might fall for thirty seconds before striking anything solid. The bridges that span these voids are minimal things—single cables with mesh walkways barely wide enough for one person, swaying gently in the mountain updrafts. The residents traverse them without fear, their movements deliberate and unhurried.
+
+The residents themselves are difficult to spot at first. They move like shadows against the pale structures, wrapped in gray protective gear that makes them nearly invisible against the industrial backdrop. But look closer and you'll see them everywhere—maintaining the turbines, adjusting valves, carrying small loads across the bridges. They work in silence, communicating through gestures evolved over generations for this quiet place.
+
+And then there are the moths.
+
+They cluster on every surface, wings the exact color of weathered concrete. Thousands of them, perhaps millions, coating the outside walls like living insulation. They barely move during daylight hours, but as evening deepens, they begin to stir. First one, then dozens, then clouds of them lifting from the structures in silent spirals. They feed on whatever the factories exhaust—some chemical or energy that sustains them. The relationship is clearly symbiotic; the city needs the moths as much as they need it.
+
+The moths are not the only fauna. Adapted creatures nest in the cliff face itself—things that look like barnacles but breathe, filtering nutrients from the thin air. Long-limbed climbers with too many joints traverse the vertical surfaces, maintaining the city's exterior where humans cannot safely go. They move with mechanical precision, as if programmed, though they bleed when cut.
+
+Time moves differently here. A broken window might take a decade to fully shatter, its cracks spreading imperceptibly across the years. The factories' production cycles span months or possibly years—no one seems to hurry. The bridges sway in winds that blow for seasons at a time. Even the moths' life cycles stretch beyond normal comprehension, individual insects living for decades, their wings gradually wearing transparent.
+
+At the city's heart, accessible only by a spiral of platforms that cork-screw up through the center of the settlement, stands the primary processing facility. Its turbines are ancient things, their metal worn smooth as glass. Whatever they extract from the air gets refined here, transformed through industrial processes that produce no smoke, no waste, only that soft eternal glow and a faint thrumming felt through the soles of one's feet.
+
+The city has no visible edge, no clear boundary where it ends and the cliff begins. Structures peter out gradually, becoming sparser, smaller, until only anchor points remain—bolts driven deep into stone, cables trailing off into nothing, waiting for expansion that may come in centuries or never. The mountain face extends upward and downward beyond sight, and perhaps there are other cities like this one, separated by miles of vertical stone, each harvesting their own invisible currents, each tending their own clouds of moths.
+
+In the deepest part of night, when even the indirect light fails, the city becomes a constellation of faint glows hanging in absolute darkness. The moths spiral between them like living constellations, and for a moment the distinction between creature and city, organic and industrial, natural and built, dissolves entirely. There is only the system, ancient and patient, breathing with the mountain wind.

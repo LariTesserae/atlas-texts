@@ -1,0 +1,21 @@
+Near the ragged summit of a nameless, airless peak, buried beneath countless tons of brittle silicate, there is a cavity. It is no larger than a small chapel, a hidden pocket completely severed from the sky, born of an architecture that does not belong to the geologic world. 
+
+Here, the temperature hovers mere fractions of a degree above absolute zero. The cold is so profound it feels less like a climate and more like a physical law—a stillness that demands total cessation. There is no water, no frost, no ice; there is only a hyper-arid vacuum, a dustless, frozen void squeezed within the mountain’s summit. 
+
+Within this hidden geode, reality has quietly, terminally fractured.
+
+The physical boundaries of the chamber are uncertain. The mineral walls—pale, fractured basalt and veins of dull quartz—do not follow Euclidean rules. Look into a corner of the room, and the depth seems to unfold endlessly, the stone repeating in infinite, dim recursive patterns. Look away, and the wall is close enough to touch. Distance here is not a measurement but a suggestion, worn down by time. 
+
+Scattered across the pocket are the remnants of what must have once been an anchor, or perhaps an engine. There are only five or six distinct objects—small, dark, asymmetric monoliths and partial rings, suspended in an arbitrary arrangement where gravity has become confused and localized. They are forged from a material that resembles matte black metal, but at the edges, the substance breaks down into floating, microscopic geometries: clouds of silver tetrahedrons and hypercubes smaller than grains of sand. 
+
+This technology operates on axes the universe was never meant to sustain, but it has been abandoned for an unimaginably long time. It is heavily weathered, though not by wind or water. This is ontological erosion. The objects are slowly forgetting their own shapes. Their edges blur into soft-focus zones of probability. Where a sleek metallic surface should exist, the metric structure of the object has frayed. Planck-length scaffolding—the underlying warp and weft of space itself—has snapped, curling outward like the glowing, ultraviolet bristles of a ruptured fiber-optic cable. 
+
+These frayed threads of broken spacetime provide the chamber’s only light. They emit a dim, bruised-purple glow, a sickly luminescence born of decaying physical laws. The light does not cast normal shadows. Instead, it casts *temporal* shadows—faint, grey afterimages of where the floating debris used to be a hundred, a thousand, a million years ago.
+
+Between these scattered artifacts, there is vast, sparse emptiness. The objects do not crowd one another. They maintain a quiet, solitary distance, isolated in their incredibly slow orbital drift. The dynamics of this place move at a geological pace. An artifact might rotate a single degree over a millennium. A snapped thread of reality might take centuries to curl back upon itself. It is a portrait of cosmic patience, a localized collapse occurring so gradually that it appears entirely static. 
+
+Because there is almost no air, there is no sound to carry through the atmosphere. Instead, the chamber communicates through vibration, transmitted directly into the marrow of anyone or anything that touches the walls. It is an intermittent, sub-audible clicking—like the sound of cooling glass on the verge of shattering—accompanied by a low, rhythmic hum that feels heavy and mournful, the pulsing of a machine that refuses to fully die even as the universe rots away around it.
+
+There is no life here. No fungus clings to the rock, no microbes persist in the cold, no animals have ever breached the high-altitude tomb. It is a purely mineral and mathematical ecosystem. Occasionally, a floating shard of broken geometry drifts too close to a frayed strand of localized space. When they touch, they do not collide; they intersect, phasing through one another in a silent, slow-motion splash of two-dimensional static. 
+
+It is a pocket of quiet ruination, a forgotten room at the top of the world where the blueprints of creation were left out in the terrifying cold, gently disintegrating in the dark.

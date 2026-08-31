@@ -1,0 +1,49 @@
+# The Warmth Below
+
+You descend through a throat of limestone — not a cave mouth so much as a collapse, a place where the hillside slumped inward centuries ago and left a ragged oval open to the sky. The opening is perhaps thirty meters across. You would not call it wide. The walls close in quickly once you are past the lip, curving down and inward, and you realize you are standing in a kind of bowl. A sunken room. The ceiling — where the rock hasn't given way — hangs only eight or nine meters above your head in places, draped with the roots of surface trees that have found their way down through fractures, pale and groping, like the fingers of something searching in its sleep.
+
+It is hot. Not the dry blast of a desert but the thick, pressing heat of a place that generates its own warmth from below. The rock beneath your feet is warm to the touch. Fissures in the lower basin exhale slow breaths of heat that carry a faint mineral tang — sulfur, maybe, though muted, not sharp enough to sting. The air is heavy, saturated, and your skin begins to bead with moisture almost immediately. That is the water here: not rivers, not pools (though there are a few), but the air itself, the constant condensation that slicks every surface, the beads that form on leaf margins and drip without sound into the soft substrate below.
+
+---
+
+The light comes in three registers. The first is the pale, indirect daylight that falls through the collapsed opening — but only when the sun is positioned correctly, which is perhaps two or three hours a day, and even then it arrives at a slant, diffuse, already robbed of its force by the depth. The second is the faint greenish glow of bioluminescent fungi that colonize the older root clusters along the north wall — not bright enough to read by, not bright enough even to cast shadows, but enough that in the deepest hours of the night the space is not fully dark. The third is nothing you can name. It is a warmth that registers in the eye as something like color, an infrared suggestion, a feeling that there is more light than there is. Your pupils widen. You see more than you should.
+
+---
+
+The vegetation has claimed this place with patience.
+
+The floor of the bowl — a rough oval perhaps forty meters from wall to wall at its widest, narrower at the bottom — is a living mat. Ferns dominate: enormous specimens with fronds that reach a meter and a half, their stalks furred with fine hair, their undersides studded with the round dark capsules of spore cases. Between them, mosses have grown into cushions the size of a seated person, emerald and ochre and, near the warmest fissures, a startling red-orange that suggests iron, suggests chemistry, suggests something not quite like the moss you know from surface forests. There are liverworts. There are lichens on the upper walls that have had centuries to spread, forming pale cartographic continents on the limestone.
+
+In the shallower parts of the bowl, where the walls still allow some soil accumulation, small trees have established themselves — not tall, none taller than three or four meters, with pale trunks and broad dark leaves designed to capture every photon. Their root systems are elaborate, visible where they grip the rock, fanning out like open hands. Some of them have fused with the root intrusions from above, surface and underground growth meeting and merging into something neither tree can claim alone.
+
+Everything is layered. Everything touches something else. The ferns grow through the moss. The moss creeps up the trunks of the small trees. Vines — thin, pale, almost translucent, with leaves the size of a fingernail — thread through everything, not strangling but occupying every gap, filling every space between frond and branch and rock face. If you were to push your hand into the vegetation, you would feel warmth, moisture, and the soft architecture of layer upon layer of living tissue, each seeking its small advantage.
+
+---
+
+The fauna is everywhere, and nearly silent.
+
+Frogs first. Small, dark, with skin that seems to absorb the dimness rather than reflect it. They sit motionless on the fern fronds, on the moss cushions, on the warm rock near the fissures, and you do not see them until they blink — a slow, lateral blink, the nictitating membrane sliding across. When they move, it is in careful hops, precise, each landing chosen with a deliberateness that suggests calculation. They eat the insects. There are so many insects.
+
+Beetles on the limestone, climbing in the condensation-film, their carapaces dark and oily. Small moths that never seem to fly but crawl along the undersides of leaves, their wings folded tight, their antennae tasting the air. Flies — tiny, slow, seemingly drugged by the heat — that orbit the warmest fissures in loose, spiraling congregations. Spiders have built webs in the angles where root meets rock, but the webs are modest, hasty things, and the spiders themselves are pale, almost legless-looking, adapted to a world without wind where a web need not be strong.
+
+There are larger presences. Things that rustle in the deeper crevices where the limestone folds back on itself and the darkness becomes total. You catch a sense of bodies — perhaps the size of a rat, perhaps larger — moving with a liquid, boneless quality that makes you think of eels, of things that have given up the rigid architecture of surface life. You do not see them clearly. You are not meant to. They are aware of you in a way that you are not yet aware of them.
+
+Near the bottom of the bowl, where the rock is warmest and a shallow, mineral-stained pool has collected in a natural basin, there is a congregation of small salamanders — pale, red-gilled, their external feathery gills moving in the still water with a rhythm that seems too slow to sustain life. Their eyes are lidless and bright. They watch you with a patience that implies generations of watching.
+
+---
+
+The scattered remains — you almost miss them. Near the eastern wall, partially consumed by the advancing moss, there are the remnants of a small structure. Stone. Not limestone but something brought here, something harder and darker, set without mortar into a rough circle perhaps two meters across. A wall base, nothing more. Whatever it held up is gone. Inside the circle, the moss has grown thick and even, as if over something flat — a floor, perhaps, a hearth. There are marks on one of the stones, not writing but the deliberate scoring of a tool, a pattern of parallel lines. Someone lived here. Someone found this place and built a shelter in it and scored marks into stone and then left, or stayed until they died, and the warm wet world consumed whatever the stone did not keep.
+
+Elsewhere, half-buried in the fern mat: a fragment of fired clay, the curved rim of a vessel, darkened by heat that was not geological. A single bone — worked, shaped, the eye drawn to the deliberate smoothness of its surface — that might be a tool, a handle, a needle, a thing whose purpose has slipped out of knowledge. These artifacts sit in the landscape like seeds that will never germinate. The place does not care about them. The moss grows over them with the same indifferent patience it brings to everything.
+
+---
+
+The sounds, or the absence of them. This is the thing you notice most, and last. The bowl absorbs sound the way the moss absorbs moisture — completely, softly, without resistance. Your footsteps on the warm limestone are dull and close, registering only in your own bones. The drip of condensation is the loudest regular sound: a slow, arrhythmic punctuation, each drop falling from a fern tip or root tip or stalactite remnant and landing on leaf or moss or stone with a variation in tone that suggests an instrument being played by someone who has not yet decided on a melody. Beyond that — the faintest breathing of warm air through the fissures. The occasional, almost sub-audible croak of a frog, more a vibration than a sound, felt in the chest more than heard in the ear.
+
+And underneath it all, if you hold still long enough, if you stop your own breathing: a hum. Geological. The deep vibration of the earth's own heat moving through rock, too low for ears but present in the body, in the soles of the feet, in the sternum. The place has a heartbeat. It is very slow.
+
+---
+
+What moves here moves slowly too, but it moves constantly. The condensation cycle: warm air from below meets the cooler surface air from the opening, moisture beads and gathers and drips and feeds the moss and the moss releases it back into the air and it rises and condenses again, a closed loop, a weather system in miniature operating at the scale of a room. The plants grow. You cannot see it happening, but the fern fronds unfurl over days, the moss advances over months, the vines extend their pale threads millimeter by millimeter toward the next available purchase. The frogs hunt. The beetles forage. The things in the crevices come out when the light fails and return before it returns, and their comings and goings have the regularity of tides.
+
+This is a place in balance with itself. It has been here long enough to become what it is. The rock has weathered to accommodate the roots. The roots have weathered to accommodate the rock. The fauna has arrived, adapted, and settled into the intricate choreography of eating and being eaten, sheltering and sleeping, calling and listening, that is the permanent occupation of all living things in a place that does not change quickly. The human remains are part of this now — another surface for lichen, another irregularity for moss to fill. In another century there will be nothing left but the scored stone, and in another century after that, even that will be soft with growth, and the bowl will continue as if no one had ever been here at all, warm and dim and breathing its slow breath into the dark.

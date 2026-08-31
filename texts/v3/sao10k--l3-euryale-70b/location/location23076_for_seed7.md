@@ -1,0 +1,11 @@
+A vast underground chamber in the bowels of an ancient mountain range, sealed off from the surface world above for eons. The space stretches for kilometers in every direction, a vast cathedral of rough stone walls and vaulting ceilings lost in darkness. Only faint orange light filters in from bioluminescent fungi and mineral deposits, providing an eerie illumination. 
+
+The air is thick and humid, almost a sickly miasma, heavy with noxious gases from unseen subaqueous sources. Occasional wisps of vapor drift through the gloom, spiraling around lazily. In the distance, the faint whisper of dripping water echoes off the walls.
+
+The entire space is a labyrinth of tunnels, caverns and ledge upon layered upon ledge upon ledge. From time to time a subterranean river flows through, braiding and anastomosing, intermittantly exposed in deep canyons and gorges all choked with jagged rock and twisted dead roots. Gusts of steam rise from unseen geothermal vents along the riverbanks.
+
+Every surface is covered in fungal mats of brilliant green, or explosively colorful lichen gardens. Strange bulbous sacs dangle from the ceilings and walls like chitinous fruited boughs. Tangles of misshapen limbs of naked pallid root systems weave through and over the fungal carpets.
+
+Isolated pockets and Iabular structures rise and sink around the cavern floors and walls as if woven of organic material, or perhaps more fungal growth. Clefts of glass-green mineral deposits fragment the fungal cover, surrounded by christmas tree arrangements of crystals. Gases pierce through the spongy floors to writhe around the crystals like a manic sacanasens.
+
+The air is alive with hanging point light from the fungal growth, the shimmering gas and moisture, and preventing the darkness from abysmally deep. Impossibly distant weight presses inwards from every direction as if the roof of cathederal could crush in at any moment. Morning and night dialate and confluence through the slow dark light. newState and mood shifts throughout subtle alteration in the normous ecosystem.

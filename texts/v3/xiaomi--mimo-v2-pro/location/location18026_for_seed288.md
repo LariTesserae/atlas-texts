@@ -1,0 +1,77 @@
+# The Subsidence
+
+---
+
+The basin has no rim. You would have to walk for days to realize you were sinking.
+
+The land descends in increments so gentle that the horizon stays level, stays the same pale distance, stays unreachable — and then at some point you understand that the sky has thickened above you, that the light arriving is the light of late afternoon everywhere and forever, and that you are lower than you were. You have been walking downhill for a long time and did not feel it. The slope is ancient. It has been graded by wind and weight and the patience of deep geological time until it approaches a limit — not flat, never flat, but *tending* toward flat, the way a river tends toward sea level without ever quite agreeing to stop.
+
+There is no water.
+
+This is the first thing you notice, and the last thing, and the thing you notice in between all other noticing. There is no water in any form. No dew. No fog. No frost. The air is dry the way the inside of a bone is dry — not parched, not cracking, but simply *absent* of moisture, as though the concept has been gently removed. The soil, where it is exposed, is a fineite calcium-white powder, compacted to the density ofiteiteite chalk, and it does not hold footprints well. Your steps leave shallow impressions that the wind — and there is always a low wind — fills in within minutes. You could not track anything here by its spoor. The ground remembers nothing.
+
+And yet.
+
+The ground is *alive with plants*. Not scattered, not sparse — the vegetation is *lush*, genuinely lush, though it is lush the way a lung is lush: dense, structural, purposeful, filling available space with a kind of organized profusion. Great pale-fronded things rise from the compactedite powder on stalks thick as wrists, their surfaces matte and dry-looking, the color of bread crust orite old ivory. They do not transpire. You can stand next to one for an hour and feel nothing — no humidity, no scent of sap, no drip. Their leaves are broad but rigid, coated in something that is not wax and notite calcium but resembles both, aite sealant that locks every molecule of internal moisture into permanent retention. They drink from the air — but there is nothing in the air to drink, so they drink from *themselves*, recycling, closed-loop, a metabolism so conservative it borders on geological.
+
+Between the great fronds, smaller things grow: low rosettes ofite grey-green, clustered in colonies of thirty or forty, each plant no larger than a hand but connected underground by rhizomes that can extend for meters. These form the closest thing to a carpet the basin offers, though the carpet is mostly holes — patches of bare white powder between each colony, gaps of three meters, five meters, ten meters, where nothing grows and the compacted surface lies featureless and bare. The density, at close range, is sparse. You can always see the ground between things. The basin gives the impression of a garden planted by someone who kept losing interest, or running out of seeds, or who understood that emptiness is a kind of material too.
+
+But at the *scale* of the basin — and the basin is large, regional, something you could fit a small country inside — the sparse vegetation reads differently. From any slight rise (and there are few; the land resists elevation), you see the pale fronds receding in every direction, their silhouettes like an endless field ofite slow motion, and the eye stops measuring distance between them and starts measuring the *pattern*, which is not random. The colonies follow lines. Subtle, ancient lines. You are looking at the ghost of a drainage system — channels cut so long ago that they have nearly silted back to grade, visible now only because the plants prefer the slightly deeper soil of the old channels, the infinitesimal moisture advantage of imperceptible depressions. Someone built here. A long time ago. What they built is now just a pattern in the vegetation.
+
+And the *built* —
+
+It is everywhere and almost invisible. The basin is urban. This is not an exaggeration or a metaphor. The entire subsidence, as far as you can walk in any direction, is a *settlement* — but a settlement of such age that it has passed through the recognizable stages of architecture and emerged on the other side, into something geological. The structures are stone. They were always stone. The stone was quarried from the basin floor itself, which means that the city and the ground it sits on are the same material, the same calcium-whiteite calciumite calcium carbonate compacted into blocks and then — over millennia — compacted again by their own weight back toward the density of the earth they were cut from.
+
+You find walls. Low walls, rarely taller than your waist, running in straight lines that intersect other straight lines at right angles or at angles that suggest planning, geometry, intent. The walls are thick. Two meters thick in places, for walls that stand half a meter high. They were not always this height. Wind-scour has lowered them. Theite fine powder of the basin floor, carried in the permanent low wind, acts as an abrasive so gentle that it takes centuries to remove a centimeter — but the walls have been here for more centuries than that. They are being *surfaced down*, returned to grade, and the process is almost complete. In another thousand years they will be lines in the soil visible only to plants.
+
+Between the walls: *rooms*. Open to the sky now, roofless for millennia, the rooms areite spaces defined by the remaining walls, and they are used. They are used *comprehensively*.
+
+---
+
+The fauna.
+
+The fauna is *deafening*.
+
+This is the second thing you notice, and it does not become background. It does not fade. The sound of this place is a physical medium, a substance you walk through, a pressure on the ears and the sternum and the teeth. It is not one sound. It is the *sum* of ten thousand sounds produced by ten thousand organisms in a space with no water to absorb vibration and no soft ground to damp it and no trees with leaves to scatter it and only the low dry wind to carry it, and the wind carries it *far*.
+
+In the old rooms between the old walls, animals nest.
+
+Lizards — hundreds of species of lizards, from thumb-sized translucent things that live in the cracks between block-laid walls to fat-bodied creatures the length of your arm that bask on the flat tops of the ruined parapets and drum their throats in a pulse you can feel through the soles of your feet. The small ones make a sound likeite dry rice falling on paper: a constant, granular, *encompassing* hiss-tick-tick-tick that never stops, day or night, because they do not seem to sleep, or if they sleep they sleep in shifts, and there are enough of them that the population is always majority-awake.
+
+The medium-sized lizards bark. Not a metaphor. They produce a sharp explosive sound — *ak-ak-ak* — from a throat-sac that inflates and pops, and they do this to claim territory, to attract mates, to warn, to greet, to apparently express displeasure at the weather (though the weather never changes), and for reasons that seem purely social, conversational, a kind of gossip conducted in the old rooms of the old city at a volume that would be startling from a dog.
+
+The large ones *roar*. Or something like roaring. A sustained tonal bellow, low-pitched, rattling, that resonates in theite hollow spaces of the ruined walls and turns each room into an inadvertent amphitheater. One large lizard, bellowing from a wall-top, can project sound a quarter-kilometer. When three or four are calling in overlapping range — which is always — the sound is not a sound but a *condition*, an atmosphere of vibration, a thing you stand inside.
+
+And they are not the only source.
+
+Insects — though they are not insects exactly, they have too many legs and no wings and they move with a deliberateness that suggests they have never needed to flee — occupy every horizontal surface in densities that are, at first glance, alarming. They are small. Most are smaller than your thumbnail. They are the same calcium-white as the ground, and they move in processions along the tops of the walls, following pheromone trails laid down so long ago that the trails have soaked into the stone. They produce a sound collectively that is the baseline of the basin's noise: a *chitinous grinding*, a vast composite rasp, the sound of a million tiny bodies scraping across calcium in a rhythm that has something to do with feeding and something to do with communication and something to do, you come to suspect, with nothing at all — a mechanical byproduct of existence at density.
+
+Underground, in the interstices between foundation blocks and in the hollows of collapsed lower chambers, things *burrow*. You hear them. A scrabbling, a shifting, a distant and intermittent *thump* that suggests bodies the size of your torso moving through spaces barely large enough to contain them. You never see these creatures. The soil is too compacted, the openings too small. But the sound is real, and it is below you, and it is everywhere.
+
+At the level of the ground — in the gaps between rosette colonies, in the white bare patches where nothing grows — tiny mammals (or something mammalian) emerge at intervals from concealed burrow-mouths and sit upright on their haunches and *scream*. There is no other word. A high, thin, carrying scream, sustained for two to four seconds, repeated at intervals of eight to twelve seconds, by hundreds of individuals visible at any time in any direction. It is an alarm call, or a territorial call, or a mating call, or all three. It cuts through the lower frequencies of the lizards and the grinding of the insects and establishes itself as the treble register of the basin's sound — a needle of high-frequency noise stitched through the fabric of the bellow and the rasp and the scrabble, unceasing, unrelenting, *deafening*.
+
+You cannot hear yourself think. This is literal. You raise your voice to speak to someone standing next to you and cannot make out your own words. The basin does not permit interiority. It does not permit private thought. It is a place of *total external sound*, and the sound is produced by living things, and the living things are everywhere, and they are *normal* — none of them are strange, none are bioluminescent or psychic or dimensionally unstable, they are just animals doing what animals do, but there are so many of them, in so many species, filling so many niches in the old stone city, that their collective presence is overwhelming in a way that has nothing to do with weirdness and everything to do with *abundance*.
+
+---
+
+The light comes from above and is not enough.
+
+There is a sky — you can see it, a pale haze ofite calcium dust suspended in the atmosphere at basin-level, catching and scattering what light penetrates — but the basin is deep enough that the angle of incidence is low, always low, and the light that reaches the floor is the light of perpetual late afternoon: amber-tinged, shadow-heavy, insufficient for sharp vision but sufficient for the eye to adapt and eventually see *more* than it could in bright light, because the dimness demands attention, demands that you look *carefully*, and what you see when you look carefully is the city.
+
+The city that is the ground. The city that is everywhere.
+
+You see that the walls are not just walls. They are *courses* — carefully laid, with a batter (inward lean) that suggests load-bearing, that suggests they once held weight, held roofs, held upper stories. You see that the right-angle intersections are not random but *gridded*, a lattice of streets so old that the word *street* feels absurdly recent for them. You see that some of the thick walls have *passages* through them — doorways, or what were doorways, now silted to half their original height, the threshold worn smooth by the passage of bodies over timescales that make the wear-pattern on cathedral steps look like last week's traffic.
+
+You see, in the dim amber light, that the basin floor is *not level*. It is tessellated. The old grid of streets created cells — blocks — and each block was filled, at some point, with material slightly different from its neighbors: slightly moreite calcium here, slightly moreiteiteiteite silicate there, a difference of mineralogy so subtle that wind-scour has exposed it over millennia, and now each block is a slightly different shade of white, and the grid is visible from above as a mosaic of pale rectangles receding in every direction toward the haze-line of the horizon.
+
+It is beautiful. In the way that ruin is beautiful, in the way that *deep time* is beautiful — not the beauty of design but the beauty of *persistence*, of material that has outlasted its makers and its purpose and its meaning and simply *remains*, a pattern without a code, a city without citizens, occupied now only by the deafening chorus of animals who do not know or care that they live in a ruin.
+
+---
+
+The changes are slow.
+
+Nothing here moves quickly. The wind is slow and steady and has been blowing from the same direction (you think — the lichen-analogues on the north faces of the walls are thicker, and the wind-scour is deeper on the south faces) for a very long time. The plants grow slowly. You can see annual growth-rings in the stalks of the great fronds — compressed, close-together, each ring a year, and there are *hundreds* of rings in a stalk the thickness of your wrist. The animals are slow to reproduce; the large lizards lay eggs once every several years, and the eggs take a full season to hatch, and the young grow at a rate that suggests they will not reach maturity for a decade. The tiny screaming mammals — despite their frantic vocal energy — move slowly when they move at all, conserving moisture, conserving caloric expenditure, sitting upright on their haunches for hours between bursts of screaming.
+
+The basin itself is changing — eroding, filling, flattening — at a rate measurable only in the language of geology. The walls are a millimeter shorter than they were a century ago. The drainage ghosts are a centimeter shallower than they were when the plants first colonized them. The process is asymptotic: the basin is approaching a state of *perfect flatness*, a final grade, an equilibrium where wind deposition and wind erosion cancel exactly and the surface neither rises nor falls. It is almost there. It has been almost there for a long time. It will be almost there for a long time more.
+
+And in that near-stillness, in that slow convergence toward a flat and featureless surface, the animals live and scream and bark and grind and drum, filling the old city with noise, using every wall and room and threshold and crack, inhabiting the ruins with a profusion that is not ironic and not symbolic and not meaningful in any way except the biological: this is space, this is shelter, this is territory, and we are *here*, and we are *loud*, and the city does not mind because the city is not listening because the city is stone and the stone is returning to the ground from which it was cut, and the ground is white, and the light is dim, and the sound is deafening, and there is no water, and there has not been water here for a very, very long time.

@@ -1,0 +1,29 @@
+Envision a landscape few eyes would ever discover, a paradoxical pocket of extremity tucked away—a trembling microcosm carved into the bones of a jagged escarpment or perhaps the innards of a solitary, monumental spire of stone. The entire world, from this perspective, is measured in spans of inches and feet, a universe pressed into the volume of a small cavern, a hollow where the pulse of geology, condensation, and predatory hunger outpaces the slow pace of continents above.
+
+**TERRAIN**  
+The ground here is sharp-edged, bristling with the signatures of youth: fresh, splintered rock surfaces, abrupt micro-overhangs, and vertical scarp faces that thrust down mere handsbreaths into a close, secret chasm. The rock is raw, gleaming with the waxen sheen of minerals freshly bared by a recent, cataclysmic shift—as if this entire chamber had been torn from the depths or split apart only moments ago. But the shape is tight, the walls near enough to touch with outstretched limbs; the sense is not of vastness, but of compression, pressure, and impossible density.
+
+**MATERIALS & ATMOSPHERE**  
+Water is ever-present—a suffocating humidity, beads of condensation streaming from the ceiling, collecting along knife-thin ledges, gathering into droplets that run like sweating wounds down stone flanks. Trickles slip into the crevices, collecting in shallow basins or vanishing into fissures. Here, heat radiates from the slick stone itself, a furnace breath that fogs the air, making each inhalation thick and heavy. There is a persistent glisten, a warmth so fierce it threatens to cook life itself. Yet life does not falter.
+
+**VEGETATION**  
+There is a striking absence of roots and stems—nothing resembling terrestrial flora survives. No leaves, no softening moss. Instead, the damp surfaces pulse with layers upon layers of simple life: thick, crusting sheens of mineral-imbibing fungi, nacreous colonies of slimes, alien biofilms that shimmer between states of solid and liquid. Their colors pulse faintly—ashen blues, sickly whites, oily greens—responding to heat or to moisture, curling into themselves when disturbed, weeping cilia that strain the air for nutrients as if feasting directly on the heated, wet stone. At this proximity, life is mineral, life is wetness and heat, not growth or branching.
+
+**ECOLOGY & FAUNA**  
+It is the animal world that crowds this place—a fever-dream of motion and multiplicity. The surface of every rock torques and shifts: translucent, iridescent invertebrates, their bodies squashed into improbable crevices, crawl with ceaseless urgency. Some resemble centipedes, bristling with sensory whiskers that taste the hot mineral runoff; others coil and uncoil like mechanical springs, flicking from water-bead to water-bead in the glistening gloom. The most prominent are the dripping, glass-bodied predators—small, almost invisible but for the ripple of their movement, always hunting their kin in this narrow world.
+
+Every centimeter is alive: glistening ctenophores, dripping mucous nets from the ceiling, snatch at the minute drifting larvae. Worms with calcified spines joust over puddles, siphoning heat-stressed bacteria from the brink of boiling water. The hunt is near-silent, but total; every surface is food, every touch a contest.
+
+**RULES OF THE WORLD**  
+Time and physics do not entirely obey their makers here. Shapes blur at the edge of vision. Perspective collapses—the stone angles seem to shift when unobserved; the gap between two surfaces, crossed by one organism, can appear impassable to the next. Gravity itself wavers, sometimes allowing things to cling upside-down or hover between planes. The water alternates between boiling away in pulses and condensing with unnatural rapidity. Touching certain patches of stone, for those brave enough to try, brings with it the sense of skin prickling with impossible patterns—memories, perhaps, not their own.
+
+**WEIRDNESS & SOUND**  
+It is nearly silent. The overwhelming density of life moves in respectful hush, a microcosmic ballet muffled by heat and wetness. Occasionally, the sharp snap of mineral fracture, or the plink of a droplet falling into a hidden pool, echoes strangely—seeming to call from several places at once. Sound arrives warped and muted, as if the air stirs only at the whim of living things, and silence is the default condition. Sometimes, a faint whispering hum arises—a chorus of exhalations or cellular buzz, never quite localizable, as if insects or micro-hunters are brushing reality’s surface with broken wings.
+
+**DYNAMICS**  
+This place thrives on conflict, transformation, and a cycle of sudden, violent change: steam bursts erupt from stone blisters and subside just as quickly; the population of visible creatures fluctuates within minutes, the predatory tides ebbing and surging in sync with the condensation. Every organism here is locked in a struggle not just with each other, but with the mutability of the chamber itself; the ground rearranges, the rules of thermodynamics falter one moment, surge the next.
+
+**IMPRESSION & ATMOSPHERE**  
+It is a place that should not exist—a crucible, an engine, a world-in-pocket where everything teeters at the threshold: between wet and dry, life and mineral, solid and vapor, reality and its liquefaction. One does not visit this world; one is enveloped by it, pressed into its humid, glittering, predatory heart—a fleeting anomaly where silence is thick and each breath could be the last.
+
+This, then, is the landscape: small, preciously shielded, hot as hissing steam, alive as a skipped heartbeat, and weirder than sense can safely hold.

@@ -1,0 +1,17 @@
+The air here is a thick, warm soup, held at a constant, stifling 40 degrees Celsius. It is a world of perpetual condensation. Because the temperature never fluctuates, the moisture never settles into rain; instead, it hangs as a heavy, dim grey mist that clings to the skin and beads instantly on every surface. 
+
+This is the Basin of the Steam-Casters. It is a low, flat depression, perhaps only a few kilometers wide, ringed by sharp, jagged ridges of black basalt that haven't yet been smoothed by time. The terrain is young—harsh, obsidian-edged, and unforgiving. 
+
+Across this sunken floor sits an industrial settlement that feels like a single, massive, interconnected machine. Steel walkways, slick with grease and warm water, crisscross over shallow, steaming pools. The architecture is dense and vertical: rusted iron towers, corrugated copper roofs, and thick, throbbing pipes that hum with the transit of high-pressure fluids. Because the scale is "small," the city feels less like a sprawling metropolis and more like a high-density industrial cloister—a "cathedral of valves" where every inch of space is utilized.
+
+Energy is the only constant. Huge, soot-stained pistons the size of houses plunge rhythmically into the peat-saturated mud below the walkways, creating a heavy, percussive "thump-hiss" that echoes off the surrounding basalt walls. This is the source of the noise: the ceaseless, mechanical heartbeat of a colony that exists solely to boil, distill, and pump.
+
+Despite the heat and the industrial grime, life is aggressive and plentiful, though monochromatic. Vegetation is sparse—limited to patches of oily, pale moss that grow in the joints of the brass piping and long, weeping liverworts that hang from the rafters like wet hair. But the fauna—the "abundant" life—thrives in the wet heat. 
+
+Huge, pale-eyed amphibians with skin like wet leather cling to the undersides of the metal grates. They don't move; they simply wait for the clouds of thumb-sized gnats that swarm around the dim, amber-filament streetlamps. There are thick-bodied crustaceans that scuttle through the shallow, boiling marshes beneath the city, feeding on the mineral runoff of the factories. Their shells are iridescent, the only splash of color in a world of charcoal grey, rust-orange, and dim yellow light.
+
+The "rules" of this place are dictated by its static nature. There is no wind. There is no night or day, only a perpetual, dim twilight filtered through the ceiling of steam. Because there is no change, the inhabitants have a rhythmic, mechanical patience. They maintain the valves; they oil the pistons. They move with a sluggish, heat-addled deliberate grace.
+
+The water is everywhere but it is never clean. It drips from the ceilings of the industrial corridors, gurgles in the open sluices between houses, and rises as a shimmering vapor from the floorboards. The smell is an intoxicating mix of ozone, wet iron, and decaying peat. 
+
+In this landscape, the "newness" of the geology meets the "permanence" of the industry. The basalt beneath the city is still sharp enough to cut a boot, yet the machines bolted into it look as if they have been thumping for an eternity. It is a frozen moment of industrial labor, a humid, loud, and crowded sanctuary where the only thing that ever moves is the machinery and the teeming, hungry things that live in its shadows.

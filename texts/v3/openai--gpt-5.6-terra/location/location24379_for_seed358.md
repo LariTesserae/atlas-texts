@@ -1,0 +1,37 @@
+The basin lies beneath the country rather than within it.
+
+It is not a cave in the narrow sense. No one enters through a mouth of stone and finds a chamber waiting politely at the end. The land has sagged over a wide, shallow underworld: an old mining district, a drained sea pocket, a wet limestone trough whose roof is held up by pillars, retaining walls, rail embankments, and layers of sediment still deciding whether to become rock. It extends for miles beneath the low hills. In places the ceiling is only a few feet overhead, black with condensation and crossed by roots; in others it lifts out of sight into a smoky brown vault, full of girders, cable runs, and pale dripping mineral shelves.
+
+The air is warm and almost liquid. It presses damply against the skin. Every surface sweats: concrete, timber, brick, rusted iron, the backs of old signs. Water does not fall much here, but it is everywhere in the act before falling. Beads swell on pipes. Threads gather along roof seams. Wetness darkens every fracture in the walls. A person can stand still beside a column and hear, at intervals, the soft fat tap of water arriving from somewhere aboveground.
+
+At floor level, the basin is crowded beyond reason.
+
+There are canals where survey ditches widened over decades into sluggish waterways. There are rail beds, mostly submerged, their paired lines disappearing through sheets of black water. There are service roads built on raised spoil and gravel, so narrow that freight carts pass within inches of doorsteps. Around them are sump ponds, mudflats, flooded extraction pits, settling tanks, pipe yards, old foundations, heaps of raw pale stone, and mats of debris caught at the margins. Everything uses the available space. A pump house rests against the buttress of a stone viaduct; a row of workers’ dwellings has been built beneath its arches; behind the dwellings a drainage channel has filled with reeds and fish; above the reeds, new mineral crust creeps down the wall like the beginning of another building.
+
+Nothing is cleanly finished. The geology itself is still being assembled.
+
+Along the waterlines, a soft gray paste pushes from the ground. It dries only briefly before the damp claims it again. It forms ridges around boots and wheels, then hardens into wrinkled, chalky shelves. In the deeper pools, mineral particles settle in pale clouds, building up delicate bottoms that collapse when disturbed. Some walls appear to have been poured yesterday, though they have been there for centuries. The ceiling makes thin new curtains of calcite. Rusty pipes acquire white skins. Broken bricks become embedded in fresh sediment, already turning into a local kind of conglomerate: red ceramic, coal ash, fishbone, wire, bottle glass, and stone all gripped together by lime.
+
+The basin’s few plants survive by refusing to be grand. There are slick reeds in the shallows, thin willow whips reaching from cracks near old ventilation shafts, mats of liverwort on perpetually damp brick, and a coarse grass that grows wherever a cart has spilled enough dry soil to make a margin. Here and there, a small tree has found an opening to the surface and hangs downward rather than upward: roots clotted in the ceiling, leaves brushing the upper air of a passage, its trunk bent sideways by darkness and confinement. Most green things are low, wet, and stubborn.
+
+The animals are less restrained.
+
+Eels work through drainage culverts and flooded tunnels, thick-bodied and patient. Carp crowd the warmer settling ponds, flashing once beneath the oily surface before vanishing again. Frogs fill every marginal puddle, especially around the old brickworks where the water has gone green with suspended minerals. Rats run the utility ledges in such numbers that a thrown scrap draws a moving brown ripple from the dark. Swallows nest near the ventilation wells and come down in ragged flights at shift changes, finding their way through the dim by habit. There are bats where the ceiling rises, and pale cave crickets in the quieter galleries. In the wet earth beside the roads, beetles with lacquer-black backs turn slowly through the mud, undisturbed by the machinery.
+
+The machinery is scattered but impossible to ignore.
+
+A pumping station may stand alone at the edge of a broad underground lake, its windows glowing yellow behind wire mesh. Half a mile away, an electric winch house clings to the side of a cut, long abandoned except for the motor that still turns a ventilation fan. A crane straddles a sluice gate. A conveyor, patched with newer belts and older boards, carries raw stone from one darkness into another. There are workshops under corrugated roofs, little substations with ceramic insulators shining wetly, and freight elevators that rise toward daylight carrying barrels, gravel, or people who do not look up.
+
+The sound is enormous, but not lively.
+
+It is the sound of continuance.
+
+Pumps hammer below the floor. Fans roar through ducts the width of houses. Water hits steel, then stone, then water again. The long conveyors make a deep rolling scrape that seems to travel through the bones. Somewhere, at all hours, a compressor is coughing in a measured rhythm. Trains do not come often, but their arrival begins far away: a faint vibration in handrails, a tremble in the pond skins, then a metallic shriek that fills the basin and stays trapped beneath the ceiling. Voices are nearly useless beyond a few yards. People communicate with lamps, arm motions, painted boards, and the old instinct for watching the bodies of others.
+
+Yet the place changes slowly.
+
+A channel shifts by inches each year. One pump fails, and a low district becomes a pond. A new retaining wall is poured, and another strip of mud becomes walkable. Mineral deposits thicken around a culvert until its water finds a new route. Buildings settle into the soft ground; doors gradually become too low to enter. An entire lane can remain in use for forty years while the floor rises around it, until the residents step down from their thresholds as if leaving boats at low tide.
+
+Above, the towns may call this district a utility, a reserve, an old industrial zone, an inconvenience hidden under their fields. Down here it is a climate and a country. It has districts marked not by streets but by the character of their water: the warm orange drains, the blue-black quarry ponds, the pale lime channels, the silty green marshes beneath the roots. It has local weather, too. Steam gathers near generators. Cold drifts down certain shafts in the early morning. Electrical storms of tiny blue sparks snap along wet insulators. Rain is rarely seen, but its consequences arrive everywhere, hours or days later, spreading through the ceiling in dark, expanding maps.
+
+At the margins of the basin, where the worked ground gives way to unworked earth, the noise begins to dull. The pumps are still present, but farther away, as though heard underwater. New stone bulges through old brick. Mud closes over discarded rails. Small pools collect in hollows without names. The sparse reeds have more room there. Frogs call from behind banks of pale clay. In the dimness, one can see the country beginning again: not as wilderness exactly, and not as construction, but as a packed, wet compromise between the two—an underground landscape still being made, slowly, by pressure, labor, water, and time.

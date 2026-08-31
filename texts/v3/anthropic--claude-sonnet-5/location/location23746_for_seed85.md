@@ -1,0 +1,25 @@
+# The Cistern at Höivenmark
+
+The water arrives before the land does. You reach this place by going up — a high, sharp-edged plateau of black mineral rock, young in the way a wound is young, its facets still raw and ungentled by wind — and at the height of it, where you expect a peak, you find instead a basin. A lake that should not exist at this elevation, fed by no visible river, drained by no visible outlet, holding still under a sky the color of wet slate.
+
+It is not a lake so much as a flooded city.
+
+The water is 2.9 of everything — not falling, not flowing, simply *present*, total, submerging towers and colonnades and a geometry of streets that climb the basin floor in tiers like a sunken amphitheater. Nothing here was built to be drowned, and yet nothing here is drowning anymore. It happened once, completely, an eternity ago by the look of the unweathered stone, and now it simply *is* — the water sits at the same height it has always sat at, unchanging, equilibrium so absolute that the surface holds no current, no tide, no skin of dust. You could believe the whole basin was poured into its present shape rather than arriving at it through time.
+
+## What stands in the water
+
+The built structures rise from below the surface and pierce it — towers of a fused black-glass material, too smooth to be stone, too cold to be metal, standing in sparse arrangement across the flooded streets like teeth in a wide-set jaw. They are spaced with strange generosity: long stretches of black water between each structure, so the settlement reads as a scatter of monuments rather than a dense city. Bridges connect some of them just beneath the surface — you can see their pale lines a few feet down, perfectly level, leading nowhere a person would want to walk, since to follow them is to walk underwater.
+
+No vegetation softens any of it. No moss, no algae bloom, no green film on the stone. The water is too clean, in the specific, unsettling way of something filtered by machinery rather than time. This is the tech signature of the place: 2.9, beyond modern, written not in obvious devices but in the impossible behavior of ordinary things. The towers do not erode. The water does not freeze despite the cool air. Objects dropped into the basin do not sink at a normal rate — they drift down in long, slow spirals, as though the water itself were thicker near the bottom, or gravity thinner.
+
+## Light and quiet
+
+Darkness sits low over the whole basin — not night exactly, more like a permanent dusk filtered through high unbroken cloud, so that the towers are silhouettes first and structures second. Where light does exist, it comes from inside the submerged geometry: faint geometric glows along certain building seams, a cold blue-white, steady and unflickering, never brightening or dimming. They don't illuminate so much as mark — wayfinding for something that no longer needs to find its way.
+
+Sound is sparse to the point of being a kind of architecture itself. The lapless water makes no sound against the towers because it never moves enough to lap. Occasionally — rare, the way the fauna here is rare — something surfaces. Not an animal you'd recognize as one: a pale, segmented shape the size of a hand, rising in that same slow spiral the dropped objects follow, breaking the surface with no splash, hovering a moment as if checking the air, then sinking again. No wake. No ripple that outlives the second it's made. Whether it is alive in any sense you'd accept is unclear; it behaves like a sensor more than a creature.
+
+## The strangeness underneath
+
+The weirdness of the place lives mostly in its contradictions held without tension. A flooded settlement that doesn't decay. Towers of unweathered glass-stone in a basin only newly formed, on a mountain too young to have eroded, yet inhabited by architecture whose construction implies enormous unmeasured time. Walk the one dry causeway that threads the towers — a single raised spine of the same black material, barely wide enough for two people abreast — and you'll notice your reflection in the water beside you doesn't quite track your movement. A half-second's lag, no more. Nobody who has noticed it has explained it. Nobody seems to have tried very hard.
+
+There is a rule here, unstated but absolute: nothing changes. The water level, the light, the temperature, the slow spiraling drift of fallen things — all locked in a kind of held breath. Visitors describe the basin as a place that has already finished happening. Whatever event flooded this city did so once, completely, and the place settled instantly into the shape it intends to keep. There's no ruin-logic of slow collapse, no sense of a future erosion that will finish the job. It is simply, perpetually, exactly as it is — a small, cool, high, quiet, lightless cathedral of drowned engineering, waiting without waiting for nothing in particular.

@@ -1,0 +1,13 @@
+The Cistern of Perpetual Streets
+
+Water beads and runs along surfaces that have never known vegetation. This is a city-sized pocket carved into bedrock, or perhaps grown from it—the distinction lost to ages of mineral deposition. The space exists like a geode's hollow: completely enclosed, with no sky above, only the sweating stone ceiling forty feet overhead that weeps constant moisture.
+
+Streets of worn obsidian wind between structures that might be buildings or might be elaborate stalactites shaped by millennia of patient water. Everything here was built—or accreted—from the same slick black volcanic glass that forms the foundation. The architecture follows no biological logic, no accommodation for life as we understand it. Doorways open at wrong angles. Stairs descend into solid walls. Windows look out onto more windows, creating infinite recursions in the wet glass.
+
+The brightness comes from within the water itself—a cold phosphorescence that pools in every depression, flows along every channel cut into the streets, and seeps through hairline cracks in the glass walls. The water glows steadiest where it's deepest, creating wells of blue-white light at intersections where the carved drainage patterns meet. Thin films of luminous moisture coat every surface, making the entire city shimmer like the inside of an abalone shell.
+
+Sound barely carries here. The constant trickle and drip creates a susurrus that smothers other noises, flattening everything into the same wet whisper. The density of structures—building pressed against building with no space between—traps and muffles what little sound manages to form. Even a shout would die within ten feet.
+
+Nothing grows. Nothing moves. The water maintains its slow circulation through channels worn smooth by eons of identical flow. The same droplets trace the same paths they've always traced, carrying their cold light through a city that might never have known inhabitants. The strangeness lies in the purposefulness of the construction—every angle calculated, every surface deliberately placed—combined with the complete absence of any purpose we can recognize.
+
+Time stopped here, or never started. The water neither increases nor diminishes. The glass neither cracks further nor heals. The light neither brightens nor dims. It is a urban landscape in perfect stasis, a metropolis of mineral and moisture locked in its own eternal moment, pressing in on itself with the weight of absolute completion.

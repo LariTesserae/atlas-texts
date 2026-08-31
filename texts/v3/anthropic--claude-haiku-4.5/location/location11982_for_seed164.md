@@ -1,0 +1,29 @@
+# The Condensation Works at Meridian Shelf
+
+The air tastes of minerals. That's the first thing you notice—not cold alone, though the wind cuts thin at this elevation, thin enough that you're aware of breathing itself. The taste is copper and stone-dust, the flavor of water that has been in contact with rock for millennia, then extracted, then run through systems. It coats your tongue. It never quite leaves.
+
+The place spreads outward with no apparent boundary. You're standing on a shelf that extends perhaps thirty kilometers before the terrain even begins to break into slope, and even that slope is so gradual it reads as horizon-shift more than descent. The shelf itself is obsidian-dark, volcanic, recently fractured—the splits are clean-edged enough to cut leather, and they run in patterns that almost suggest intention: geometric, radiating from central points. The rock is young in a geological sense, perhaps ten thousand years emerged from the mantle, still sharp enough to draw blood. Still learning what weathering is.
+
+Water moves everywhere, but not freely.
+
+Channels run through the obsidian in regular intervals—engineered channels, though the engineering feels less imposed than *collaborated with*. The stone's natural fracture patterns guided the layouts. Water flows in these channels in a steady pulse, and you understand after a moment that it's not flowing *through* the channels so much as being pumped through them—you can feel the rhythm when you place your hand near the stone, a subsonic percussion that becomes a vibration in your teeth. The water is warm. Warmer than seems possible given the temperature. It rises as steam in thick columns, and the steam doesn't dissipate into the thin air; instead, it condenses immediately into something between mist and rain, creating a perpetual weather-system localized entirely to the shelf itself.
+
+This is where the sound becomes distinct.
+
+The machinery is immense. It has to be—the scale demands it. Pump stations rise at intervals across the shelf, each one a cathedral of riveted steel and iron, perhaps two hundred meters high, their sides corroded to a deep rust that looks almost intentional, like the machinery is slowly returning to earth. The sound they make is not irregular. It is the sound of perfect industrial equilibrium: the hiss of valves opening and closing in sequence, the deep percussion of displacement pumps, the constant metallic whisper of steam escaping through vents. No one sound dominates; instead, they layer into a kind of grinding harmony, the acoustic equivalent of a system in stasis, each element playing its unvarying part.
+
+The pumps extract water from below—from underground aquifers or reservoirs that you cannot see, sources as deep and invisible as the shelf is high. The water rises in the channels, collecting minerals and heat as it travels. At regular stations, distribution manifolds direct the flow toward the vegetation.
+
+And there is vegetation. This surprises you initially, because the place reads as barren. But between the channels and in the spaces where the pumped water pools and condenses, ferns have taken root. Not small things. Fronds that rise four, five meters high, with a waxy texture that seems designed to collect moisture. The fronds are a color that's difficult to name—not quite green, not quite gray. Something that exists in the interval between the two. The undersides accumulate a perpetual coating of condensate; water beads and runs from them continuously, adding to the saturation of the air.
+
+The vegetation doesn't seem alive in the ordinary sense. You can see no animals, no insects, no pollination. Nothing decays. The fronds that fall remain where they've fallen, drying into geometric curves, never returning to the soil. There is no soil, really—only the stone, and the water that runs across it, and the engineered channels that guide the water, and the ferns that have learned to exist in this geometry.
+
+The sky above is almost always overcast, but not with clouds. The condensation layer is too thick, too localized. You see the faint disk of the sun, reddened slightly by the moisture, moving from east to west with mechanical regularity. The light never changes. It's never quite morning, never quite afternoon. A stable state of dimness, enough to navigate by, not enough to cast clear shadows.
+
+The cold increases as you move toward the shelf's edge. The humidity does too. The sound of the machinery is still present everywhere, but at the edge it's joined by something else—a low vibration that might be the wind, except the wind is strangely still. The vibration comes from below. From the pumps working at full depth. The temperature drops precipitously as you near the void beyond the shelf, and the mist becomes so thick that the edge itself is invisible.
+
+You have the sense, standing here, that nothing has changed in a very long time. The machinery maintains its rhythm. The water rises and condenses and redistributes itself in an eternal cycle. The ferns persist in their strange state between growth and dormancy. The shelf remains unsettled, its fractures sharp, its newness preserved in stone. The sky above holds its overcast equilibrium.
+
+The system is closed. Perfect. Nothing enters or leaves except in measured quantities. You are inside something vast and cold and wet and endlessly occupied with the act of maintaining itself—a mechanism so large that its parts have learned to be a landscape, so stable that stability itself has become the only available weather.
+
+The taste of minerals in your mouth remains constant.

@@ -1,0 +1,27 @@
+The air hangs thick and heavy, like damp wool, a constant film of moisture clinging to every surface. It's not raining, not exactly, but the air itself weeps. Condensation plasters the slick metal walkways and the corrugated plasteel walls. You can taste the iron tang of it on your tongue, a low hum beneath the other, more aggressive flavors of the air.
+
+This is the Overworks, specifically Section 7-Gamma. It's small, as these things go, a single, interconnected complex carved into the impossibly steep side of the Spire. They say the Spire is natural, some kind of colossal mineral formation, but no one's seen the outside of it for generations. Here in 7-Gamma, "outside" is more of an abstract concept than an actual place.
+
+The "established erosion" is a feature of the architecture itself. Decades, perhaps centuries, of constant use, relentless manufacturing, and unchecked decay have softened the sharp angles of the original construction. Passages have widened, worn smooth by countless footsteps. Drips and leaks have carved intricate, miniature canyons into the metal floors. Rust blooms everywhere, a virulent orange fungus consuming everything it touches.
+
+The "lush vegetation" is not what you'd expect. It's not trees or vines or anything recognizably botanical. Here, "lush" means mold. Biofilms. Patches of phosphorescent fungus cling to the walls in thick, shimmering carpets. Colonies of engineered algae choke the filtration systems, turning the recycled water a vibrant, almost obscene green. The air itself seems to breathe with the exhalations of fungal spores. They say some of the older strains are sentient, that they communicate through chemical signals, weaving narratives on the currents of the air.
+
+The temperature is bearable, near constant. The factories below and the geothermal vents deeper in the Spire keep the whole place consistently warm, pleasantly muggy. Steam rises perpetually from the grates in the floor, obscuring the already limited visibility.
+
+"Empty" is a deceptive word here. The density of *things* is incredibly high. Every available surface is covered, cluttered, overflowing with machinery, components, discarded tools, piles of raw materials, and the aforementioned bio-growth. But it's empty of people. Fewer and fewer of the work stations are actively manned. The machinery drones, churning out… what exactly? No one seems to know anymore. Orders come down from higher Spire, and the Overworks complies, blindly and mechanically.
+
+The "total built" environment is undeniable. This is a fabricated ecosystem, a self-contained world of metal and plastic and fungal bloom. The original rock of the Spire is only visible in a few isolated locations, where a wall has collapsed or a tunnel has been deliberately exposed.
+
+"Industrial tech" permeates everything. Gears grind, pistons pump, electrodes spark. Conveyor belts snake through the complex, carrying unidentifiable objects from one deafening workstation to another. Automated arms perform repetitive tasks with tireless precision. The air crackles with electricity, a static charge that makes your hair stand on end.
+
+The light is dim, diffuse. The overhead fixtures flicker erratically, casting long, distorted shadows that dance and writhe with the movement of the steam. Phosphorescent fungi provide an eerie, bioluminescent glow, illuminating the deeper corners of the complex.
+
+The "abundant fauna" is… unexpected. It's not birds or mammals or anything terrestrial. Here, life has adapted to the metallic environment. Scuttling, multi-legged creatures, made of chitin and metal shavings, swarm the workshops. Flying drones, their bodies encrusted with fungal spores, navigate the corridors with surprising agility. Rust-colored worms, their bodies segmented and heavily armored, burrow through the corroded metal. They're all scavengers, feeding on waste products and decaying machinery, part of the Overworks' bizarre, self-sustaining ecosystem.
+
+It is "weird," fundamentally. The logic of the place is alien, incomprehensible. There are obsolete machines tended with care, and necessary systems left to rot. Hives of bioluminescent fungus that serve as communication relays. Metallic carrion eaters that nest in broken machinery.
+
+The "deafening sound" is a constant assault. The grinding of gears, the hiss of steam, the thrum of machinery, the crackle of electricity, the buzzing of drones, the clatter of scavengers, all blending together into a cacophony that vibrates in your bones. It's a symphony of entropy, a testament to the Overworks' slow, inevitable decay.
+
+The "slow dynamic" is deceptive given the noise. Everything is running, yes, but running down. A clock winding down, a wheel slowing in the mud. No one repairs the machines anymore, they are simply allowed to expire. Everything is automated, following the rhythms coded into systems by those long dead. Changes are imperceptible from moment to moment, but century to century this place is becoming more of an alien, fungal space than a factory.
+
+You walk through the dripping, echoing corridors, feeling like an intruder in a forgotten world, a relic of a bygone era. What’s being made here? And for whom? The Overworks, once a vital engine of the Spire, is now just a decaying monument to a past long forgotten.

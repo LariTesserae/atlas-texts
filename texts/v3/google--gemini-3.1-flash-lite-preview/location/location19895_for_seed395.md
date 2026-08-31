@@ -1,0 +1,15 @@
+There is no liquid here. The environment is one of dry, calcified respiration, a continental expanse where the "ground" is not stone or sand, but a thick, woven mat of interlocking silicates and fibrous chitin. Because there is no water, the chemistry of the world is subterranean and pressurized; life does not drink, it exhales its nutrients into the open air to be absorbed by its neighbors.
+
+The scale is overwhelming. Standing on the periphery, the horizon does not curve—it simply repeats. The landscape is a singular, continuous urban-biological organism, a sprawling grid of towers made from the hardened husks of ancestral creatures. These towers are not "built" in the structural sense; they are grown in dense, geometric clusters, layered so tightly that there is no space between them. Every square inch of the continent is accounted for by the architecture of these husks.
+
+Beneath the surface, the metabolism of this world is frantic, though to the observer, it appears as a profound, heavy silence. The temperature is a constant, humid warmth, acting like a fever that keeps the city-organism in a state of perpetual regeneration.
+
+Because there is no erosion—no wind-driven sand or rushing rain to grind the structures down—the geography is raw and embryonic. The buildings are fresh, their surfaces still slick with the pheromonal resins that keep the towers knit together. New additions are constantly erupting from the "pavement," thrusting upward in soft, pale columns that eventually harden into the permanent infrastructure of the city.
+
+The ecology is a closed loop of absolute density. Trillions of creatures, small, multilegged, and blind, move through the interstitial vents of these towers. They are the builders and the residents, existing in a state of symbiotic urgency. They do not use tools; they use their own secretory glands to extrude scaffolding, bridge-ways, and living chambers. It is an urban environment without a single machine, a city that functions like the internal organ of a planet-sized behemoth. 
+
+Light here is diffused and steady, filtered through the high, translucent canopies of massive, stationary fungal-growths that act as the city’s climate regulators. This creates a soft, golden-hued "normalcy" that blankets the vast, layered levels. 
+
+Everything is in motion, yet the sound is near-zero. The friction of billions of movements is absorbed by the porous, spongy walls of the city. If there is a sound at all, it is the low-frequency thrum of rhythmic expansion—a slow, geological heartbeat that signals the city is growing, expanding its borders inch by inch into the surrounding void.
+
+There is no predator-prey dynamic in the conventional sense; there is only the consumption of waste and the conversion of heat into structure. The world is a packed, breathing cathedral of dry biology. It is a place that feels finished, yet it grows every second, a perfectly organized, claustrophobic expanse of living geometry where the terrain and the inhabitant are, fundamentally, the same thing.

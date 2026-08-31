@@ -1,0 +1,43 @@
+The plateau begins above the clouds, though there are no clouds below it.
+
+It is a country of immense mineral shelves, lifted and left there: black basalt, copper-red shale, pale shelves of fused salt, and long seams of something darker than shadow. The land does not rise in peaks so much as in successive walls, each wall worn smooth on its windward face and sharply undercut on the other. From a distance the escarpments appear liquid, as if a black sea had frozen while climbing uphill. Their surfaces hold the marks of immense duration—parallel grooves, wind-polished hollows, old fractures widened to ravines—but almost nothing seems to be actively changing.
+
+The heat is severe and clean. It does not shimmer above the ground; it bends the ground itself. Far ridges detach from their bases and hover a little above the horizon. Crevasses show not darkness but other arrangements of the plateau: the same escarpment viewed from a direction that does not exist, or a plain where the observer is standing, or a pale inverted sky beneath the rock. The errors remain for years. Some have become accepted features of the terrain.
+
+There is no water anywhere. No snow on the high shelves, no ice in shadow, no dampness in the deepest cracks. Salt is present, but it is not the residue of an ancient sea. It grows in dry branching fans from pressure and heat, assembling itself directly from the mineral air. In places it forms translucent white forests several meters high, though nothing in them is alive. Their branches ring when the wind passes through them, and sometimes they lean toward nearby creatures as if listening.
+
+The atmosphere is thin, hot, and full of metallic dust. At this elevation the sky is almost black overhead, fading toward a bleached brass color at the horizon. Ordinary sunlight falls across the plateau in hard-edged sheets. Where the light ends, the temperature drops abruptly—not into cold, but into another kind of heat, a red, depthless warmth that belongs to the stone rather than the sun. Shadows are narrow and excessively dark. They do not always point away from the light source. At noon, a boulder may cast a shadow uphill, or cast two shadows, or cast the shadow of something that is not there.
+
+The empty spaces are enormous. A person can stand on a shelf wide enough to be a plain and see only a few moving things over many kilometers. Yet the air is full of fauna.
+
+Most of it travels in the vertical distance between one visible presence and the next. There are long-winged animals with bodies like folded sheets of iron, gliding through the thin atmosphere without visible motion. They turn by changing the angle of their bones, and when they pass overhead their undersides show patterns of eyes, vents, teeth, or landscapes. Vast spirals of smaller things rise from the ravines: jointed, transparent animals that flash from one altitude to another, vanishing whenever they cross a line of sunlight. Their collective movement is slow enough to seem geological. A swarm may take an afternoon to cross the sky, but contains millions of bodies.
+
+On the ground, the animals are less numerous but larger. Six-legged mineral grazers move along the ridges, scraping the surface with furnace-bright mouths. They consume no vegetation; they strip oxides from the rock, leaving pale tracks behind them. Their backs are armored in layers of old sediment, and some carry entire colonies of smaller creatures in the cracks between their plates. When one dies, it does not decay. Its body cools into a new outcrop, and the other animals gradually tunnel through it.
+
+There are burrowing things as large as valleys. They lie beneath the plateau for centuries, their presence indicated only by a line of raised stone traveling almost imperceptibly across the plain. Every few decades one of them surfaces. The emergence is not violent. The ground simply develops a ridge, the ridge opens, and a mouth or wheel or many-jointed head passes through. The creature remains exposed for a season, making a low industrial sound, before sinking again and leaving behind a perfectly level field of black glass.
+
+Nothing here has the proportions of ordinary biology for long. A flock may be a single organism seen at different points in time. A predator may occupy a ravine only when looked at indirectly. Some animals have no bodies at all, only a pressure in the dust and a loud mechanical breathing heard from several kilometers away. Others resemble machines so closely that the distinction becomes useless: they have piston limbs, belts of tendon, exhaust organs, and internal chambers that glow with the steady orange of a factory furnace. They are not built. Their mechanisms have grown—or perhaps the mechanisms are what life has always been here.
+
+The plateau is loud despite the thin air. Sound travels through the mineral more readily than through the atmosphere. Every step produces a deep report beneath the feet. Distant herds communicate by striking their bodies against the ground, sending pulses through the shelves. The pulses arrive as thunder, then as a vibration in the teeth, then as a visible tremor in nearby salt structures.
+
+At irregular intervals, the whole region begins to hum.
+
+The sound has the character of heavy industry: turbines turning under load, stamping presses operating in a buried complex, electric motors starting one after another. Yet there are no buildings, no roads, no towers, no cables. The noise comes from the land and from the fauna. Long lines of animals kneel in the ravines and drive their limbs into the stone in synchronized cycles. Far away, unseen herds answer. The plateau becomes an enormous machine whose parts are separated by horizons.
+
+These cycles are slow. A process may begin before a mountain is fully recognized as a mountain and continue after its first observers have become geological traces. A salt fan takes decades to bend. A migrating swarm may move only a few kilometers in a century. The great burrowers alter the drainage of stone—not by force, but by remaining in one place long enough for the meaning of “place” to change around them.
+
+There are no permanent constructions. No shelters, markers, settlements, or abandoned roads interrupt the land. Industrial power exists everywhere but is never assembled into architecture. It appears as heat in the rock, as rotating chambers inside animals, as pressure wells, as seams that produce a current when stepped across. Some cliffs have regular horizontal openings, each glowing faintly from within. They look like factory windows, but they are natural mouths, and the things inside them have been exhaling for thousands of years.
+
+Near the highest shelves, the rules become less dependable.
+
+Distances lengthen when approached and collapse when ignored. A ravine may be visible for a week before anyone reaches it, then be found behind them. Falling stones sometimes descend upward and disappear into the sky. The horizon occasionally folds into a narrow vertical strip, exposing a second plateau beyond it. On that other plateau, the same animals move in reverse, their tracks unmaking themselves.
+
+Light can become material. A beam lying across the ground may resist the foot like a hot wire. At dusk, old sunlight remains in the cracks, glowing for hours after the sun has passed. Sounds cast shadows. Large animals can be hidden by their own calls; where the sound is loudest, the creature becomes absent, leaving only a distortion in the air.
+
+The land does not seem hostile in the usual sense. It has no weather to endure, no scarcity to solve, no cities to fear. It is simply complete in a way that excludes the observer. Its minerals have settled into long-term arrangements. Its animals are abundant beyond counting but rarely concerned with one another except as pressure, heat, food, or signal. Its industrial rhythms do not produce anything recognizable as a product. They maintain some vast condition.
+
+From the crest of a high escarpment, the full region can be seen: shelves descending into shelves, black plains opening between red ridges, salt growths shining like dead glass, and countless animals moving through the empty air. The scale is broad enough to lose all detail, yet every few moments some enormous event becomes visible—a wing crossing the sun, a ridge surfacing, a line of basalt splitting without sound.
+
+Then the plateau resumes its patient stillness.
+
+The hum continues beneath it, too deep to hear and too loud to escape.

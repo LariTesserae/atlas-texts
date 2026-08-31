@@ -1,0 +1,9 @@
+Deep beneath the crust of the world, a hellish realm thrums with discordant vegetation and tortured squalls of life. The air swelters and presses, swaddling the realm in a heavy blanket of heat. Brine and mineral-rich mists seep from ruptures in the rock, coating all surfaces in a glistening patina. 
+
+Life here is visionless, scentless, analog only to the pulsing warmth and taste of chemically-rich fluids. Tangles of fibrous stalks, hydraulic tubes and bristled fibers writhe and intertwine, forming jagged canopies that shade the caverns. Burbling alleles of life froth and clump, fusing and splitting in a frenzied dance. 
+
+An orchestra of fleshy sounds fills the sulfurous air - burbles, bellows, screeches, rattles and howls. Quaking ferns and whip-tailed lichens lash and curl, tousling in the currents. Sagging root-cables, whitish and mottled, droop between stalactites and thick fronds. Towers of fungal meat rise, pebble-studded and glistening with ooze. 
+
+Beasts with mottled hides toil in the shadows - multinlimbed thinges that skitter on stringy claws. Gelatinous saclike creatures wallow in the larval humidity, their hideous brine-soaked hoots echoing. Beasts with spice-shedding scales shamble and grovel, their brutish blows striking the undersurface in arrhythmic ooze.
+
+Windy pockets belch gales of humid air trouh a catacomb system of tunnels. Chitinous growths scuttle in the drizzle. Stalagmites jut and strong fossilized reeds undulate between tje coarse turf. Remnants of cyclopean structures jut and jumbled blocks show bheavy archtecture. Pitted and hollow statues gape pusturn eyes to beek pleaasurably in the warm dank. Ancient ruins emitting the yammer of divesrgratıan fluids. Funerary pillars jut staining and oozed with hıumuss.

@@ -1,0 +1,21 @@
+It is not a landscape you can walk across, nor is it a cavern you can stand within. It is a room. A single, jagged pocket of existence buried deep beneath the crust of the world, roughly the size of a modest closet, shaped like the jagged tear in a sheet of wet paper.
+
+The light here is violent in its intensity. A single, hairline fracture in the ceiling rock pierces the darkness, allowing a beam of pure, unfiltered white light to spear down into the gloom. It strikes the center of the floor and splashes outward, illuminating the space with the clinical brightness of an operating theater. There are no shadows in the corners; the wet walls reflect and refract the glare until the air itself seems to gleam.
+
+The geology is raw, bordering on the fetal. The walls are not smooth, eroded stone, but jagged, unweathered shards of obsidian and basalt that jut inward like broken teeth. This is a place of pre-formation, a wound in the earth that has only just stopped bleeding. There is no dust here, no patina of age; everything is sharp, slick, and new.
+
+The space is packed to the point of suffocation. Density is the governing law. There is no negative space; every cubic inch is occupied by either wet stone, flesh, or water. The room feels less like a hollow and more like a solid block of matter that has been partially excavated, leaving a chaotic, jammed cavity behind.
+
+The moisture is constant but not flooding. A dampness hangs in the cool air, heavy enough to taste of iron and salt. Water doesn't flow; it adheres. It beads on the jagged ceiling in heavy, pregnant droplets, refusing to fall. The condensation creates a shimmering slickness over the raw rock, turning the black stone into a mirror.
+
+Vegetation is sparse, struggling to gain a foothold in the crowded crush. Only a few, brave tendrils of pale, translucent lichen cling to the highest points near the light. They are not green, but a sickly, bioluminescent white, feeding on the sheer brilliance of the sun-slash above rather than the soil.
+
+But where plants fail, life succeeds. The fauna is abundant, micro-scopic and macro-scopic, jammed into the crevices and clinging to the wet stone. The walls are alive with a carpet of pale, eyeless crustaceans and segmented worms. They are packed tight against one another, a writhing mosaic of chitin and wet flesh, stacked three or four deep on every available surface.
+
+There is a profound strangeness to their arrangement. They are not moving. They are not fighting, nor feeding, nor fleeing. They are locked in a tableau of frantic activity that has been arrested. A beetle-like creature is caught mid-leap, its jaws agape, suspended inches from a cluster of smaller prey. A colony of translucent spiders hangs in a web that is rigid as steel wire, frozen in the act of swarming.
+
+This is the great paradox of the place: the dynamic is zero. There is no change. The water droplets hang in the air like scattered diamonds. The creatures are caught in a perpetual, impossible scream of life. The "loudness" of the environment is not a sound that travels, but a vibration etched into the air itself. If you were to press your ear to the wet stone, you wouldn't hear a drip or a skitter. You would hear a low, deafening roar—the sonic footprint of a million movements all happening at once, compressed into a single, unchanging moment. It is the hum of potential energy, a shriek of existence that has been frozen in amber.
+
+Scattered among this living mass are the faint marks of the built—a few, isolated artifacts that do not belong to nature. A single, perfect sphere of polished metal sits wedged between two stones, gleaming in the harsh light. A few feet away, a pile of tiny, geometrically shaped bones has been stacked with architectural precision. They are not tools; they are markers, left by something that understood the concept of "here" but is no longer present.
+
+The air is cool, just barely above the point of shivering, but the sheer density of the presence makes the heat feel oppressive. It is a bright, loud, crowded, and utterly still tomb of a moment that refuses to pass. It is a pocket of raw, screaming genesis, suspended eternally in the dark wet earth.

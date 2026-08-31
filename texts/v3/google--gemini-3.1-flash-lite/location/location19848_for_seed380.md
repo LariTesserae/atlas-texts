@@ -1,0 +1,15 @@
+You have descended into the Sump-Vaults, a subterranean urban sprawl carved into the living silt of a gargantuan, buried shelf. Here, the world is inverted; you are walking on the ceiling of a deeper darkness, and the ground itself is a slick, weeping architecture.
+
+It is a city of low-ceilinged tunnels and cramped, damp plazas, all built from rusted iron, salt-crusted copper, and a strange, spongy synthetic stone that seems to inhale the humidity of the air. The temperature is perpetually cool, holding at a shivering dampness, as if the entire city is sweating in the dark. 
+
+Every surface is slick. Water is not merely present; it is a structural component. It trickles down the jagged, eroded walls in rhythmic, patient beads, feeding the slow-cycling moss that clings to the base of the industrial vents. The infrastructure here is heavily established—rusted pipes hum with a low-frequency vibration that you feel in your teeth more than you hear with your ears. Massive, gargantuan cog-wheels, half-submerged in the muck, have ceased their spinning decades ago, now acting as structural buttresses for the narrow walkways that wind between the sagging buildings.
+
+Despite the heavy, industrial layout, the space is remarkably empty. There is a profound sense of isolation. You can walk for an hour through the rusted corridors of an old refinery-ward without seeing another soul, yet you are never truly alone.
+
+The fauna here is persistent and strange. Small, pale crustacean-things with translucent shells scuttle along the undersides of the rusted ceiling rafters, clicks echoing sharply against the wet metal. Larger, soft-bodied organisms, resembling jellyfish bloated with bilge-water, drift slowly through the air of the upper chambers, trailing long, stinging filaments that sweep the damp stone clean of debris. They move with a metabolic patience that matches the dripping of the walls.
+
+The light is the most alien thing of all. There is no sun, of course; the illumination comes from bioluminescent fungi clinging to the circuitry of exposed wires, casting a sickly, flickering violet-green glow onto the puddles. The shadows they cast are long, shifting, and deeply stubborn, refusing to move even when you approach them with your own light.
+
+There are no engines roaring here; the industrial age has settled into a state of decrepit, quiet entropy. You hear the occasional *plink* of a droplet hitting a pool of oily water, the wet scrape of a scavenger’s limb on metal, and the low, pressurized hiss of a venting steam-pipe—a sound so constant it has become the equivalent of silence. 
+
+Everything is in a state of suspended decay. The erosion is not the violent kind of a river, but the patient, chemical wear of a world that has been weeping for a century. You feel that if you stayed here too long, the dampness would work its way into your own pores, turning you into just another quiet feature of the architecture: a weathered monument, perfectly in place, waiting for the ceiling to drip just one more time.

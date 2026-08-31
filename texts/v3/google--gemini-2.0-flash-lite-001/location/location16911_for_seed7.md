@@ -1,0 +1,15 @@
+This place is not a cave, exactly, though it feels like one. The air hangs heavy, humid, though there’s no clear source of water. The rock here is a dark, porous basalt, scored by recent flows that have barely cooled; the ground is sharp with broken shards. It seems as though the world is still forming, the very bones of it shifting. The source of the intense, oven-like heat isn’t obvious, but it’s real—and it doesn’t seem to be coming from outside.
+
+The scale is small, a rough circle maybe four hundred meters across. The *cave* is more of a shallow depression—the roof is long gone, if there ever was one. What walls exist rise up at strange angles, hinting at the force that formed them. Some are sheer, others are terraced with steps the size of cathedrals.
+
+Lush, strange vegetation clings to the rock. The plants are mostly a deep, dusty maroon, with oversized leaves that seem to drink in the darkness. There are no flowers, no fruits—just these thick, leathery leaves unfurling slowly. In some places, these plants have taken root in the terraced steps, creating a slow-motion cascade down the rock. 
+
+The sparse nature of the place means the plants don’t compete much, and the ones that manage to take hold seem to thrive. There are no animals. Only these silent plants, and the faint, grinding hum of some unseen machinery.
+
+Scattered across the landscape, barely visible, are the remains of an industrial presence. Structures built from the same dark basalt, but in perfect, geometric precision, are here and there. They were clearly built to withstand tremendous forces, but many are broken, as if something from below—or a cataclysm from above—shattered them. Remnants of what appear to be pipelines and vents snake across the terrain, half-buried in the still-cooling rock. It’s hard to tell if these were for water, or some kind of chemical process, but they’re all dry now, like the world has been wrung empty. You can glimpse tiny, metallic glints here and there, where the basalt swallowed whatever was left.
+
+The only sound is a low, almost subsonic thrumming that seems to vibrate the very air. The source of it is probably down, somewhere, below the bottom of this bowl, which also probably holds the explanation about the heat.
+
+The weird part is how the light works, or doesn’t. It’s dark here, pitch black at the deepest of the shadows. But somehow, you can still see. Not with light, not in the traditional sense. It's more like your awareness of the space is being filled in, slowly, as if the landscape itself is revealing itself to your mind's eye. There’s a dim, internal illumination that doesn’t cast shadows—just shapes. 
+
+There are no rules here, not on the surface. But this place feels alive, like it’s remembering something, working itself out. It feels as if everything is shifting, ever so slightly, with each silent tick of geologic time. And in that slow dance, as the rock reforms around the forgotten machines and the giant plants slowly unfurl, this place has a feeling of terrible, gorgeous beauty.

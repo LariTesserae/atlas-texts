@@ -1,0 +1,15 @@
+In the high reaches of an ancient, eroded plateau, a vast ecosystem thrives, dense and urban in its complexity. This is a world of pure vegetation, where plants have become the architects, engineers, and inhabitants of a living, technological metropolis unlike anything known on modern Earth.
+
+The atmosphere is thick with moisture, beads of condensation clinging to every surface, feeding a perpetual cycle of rain, mist, and weeping rock faces. The temperature hovers just above freezing, a persistent chill that seems to emanate from the very stones, worn smooth by eons of erosion.
+
+Underfoot, the ground is a seamless tapestry of roots, mosses, and hardy lichens, knitted together into a dense, spongy mat that absorbs and distributes the ever-present moisture. Towering above, the true giants of this realm reach for the sky – vast, twisting trunks of living wood, their branches intertwining and fusing into intricate, self-supporting arches and vaults.
+
+Within this living architecture, entire ecosystems flourish, each plant species playing a role in the larger whole. Luminous fungi cast a soft, bioluminescent glow, their mycelial networks acting as a vast, interconnected neural network, processing information and coordinating growth and repair. Thick mats of moss insulate and filter the air, while specialized plants capture and purify water, or generate and distribute nutrients.
+
+The scale of this living environment is staggering, stretching as far as the eye can see, a vast, continental expanse of densely packed vegetation. Yet within this apparent uniformity, countless micro-environments exist, each with its own unique conditions and specialized flora. Pockets of warmth radiate from composting masses, while icy streams and subterranean aquifers thread their way through the depths, nourishing strange, pale ecosystems.
+
+And everywhere, the hum and rush of water, the creak and groan of living wood, the susurrus of countless leaves and fronds – a constant, living symphony that rises and falls with the cycles of growth and decay.
+
+This is a world beyond modern technology, where plants have harnessed forces and principles we scarcely understand. Their roots delve deep, tapping into geothermal energy and mineral reserves, while above, vast arrays of specialized fronds and structures capture and process light, wind, and atmospheric gases. Nanoscale processes govern the transfer of nutrients and information, while at the largest scales, weather systems and climate are shaped and modulated by the living whole.
+
+Life is omnipresent here, a single, vast organism composed of countless smaller ones, all working in symbiotic harmony. Rare mobile fauna flit through the branches like memories of another age, mere guests in this verdant, ancient realm. This is the culmination of life's long experiment on this world – a planet-spanning, self-sustaining, technological ecosystem composed entirely of plants. Unchanging, densely packed, loud with the sounds of its own existence, it has settled into its final, timeless form – the ultimate urban jungle.

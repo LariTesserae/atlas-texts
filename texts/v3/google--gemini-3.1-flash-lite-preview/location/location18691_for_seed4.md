@@ -1,0 +1,15 @@
+You must lean in close, pressing your face against the cold, velvet-slicked wall of the world to find it. This is a city built within the hollow of a single, colossal, ancient bulb—an organ the size of a human torso, rooted deep in a fissure of frozen, weeping shale.
+
+Everything here is soft, damp, and breath-takingly alive.
+
+The "architecture" is a marvel of biological weaving. Centuries ago, the inhabitants—small, pale, multi-jointed creatures who move with the delicate precision of clockwork spiders—began stitching the inner membranes of the bulb together. The walls are not made of stone or wood, but of layered, translucent bracts that pulse rhythmically, drawing water from the weeping rock outside and filtering it into micro-streams that bead and run along living conduits.
+
+The air is a heavy, subterranean mist, hovering just above freezing. It tastes of crushed moss and ozone, thick with the scent of a billion spores that drift like snow in the near-total darkness. Because light is absent, the city does not rely on sight. The infrastructure is defined by *vibration*. Thin, fibrous filaments, like guitar strings plucked by the cooling contraction of the bulb, run from floor to ceiling. When a citizen needs to travel or trade, they pluck these threads, sending ripples of information through the damp, dark corridors.
+
+The layout is sparse, almost meditative. There are wide, empty chambers—some large enough to hold a few of the creatures, others meant for a single, hunched occupant—all connected by suspended bridges made of hardened sap and woven root-hair. It feels like an urban sprawl viewed through the wrong end of a telescope. Every "building" is just a bulging, asymmetrical pocket of leaf-matter, reinforced with bone-needles and resin seals.
+
+The ecology is overwhelming, yet it keeps to the shadows. Thousands of tiny, blind organisms—pale mites, damp-beetles, and translucent worms—scuttle through the arterial pathways of the walls. They are the livestock, the waste-managers, and the building materials. There is a constant, wet, rhythmic *thrum* beneath your feet, a slow-motion peristalsis as the bulb itself digests the minerals brought in by the surrounding marsh-water, converting the exterior grime into the very pulp the city-dwellers use to expand their homes.
+
+It is a quiet, fragile city. To walk here is to tread on the skin of an organism that is both your house and your food source. If you hold your breath and press your ear to the floor, you can hear the "urban" life of the place: the faint, syncopated *click-scrape* of the inhabitants mending a leak in the roof, the wet *drip* of condensation falling into a catchment basin, and the deep, subterranean groan of the bulb as it shifts, ever so slightly, against the freezing rock of the world’s crust. 
+
+It is a small, cold, dark secret of a place, a tiny industrial core hidden inside a living lung, breathing in the water, stitching the dark, and waiting for the next tremor of the earth to tell it which way to grow.

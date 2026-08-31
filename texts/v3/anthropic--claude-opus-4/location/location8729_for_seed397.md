@@ -1,0 +1,17 @@
+The machine-city breathes steam into perpetual twilight.
+
+Built into a series of freshly carved terraces along a volcanic plateau, the settlement spreads across perhaps two square kilometers of black basalt shelves. Each terrace catches runoff from the one above, creating a cascading system of industrial pools and channels. The rock here is young—maybe decades old at most—still sharp-edged and glassy where the mining engines first cut through. No time yet for weather to soften these edges.
+
+Water seeps everywhere. It condenses from the warm air onto the metal surfaces of the sprawling factory complex, drips from corrugated roofing, pools in the geometric depressions carved for foundations. The entire plateau weeps—volcanic heat from below meets the cooler air above, creating a permanent zone of condensation. Every surface glistens.
+
+The factories themselves are sparse, industrial islands separated by wide expanses of wet black stone. A smelting complex here. A processing facility there. Between them: empty courtyards of basalt where water collects in perfect rectangular pools, reflecting the dim orange glow of the furnaces. The architecture is purely functional—riveted metal walls, exposed piping, catwalks connecting the scattered buildings like a web of iron thoughts.
+
+No plants exist here. The only growth comes from pale films of thermophilic bacteria painting rainbow sheens across the warm puddles, and occasional patches of white mineral deposits where the heated water evaporates. The ground is sterile stone and metal grating.
+
+But the fauna thrives. Clouds of moths congregate around the factory lights, their wings creating a constant flutter in the humid air. Beetles the size of thumbs traverse the wet stones, adapted to drink the mineral-rich condensation. In the deeper pools, things move—engineered or evolved, it's hard to say. Segmented creatures that clean the industrial runoff, processing waste into less toxic forms. Rats modified for heat resistance scurry along the steam pipes. The factories were built for human industry, but life has contracted around them, forming its own ecosystem in the wet, warm spaces between the machines.
+
+The sound never stops. Steam vents hiss. Pumps cycle water through the system with rhythmic thumps. Gears turn. Furnaces roar. The animal calls—chittering, squeaking, buzzing—weave through the mechanical noise. During shift changes, human voices and footsteps add to the cacophony, but even in the empty hours between, the city maintains its industrial metabolism.
+
+Everything here exists in perfect stasis. The factories produce at the same rate they have since founding. The water cycles through the same channels, depositing minerals in the same patterns. The adapted creatures follow the same routes, generation after generation. Even the dim light remains constant—furnace glow mixing with the rare emergency bulbs to create a permanent dusk, neither day nor night.
+
+The edges of this place are definite. Where the terraces end, the plateau drops sharply away into whatever lies below. The city is an island of industry floating in the heights, self-contained and unchanging, its boundaries as sharp as the young volcanic stone it's built upon. A place of metal and water, of adapted life and endless mechanical breathing, suspended between the earth's heat and the sky's cooling touch.

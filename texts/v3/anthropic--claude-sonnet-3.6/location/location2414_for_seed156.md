@@ -1,0 +1,13 @@
+A stone cathedral stands inverted, its spires plunging down into a perpetual mist rather than reaching skyward. But "stone" isn't quite right - the entire structure appears to have been grown from some pearlescent, living material that bears the patina of centuries. The surfaces are covered in intricate patterns that might be carvings or might be growth rings, spiraling and branching like frost on a window.
+
+Water seeps continuously from the walls, not dripping but rather flowing upward in defiance of gravity, collecting in pools on the underside of buttresses and archways. These pools reflect light that has no obvious source, casting shifting patterns across the walls that sometimes align perfectly with the surface patterns, making portions of the architecture momentarily transparent.
+
+The space feels simultaneously vast and intimate - while you can never see more than a few dozen feet through the thick, opalescent air, the sense of depth below is profound. Occasional echoes suggest immense spaces, but they seem to arrive from directions that contradict each other, as though sound itself is being gently folded.
+
+The sparse vegetation that exists here takes the form of crystalline structures that might be mineral growths or might be plants, sprouting from the joints and corners of the architecture. They chime softly when the ever-present moisture touches them, creating a barely-audible harmony that seems to hold the mist in place.
+
+The whole environment feels densely packed with meaning - every surface bears these intricate patterns, every corner hosts its crystal garden, every pool of inverse water reflects something that isn't quite there. Yet it's peaceful, operating on a time scale that makes human movement seem frantic in comparison. The only quick things here are the occasional shadows of creatures that might be birds or might be fish, moving through either water or air - it's increasingly difficult to tell the difference.
+
+Temperature hovers just at the edge of comfortable, cool enough to make the moisture noticeable on your skin but not cold enough to be truly chilling. The air tastes like the moment before rain, perpetually.
+
+Everything here feels made, crafted with impossible precision, but not by any technology we would recognize. It's as though natural laws themselves were carefully reshaped into this form, then left to age and weather into their current state. There's a sense that if you could understand the patterns, really understand them, you would find they contain everything - music, mathematics, memory, meaning - but understanding slips away like water flowing upward, leaving only the certainty that you're standing in something more like a thought than a place.

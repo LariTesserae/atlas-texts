@@ -1,0 +1,11 @@
+The city of Fungal Spires emerged in my mind as I pondered the parameters. At 1.1 elevation, low hills cradle the settlement, their slopes blanketed in moss. The built environment scored a 2.0 - this is no mere village but an urban landscape, though small in scale at 0.9, more hamlet than metropolis. 
+
+Ancient stone structures form the foundations, weathered and settled from millennia of use. But atop this solid base, a living city thrives. Vegetation registers 2.6 - near total. Great fungal towers rise story upon story, their caps flared in riotous colors. Vines and creepers scale the walls, weaving through windows and doors. Even the streets are more mycelium than cobblestone, a springy living carpet underfoot.
+
+Despite the lush greenery, the air is cool at 0.8 and damp at 0.9. Condensation beads on leaves, drips from fungal eaves, gathers in hollows. A light mist often drifts between the spires, muffling sounds to a hushed 0.8. The quiet is broken only by the drip of water, the sigh of wind through overhead caps, the occasional chuff and clank of the city's industry.
+
+For Fungal Spires is an industrial landscape, registering 1.9 in technology. Interspersed among the living towers are brick factories and warehouses, their chimneys puffing steam. Gears grind and pistons hiss as great machines process the prodigious fungal harvests. Conveyor belts snake through the greenery, carrying caps and stems to production.
+
+Fauna is rare at 0.7, just a few hardy insects and rodents scurrying in the shadows. Yet the city throbs with a vital pulse, its dynamic score high at 2.4. Vines visibly climb, caps unfurl and release spores in shimmering clouds, mycelial networks pulse with growth. The very stones shift as fungi feast on them, quarrying and reshaping living architecture.
+
+Light is normal at 1.6, though filtered through a million leaves into dappled green. And a touch of weirdness permeates the scene at 1.1. Bioluminescent fungi provide an eerie nightglow, strange spores induce waking dreams, the very layout shifts as new growth blocks old paths. In Fungal Spires, the built and grown intertwine in one thriving, breathing, ever-changing landscape - small in footprint but vivid with verdant life.

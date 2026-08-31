@@ -1,0 +1,3 @@
+As I enter this landscape, my senses are immediately overwhelmed. The air is thick with moisture, and my feet sink into the wet ground with each step. The sound of water can be heard all around, from the gentle trickle of a nearby stream to the thunderous roar of a distant waterfall.
+
+The terrain is low and flat, covered in a thick layer of black, volcanic soil. There is no sign of vegetation anywhere, and the ground is litter

@@ -1,0 +1,19 @@
+**The Singing Cavity**
+
+Deep beneath cracked mineral plains lies a pocket no larger than a cathedral nave, though its geometry defies such simple comparison. The chamber formed recently—perhaps mere centuries ago—when tectonic grinding opened this void in dense crystalline substrate. Its walls remain sharp-edged, unweathered, bearing the fresh scars of their violent birth.
+
+The space thrums with impossible life. Thick ropes of what might generously be called vegetation cascade from the ceiling—though these are not plants as surface-dwellers know them. They are colonies of silicon-based filaments that metabolize minerals directly from the surrounding rock, excreting acids that etch elaborate fractals into every surface they touch. These acid-vines glow faintly bioluminescent, pulsing in nauseating yellows and infected greens, their light barely sufficient to reveal the chamber's disturbing vitality.
+
+The warmth here is geological, radiating from deep thermal vents that crack the floor at wide intervals. These vents exhale not water but superheated metallic vapors—mercury, gallium, indium—that condense into mirror-bright pools no bigger than dinner plates before evaporating again in endless cycles. The atmosphere tastes of copper and ozone.
+
+Between the scattered thermal blooms, the floor stretches relatively empty save for occasional structures: simple cairns of stacked mineral plates, their surfaces carved with repetitive spiral patterns. Tool marks suggest patient scraping with harder stone, though the builders remain absent. Some cairns have partially collapsed; others stand pristine, as if assembled yesterday. Time moves strangely here—or perhaps doesn't move at all. The cairns never weather further. The acid-etched walls never deepen their scars. Even the colony-vines, for all their apparent vitality, neither grow nor diminish.
+
+The fauna fills this unchanging space with cacophony. Creatures like armored centipedes the length of forearms navigate the walls and ceiling, their shells incorporating actual metals—tin, zinc, iron—scavenged from the vapor pools. They communicate through percussion, hammering their metallic segments against the crystal walls in complex rhythms that overlap and interfere, creating beats and harmonics that make the entire chamber ring like a struck bell. 
+
+Stranger still are the floaters—jellyfish-analogues that swim through the dense metallic atmosphere, their translucent bodies shot through with veins of liquid mercury that shift and flow with their movements. They emit subsonic drones that make the acid-vines shudder and add bass notes to the endless percussion symphony.
+
+At the chamber's heart, where several thermal vents converge, stands the oddest structure: a low platform built from fused mineral glass, its surface worn smooth by countless touches. Atop it rests a single tool—a grinding stone of unusual hardness, its working surface coated with metallic residue in rainbow oxidation patterns. The stone is always warm, always faintly vibrating with the chamber's acoustic chaos, waiting for hands that never come.
+
+The only entrance is a narrow chimney that drops from somewhere far above, too tight for anything larger than the centipede-things to navigate. How the cairn builders entered—or left—remains unclear. Perhaps they never did either. Perhaps they simply were, and then were not, leaving only these markers in a space where past and present exist in permanent suspension, where lush alien life thrives without water, where the din never changes and the warm darkness pulses with metropolitan energies despite the vastness of empty space between each presence.
+
+The chamber persists in its frozen moment: newly-born yet ancient, teeming yet sparse, built upon yet abandoned, forever about to become something else, forever exactly as it is.

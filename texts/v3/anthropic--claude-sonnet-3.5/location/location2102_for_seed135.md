@@ -1,0 +1,17 @@
+In the heart of a secluded valley, a peculiar settlement emerges from the mist-shrouded terrain. The air is cool and heavy with moisture, carrying the constant sound of water in motion. This is not a place of greenery or life as we know it, but rather a realm where inorganic matter has taken on an almost organic quality.
+
+The ground beneath your feet is a patchwork of smooth, interlocking stone tiles in various shades of gray and blue. These tiles are not placed by hand, but seem to have grown naturally, fitting together with impossible precision. Thin rivulets of water run between the cracks, creating a constant, gentle burbling that underlies all other sounds.
+
+Rising from this foundation are structures that defy easy categorization. They appear to be buildings, but their forms are fluid and ever-changing, as if the very stone they're made from is in a constant state of flow. Spires twist upwards, arching and bending like frozen waterfalls, while domed roofs ripple like disturbed pond surfaces. The walls of these structures are deeply pitted and porous, allowing water to seep through and create intricate, ever-shifting patterns on their surfaces.
+
+The settlement is densely packed, with narrow alleyways winding between the fluid-like buildings. These passages are often flooded with ankle-deep water that moves with purpose, as if it were the lifeblood of this strange, mineral city. Bridges of crystalline material span the wider water channels, humming with a low, resonant tone as water flows beneath them.
+
+Despite the absence of plant life, the city is far from barren. Mineral formations grow from every surface – delicate filaments of quartz, robust columns of basalt, and shimmering sheets of mica that catch and reflect the diffuse light that permeates the misty air. These formations seem to be in a constant state of growth, albeit at a pace imperceptible to the human eye.
+
+The soundscape of this place is a cacophony of liquid music. Water droplets fall from overhanging mineral growths, each impact creating a unique note. The flow of water through the city's veins produces a constant, underlying drone. Occasionally, a louder crash or splash echoes through the streets as a mineral formation shifts or a new water channel bursts forth.
+
+Rare creatures can be glimpsed in this mineral maze – not organic life as we know it, but beings that seem to be living embodiments of the landscape itself. They move slowly, their bodies a shifting mass of crystal and stone, leaving trails of mineral growth in their wake.
+
+The technology here is primitive, yet perfectly adapted to this unique environment. Tools are grown rather than forged, coaxed into shape through careful manipulation of mineral deposits and water flow. Simple machines harness the constant movement of water, powering rudimentary lifts and gates throughout the city.
+
+This is a place of perpetual wetness, where the line between solid and liquid is constantly blurred. It exists in a state of dynamic equilibrium, never truly changing yet always in motion. The cool, damp air and the ceaseless sound of flowing water create an atmosphere of timeless serenity, as if this mineral city has always existed and always will, a testament to the creative power of water and stone.

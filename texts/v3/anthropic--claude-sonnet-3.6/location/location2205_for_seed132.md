@@ -1,0 +1,19 @@
+In the high reaches where the air grows thin, the city of Ten Thousand Ladders clings to the near-vertical faces of the Weeping Cliffs. The ancient stone sweats constantly, seeping water that feeds countless hanging gardens and fills the musical channels that wind between dwellings. These waters never freeze, despite the biting cold, carrying some deep warmth from the mountain's heart.
+
+The city itself is a dense maze of timber and stone structures, each built atop and alongside others in precarious harmony. Rope bridges and wooden walkways create a three-dimensional web of passages, while actual ladders - some carved directly into the rock face, others woven from local vines - connect different levels. The buildings seem to grow like shelf fungi on a tree trunk, their slate roofs glistening with moisture and bright moss.
+
+The soundscape is never still: water music plays constantly as it flows through bamboo pipes and stone channels, while the calls of countless birds echo between the cliff faces. The local species have adapted to urban life - six-winged corvids nest in the eaves, and luminous salamanders large as cats prowl the vertical gardens in search of the giant snails that feast on the abundant vegetation.
+
+The gardens themselves are a triumph of ancient engineering. Terraces cut into the rock face thousands of years ago now overflow with ferns and flowering vines. Thick clusters of mushrooms glow with subtle bioluminescence in the perpetual mist, providing both food and light to the city's inhabitants. The locals have learned to weave living bridges from certain species of vine, creating passages that grow stronger rather than weaker over time.
+
+The city exists in a state of perpetual twilight, the sun obscured by both the mountain's height and the constant mist that rises from the warm springs. This creates a curious microclimate where tropical plants thrive despite the altitude, their leaves collecting moisture from the air itself. The temperature drops dramatically just a few hundred feet above or below the city's level, creating a narrow band of habitable space that the settlement has expanded to fill completely.
+
+The inhabitants move with the practiced ease of mountain goats along paths that would terrify lowlanders. Their technology is simple but elegant - water-powered lifting systems, carefully balanced counterweights, and intricate networks of pulleys allow them to transport goods vertically through the city. Their tools are primarily wood, stone, and bronze, worked with techniques passed down through generations.
+
+Strange formations dot the cliff face - what appear to be statues but might be natural formations, their features too regular to be random but too organic to be clearly artificial. These "guardians" seem to weep more copiously than the surrounding rock, their tears feeding special pools used in local ceremonies.
+
+The city's sounds change with the time of day - the morning brings the hollow boom of great bronze gongs that serve as both timekeepers and warning systems for weather changes. At night, the wind plays through specially carved channels in the rock, creating an eerie chorus that the locals claim carries messages from their ancestors.
+
+Weather moves through the city in visible layers - sometimes three different types of clouds can be seen at different elevations, creating distinct neighborhoods with their own microseasons. The locals navigate these changes instinctively, knowing which paths to avoid when certain winds blow, which gardens will fruit in which conditions.
+
+It's a place that exists in the margins between categories - neither fully natural nor fully artificial, neither purely vertical nor horizontal, neither warm nor truly cold. The city breathes with its inhabitants, the line between built environment and living ecosystem long since blurred into irrelevance.

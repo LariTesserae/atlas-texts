@@ -1,0 +1,31 @@
+## The Burrow Commons
+
+You have to fail to find it. That is roughly the only way in: a misstep at the edge of a cold fen, a boot punching through the knitted skin of moss, and below — not water, not peat, but a hollowness, a held breath in the green.
+
+The chamber is perhaps the size of a small chapel, and it is entirely made of plant. Not lined with plant — *made* of it. The walls are root, thousands of pale roots descending from the bog above, woven so densely they have become a single material, like the inside of a basket woven over a hundred years by something patient. The floor is sphagnum grown thick and then compressed by traffic into a firm, springy felt. The ceiling drips. Everything here drips, slowly, on long intervals, the water filtering down through ten meters of living mat above, arriving cold and clean and tasting faintly of tannin. Each drop falls a long time before it lands. The air is a few degrees above freezing and saturated; your breath would fog if there were any light to see it by.
+
+There is almost none. The darkness here is not the darkness of night but of interior — the dark of a closed hand. In one far corner, a single colony of fungus on a dead root gives off a glow so faint it functions less as illumination than as rumor. The inhabitants do not use it. They do not need it.
+
+Because the chamber is inhabited. Densely, overwhelmingly inhabited — and yet the *built* parts of it stand far apart from each other, scattered across the moss floor with long stretches of open dark between them, the way farmsteads sit in a valley. The population vastly outnumbers the architecture. The architecture is just where the population organizes itself.
+
+---
+
+**The city.** It belongs, mostly, to the vole-folk — that is the easiest way to say it, though they are not quite voles. Small, blind, dense-furred against the cold, with clever forepaws and whiskers half the length of their bodies. They have been here only a few generations; the chamber itself is young, opened when a great root mass died and rotted out perhaps thirty years ago, and the wall-roots still show the rawness of new growth — sharp white tips, fresh splits weeping clear sap that beads in the dark like glass. Nothing here has had time to soften. The corners of the hollow are still corners.
+
+The vole-folk build the way you would expect of a people with teeth, paws, and patience: wattle. They gnaw rootlets to length, soak them in the drip-pools until pliable, and weave them into domed granaries, palisaded yards, covered walkways. They daub the weave with chewed moss-pulp that dries into a felted plaster. Their finest structure — you would call it the Commons — is a long low hall raised on the floor's one dry hummock, its roof a marvel of overlapping woven shingles, each one a single broad dead leaf hauled down from the surface world through the root-walls and pressed flat under stones. They have no metal. They have no fire — fire is unthinkable here, in a room made of fuel. Their tools are split bone, snail-shell scrapers, gnawing.
+
+Between the built clusters: open moss, drip-pools, silence. The settlements keep their distance from one another not out of enmity but out of acoustics. In a dark world you live by sound, and you do not crowd your neighbor's hearing.
+
+---
+
+**The traffic.** And here is the thing the architecture only hints at: the chamber *moves*. The walls are never still. The root-weave of the walls is a vertical territory swarming at all hours with life — springtails in their millions, a gray fog of them, flowing over the wet root-faces like animate dust; pale crickets that have lost their eyes and grown their antennae long as fishing lines; flatworms gliding the drip-channels; isopods in slow herds, grazing the films of fungus, some of them branded with notch-marks because the vole-folk *keep* them, drive them in shuffling droves between fungus-pastures with switches of root-fiber. Salamanders, cold and patient as stones, station themselves below the drip-points and are fed by gravity. In the pools, blind shrimp the color of candle wax. Overhead, in the ceiling roots, something larger moves sometimes — a slow, heavy displacement of the weave, never identified, accepted the way a coastal town accepts the sea.
+
+The biomass of animals in this room exceeds the biomass of the city a thousandfold. The vole-folk are not the dominant life here. They are merely the only ones who *arrange* things.
+
+---
+
+**Sound.** Mostly quiet — but it is the quiet of a library, not of a tomb. Listen long enough and it resolves into layers. The drip-clock: each drip-point has its own interval and pitch, and the vole-folk know them all; they tell time and give directions by drips. ("Past the slow deep one, left at the double.") Under that, the hiss of springtail multitudes on root-bark, a sound like very fine rain that never arrives. The squeak-creak of growing root — the walls audibly grow, especially in the wet season, a sound like rope under strain. And threading through everything, the vole-folk's own speech, which is conducted half in ultrasonic whisper and half in a touch-language of whisker against whisker, so that two of them in conversation look, to nothing, like nothing, in the dark.
+
+**The strangeness,** if you want it named: the chamber breathes. Twice a day the bog above shifts its weight with the water table, and the whole room exhales — a long, cold, plant-smelling draft moving through the root-walls, ruffling the fur of everything, swinging the woven door-flaps of the Commons. The vole-folk treat the breath as weather, as calendar, as a kind of presence. Work stops during the exhale. Whatever the room is part of — whatever the bog is, taken whole — the inhabitants have concluded it is alive at a scale they decline to think about, and they keep their city small, and spaced, and quiet, the way one builds politely inside a sleeping thing.
+
+A drop falls. Somewhere a herd of isopods is turned out to pasture. The walls grow a fraction of a hair. The dark goes on being full.

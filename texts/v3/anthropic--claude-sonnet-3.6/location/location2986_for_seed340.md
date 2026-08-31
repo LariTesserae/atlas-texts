@@ -1,0 +1,17 @@
+A Crystalline Aviary
+
+Deep within the mountain, a vast chamber has been hollowed from living crystal. The space is roughly cathedral-sized, though its true boundaries are difficult to discern through the translucent, faceted walls that fragment and reflect what little light exists here. The chamber sits at the heart of an abandoned mining complex, accessible only through a series of carefully maintained industrial elevators that descend through two kilometers of solid rock.
+
+The temperature hovers just above freezing, and the air is extraordinarily dry, preserved in this state by ancient dehumidification systems that still hum quietly in the walls. This environmental control is crucial, for the chamber serves as a sanctuary for the Glass Birds - delicate creatures that seem to exist somewhere between mechanical and organic life.
+
+The Glass Birds range from hummingbird-small to eagle-sized, their bodies constructed primarily from grown crystal and engineered carbon. They move with deliberate slowness, as if conserving energy, or perhaps as if time itself moves differently for them. Their "wings" are arrays of transparent planes that rarely flap but instead shift and rotate in complex geometric patterns, catching and refracting the dim light from strips of electroluminescent material that line the major facets of the chamber.
+
+The birds nest in precisely carved niches in the crystal walls, their nests made not of twigs but of delicate metallic filaments that they slowly weave over months or years. They "feed" by absorbing trace minerals and static electricity through contact points in their feet, and they communicate through barely audible crystalline tones that resonate through the chamber like the ghost of wind through chimes.
+
+The chamber's floor is largely empty space, with a few elevated walkways allowing observation of the birds without disturbing them. These walkways connect to several small research stations - pods of brushed metal and smart-glass that seem to grow out of the crystal walls themselves. Most of the stations are automated now, their sensors still dutifully recording the painfully slow life cycles of these extraordinary creatures.
+
+The air is so still it feels solid. Sound travels strangely here - dampened and muffled by the crystal's structure, yet occasionally caught and amplified by the perfect geometric arrangements of surfaces. The overall effect is one of profound quiet punctuated by mysterious, distant tones that might be the birds, might be the ancient machinery, or might be the living crystal itself, growing at a rate too slow for human perception.
+
+This place feels like a poem about time written in living crystal and moving glass, a deliberate counterpoint to the frenetic pace of the world above. The Glass Birds go about their elaborate, incomprehensible rituals with perfect patience, each movement a careful negotiation between gravity and grace, each sound a considered addition to the chamber's endless, near-silent symphony.
+
+The original purpose of this place - whether it was meant as a preserve, an experiment, or an art installation - has been lost to time. Now it simply exists, a crystalline heart beating slowly in the mountain's depths, its Glass Birds enacting their mysterious behaviors in perpetual, perfect cold.

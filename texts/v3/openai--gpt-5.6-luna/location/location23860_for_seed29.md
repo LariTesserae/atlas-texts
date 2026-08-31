@@ -1,0 +1,35 @@
+The landscape is hidden inside the uppermost shoulder of a young mountain, in a chamber no larger than a warehouse and no more than a few meters beneath the summit. From outside, there is almost nothing to distinguish it from the surrounding black rock: a sealed blister in the mountain’s crust, formed before the slopes have had time to settle into recognizable cliffs or gullies.
+
+It is high here—high enough that the mountain’s interior pressure is thin and restless, high enough that the stone carries a faint, continuous tension. The chamber is hot, not with the open radiance of flame but with the close, oppressive heat of a furnace wall. Every surface gives off warmth. The darkness is nearly complete. There is no broad glow, no visible horizon, no sky. Only narrow seams in the rock emit a dull red-brown radiance, and even these are usually hidden beneath layers of ash-colored mineral skin.
+
+The floor is not level. It is a newly formed crust, still rising in slow folds from below. It resembles cooled slag, though no hand has smelted it: blistered plates, wrinkled shelves, glassy ridges, and thick ropes of dark material that have pushed outward and hardened where they stopped. The walls are unfinished in the same way. They have not yet been sculpted by water, wind, or time. Their forms are blunt, swollen, and close together, as if the chamber is still being assembled around its contents.
+
+There is hardly any empty space.
+
+The rock is crowded with life. Pale, jointed animals press into every crack and hollow, packed so densely that the floor seems to ripple even when nothing is moving. They are not soft-bodied things. Most have shells, plates, or hard mineralized hides, their bodies darkening toward the heat and paling toward the chamber’s upper reaches. They cling to walls, wedge themselves beneath ledges, and feed on the warm deposits extruded from the mountain. Some are small as fingernails; others are long, many-segmented forms that coil through the chamber’s narrowest passages. Their legs and mouthparts are quiet in isolation, but together they produce a constant dry abrasion, like thousands of tools working at once.
+
+There are no plants, no hanging roots, no moss, and no green or fungal softness. The ecology is built from heat, pressure, mineral dust, and the bodies of other animals. Feeders scrape the fresh stone. Predators move through the packed colonies with slow, armored patience. Scavengers gather around vents where newly exposed compounds condense in brittle yellow, blue-black, and iron-red crusts. A few enormous, nearly motionless creatures have established themselves across the chamber like living machinery. Their ribbed backs are sunk into the floor, and their sides expand and contract at intervals so long that they might be mistaken for rock. Smaller animals enter them, pass through them, and emerge coated in dust.
+
+The whole place operates with the grim efficiency of a factory, though nothing here was built.
+
+Deep below, the mountain’s heat drives a series of natural engines. Gases rise through narrow shafts, condense, and fall back as dense mineral vapors. Pressure builds behind plugs of stone until they thrust forward by a few centimeters, then stop. Cracks open, close, and open again. The process is slow on the scale of weather, but each cycle is powerful. It stamps the chamber with repeated mechanical actions: lift, grind, vent, harden. The animals have adapted to these rhythms. They retreat from a warming seam before it breaks. They gather where a pressure wave will expose a fresh feeding surface. Generations of them have worn paths into the rock, though the paths are not smooth; they are crowded grooves filled almost immediately by new bodies.
+
+The sound is immense for such a small place.
+
+There is a low, industrial roar from beneath the floor, as though a vast engine were running under several layers of concrete. It is joined by the grinding of mineral plates, the hiss of escaping gas, and sudden concussions when a pocket collapses. The animals add a dry, incessant clatter. Their shells strike one another as they squeeze past, and their claws tick over the hot crust. At intervals, something large exhales. The sound moves through the chamber and through the bodies occupying it, making the entire packed ecology tremble.
+
+Nothing echoes cleanly. There is no room for a sound to travel before it meets rock, shell, or flesh. Every noise is absorbed, reflected, and layered into the next. A small movement close by can seem to come from everywhere. The chamber does not feel quiet even in the intervals between its deeper convulsions; it feels muffled by saturation.
+
+Trace liquids exist only as hostile chemical films: brines trapped inside the stone, beads of condensed vapor, brief slicks that vanish almost as soon as they appear. They are not enough to form pools or streams. When one breaks from a seam, the animals gather around it for its salts and heat, and the surface disappears beneath them. Most of the landscape is dry mineral, powder, crust, shell, and glass.
+
+Despite the abundance of fauna, the place does not feel mature. It has the rawness of something still being born. Edges are too sharp. Surfaces are too fresh. The chamber has no stable architecture, only temporary arrangements of cooling material and living bodies. A shelf may be a ledge for a century and then become a wall. A vent may support a colony for thousands of cycles before sealing forever. The mountain is not eroding this place into shape; it is still making the place.
+
+Change is slow enough to be mistaken for permanence. The animals move constantly, but the landscape itself advances by nearly invisible increments. A ridge thickens. A crack lengthens. A pressure pocket shifts beneath the floor. After a long interval, the entire chamber has become slightly different, though nothing within it appears to have traveled far.
+
+There is no artifact, no masonry, no tool, and no sign of an external civilization. Yet the impression of industry is unavoidable. The heat, gases, mineral deposits, and innumerable animals cooperate in a process of extraction and manufacture. Raw stone is broken down. Useful compounds are concentrated. Shells are grown, shed, consumed, and incorporated into new surfaces. The mountain’s hidden summit contains a factory with no workers and no designer: only pressure, heat, hunger, and time.
+
+At the center is the newest part of the chamber, a raised knot of black stone still warm enough to glow beneath its skin. It is surrounded completely by animals. They are packed over one another in layers, all facing inward, waiting for the stone to open. Nothing visible happens for a long while.
+
+Then the floor gives a deep, slow pulse.
+
+Dust lifts. The sound thickens. A hairline seam shines dull red, and every creature in the chamber turns toward it at once.

@@ -1,0 +1,39 @@
+At this height the heat does not lessen; it clarifies.
+
+The plateau lies above the ordinary weather, above the dry gray ribs of lower mountains, but it has made its own climate from what reaches it. Clouds climb the cliffs from the eastern valleys and snag on a black escarpment, thinning into vapor among the trees. Every afternoon, usually without drama, rain passes over: a dense warm fall, silver in the open places, almost invisible beneath the canopy. It leaves the ground steaming. Water goes everywhere afterward. It threads among roots, gathers in hollows, runs down stone faces in clear skins, disappears into cracks, returns lower down as springs.
+
+The country is not one mountaintop but a broad high basin, perhaps a day’s walk across, cupped between volcanic walls. Its floor is uneven and old: fields of dark stone, hummocked bog, narrow meadows full of shoulder-high grass, groves rising out of shallow water. The rock was once poured here in great heat and has had a long time to settle into itself. Basalt shelves have softened at their edges. Red-brown volcanic soil fills the seams. Pale mineral crusts line the rims of little pools. In places the stone seems to sweat, not from any underground furnace exactly, but from the perpetual meeting of hot air and cold rock: droplets bead on shaded walls and fall with a slow, patient ticking.
+
+Nothing has been built here. There are no paths that persist, no cut stumps, no straight lines except those made by lightning or falling water. Yet the place has an industrial character, as though industry were not an invention but a mode of geology.
+
+Along the western side of the basin, mineral springs emerge in a rank of vents. They breathe steadily through mats of orange algae and black wet moss. Water bubbles from the earth with a deep, muffled churn. It carries iron and sulfur, though not enough to make the air unpleasant; rather, there is a faint metallic warmth beneath the scents of leaf mold, crushed fern, and rain. The springs feed a chain of ponds whose surfaces are constantly in motion. Gas rises in soft bursts. Floating plants overlap so densely that they form green rafts, their roots combing the water below.
+
+The entire basin is a machine of slow circulation. Cloud becomes rain; rain becomes seepage; seepage becomes springwater; springwater builds wetlands; wetlands feed the trees; the trees return water to the air. Roots wedge stone apart. Small landslips deliver new soil to the lower shelves. Fungi consume what falls. In the evenings, cool air drains from the upper rims and settles in the marshes, laying a low white mist among the reeds. By morning it has been drawn upward again by the sun.
+
+The vegetation is extravagant but not chaotic. It has had time to arrange itself.
+
+On the drier slopes, small twisted trees stand in dense groves, their bark blackened by weather and patterned with pale lichens. Their crowns are broad and glossy, leaves thick enough to hold water after rain. Beneath them grow ferns in several layers: tall tree ferns with curled crowns, finer ground ferns, and delicate things growing directly on fallen trunks. The trunks do not remain fallen for long. They are immediately upholstered in moss, bracket fungus, bright seedlings, and beetles moving in the wet creases.
+
+Toward the basin’s center, the trees become taller and more upright. Their roots rise from the saturated soil in fluted walls, making dark chambers between them. Vines bridge the spaces. Orchids, or things close to orchids, cling to bark in dense pale clusters. Broad-leaved plants collect rainwater in their cups, and each cup contains a minute community: larvae, drowned flies, tiny green film, a pebble or two carried there by birds.
+
+The open meadows are no less crowded. Grass conceals shallow channels where warm water moves silently. Rushes grow in thick stands. Flowering plants appear in saturated colors—yellow, blue-violet, white with red throats—not as gardenlike displays but as brief bright interruptions in the green. They attract heavy-bodied insects that move with an audible but restrained hum. The hum is one of the few persistent sounds.
+
+For the most part, the basin is quiet.
+
+Water is heard, but rarely as a roar. It clicks from leaves. It whispers through grass. It gives the occasional hollow plop from a marsh pool. A distant fall, hidden behind a ridge of ferns, makes a steady sound like cloth being torn very slowly. Wind passes high above the vegetation before it reaches the ground, so that the canopy speaks first in a dry, collective shiver, while the marsh below remains still.
+
+Animals are present everywhere, though few announce themselves. Small dark birds work through the branches, picking insects from wet leaves. Larger birds circle the thermal currents above the rim, becoming almost invisible against the bright cloud. In the reeds, long-legged waders step carefully through water that barely reaches their ankles. Their plumage is the color of mud and moss, until they open their wings and show sudden white flashes.
+
+There are frogs in every wet hollow, but they call only after the heaviest rain, and then not in a frenzy. Their voices pulse in separated pockets across the basin, answering one another from under grass, from tree-root chambers, from ponds choked with floating leaves. A small, sleek mammal moves along the streambanks at dusk, leaving a wavering line in the mud. Higher in the grove, something heavier breaks twigs with great deliberation and then is gone.
+
+Predation happens here, but discreetly. A dragonfly catches another insect above the pond. A snake waits in the roots where a frog trail enters the water. A raptor descends beyond the far slope, too distant to hear. Death is quickly taken apart by dampness, soil, and innumerable mouths.
+
+The light is ordinary in its source and strange only in its behavior. At midday it is hard and direct, making the wet leaves shine almost white. The high altitude lends the sky an intense blue wherever the clouds open. But below the canopy, light is softened by reflected green and water. It comes in fragments. A person walking through the basin would pass repeatedly from brightness to cool shade, from shade into mist, from mist onto black rock hot enough to warm the soles of their feet.
+
+There are places where the volcanic ground holds warmth long after sunset. At night, mist gathers around these stones but does not settle on them. The rocks stand among the wet vegetation like sleeping animals, dark and dry at their crowns, shining around their bases. Fireflies drift above the marsh, not in swarms but in scattered, unhurried points. Far overhead, clouds continue to arrive from the lowlands, pale under the moon and endlessly remade by the walls of the basin.
+
+The landscape feels established, not untouched in the sense of being pristine and fragile, but untouched because it has never required anything else. Its slopes have found their angles. Its streams have found their courses, even when they wander. Its roots know the cracks in the stone. Rain has been falling here longer than any memory could keep track of it, and the mountain has learned to hold it without flooding, to lose it without drying.
+
+In the center of the basin, where several spring channels meet, there is a pool almost perfectly round. It is ringed with reeds and low flowering shrubs, and its water is dark enough to reflect the sky with unusual precision. The clouds move across it before they cross the land. Occasionally a warm bubble rises from somewhere below, breaks the reflection, and sends a circle outward through the floating leaves.
+
+Then the image restores itself: blue, white cloud, the black rim of the high volcanic walls, and the dense green world leaning inward from every side.

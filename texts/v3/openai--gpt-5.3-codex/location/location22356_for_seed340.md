@@ -1,0 +1,33 @@
+At first it seems like a cavern system—broad, low valleys under a roof of stone—but the longer you stand in it, the less “cave” fits. It is more like the underside of a continent that never finished becoming rock.
+
+The ground is warm and powder-dry, a quilt of soft mineral ash, flaking clay, and bright crusts of salts that crack underfoot like thin pottery. No streams, no damp seams, no dripping ceilings. Even the air feels desiccated, as if it has been sieved of anything that could condense. Yet nearly every surface is alive.
+
+The “forest” here is not made of trunks and leaves in any familiar sense. It is a continuous botanical fabric: ropes, fans, bladders, reeds, spines, membranes, and thick braided mats that run from floor to wall to ceiling in one uninterrupted growth. Plants are architecture, weather, and soil all at once. They root into stone fissures, yes, but also into each other, into old carcasses, into abandoned tools, into the very dust. Some are rigid and chalky, like coral grown from gypsum. Others are leathery and translucent, filled not with water but with amber oils and metallic vapors. A few exhale visible puffs of pale gas that drift low along the ground and vanish in hot updrafts.
+
+Because there is little erosion and everything feels newly made, nothing has softened yet. Cliffs are sharp-edged. Sink-basins are raw scoops in the strata. Fresh cracks unzip in the floor without warning, exposing inner layers of pale green tuff and black glassy veins. The place is still assembling itself. Slopes rise and fail in the span of a day; ledges appear where none were; whole stands of plant-column collapse, are buried in powder, and by next cycle are already being overgrown by fast, hungry creepers.
+
+Light is strangely normal despite being below the surface. It arrives in many practical ways at once: broad shafts from skylight ruptures in the overhead stone, diffuse glow from fungal-plant membranes stretched across chambers, and mirror-bright mineral faces that bounce illumination deep into the underland. There are shadows, but few dark corners. Everything is visible, and visibility does not bring calm.
+
+What dominates is motion and sound.
+
+The fauna here is excessive—far beyond balance, beyond a tidy food web. Creatures swarm every layer: six-legged grazers clipping mineral reeds; blind, lacquered burrowers shouldering through dust; ribbon-bodied climbers strung from ceiling nets; flocks of membrane-winged gliders that never truly land, only stall and hook and launch again. There are herding species the size of dogs moving in sheets of hundreds, and solitary tower-beasts that push through growth like moving pylons, carrying entire hanging ecologies on their backs.
+
+Everything vocalizes. Clicking mandibles. Resonant throat-drums. Wing-hum. Stridulation from carapaces rubbed against silica stalks. Calls bounce off stone vaults and become continuous pressure on the eardrums, a physical force. Plants add to it: seed pods detonate with sharp reports; hollow stems whistle in convection winds; vast membrane fronds snap like sails. In storm periods—common, sudden, violent—the whole underland becomes one roaring instrument. Deafening is not metaphor here. Communication evolved in vibration, color-flash, scent bursts, and percussive foot-thumps because ordinary hearing is frequently useless.
+
+The heat is steady-warm at rest and punishing near vents. Breath carries dust. Lips crack. Creatures lick oils from plants, chew waxy pulp, and lap condensation from internal sacs split open by specialized beaks. Water, where it exists at all, is bound tightly inside living tissues and traded like blood. Killing is hydration. Grazing is mining. Digestion depends on salts and hydrocarbons; many animals cultivate gut gardens of symbiotic microflora that can crack resin and stone-bloom pollen into usable energy.
+
+Scattered through all this are signs of people—or people-like makers—at a primitive technological threshold. Not cities, just interruptions: stone rings packed with ash, scaffold nests lashed from giant reed-bones, hide-and-fiber windbreaks tucked into wall niches, ladders carved directly into soft mineral columns. There are pit traps lined with chitin shards, sling-stones cached in woven sacs, drum posts planted on ridges to send low-frequency warnings through the ground. You find hand-cut obsidian blades and copper hammered thin but never smelted cleanly, green with salts. Their builders seem mobile, opportunistic, and intimate with the chaos: they camp where plant canopies dampen falling debris, where herd routes cross, where ceiling vents can be read by smell before a dustburst.
+
+Their marks suggest rules learned at cost:
+
+- Never sleep in a “quiet” basin; quiet means pressure is building.
+- Do not harvest from glossy bladders with violet veins; their gas calls predators from three ridges away.
+- Follow the white-backed grazers before vent storms; they feel subterranean shifts hours early.
+- If the ceiling vines begin to braid downward in a spiral, leave. A collapse chimney is forming.
+- Sound is weather: when the pitch of the valley rises, so does danger.
+
+At regional scale, the underland resembles a chain of warm sink-vales connected by root-choked corridors and raw-cut passes. Some chambers are wide enough to hold migrating clouds of fauna that move like weather fronts. Others pinch into throats where everything funnels: noise, predators, spores, travelers. Boundaries are temporary. A route passable at dawn may be sealed by noon in explosive growth, then reopened at dusk by trampling herds.
+
+And in quieter moments—not silence, never silence—you can sense a deeper strangeness. The plants sometimes coordinate across impossible distance, blooming in matched pulses chamber to chamber with no visible signal. Herds reroute minutes before the stone shifts. Certain standing stones, half natural and half carved, hum at fixed tones that nearby animals avoid with ritual precision. The place behaves less like habitat and more like an organism’s interior: self-regulating, reactive, improvising new tissue where injured.
+
+So this is not merely a dry subterranean jungle. It is a loud, warm, unfinished world beneath the world, where life has replaced water with oil and salt, replaced weather with stampede and vent, and replaced stillness with perpetual becoming. You do not cross it once. You negotiate with it, chamber by chamber, while it is in the act of inventing itself.

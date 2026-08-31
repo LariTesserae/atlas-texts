@@ -1,0 +1,31 @@
+The city—if it can still be called that—stands submerged to its knees in sleep. It is not drowned, not yet; rather, it has been held on pause in the act of dreaming itself away. Water gathers in every low place, laps at thresholds, pools in abandoned courtyards, but never rises enough to cover a nameplate on a gate, never quite enough to close a door that has been left ajar for centuries.
+
+The light here is the color of forgetting. No stars yield guidance; no sun or moon remembers the map. Everything is visible as if from the bottom of a stone sarcophagus lid that was once lifted for a single hesitant breath and then lowered again slightly off-center. Objects appear only reluctantly: a leaning tower of balconies strung with moss-draped laundry that never belonged to any living child, a colonnade whose columns have softened into pillars of waxed moonlight, a fountain flowing upward in a spiral so gradual that only a stranger newly arrived would swear it impossible.
+
+Growth exists but is shy. A few blue-gray leaves cling to the balconies, each leaf folded and sealed like a letter never dispatched. Vines the thickness of hair trace the seams of brickwork veins, carrying messages of thirst in both directions without ever arriving. There are trees—bare, polished by centuries of shadow—whose roots have turned to glass and crack quietly underfoot. If you listen long enough, you hear them singing the same note.
+
+The city was built in circles, and every circle has now become an island. Bridges arch between them but end in midair or plunge into walls that accept them without comment. Streets fork and fork again, always choosing both branches equally, thinning until they are seams in stone, then threads in water, then merely suggestion.
+
+It is always almost evening here. Sounds arrive late, like trains announced on boards listing stations that ceased to exist before the rails were laid. A carriage wheel rattles first, then the horse’s hooves, then the horse itself—each element distinct, displaced by a respectful interval of memory. Sometimes a whole procession passes by in this fashion, king and courtiers decomposed into stately fragments time has misplaced the glue for.
+
+There are no inhabitants, only custodians. Figures dressed in the architecture itself—robed in door lintels, veiled in window shutters, crowned with doorknobs of tarnished brass—move through the task of maintaining a vacancy so precise it could be mistaken for presence. They oil hinges that have been fused shut since before rust was invented. They dust steps where no foot will ever again disturb the perfect print left by a heel that evaporated while lifting. Occasionally one pauses, tilting an ear made of corrugated iron toward a conversation happening elsewhere in the city’s dream, nods, and resumes.
+
+Water flows in this city according to etiquette rather than gravity. Fountains honor old treaties with directions that died out before compass needles were born: North-Upward, East-Inward, South-Around, West-Again. It falls upward from drains, gathers in attic cisterns, then descends politely through floors that forgot they were ever ceilings, staining each layer with a different shade of apology. Fish swim these circuits—not real ones, but the fish-shaped absence of fish, leaving wakes of clearer water that other absences politely avoid.
+
+The climate is the climate of a sigh rehearsed too long. It is hot, but not as heat is elsewhere. It is the heat of a body remembering fever, of stone recalling ovens, of air grown polite from centuries spent pacing rooms where a quarrel remains unfinished. Nothing burns here, nothing cools; things instead deepen cautiously into themselves, like guests at a wake who fear the guest of honor might overhear.
+
+There are rules, but they have been translated so often that only the verbs remain. It is allowed to walk backward down streets that have moved while you were thinking of turning. Forbidden to speak aloud any word that contains exactly three syllables of regret. Required, upon meeting yourself coming the other way, to nod but not acknowledge.
+
+At the heart of the city—for even cities built in circles can be said to have hearts if they dream deeply enough—stands a clock tower without hands or numbers. Instead, its four faces display four different views of the city itself, each from an hour that never occurred on any calendar: the city as it would appear viewed simultaneously from beneath the ocean’s floor, from above the day’s highest cloud, from inside the eye of every person who ever decided not to come here, and from the exact moment before the first stone was quarried and the last stone was ever laid. These views shift in sequence, impossibly slowly. Locals—had there been any left to speak—would tell you that once in every seven hundred years, for just the space of a held breath, all four faces show the same thing.
+
+It is said that anyone who stands in the Piazza of the Unfinished Question at that precise instant will finally understand the city’s name—the real name, the one it murmurs to itself in the language that stones use when they think no water is listening.
+
+But the piazza has been under repair since before repairs were invented. Scaffolding of a type unknown to geometry climbs it, descends it, supports it from angles that suggest gravity is merely a suggestion here. Signs in languages that will be forgotten before they are spoken warn of delays due to progress. Workmen—if their slow-motion gestures of lifting nothing into place can be called work—wear uniforms of dust so finely tailored that the originals beneath must have long since retired.
+
+It is not recommended to wait.
+
+Better instead to keep walking, as the city itself is walking—one precise, majestic step every thousand years—toward an ocean that stands exactly as far away now as it was when the city closed its eyes and began dreaming itself into existence.
+
+Anyway, your footsteps are adding up behind you. They will need somewhere to sleep when they catch up.
+
+Would you like to borrow an umbrella? It is made of rain that has been taught to fall only upward, and might prove useful if the night decides to remember what it buried here before we all agreed to call this place by its polite name instead of its true one.

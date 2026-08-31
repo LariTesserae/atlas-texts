@@ -1,0 +1,43 @@
+Far below the surface lies a basin wide enough to have weather.
+
+It is not a cavern. There is no stone here, no soil, no accidental mineral face. The ceiling is a shallow black vault assembled from overlapping armor plates, its seams disappearing beyond sight. The slopes descending into the basin are made from terraced machine housings, pressure doors, spillways, ventilation baffles, and great inclined sheets of ribbed steel. What resembles a distant cliff is the side of a buried heat exchanger. What might be taken for a ridge is a bundled conduit, broad as a railway embankment, curving through the dimness until haze erases it.
+
+Everything has been constructed, including the emptiness.
+
+The basin is young. Its plates still meet at hard angles. Welds stand bright and rough along the edges, barely softened by oxidation. Bolt heads retain stamped numbers. Cut ends are sharp enough to open a glove. Water has begun its work, but only just: thin orange feathers spread beneath a few seams, and pale mineral deposits fringe the mouths of drains. There are no deep channels yet, only shallow scratches where grit-filled runoff has found minute defects in the manufactured gradients.
+
+Water is always near. It condenses on the ceiling and gathers into trembling beads, each one reflecting a broken line of amber work lights. Sometimes the droplets hang for hours. Then a change in ventilation passes across the vault, and an entire district begins to rain.
+
+The rain comes in moving bands. It rattles on sheet metal, drums on empty cisterns, hisses against hot pipes, and courses down the steps in silver films. Gutters fill abruptly. Sumps wake. Black water rises through grilles and spreads across low floors, ankle-deep and perfectly level, before ranks of pumps pull it away again. On the steeper housings, the water emerges directly from the walls, weeping through gasket lines and inspection ports. It freezes in narrow clear blades where refrigeration ducts pass close behind the surface.
+
+Nothing here is dry for long, but little is lush.
+
+Vegetation survives in scattered concessions. Mats of gray-green moss cling beneath leaking flanges where the water carries trace salts. Colorless threads trail from cable trays. In the warmer sumps grow sparse stands of jointed reeds, each no taller than a hand, with translucent stems strengthened by metallic dust. Their roots do not seek earth—there is none—but wind through mesh filters and drink from residues trapped there. When a pump starts, whole patches bend toward the intake, lie flat under the current, and slowly rise again.
+
+Across most of the basin, however, there is only wet metal and distance.
+
+The temperature remains just above freezing in the central works and falls well below it along the perimeter. Breath whitens immediately. Handrails burn the skin with cold. Frost advances over idle panels in fernlike patterns, then retreats whenever a motor starts beneath them. Warmth exists only in narrow industrial veins: beside bearings, transformer cabinets, steam returns, and the insulated arteries that pass under the floor. These create small, temporary climates. Moss brightens around them. Condensation thickens. Rare animals come to rest there.
+
+The animals are difficult to see and seem fewer than their tracks suggest. Pale six-legged scavengers, perhaps descendants of maintenance organisms, move through the drain channels and feed on oil films, fungus, and shed insulation. Their shells are soft and almost transparent. When frightened, they flatten themselves against the steel and become indistinguishable from wet patches. Blind white moths sometimes gather around blue electrical arcs, though no one knows what their larvae consume. Far out on the flooded plates, something larger occasionally breaks the surface with a slow metallic splash. It never remains visible long enough to decide whether it is alive or merely a loose component being carried through the drainage cycle.
+
+The basin is loud even when nothing appears to move.
+
+Its deepest sound is the continuous labor of pumps: a low, bodily concussion transmitted through every floor and wall. Over it come the staggered blows of valves, the shriek of wheels on elevated rails, the shudder of distant compressors, and the irregular thunder of condensate dropping into empty tanks. Warning horns sound from unseen sectors. Some repeat at fixed intervals; others call once and are silent for days. Voices, when there are any, travel strangely. The architecture catches a syllable, divides it through ducts, and releases it minutes later from several directions at once.
+
+There is no true wind, but the ventilation system produces fronts. Cold air descends from ceiling vents in broad invisible sheets, pushing fog ahead of it. Warmer exhaust rises from the active machinery and forms low clouds beneath the vault. Where the two meet, the atmosphere churns. Mist pours over guardrails like smoke. Fine droplets race sideways through open frameworks. Loose chains stir. Hanging maintenance tags begin to chatter in sequence, marking the passage of pressure through the basin.
+
+Light follows the machinery rather than any cycle of day. Most of the place is illuminated by widely spaced sodium lamps, leaving vast intervals of blue-black obscurity between them. Red indicators make distant constellations on the slopes. Welding flashes pulse behind translucent partitions. At irregular times, inspection arrays ignite along the ceiling, and the whole basin appears at once: terraces, gantries, flooded plazas, pipe forests, crane tracks, and the far wall many kilometers away. The revelation lasts only seconds. Then the arrays extinguish row by row, and darkness returns with an almost physical weight.
+
+The built terrain is not static. Sections expand and contract with temperature. Whole avenues shift by a few centimeters when pressure changes in the buried vessels beneath them. Bridges draw themselves tighter. Expansion joints open like black mouths and close again. On certain cycles, enormous shutters turn in the distant walls, changing the direction of airflow and sending water coursing into channels that had been dry. Crane assemblies migrate overhead without visible operators, carrying sealed containers from one dark sector to another.
+
+Every process seems coordinated, but not toward a purpose that can be observed from within the basin.
+
+One rule becomes clear after enough time: nothing here falls directly into neglect. An abandoned passage will remain cold and flooded for weeks, then suddenly drain, heat, and illuminate as if expecting workers. A silent factory line may start at full speed in the middle of the artificial night, fabricate several hundred identical ceramic cylinders, stack them carefully, and stop. Later, automated carts remove the cylinders and deliver them to a crushing mill on the opposite side of the basin. The powder returns through pipes beneath the floor.
+
+Another rule concerns water. All runoff eventually reaches the central lowland, a broad, shallow lake crossed by gantries and intake towers. Yet the lake never grows. Beneath its dark surface, pump mouths open and close in long sequences, drawing the water down into deeper levels. Hours later it returns as condensation on the ceiling. The basin makes its own rain from its own flooding, circulating the same cold water through machinery, atmosphere, and darkness.
+
+Near the lake stand several unfinished structures. Their frames are bright, unweathered alloy, with clean edges and exposed fastening points. Robotic welders crawl over them in showers of white sparks. One tower gains a new level every few weeks. Another is being methodically dismantled beside it. The sounds of construction and demolition are nearly identical.
+
+From the highest accessible gantries, the basin looks less like an underground city than the interior of a single incomprehensibly large device. Districts become components. Roads reveal themselves as service channels. Reservoirs align with cooling loops. The sparse lamps blink in patterns too slow to notice from below.
+
+And still the place resists becoming only a machine. Fog softens its geometry. Frost branches across control glass. Moss makes small green islands under the leaks. The rare pale creatures cross immense floors, leaving delicate tracks in the condensation before fresh rain erases them. Water gathers on every hard edge, patiently beginning the first rounding of a world that has only recently been made.

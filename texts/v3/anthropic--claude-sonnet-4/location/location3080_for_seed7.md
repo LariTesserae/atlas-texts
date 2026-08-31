@@ -1,0 +1,17 @@
+# The Humid Chamber
+
+Descending through a narrow shaft cut into limestone, you emerge into a space that breathes with mechanical rhythm. The chamber stretches perhaps sixty meters at its widest point, its ceiling lost in darkness some fifteen meters overhead. The air hangs thick and warm—body temperature or slightly above—carrying the metallic sweetness of condensation and the faint petroleum tang of old machinery.
+
+Water seeps constantly from invisible fissures in the smooth-carved walls, gathering in shallow channels that have been precisely cut into the chamber floor. These channels converge at three collection points where brass cisterns, green with verdigris, catch the steady drip-drip-drip. The sound is barely audible, more felt than heard—a patient percussion that marks time in this buried place.
+
+Lush moss carpets every surface the water touches, creating thick emerald velvet that climbs the walls in spreading patches. Strange fungi bloom from the moss in clusters—pale yellow caps that glow with their own faint phosphorescence, providing the chamber's only natural light. Where the moisture is richest, delicate ferns unfurl from cracks in the stone, their fronds reaching toward the dim mechanical lights that hum at irregular intervals throughout the space.
+
+The machinery itself is sparse but purposeful: a single massive pump, its brass and iron body easily three meters tall, sits silent in one corner. Thick pipes emerge from its base, snaking along the walls before disappearing into carefully drilled holes. The pump's gauges are frozen at readings from some earlier time, their brass faces clouded with condensation. Nearby, a smaller generator crouches like a sleeping animal, its cooling fins green with moss, occasional droplets falling from its metal housing with soft *plinks* into the gathering pools below.
+
+Electric cables, thick as a person's arm and sheathed in decomposing rubber, trace elegant arcs between ceramic insulators mounted on the walls. Some still carry current—you can hear the faint electrical hum, feel the subtle charge in the air that makes the moss seem to shimmer slightly. The cables disappear upward through the ceiling, suggesting this chamber serves some larger system above.
+
+The smell shifts as you move through the space: here, the green earthiness of growing things; there, the sharp ozone scent of electrical current; in the deeper shadows, the mustiness of old water and metal slowly surrendering to time. The temperature remains constant, as if the earth itself is maintaining perfect conditions for this strange symbiosis of industry and nature.
+
+Time moves differently here. The moss grows imperceptibly, following the patient map of moisture. The condensation gathers and pools, fills the cisterns drop by drop, year by year. Occasionally—perhaps once an hour, perhaps once a day—the pump shudders to life with a deep mechanical sigh, drawing water upward through its network of pipes before falling silent again. In these moments, the electrical hum intensifies, the phosphorescent fungi pulse slightly brighter, and then everything settles back into its humid, breathing quiet.
+
+This is a place of slow cultivation, where industrial purpose has been overgrown but not abandoned. The machinery waits in its garden of moss and fungus, tending to cycles measured not in minutes but in seasons, fulfilling some ancient function with patient mechanical devotion while the living world claims it inch by verdant inch.

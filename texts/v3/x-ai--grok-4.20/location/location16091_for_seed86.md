@@ -1,0 +1,25 @@
+The place is called the Underhold.
+
+It is a vast, shallow cavern system lying only a short distance beneath the skin of the world. The ceiling rarely rises more than forty or fifty feet; in places it lowers to the height of a tall man’s reach, forcing the eye to travel sideways rather than upward. Every surface is new. The stone is still sharp, almost wet with the memory of its own birth. Water did not carve these chambers slowly over eons; something sudden and violent opened them only a few centuries ago, and the rock has not yet forgotten.
+
+Moisture is everywhere but never abundant. It gathers in glassy beads along fracture lines, drips from hairline cracks in the ceiling with the patience of a metronome, and collects in wide, mirror-flat pools that never quite overflow. Between the pools the floor is damp velvet—silt and powdered limestone that holds the print of every footfall for weeks. The air smells of wet stone, iron, and the faint sweet-rot of fungal threads that never quite become mushrooms.
+
+The temperature is a steady, bone-deep cool that makes breath visible and keeps metal cold to the touch. Sound travels strangely here. Every noise is magnified yet somehow flattened, as though the cavern itself is listening and deciding what to keep. The dominant voice is the fauna.
+
+There are no birds. There are no large mammals. Instead the Underhold belongs to the insects, the myriapods, the blind crustaceans, and the soft-bodied things that have never seen sun. Their numbers are beyond counting. The floor is a living mosaic of translucent millipedes the length of a forearm, pale cave-crickets that move like blown leaves, and clouds of midges so dense they look like slow smoke. In the pools, eyeless shrimp drift in perpetual slow motion, their legs brushing the silt into lazy spirals that never settle. From every crevice comes the dry clicking, the wet scuttling, the thin choral whine of ten thousand tiny lives. The sound is constant, loud enough to feel on the skin, yet it never rises or falls. It simply is, the way the temperature simply is.
+
+Vegetation is almost an afterthought. Here and there, on the dampest walls, grow pale fungal shelves the color of old bone, their gills dripping clear threads of condensation. Long filaments of cave-moss hang like frozen beards from overhangs, glowing with a faint internal light so weak it only becomes visible after the eyes have been in darkness for an hour. Nothing green exists. Nothing will ever be green.
+
+The scale is what makes the place unsettling. One can walk for days without seeing the same pool twice. Broad galleries open into one another like the chambers of a lung. In the distance, pale hills of broken rock rise and fall in slow waves; some are draped with curtains of flowstone still forming, their folds as fresh as poured cream. Columns of living rock stand isolated, newly joined from ceiling and floor, still glistening. Everything feels half-finished, as though the world is still deciding what this place will become and has simply stepped away for a moment.
+
+There are no ruins, no tools, no footprints except those you yourself leave. The only technology present is the silent, patient craft of the insects: silk ladders no thicker than a hair, trapdoor burrows sealed with perfect circles of silt, and delicate chemical trails that glow faintly under certain angles of dim bioluminescence. The Underhold is untouched by hand or mind. It has reached an equilibrium so complete that even the concept of change feels like an intrusion.
+
+Light, where it exists at all, is stolen. It leaks down through fist-sized skylights where the surface world’s soil has collapsed into the caverns—tiny apertures that admit thin pencils of grey daylight or, at night, the cold glow of stars. Most of the illumination, however, comes from the creatures themselves: the soft green phosphorescence of certain millipedes, the cold blue pulses of shrimp in the deepest pools, the intermittent spark of firefly-like beetles that have forgotten the meaning of day. The overall effect is dim, almost lunar. Shadows are soft and numerous.
+
+And still the sound never stops. The clicking, the skittering, the dripping, the low oceanic hiss of uncountable legs moving across damp stone. It is loud, but it is also perfectly stable. Nothing here has ever grown louder or softer since the caverns first opened. The same raindrop has been falling from the same stalactite for three hundred years. The same pale shrimp have been tracing the same slow spirals in the same black pool since their ancestors first arrived.
+
+This is not a dead place. It is overwhelmingly, almost indecently alive—yet every life moves inside an invisible cage of perfect, frozen equilibrium. The Underhold does not change. It only deepens.
+
+Walk far enough and you begin to feel the weight of the young stone above you, still settling, still remembering the violence that gave it birth. The air grows cooler. The sound grows, if anything, louder. The pale things part around your boots like a slow tide.
+
+And they close again behind you, as though you had never been.

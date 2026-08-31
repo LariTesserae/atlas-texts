@@ -1,0 +1,9 @@
+A cavernous grotto, sculpted from the living rock of a high, secluded mountain range. Water seeps and drips from every surface, the air thick with a fine mist that condenses on exposed skin. Underfoot, the ground is spongy and saturated, a tapestry of mosses and lichens clinging to the uneven terrain.
+
+Sparse, hardy vegetation clings to the walls and ceiling of this subterranean space – twisted, gnarled shrubs and twining vines that weave through cracks and crevices, their leaves glazed with droplets. The air is frigid, the temperature just a few degrees above freezing, and the faint sound of running water echoes through the chamber.
+
+Though the scale is intimate, almost claustrophobic, a sense of vastness pervades the grotto. Massive, shadowed pillars of stone rise up all around, their surfaces eroded and pitted by countless years of relentless weathering. The boundaries of this space are indistinct, the edges fading into impenetrable darkness.
+
+The abundance of life here is surprising given the harsh conditions. Insects and amphibians skitter and hop across the soggy ground, their movements accompanied by the persistent, deafening chorus of their calls. Unseen creatures lurk in the deeper shadows, their presence registered only by the occasional flicker of movement or the rustling of unseen wings.
+
+Despite the damp chill and the overwhelming sonic presence of the fauna, a tranquil, timeless quality suffuses the grotto. There is no sense of change or progression here, no evidence of the passing of days or seasons. This is a place frozen in a state of eternal equilibrium, where the rhythms of life have found a precarious, eternal balance.

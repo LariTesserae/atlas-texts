@@ -1,0 +1,23 @@
+The place is a single, impossibly dense pocket folded into the crease of the world, no larger than a generous warehouse yet somehow containing an entire breathing biome. You do not walk into it so much as you notice you are already inside.
+
+It is warm—wetly, stickily warm—like the breath of something large that has just exhaled across your neck. Moisture condenses on every surface in lazy, irregular drops that fall without rhythm. Sometimes they land on skin with a tiny audible tap, sometimes they simply vanish halfway down. The air itself feels recently born, as though the rocks and machines and vines were all extruded from the same wound in reality only weeks or months ago.
+
+Everything is packed so tightly that perspective collapses. There is no distance here; only layers. You stand inside a rust-colored iron lattice that is half collapsed factory, half fossilized ribcage. Pipes thick as thighs twist between wet black boulders that still carry the sharp, glassy fracture lines of their recent birth. The stone looks like it was poured yesterday—angular, volcanic, almost wet to the touch. Between the rocks and the machinery grow dense mats of pallid, rubbery vegetation that look more like lungs than plants. They pulse faintly. When the occasional thin rain falls (never from a visible sky, only from condensation gathering on unseen ceilings far above), the vegetation drinks with audible gulps.
+
+Fauna is everywhere, but never where you expect. Tiny iridescent crabs with clockwork legs scuttle through the joints of abandoned valves. Things that might be moths the size of paperback books hang in motionless clouds between girders, their wings patterned like old circuit diagrams. Somewhere to your left a clutch of translucent newts the color of antifreeze are slowly digesting a rusted sprocket; you can see the metal turning blue inside their bodies. Larger shapes move in the narrow corridors between machinery—something like a hairless, six-legged dog whose spine is a single exposed driveshaft. It regards you with one milky eye, then folds itself into a space no wider than a book and disappears.
+
+Sound is strangely polite. The place is mostly quiet, yet never silent. There is the constant low drip of water finding new paths through metal. The soft clicking of countless small legs. Every so often a distant, lonely compressor coughs once, somewhere deep in the tangle, then falls quiet again like an old man clearing his throat in church. The loudest sound is the vegetation itself—wet, organic sighs as fleshy leaves open and close.
+
+Light is normal in quality but impossible in source. It arrives sideways, golden and slightly dusty, as though filtered through high factory windows that do not exist. The light feels borrowed. It makes every droplet glitter like a tiny bulb and turns the rusted iron the color of dried blood and old photographs.
+
+Scattered throughout the compression are the marks of whatever came before: a single rusted office chair bolted upside-down to the ceiling, a row of metal lunchboxes half-swallowed by translucent amber-colored fungus, a control panel whose gauges still twitch occasionally though nothing is connected to them anymore. One corroded brass placard bolted to a rock face reads, in raised letters, “SUBSTATION 11 — DO NOT FEED THE THROAT.”
+
+Because there is a throat.
+
+At the center of the pocket—where all the pipes, roots, bones, and wires seem to converge—there is a circular hole no wider than a manhole cover. It is perfectly black. Every living thing in the chamber carefully orients itself so that its face or sensory organs are turned slightly toward that hole at all times, the way sunflowers track a sun that isn’t there. Warm, damp air breathes slowly in and out of it with the rhythm of something asleep. When it inhales, all the little crabs freeze. When it exhales, they resume their meticulous industrial scavenging.
+
+This is not ruin. This is emergence. The world is still deciding what this place is supposed to be, and in the meantime it has become a single, seething, dripping diorama where biology, industry, and geology are having an argument they cannot finish. Everything is growing into everything else. The machines are learning to sweat. The stones are learning to rust on purpose. The animals have begun to dream in schematics.
+
+Stay long enough and you notice your own pulse has synchronized with the slow mechanical heartbeat coming from the throat. The condensation on your skin no longer feels like water.
+
+It feels like attention.

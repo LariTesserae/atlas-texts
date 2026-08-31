@@ -1,0 +1,17 @@
+The air here does not hold heat, nor does it hold moisture. It is a thin, metallic-tasting breath that barely clings to the towering verticality of the Spire-Cities. 
+
+You stand upon a ledge of calcified obsidian, part of a sprawling, labyrinthine metropolis that clings to the razor-back ridges of a planet that has never known a drop of liquid rain. Below you—miles below, obscured by a swirling, low-hanging miasma of inert, pulverized quartz dust—the landscape terminates in a void so deep it seems to pull the stars down into its throat.
+
+This is a world of bone-white architecture, built of fused basalt and sedimentary strata that have been carved, not by tools, but by aeons of wind-shearing. The buildings are not "built" in the terrestrial sense; they are architectural fossils, spiraling towers that twist like solidified cyclones, interconnected by bridges of woven mineral filaments. There is no metal here, no circuitry, no hum of machine or engine. Everything is stone, silicate, and silence.
+
+The temperature is a constant, biting cool, a stillness that makes the skin prickle. Because there is no water, nothing ever rots. Nothing ever grows. Instead, there is the *drift*.
+
+The weirdness is the primary occupant of this space. Gravity here is not a constant; it is a suggestion. In the open pockets between the spires, loose debris—shards of slate, jagged obsidian chips, and the calcified carapaces of extinct, six-legged scuttlers—floats in slow-motion orbits. These fragments hum softly, a low-frequency vibration that you feel in your marrow rather than hear with your ears. 
+
+Sometimes, a gap in reality opens. A curtain of shimmering, non-light stretches between two towers, tethering them together. If you look at these curtains too long, you realize they are windows into another geometry; you might see a duplicate of the city but built of soft, pulsing violet mercury, or a vacuum where ghosts of light dance in patterns of complex division.
+
+Fauna is rare, but it exists. The "Sustainers" are elongated, translucent creatures with bodies like filaments of spun glass. They do not eat; they move through the streets at a glacial pace, absorbing the ambient vibration of the floating debris. They have no eyes. They sense the structural integrity of the spires, moving toward tremors, performing silent, rhythmic maintenance by cementing cracks with their own excreted vitreous fluid. They are not biological as life on Earth defines it; they are self-assembling mineral-currents.
+
+The dynamic nature of this place is found in the *Tidal Wind*. Every few hours, the atmosphere shifts, a low-pressure wave that bellows through the hollowed-out chambers of the Spire-Cities. It creates a harmonic resonance—a sound like a thousand flutes played by a phantom orchestra. As the wind moves, the entire city breathes. Dust plumes rise from their millions-of-years-old resting places, shifting the landscape, revealing new doorways in the stone that were hidden under the grit, and sealing others shut.
+
+There is no path forward, only the descent or the climb. There is no horizon, only a vertical infinity of towers and the constant, lonely drift of stones held in the palm of a broken physics. It is a city that remembers nothing, built by a race that left no records, standing in a stillness so absolute that your own heartbeat feels like a violent, intrusive transgression against the architecture of the void.

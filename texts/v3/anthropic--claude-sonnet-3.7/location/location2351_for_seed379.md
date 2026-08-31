@@ -1,0 +1,17 @@
+# The Hissing Fields of Vhaal-7
+
+From the observation deck of Anchor Station, the Hissing Fields stretch to the horizon—a vast high plateau of obsidian and metallic oxides that shimmer in the relentless heat. The air vibrates with temperature, though strangely, little sound travels across the plain. What noise exists comes muffled, as though the atmosphere itself is too thin or too dense to carry acoustic waves properly.
+
+The ground is a mosaic of hexagonal plates, cracked and reformed countless times over millennia. No true soil exists here—only variations of black glass, copper-tinted silicates, and deposits of exotic minerals that occasionally erupt in geometric crystalline formations. Nothing grows that could be called a plant, though in the cracks between plates, colonies of thermophilic extremophiles create sprawling networks of rusty-orange filaments that pulse with chemical exchanges.
+
+The settlement of Vhaal-7 sits like a metallic exoskeleton upon the landscape, built neither on nor into the plateau but somehow suspended just above it on thousands of telescoping pylons that continuously adjust to the shifting surface below. The city is a maze of heat-reflective domes and elevated walkways, manufacturing facilities venting carefully filtered emissions, and residential modules clustered like metallic barnacles around central cooling infrastructure.
+
+Most striking is what moves across this harsh terrain: fauna, in bewildering abundance. Not organic creatures as most would recognize, but silicon-based lifeforms that evolved in this hellscape. They range from tiny glass-like "skitters" that dart across the obsidian plains to enormous "plate walkers"—six-legged behemoths whose crystalline exoskeletons refract light in hypnotic patterns. These creatures neither eat nor drink in conventional ways; they harvest thermal energy and trace minerals through specialized appendages.
+
+The entire ecosystem exists in constant motion, for stillness means death. The plateau's surface undergoes near-continuous microseismic activity. What appears solid is actually a constantly shifting, slowly flowing state of matter. The hexagonal plates rise and fall unpredictably, sometimes tilting to create sudden slopes that send avalanches of glassy debris cascading downward, other times splitting open to release brief jets of superheated gas from below.
+
+Vhaal-7's residents—mostly research personnel, industrial contractors, and the specialized engineers who maintain the city's critical systems—have adapted to this perpetual instability. Their buildings constantly recalibrate, their vehicles hover rather than touch the treacherous ground, and their work schedules follow the plateau's quasi-predictable cycles of relative calm and heightened activity.
+
+The only true constants here are the heat and change. Even as night falls (bringing temperatures down from lethal to merely scorching), the plateau continues its endless reconfiguration. The silicon fauna grow more active, their crystalline structures faintly luminescent against the darkness. The city's lights dim to conserve energy, and residents retreat to interior chambers.
+
+In the peculiar half-silence of this world, you can sometimes feel rather than hear the deep vibrations of the plateau—a geological conversation that has continued uninterrupted since this strange place first cooled from molten chaos into its current state of organized turmoil.

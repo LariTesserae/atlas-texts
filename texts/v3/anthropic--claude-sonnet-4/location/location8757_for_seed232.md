@@ -1,0 +1,15 @@
+In a high mountain cirque, where glacial ice once carved and retreated only seasons ago, a peculiar garden has emerged from the raw granite bowl. The bedrock still bears the fresh scars of ice—polished surfaces that catch the brilliant alpine light, scattered moraines of jumbled stone that have yet to settle into their final forms. But something extraordinary has happened in this newly-exposed theater of stone.
+
+Where water should pool, there is none—yet the air itself seems to nourish. A fine crystalline mist, neither quite vapor nor quite dust, drifts constantly through the space, catching the intense mountain sunlight in prismatic flashes. This luminous suspension feeds an impossible garden that has erupted with startling density across every surface.
+
+Cushions of emerald moss thick as felt carpets sprawl over the granite, punctuated by forests of knee-high conifers so tightly packed their branches interweave into living tapestries. Scarlet lichens paint the vertical rock faces in flowing patterns, while delicate ferns unfurl from every crack and crevice. The vegetation layers upon itself—mosses beneath sedums beneath tiny willows beneath stunted spruces—creating a compressed jungle that rises barely to waist height but pulses with green abundance.
+
+The air moves gently but persistently through this bowl, carrying the soft susurrus of countless small needles and leaves brushing together. Occasionally, a fragment of stone shifts in the still-settling talus with a muffled click. The sound carries clearly in the thin, bright atmosphere, then fades into the greater quiet.
+
+Small creatures move constantly through this dense garden-world. Pocket-sized pikas dart between the rocks with cheeks bulging. Tiny birds—mountain chickadees, rosy-finched creatures—flit between the miniature tree-tops that barely clear the moss floor. Insects hover in the crystalline mist, their wings creating brief rainbows. Everything is diminutive but abundant, as if scaled to fit this compressed paradise.
+
+Here and there, simple stone cairns mark pathways through the vegetation—crude stacks of glacier-polished granite, placed by careful hands. A single low shelter of fitted stones nestles against the cirque wall, its roof thick with the same moss that carpets everything else. The craftsmanship is elementary but purposeful, speaking of someone who understood this place's strange nourishment.
+
+The light here is fierce and clean, unmarred by dust or humidity that doesn't exist. Every surface gleams—the wet-looking granite, the waxy leaves, the prismatic mist that feeds everything. Shadows are sharp-edged and brief; most of the cirque basks in direct illumination that makes the compressed forest glow like stained glass.
+
+This is a world caught between states—no longer the raw aftermath of retreating ice, not yet the settled ecology of ages. The mist continues to feed the impossible garden, the rocks continue their slow settling, and the small kingdom of green abundance continues its patient conquest of stone, one tiny root at a time.

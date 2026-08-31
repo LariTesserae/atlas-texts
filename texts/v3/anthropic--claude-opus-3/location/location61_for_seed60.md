@@ -1,0 +1,11 @@
+In a dense, humid grove, the air hangs thick with the scent of vegetation and the hum of unseen machinery. The canopy overhead is a woven lattice of ropey vines and broad, translucent leaves that filter the sunlight into a diffuse green glow. Trunks and stalks press in from all sides, blurring the boundary between ground and undergrowth.
+
+Scattered throughout the foliage are strange mechanical contraptions, their metal surfaces mottled with patinas of rust and lichen. Pipes and cables snake through the mulch and disappear into knotted roots. In places, the machines seem almost to merge with the plants, pistons and gears intertwined with woody stems.
+
+The ground underfoot is spongy, a carpet of moss and decay pierced by the occasional jutting root or half-buried cog. Shallow pools of water gleam between the trees, their still surfaces broken by dripping condensation and the occasional ripple of something moving beneath. The moisture seems to come from everywhere and nowhere, beading on leaves and coalescing into misty veils.
+
+A sense of age pervades this place, as if the forest and the machines within have stood in symbiosis for countless years. The corroded metal and weathered wood speak to slow processes of growth and decay, the cycles of nature and industry locked in a patient dance. Yet there is an uncanny artificiality to it all, a feeling that this is not quite a natural ecosystem, but something sculpted, or grown, with inscrutable purpose.
+
+Sounds echo strangely in the cloying air - the groan of metal, the gurgle of unseen fluids, the creak of wood, all underpinned by a constant, muffled thrum that might be the heartbeat of some great buried engine. Occasionally, these sounds are punctuated by stranger noises - eerie piping cries that could be birds or steam escaping from valves, skittering sounds in the undergrowth, or the soughing sigh of wind in leaves that almost sounds like whispered words.
+
+It is a place both vibrant and unsettling, where the familiar forms of nature and technology are twisted into something rich and strange. To enter this grove is to step into another world, where the rules that govern growth and machine are bent into new and mysterious shapes, and the border between the born and the made is not so clear as we might believe.

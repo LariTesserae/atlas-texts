@@ -1,0 +1,19 @@
+This is the **Cistern of the Great Lung**, a sunken basin the size of a village square, nestled at the bottom of a vast, artificial valley. Every inch of the floor, the walls, and the soaring vaulted ceilings is made of heavy, mortared stone and fired clay. There is no soil here, no bedrock—only the weary, sweating bricks of an ancient, engineered world.
+
+The atmosphere is heavy and cool, resting at the temperature of a cellar. It is profoundly wet. Water does not fall as rain, but rather "weeps" from the seams of the masonry. The stones are perpetually slick, coated in a shimmering film of condensation that drips rhythmically into shallow, hand-carved channels. The air is so saturated that a breath feels like a drink; every surface is a mirror of dark, grey moisture.
+
+Though the scale of the chamber is cathedral-like, the space is hauntingly empty. There are no forests here, no sprawling structures. The middle of the cistern is a hollow void of grey light and mist, through which thin, primitive chain-pulleys and hand-woven hemp ropes dangle from the heights. These simple tools represent the peak of local technology: crude stone weights and wooden levers used to tilt the great clay basins that catch the drips.
+
+Vegetation is a desperate afterthought. Pale, translucent moss clings to the mortar lines, and a few spindly, white-stalked fungi grow in the shadowed corners where the bricks have crumbled. There are no trees, only these fragile, parasitic sprigs of life that turn the stone a bruised shade of purple.
+
+Yet, despite the lack of greenery, the cistern is violently alive. 
+
+The fauna is abundant and frantic. The "High-Skimmers"—six-winged insects the size of dinner plates—zip through the central void with a dry, papery rattle. They hunt the "Seam-Hoppers," small, eyeless amphibians with suction-cup feet that scuttle across the vertical masonry. The walls are a battlefield of slow, wet motion. Thousands of bioluminescent grubs pulse in the cracks of the stone, providing the only light—a dim, sickly green glow that barely illuminates the floor.
+
+The sound is immense. It is not the sound of wind or voices, but the mechanical roar of life. The rhythmic *thwack-thwack* of the skimmers’ wings, the constant, resonant *drip-clack* of water hitting ceramic, and the high-pitched chirping of the seam-hoppers create a sonic density that vibrates in the chest. Because the chamber is a closed, stone acoustic environment, every splash is amplified, bouncing off the damp bricks until the air itself feels like it is humming.
+
+Erosion has been kind to this place, or perhaps simply patient. The edges of the stairs are rounded like river stones. The carvings on the pillars—crude, hand-chiseled depictions of water-bearers—have been smoothed by centuries of condensation. The world is in a state of terminal balance; the water flows from the ceiling, feeds the moss, sustains the insects, and eventually drains through iron-grated holes in the floor to some deeper, unseen level.
+
+There is a profound weirdness to the pace of this place. The dynamics are active and cyclical; every few hours, a massive, unseen mechanism deep within the walls groans, causing the weeping of the stones to increase to a torrent. This is the "Flood-Pulse." During this time, the fauna goes into a frenzy, feeding and mating in the deluge before the water retreats back to a steady, weeping drip.
+
+You stand on a ledge of hand-cut basalt, looking out into the dim, misty hollow. There is nothing natural here—every stone was placed by a hand that has been dust for millennia—and yet, the environment has forgotten its creators. It has become a mechanical swamp, a stone lung that breathes water and vibrates with the frantic, clattering hunger of a thousand sightless things. It is a lonely, busy, and perpetually damp monument to a primitive permanence.

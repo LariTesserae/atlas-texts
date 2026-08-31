@@ -1,0 +1,15 @@
+Deep beneath what was once soil, there persists a cathedral of living things. The ancients who built it - if they could be called builders - did not use stone or steel but rather coaxed and bred and wove together countless species of fungus and plant until they had grown themselves a sanctuary that would outlast their civilization.
+
+The main chamber stretches up perhaps forty feet, its ribbed ceiling formed by massive root-columns that have long since fused into a single living mass. These are not ordinary roots - they glow with a steady bioluminescence, casting everything in a warm, golden light that feels almost like late afternoon sun. The light pulses very slowly, so slowly you might watch for hours before noticing it follows the same rhythm as your breathing.
+
+The floor is a dense mat of moss species, each claiming its territory in patches of different textures and shades of green. Some areas are springy and deep like the world's oldest mattress, while others form firm, almost wooden platforms. Moisture beads constantly on the moss surface, running in tiny rivulets to collect in scattered pools that reflect the ceiling's glow.
+
+The air is thick with the calls of the resident creatures - most no larger than your palm, all of them adapted to this enclosed world. Translucent amphibians with too many legs dart between the moss patches. Iridescent insects with wings like stained glass spiral up toward the ceiling in cyclical patterns. Something that might be a cross between a bird and a mushroom tends carefully to gardens of smaller fungi that grow in spiral patterns along the walls.
+
+The walls themselves are a dense weave of vines and mycelia, pulsing occasionally with the movement of creatures that live within them. Here and there, gaps in the weave reveal older layers, suggesting this space has been continuously occupied and renewed for thousands of years. The original architects bred these species to grow in specific patterns, creating chambers and passages that would maintain themselves in perpetual balance.
+
+In one corner, a spring emerges from between two massive root-columns, its water glowing with the same bioluminescence as the ceiling. The water is caught in a series of living bowls - large leaves that have grown woody and permanent with age - before disappearing back into the moss floor. The sound of this water provides a constant bass note beneath the chittering and humming of the chamber's fauna.
+
+The air is warm and humid, carrying complex scents of earth and growth and decay all wrapped together in the endless cycle that keeps this place alive. There's something else in that scent too - something almost like incense - suggesting this was once (and perhaps still is) a sacred space.
+
+Nothing here ever truly changes. The creatures follow their ancient patterns, the plants grow exactly as fast as they decay, the water flows in its eternal circuit. Even the dead are immediately reabsorbed into the living walls. This place achieved its final form so long ago that change itself has become foreign to it. It simply continues, as it has for millennia, a perfect fusion of the built and the grown.

@@ -1,0 +1,57 @@
+# The Hailbowl
+
+## Approach
+
+You are not sure when the mountain stopped and the sky began. Somewhere above six thousand meters the rock bleaches into the same blue-white as the atmosphere, and the boundary dissolves into a glare so total that your eyes water and your sense of verticality fails. The air is thin enough that each breath feels like an act of negotiation. You are climbing a ridge of dark basalt — iron-dark, almost black against everything around it — and when you reach its crest, the world falls away inward.
+
+Below you is a bowl.
+
+Not enormous. Perhaps four hundred meters across at its widest. But deep — a natural amphitheater scooped from the mountain by some ancient glaciation that long ago retreated and left this concavity open to the sky like a wound that never closed. The walls descend in steep terraces of layered rock, and at the bottom, a flat floor of compacted mineral grit. You can see all of it from where you stand. You can see the edges where the rim meets the sky on every side. It has the feeling of a room. A very large, very empty room, with the ceiling removed.
+
+## Descent
+
+The path down — if it can be called a path — is a series of natural ledges carved by frost and wind into shallow, irregular steps. The rock here is not uniform. Close up, the basalt reveals itself as a palimpsest: layers of dark igneous stone interrupted by veins of something pale, almost crystalline — a feldspar or perhaps a salt deposit left by ancient hydrothermal activity, long since cooled. Where the veins reach the surface, they have weathered into ridges that stand slightly proud, like the bones of the rock laid bare. The whole terrace system has this quality: it is a place that has been *worked on*. Not by hands. By time. Every edge is rounded. Every surface carries the patina of long exposure — a faintly chalky oxidation that rubs off under your fingers, grey-white against the black stone beneath.
+
+The terraces are narrow enough that you move along them single-file, and there is a density to the space that surprises you. What looked open from above is, at body level, intricate. The rock folds and overhangs. There are crevices you cannot see into. The ledge you walk juts out over a lower ledge, which in turn overhangs another, and between them the air collects in layers of different cold. The upper sunlit surfaces are merely frigid. The shadowed gaps between terraces are *deeply* cold — the kind of cold that feels like a substance rather than a temperature, pooling in the sheltered places like clear, invisible water.
+
+## The Floor
+
+At the bottom the bowl opens into its flat center. The ground is not rock here but grit — a dense, compacted sediment of tiny mineral fragments, mostly basalt dust but mixed with the pale feldspar and, if you look closely, occasional chips of something almost translucent. Quartz, maybe. The grit is slightly damp. Not wet — there is no standing water, no stream, no pool — but when you kneel and press your palm flat, the surface yields a faint darkening, a momentary sheen. Moisture. It is condensing here continuously, drawn from the air by the cold and the mineral surfaces, settling as a film so fine it is almost theoretical. It slicks the grit just enough that footprints hold their shape a little longer than they should.
+
+This is the only water. There is no snow — the air is too dry for heavy accumulation, and whatever falls sublimates or condenses and re-evaporates in cycles too subtle to watch. But the moisture is real. Over time it has left its mark: the lower walls of the bowl carry faint horizontal stains where the condensation line has shifted with changing temperatures, mineral deposits drawn to the surface and left behind as thin, almost invisible rind. If you lick your finger and touch the wall, the taste is mineral and faintly bitter. Iron. Maybe copper.
+
+## The Structures
+
+Someone has been here. The evidence is scattered and old.
+
+On the third terrace — roughly halfway down the north-facing wall — there are three cairns. They are crude: stacks of flat basalt slabs, perhaps seven or eight stones each, arranged without mortar or shaping. They are the right height to have been built by someone kneeling or sitting. They are not markers; there is no pattern to their placement that suggests navigation or survey. They might be memorials. They might be something else entirely. The stones have weathered to match their surroundings almost perfectly — you can only distinguish the placed stones from the natural ledge by the faintest differences in oxidation. They have been here a long time. Decades. Maybe longer.
+
+Near the center of the floor, there is a single slab — a basalt slab roughly a meter and a half long, a meter wide, maybe fifteen centimeters thick — set flat on the grit. It has been worked. The edges are not natural; they bear the marks of percussion flaking, repeated strikes with a harder stone, each impact leaving a shallow conchoidal scar. Someone shaped this slab by hand. It is not a table, not an altar — there is no ritual geometry to it. It might be a sleeping surface. A working surface. A thing placed in the world for the simple reason that flat stone is useful and this one was made flat. Around its edges, the grit has been pushed into low ridges by wind, and the slab sits in a shallow depression of its own making, sinking imperceptibly into the ground over years of settling.
+
+There are other marks. A ring of small stones, no larger than fists, arranged in a circle roughly three meters across on the eastern floor. The circle is broken in two places — wind, or time, or animals (but there are no animals here; you have seen nothing alive larger than the microscopic things that might, perhaps, exist in the condensation films). A series of shallow grooves scraped into the terrace wall near the southern rim, as if someone sharpened tools there, or simply scraped at the rock out of restlessness or ritual or boredom. The grooves are weathered smooth. Old.
+
+## Atmosphere and Light
+
+The light is extraordinary. At this altitude, the atmosphere is thin enough that the sun's intensity is almost physical — a weight of brightness that presses on the skin and fills the bowl with a luminosity that seems to have no single source. The basalt absorbs and radiates it. The pale mineral veins catch it and throw it sideways. The grit floor, damp with its film of condensation, becomes a dark mirror that reflects the sky in broken patches. There are no shadows that last — the bowl is open to the sky on all sides, and the light finds every corner eventually. At midday, the entire interior is a wash of cold white brightness, and the only relief is in the narrow crevices between terraces, where the dark rock creates thin lines of shadow like the lines on a palm.
+
+The air is clear in a way that makes distances deceptive. The far wall of the bowl looks close enough to throw a stone to. It is not. Sound confirms this — when you speak, your voice returns to you off the opposite wall with a delay that is just long enough to notice, and the echo comes back flattened, the higher frequencies stripped away by the open air, leaving only the low tones. Your voice sounds older when it returns. Everyone's would.
+
+## Weather
+
+The bowl is not still. There is weather here — small, contained, almost domestic in scale.
+
+Clouds do not often fill the bowl, but mist does. When the temperature drops — it drops in cycles, not smoothly but in steps, as if the cold is arriving in waves from somewhere above — the condensation intensifies, and a thin fog rises from the grit floor. It rises fast, as if the ground is steaming, though it is not steam; it is cold moisture condensing and then being lifted by the slight thermal differential between the sun-warmed upper air and the cold floor. The fog is shallow — rarely more than knee-high — and it moves. Not randomly. It flows across the floor in slow, coherent sheets, pooling against the base of the walls, spilling into depressions, following the subtle topography of the grit. It is dense enough to obscure your feet. Dense enough to make the flat slab in the center of the floor appear to float. Then the temperature steps back up, and the fog thins and lifts and dissipates, and the bowl is clear again.
+
+This cycle happens several times a day. You can watch it happen. It is one of the most absorbing things you have ever watched.
+
+Wind is constant but variable. The bowl acts as a kind of funnel — air moving across the mountain ridges is caught by the concavity and drawn downward, then channeled along the terrace walls in patterns that change with the altitude of the sun. In the morning, the wind spirals clockwise. By afternoon, it has shifted to a rough cross-current, cutting diagonally across the floor. In the evening — you have not stayed until evening, but the grit carries the evidence — the wind reverses and the fog rises and the temperature drops in earnest, and the bowl fills with a cold so deep that the condensation freezes where it lies, coating every surface with a crystalline rime that sublimates again by midmorning.
+
+The active processes are many, and they are all slow. The frost heaves the grit in tiny increments, pushing stones to the surface over seasons. The wind redistributes the grit into shallow dunes and ridges that migrate a few centimeters per cycle. The condensation dissolves minerals from the terrace walls and redeposits them on the floor as thin, brittle crusts. The cairns settle. The slab sinks. The grooves in the southern wall deepen by fractions of millimeters per century. Everything here is in motion, but nothing is in a hurry.
+
+## What It Feels Like
+
+The bowl is small enough to feel enclosed but open enough to feel exposed. This paradox is the dominant sensation of the place. You can see the rim on every side. You can see the sky above. You are held by the walls but unprotected by them. The density of detail — the layered terraces, the mineral veins, the fog cycles, the scattered structures — fills the space with a richness that the word "empty" cannot contain, and yet there is genuinely nothing alive here. No lichen. No moss. No insects. No birds circling in the thermals. The faintest possibility of extremophilic bacteria in the condensation, but that is a speculation, not a presence. You are the only warm body in the bowl, and the cold knows it.
+
+It is very quiet. The wind makes a low, continuous sound — not a howl but a murmur, a vibration felt more in the chest than the ears. Occasional sharp ticks as thermal stress fractures tiny flakes from the terrace walls. The hiss of grit moving across grit. The silence between these sounds is so complete that it has texture — it presses against the eardrums like cotton, and you become aware of your own blood moving, your own joints creaking. The echo of your voice, arriving late and low, is the loudest thing in the bowl, and even it fades fast, absorbed by the open air and the dark stone and the damp grit and the cold.
+
+You are aware, in a way that feels not quite like knowledge, that this place has been here for a very long time and will be here, essentially unchanged, for a very long time more. The cairns will sink. The slab will vanish into the grit. The grooves will smooth. The fog will rise and fall. The light will pour in. The bowl will hold it all, and it will not care.

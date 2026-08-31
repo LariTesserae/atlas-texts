@@ -1,0 +1,21 @@
+The place is a single, vast basin, roughly the size of a municipal stadium, sunken deep into the earth but open to a sky of pale, featureless grey. Light pours down in a perfectly even, shadowless wash, illuminating a landscape entirely devoid of the color green. There is no soil here, no vegetation, no fungal bloom to soften the hard edges of the world. There is only iron, scoured stone, flesh, and the wet chill of an eternal industrial cycle.
+
+The air is brisk, hovering just above freezing. It carries a heavy, shivering dampness. Thick condensation beads on every surface, gathering on the slick stone and the rusted flanks of outsized machinery. It does not rain, but the air endlessly sweats. Water gathers in sluggish, trembling droplets, running down great cables and pooling in shallow, worn depressions in the bedrock before being wicked away by the living carpet that covers the ground.
+
+The architecture of the basin is sparse, governed by an immense, imposing emptiness. Only three colossal structures rise from the floor, spaced hundreds of yards apart. They are monuments of heavy, layered industry: a towering cylindrical condenser webbed in sweaty pipes, a sprawling mechanical hopper with churning, house-sized gears, and a squat, heavily vented exhaust fortress that breathes out plumes of chilled, wet steam. They are deeply entrenched, married to the bedrock by centuries of unyielding equilibrium. 
+
+Despite the vast distances between these three industrial islands, there is no quiet here. The sound of this place is a physical weight, a deafening, torrential wall of noise that batters the senses. It is the rhythmic, tectonic thudding of the hopper’s pistons, the high-pitched, metallic shriek of pressurized steam escaping the fortress, and something else—a frantic, oceanic clattering that covers every inch of the basin floor. 
+
+The floor is alive. 
+
+From wall to wall, the open space between the sparse machinery is choked by a moving tide of strange, overwhelming fauna. Millions of creatures, pale and segmented, swarm in a knee-deep, undulating mass. They are the size of large dogs, armored in thick, chalky white carapaces that resemble discarded engine-casings, their soft underbellies lined with dozens of frantic, clicking, multi-jointed legs. They have no eyes and no mouths, only a porous, gill-like mantle at their front that frantically pulses, drinking in the icy condensation and the metallic slurry leaked by the machinery above. 
+
+There are so many of them that the ground is invisible beneath their bodies. They move in highly organized, unceasing rivers, migrating across the long, empty stretches of the basin. Over unimaginable expanses of time, the movement of their chitinous claws has eroded the solid basalt floor, carving smooth, perfectly polished trenches feet-deep into the stone. The environment has settled completely into this wear; the paths of the swarm are established, permanent, and fixed.
+
+The weirdness of the place lies in its flawless, terrifying stasis. This is a closed and perfect engine. 
+
+At the base of the condenser, millions of the creatures slide wetly into existence, extruded from massive, dripping sluice-gates. They fall into the swarm, their shells hardening in the cool air, and join the deafening migration across the wide, sparse floor. They march for hours, filtering the moisture and mineral runoff through their bodies, their sheer density acting as a biological coolant and filtration system for the entire industrial complex. Finally, they reach the roaring hopper at the other end of the basin. Without hesitation, the frontline of the swarm pours themselves over the metal lip, hundreds falling every second into the crushing, churning iron gears. 
+
+They are rendered instantly down into pale, vital fluid and pumped through subterranean pipes back to the condenser, only to be extruded once more. 
+
+The volume of the noise never crests and never fades; it is a solid, unvarying roar. The temperature never shifts. The pale light remains perfectly constant. The population of the swarm never increases or decreases by a single body. The machines never break, and the life never evolves. It is a loud, cold, frantic machine of flesh and iron, frozen forever in a state of deafening equilibrium.

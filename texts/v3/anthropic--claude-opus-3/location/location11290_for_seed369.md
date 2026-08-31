@@ -1,0 +1,11 @@
+The Singing Terraces
+
+High above the surrounding landscape, a series of natural terraces step up the flank of a solitary mountain. Each terrace is filled with crystal-clear water that reflects the sky, creating a staircase of shimmering pools. The waters are fed by small cascades and weeping rocks that line the back walls of each level, their steady flows resonating through the mountain's caverns to create an eerie, melodic sound that fills the air.
+
+Between the pools, lush vegetation clings to the rocky shelves. Thick mats of emerald moss and trailing vines with iridescent, spade-shaped leaves cover the terrace walls. Strange ferns with fronds that slowly sway and curl of their own accord cluster around the edges of the pools. Glowing, spherical flowers the size of a child's head bob on flexible stems, emitting puffs of luminescent spores that drift on the humid breeze.
+
+The few animals that make their homes here are uniquely adapted to the singing terraces. Semi-translucent snails with spiral shells cling to the vines, humming softly to themselves. Long-legged insects skate across the surface of the pools, their movements creating expanding ripples and complex interference patterns. Occasionally, a spindly bird with silky, trailing tail feathers glides between levels, its trilling cries harmonizing with the ever-present melody of the water.
+
+The highest terrace is smaller than the rest, an intimate grotto sheltered by a rocky overhang. At its back stands a rough circle of weathered stone pillars, like a primitive temple created by the mountain itself. The center pillar is carved in the shape of a stylized face with closed eyes, its expression utterly serene. Rivulets of water trickle from the eyes like tears to feed a shallow reflecting pool at the base of the shrine.
+
+Time seems to pass differently in this strange place, the slow grow and ebb of the waters marking the hours. Mists swirl and dance, filling the spaces between terraces with shifting curtains of vapor. The air feels thick and close, saturated with moisture and the mingled scents of damp stone and lush vegetation. Despite the bright light that filters down from above, the singing terraces feel otherworldly and mysterious, a hidden sanctuary that could have existed unchanged for centuries.

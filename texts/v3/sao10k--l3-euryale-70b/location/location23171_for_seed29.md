@@ -1,0 +1,11 @@
+You are in a small, pocket landscape set into the side of a massive automated factory complex. The entire world is an insulated metallic hollow, roughly spherical in shape, with walled and spire-like protrusions jutting out. Cranes, chimneys, and gantries stitch the space in a dense network of industrial components.
+
+The temperature is sweltering, the air thick with the heat of combustion and oil. A reddish glare suffuses the passage, casting long shadows. The etched metal walls thrum with vibration from engines firing in the darkness, and from here, you can't tell if there's sky beyond or just more looming structure above.
+
+Gullet-like tubes snake between crenellations in the walls, spewing orange jets of sulfur and white chips of rock-in-progress. Shoji-like facets on the walls softly clack flags and convey chits of not-rock, no-stone material to lot after lot, unit to unit. Through gaps in the pocked walls, half-finished landscapes peek - melange of ore-batteries, magma-irrigated polkaemoji seed-carrels, and coagulations of crystal, pipelined from here to there.
+
+Skittering through the tight space arequtid-type creatures, jointed limbs propelling them through the underaverages, perceptuous loci of germane material	structure. Flocks of nansewn xyla-hive machines flit between lore-mire content-mesh to scalar-import, noosphering currents of informed ultraheavy particles, kymbosperm data-box packets and gp:gate geoduster flows.
+
+These are all told by aurthe patterns of chemline trails, gunkl substrate stressways, and haut-deck paradoxation skelepoinynnascents on the dynamic diffusive surfaces that tessellate the surrounding scene. It's a kinetic 3D vision of a landscape still in mid-creation by powerful deep hidden industry.
+
+There is no lush organic life here, only a manufactured cryptoflora and biotectonic sensing-carapaces that monitor and sculpt the ultramundane ecosys. Let it cycle for a thousand years and an entire world will coalesce in this microscale - but now it is a hive of geotopic emergence and planetoid crystalization happening at every scale from the milliton to the 100km basin. A tiny, meta-intelligent, cranky, thermal, overstuffed, 864000 meters, geodesy.

@@ -1,0 +1,9 @@
+The landscape is a vast expanse of murky, undulating pools and twisted roots, like a thousand tangled lakes. Water is everywhere, condensed in cool mist, seeping from every surface, with only occasional clumps of vegetation persisting above the surface. The pools are coloured an odd teal hue, not quite natural. Their still surfaces cast dim reflections of the overhanging vegetation.
+
+Oddly for such a hazy atmosphere, the breathing mosses and cycads aren't overly lush, seeming rather stunted, wiry, and lethargic. Some of the cycads' scales are broken and peeling, with oily substances pooling where they have sloughed. Patches of blue bioluminescence flare across moss surfaces in strange, sine-wave patterns.
+
+In the distance, massive fallen trees loom as islands of twisted wood. Their angled trunks shed grayish, moss-covered bark. Snapped branches stretch like spindly fingers as if grasping for the sky. Never-cut grasses writhe in hypnotic synchronicity, mimicking the turquoise puddles' glassy ripples.
+
+An almost palpable stillness pervades the atmosphere, and quiet, yet you sense unseen activity beneath the surface. Every so often there's a splash, or a squelch, or a crack resounding through the bayou. Distant ultrasonic whines ring out abstractly, as from some faroff cannon.
+
+Infrastructure is wholly absent, but you get the unsettling impression the place is seldom actually abandoned. You might catch distorted reflections of people or jeeps impossibly far under the teal surfaces. An ancient forests' worth of ghosts are submerged and elusive here in the ever-present chill - but they are not gone. Just dormant, biding their time.

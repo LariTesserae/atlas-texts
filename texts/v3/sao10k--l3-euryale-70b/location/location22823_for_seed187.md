@@ -1,0 +1,7 @@
+The air is thick with humidity, a faintly cool mist clinging to the air. Pockets of still water are scattered about in small puddles and depressions, while the ground is spongy and damp underfoot. An endless sea of vegetation fills the low-lying space from edge to edge - vast kudzu-like vines, thick curtains of Spanish moss, wandering trunks of multiply sprouting trees. Everything is cloaked in foliage, a riotous tangle of plant life.
+
+The space feels ancient, unchanged for eons, the very land surface flattened by unimaginable ages of stillness and growth. But for all the static stability of the environment, there is still a faint mechanical hum that drifts through the humid air, a vibration you can feel through the springy earth. Some unknown industrial process toils away unseen, its presence more felt than seen.
+
+Bird calls echo through the thick air, animal cries more distant and rare but ever-present. Insects whir in profusion. For all the density of the plant life, the area feels somehow emptied as well, a feeling of endless, repeating space that stretches beyond the edges of sight in all directions. 
+
+There are no true structures to be seen - just the organic masses of vegetation. Perhaps, if you pressed deep enough into the green, you would eventually find the workings of the humming machines. But they are for now invisible, their presence marked only in the air, the stableness of the hidden machines resonating strangely with the ancient stability of the unchanging landscape.

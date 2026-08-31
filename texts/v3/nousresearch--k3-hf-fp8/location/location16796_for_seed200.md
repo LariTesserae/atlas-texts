@@ -1,0 +1,31 @@
+The air itself feels pregnant, not with rain but with something older—like heat and moisture fused into a single substance thick enough to swim through. It pools in the hollows between roots like viscous oil, clings to every surface with the weight of unspoken histories. This is a moment before landscapes knew they had names, when earth was still considering what it might become.
+
+Underfoot, the ground hasn't yet decided between solid and liquid. What will someday be soil is currently a cellular broth of decomposed possibilities—fungal threads weaving through proto-roots through mineral grains that haven't fully surrendered their crystalline memory. Each step sinks exactly as far as it must, then forgets you were ever there. Only your footprints' absence remains, filling in instantly like a mouth swallowing its own words.
+
+Above, what passes for sky exists as layers of luminous fog, stratified by temperature gradients no thermometer could measure. Light filters through as if reluctant to arrive, having traveled from a sun that hasn't yet committed to rising in a single place. The illumination shifts with geological patience—what you see now has already ceased to exist elsewhere, is still forming somewhere ahead of your vision.
+
+The vegetation exists in the present tense of growing rather than the past tense of having grown. Leaves unroll as you watch, not unfurling so much as discovering their leaf-ness moment by moment. Some are still negotiating between being leaves and being something else entirely—one glossy frond beside you appears caught mid-transformation between foliage and feathered wing, its veins pulsing with a slow heartbeat you can feel in your fingertips. The green itself hasn't stabilized into a single frequency; it flickers between wavelengths like a colorblind god adjusting a cosmic monitor.
+
+Water here hasn't learned to flow downward yet. It gathers in crystalline spheres along vertical surfaces—tree trunks sheathed in sweat-like droplets that refuse to fall, suspended rivers climbing the spiral grooves of what might become bark if time continues long enough in this direction. When you touch one, it doesn't burst but absorbs your fingertip's story, swells slightly larger, then releases you unchanged except for a memory you won't recognize later as borrowed.
+
+Shapes proliferate without hierarchy. Nothing grows higher or spreads wider than anything else because evolution is still considering its options at a leisurely, cosmic pace. Instead, the forest-as-process fills every possible niche of itself simultaneously. You see geometries that geometry hasn't discovered yet—spirals unfolding into cubes becoming spheres collapsing into fractals that smell like cinnamon. A soundless mathematics calculates itself in the spacing between stems, in the angles where emerging trunks meet to form not quite trees but tree-houses of empty space.
+
+Sound itself hasn't quite committed to being separate from touch or sight. What you experience as near-deafening roaring is actually the aggregate of billions of microscopic negotiations—cell membranes deciding what to let in and keep out, chemical bonds forming and reforming their alliances, water molecules arguing about hydrogen bonding etiquette. It presses against your eardrums not as vibration but as information trying to evolve into comprehension before your nervous system can filter it into mere noise.
+
+The fauna (though nothing here has agreed to be fauna yet) moves through this not-quite-space by methods that mock future physics. What you first mistake for butterflies are actually the thoughts of plants that haven't grown enough to contain them, fluttering between potential hosts. One settles briefly on your shoulder, shares a dream of photosynthesis from a symbiotic future where suns and roots negotiate marriages of mutual transformation, then drifts off when your imagination proves too small a greenhouse for its ambitions.
+
+Here, death and birth haven't quarreled enough to become opposites. You witness one organism politely ceasing to be particular in order to afford its components the opportunity to participate in other negotiations elsewhere. The process looks like reverence—a slow, deliberate melting into background possibility, like applause fading into silence without ever deciding where applause stops and silence begins. From the same spot emerge half-formed suggestions of what might be insect, bird, or theoretical physics made curious about texture.
+
+Time passes but doesn't accumulate. Everything happens exactly once and forever, simultaneously. You could spend eternity crossing this clearing that hasn't yet decided its dimensions, and when you arrived (if arrival were possible here), you'd find yourself at every point along the journey simultaneously, watching yourself watch yourself not quite moving through space that refuses to remain between points long enough to be traversed.
+
+At the center (though centers are a concept this place hasn't adopted) stands what might eventually become a waterfall, if water falls here before finding something better to do. Currently it's a liquid question mark suspended in mid-transformation between falling and ascending, ribbed with internal rainbows generated by light arguing with itself about speed limits that haven't been legislated yet.
+
+This is the heat of creation before cooling became fashionable. The density of everything trying everything else on for size before settling on specific identities. The loudness of potential still shouting all its possible names to see which one echoes back with a shape it likes.
+
+You shouldn't be able to breathe here—the atmosphere is too rich with what air is trying to become. But your lungs are old-fashioned enough to perform their function unenlightened by these possibilities, converting the future's exhalations into the present's inhalations with the conservative stubbornness of biology that hasn't heard the news about how impossible this all is.
+
+How long have you been here? How long is here?
+
+The questions haven't finished forming themselves before the answers that preceded them finish erasing the need for either.
+
+You were always leaving, even before you arrived.

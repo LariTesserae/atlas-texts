@@ -1,0 +1,99 @@
+The world is made of plant.
+
+It rises in a slow, planetary exhalation, a single vaulted mass of living tissue spanning from horizon to horizon: not a forest sitting on rock, but a forest that *is* the rock, still swelling into existence. You stand—if anything like standing is possible—on the high flank of a continental-scale, still-forming vegetal plateau, high enough that clouds are born here and never quite leave.
+
+Cool air beads with moisture. Nothing is dry. Every exposed surface sweats, weeps, or exudes water. It runs in sheets down vertical curtains of fibrous growth, trembles in pendant bulbs along root-cables, clings as mist inside the porous cavities that pass for “open space” here. The temperature hovers just above chilly: breath ghosts faintly, but the humidity wraps the body in clammy cloth. There is no clean, thin mountain air; height here has not brought clarity, but condensation.
+
+The light is sickle-thin and indirect. Somewhere far above—beyond strata of vascular canopy, hollow membranes, and clouded air—a pale sun must exist, but its presence is reduced to a pervasive, sourceless dusk. Light filters through kilometers of leaf-thin tissue and semi-translucent membranes, arriving as a smeared green-grey wash. It contains hints of color when it passes through pigment-rich layers—wine-dark reds, bruised violets, sea-glass greens—but mostly it is dim, as though all brightness has been drunk by the plants before it arrives.
+
+No open sky is visible. What would be “sky” is instead a remote ceiling of interlaced, root-like beams and swollen, translucent boles, blurred by drifting vapors. Everything above is layered: vascular arcs the size of mountain chains, plates of calloused bark grown across voids, dangling forests hanging from the undersides of still larger tissues, like lichens on the belly of a world-beast.
+
+There is no rock underfoot. The “ground” you feel is an aggregate of braided roots, pressure-thickened cellulose, and spongy, waterlogged mats of older growth. The closest thing to soil is a gelatinous, dark slurry of decomposed plant matter pooled in pockets—peat before it has learned to be earth. The whole plateau is new: erosion has barely begun. No valleys have been cleanly carved yet, no canyons gnawed out by persistent rivers. Instead, there are hints of such shapes—incipient fissures where drainage might someday become a stream, drooping gullies carved by just a few seasons of runoff—like sketch lines waiting for a sculptor to return.
+
+The planet’s lithosphere—if there is one—is buried deep beneath this living mantle. What little geology is visible feels embryonic: occasional hard inclusions within the plant-mass, like mineral nodules grown *into* it, still smooth, not yet worn or fractured, glimmering faintly in the dim translucence like bones inside a semi-transparent animal. They are not exposed to air, nested instead within translucent tissues or sealed cavities, as though rock here has not earned the right to surface.
+
+Despite the dimness, this place is not quiet.
+
+Sound dominates everything. The air is a continuous, layered thunder of internal processes made external. The world is young and its workings are loud.
+
+Closest and most relentless is the vascular roar: oceans of liquid being raised and lowered through living conduits the width of cities. Picture sap, water, nutrient slurry and dissolved gases being heaved upward in resonant columns through trunk-like towers that pierce the entire height of the canopy layer. They move in pulses, not in the slow whisper of xylem but in beats, like the surging of blood through a heart the size of continents.
+
+Each pulse is audible. The great plant-body flexes and contracts microscopically with every wave, and those movements turn tissues into instruments. Hollow tubes act as organ pipes, booming and moaning. Thin membranes mounted between massive supports flutter and drum. Dense mats of fibrous tendrils rasp and vibrate. The whole plateau is a single, incoherent orchestra: a deafening, omnipresent chord of groans, shudders, and deep-bellied bass notes so low you feel them in your bones before you hear them.
+
+Over that, a constant hiss: water atomizing as it emerges from pores, condenses from breath-warm cavities, rains from invisible heights. It does not fall in clean drops; it comes as spray, fog, and countless tiny impacts on innumerable leaf-surfaces. Imagine standing under an endless, overlapping series of waterfalls, each fall broken into curtains, beads, and mists that never quite end. This is not a storm but a *condition*: the plant-world perpetually sweats into its own atmosphere.
+
+From time to time, a sharper crack booms through the murk. These are mechanical failures in the living architecture: a load-bearing vine finally shearing under weight; a membrane stretched beyond tolerance snapping; a pressure-pocket of gas inside the plant’s interior collapsing or rupturing. These events send shockwaves through the framework: entire sectors shudder, knots of roots tense, fine branches sway like grass in slow motion.
+
+There is no animal cry, no chattering, no wings. The noise here is all infrastructure, all physiology on a continental scale.
+
+Despite the lack of fauna, the ecosystem is anything but still. Every square meter is occupied, layered, contested—but the contest is entirely botanical. There are no animals to browse, dig, or pollinate; dynamics play out through growth, pressure, chemistry, and light-thievery.
+
+The primary substrate is a foundational mega-organism, or a network of them: structures so interlinked it’s unclear where one ends and another begins. Call it the basal tissue: a complex, multi-layered, quasi-tree that sprawls outward and upward, its surfaces endlessly differentiating into specialized forms. Portions thicken into structural columns and buttresses; others flatten into broad, shield-like laminae facing upward toward whatever light gets through; others hollow into long, vaulted corridors—arteries of air and moisture.
+
+On and within this basal mass, other plant-forms proliferate. Some seem like epiphytes but are in truth more like emergent systems in a single body—localized expansions of different “genomes” or expression programs in the giant plant’s distributed tissue. Others, perhaps, are independent species that have learned to graft themselves in, tapping into the global circulation.
+
+Forms range wildly:
+
+- Filigreed mats of microleaves encrust every drip-line, netting airborne moisture and exudates, forming a skin-of-skin over larger structures.
+
+- Thick, braided cables span gaps where the underlying organism has stretched faster than it can support itself. These bracings are fresh, pale, and slick, as if grown overnight to shore up softening arches.
+
+- Gigantic, cup-shaped growths open upward, crater-lakes of vegetative tissue filled not with open water but with gelatinous, nutrient-rich broth. The surfaces of these pools ripple with near-invisible currents, stirred from below by pulsed flows in deeper tissues.
+
+- Pendant forests hang from the undersides of vast overhangs: inverted groves whose stems reach down like stalactites, each bearing brushy, root-like fronds that trail to merge with mists below. These structures wick water up from lower, unseen layers and radiate it out through countless pores, forming their own fog banks.
+
+Everywhere is verticality. “Up” and “down” are rarely clean. Even on the “plateau,” the surface folds into ridges and troughs of knotted roots, rises into trunk-like towers, then falls away abruptly into bottomless, plant-walled chasms where sound is swallowed immediately despite the roar. Many spaces that feel like canyons are actually airways: vents through which the world-plant breathes, exhaling warm, saturated gusts and inhaling cooler, mist-laden drafts as its internal pressure shifts.
+
+Erosion by water is in its infancy. Where runoff finds a route, it has not yet had time to carve proper channels. Instead, there are slick, scalloped runnels etched along bark that’s still soft enough to dent under a fingernail; shallow bowls where constant drip has bruised and thinned the tissue, darkening it with saturation; narrow tear-lines where water has found a weak seam and begun to pry it open, not by grinding but by swelling and fermenting the material within.
+
+Gravity has more influence than time. Structures bulge and sag as they take on load. There are slow-motion landslides of plant-mass: entire faces of fibrous “cliff” slumping downward over years, creasing and folding but never quite tearing free, like wax drooping on a heated candle. Where these flows occur, the vegetation thickens and compresses into layered bands: not sediment, but growth-rings extruded sideways, each denser and harder than the last from the cumulative pressure.
+
+Nothing built by hand breaks this continuity. There are no paths, no cut marks, no shells of abandoned machines. Yet the place hums with an intelligence that feels alien to absence of technology. The “tech,” here, is intrinsic: an engineered physiology of frightening sophistication, executed entirely in living matter.
+
+Consider the vascular system again. It does not obey the limits you expect from simple plants. Fluids rise far higher than capillary action alone could account for; they move against gravity with a rhythmic force more akin to pumps than to evaporation-driven transpiration. Within the conduits, flow segments arrange themselves—dense, nutrient-rich plugs separated by zones of aerated, lighter fluid—self-organizing into patterns that maximize efficiency of transport and gas exchange over impossible distances.
+
+Sometimes, along the walls of major conduits, you see arrays of microscopic pores that open and close in perfect phase with distal contractions hundreds of kilometers away. There are oscillations and waves that propagate over continental scales, sensed and responded to with minimal delay. Signals in this plant-world travel faster than ordinary electrochemical gradients should allow, hinting at some other substrate of communication braided through the tissue: perhaps chains of conductive polymers, perhaps nanoscale mineral inclusions forming a distributed nervous system, perhaps quantum-coherent structures stabilized in the cool, saturated, dim environment.
+
+On certain surfaces—smooth, shield-like plates of pale tissue stretched between load-bearing columns—you can see patterns crawl slowly across the skin, like interference fringes or the shifting output of some immense, analog computation. Bands of pigment dilate and constrict, forming moving lattices; microscopic cilia adjust orientation, tuning reflectivity and absorption. The whole sheet acts as a dynamic interface between interior and exterior conditions, adjusting not just to local weather but to global states you cannot perceive.
+
+Here and there, arcs of faint bioluminescence pulse through deep crevices, like the ghost of lightning captured and recycled. These are not random sparks; they trace branching paths along specialized filaments, converging on nodal swellings deep inside the plant body. In the dark of inner chambers where almost no sunlight ever penetrates, these light-pulses are the primary illumination: a self-grown, biologically powered fiber-optic network, flickering with reckonings and regulations.
+
+The atmosphere, though dense with water vapor, is breathable in a cool, wet way—but composition varies locally. In some hollows, oxygen is abundant, exhaled in surges when photosynthetic layers above have a momentary surplus. In others, CO₂ and more exotic volatiles accumulate, held like chemical ballast until pressure currents drag them into mixing layers. You can smell the differences: sweet, green sharpness near active growth; sour, fermenting funk in slumping, overloaded folds; an almost metallic, ozone-like tang near bioluminescent conduits and high-energy exchange sites.
+
+The weather is endogenous. Outside meteorology may exist, but here, on this high, thick plateau, it barely intrudes. Instead, the plant-world generates its own cycles.
+
+Three primary rhythms overlay each other:
+
+1. **The pump cycle:** Massive pulses that send surges through trunk conduits. During rising phases, internal pressure increases; tissues tense, vents constrict, and warm, moist air is exhaled from countless stomata and vents. Wind rises from within, strong enough in narrow chimneys to produce a constant gale. During falling phases, pressure drops; vents yawn to draw air inward, mists are inhaled deep into cavities, and some surfaces visibly sag, as though relaxing.
+
+2. **The condensation cycle:** Driven by subtle temperature shifts between outer and inner layers, moisture constantly moves. In some intervals, upper membranes cool slightly, encouraging heavy fogs to condense and drip downward; lower tissues autocool by evaporative methods, sending vapor back up, feeding a perpetual, internal rain cycle. You can watch it: clouds coalescing under overhangs, thickening into opaque curtains, then being torn into streamers by gusts from respiratory vents.
+
+3. **The light-management cycle:** Although external light is dim and perhaps not strongly cyclical, the plant seems to enforce its own phases of exposure and recovery. Pigmented layers tilt, fold, and relax in slow sequences, like muscle groups in a slow animal gait. In some phases, upper canopy plates thin and align to funnel what light exists deeper; in others, they thicken and become more opaque, storing energy, perhaps protecting tissue from rare spikes of stellar radiation. Inside, you perceive this as gradual brightening and darkening of the ambient green-grey wash, independent of any obvious external sunset or dawn.
+
+Within this framework, the details never stop moving. Vines you thought were still reveal, on closer inspection, a creeping advance over days, weaving into any gap where light or nutrient flows are fractionally better. Membranous curtains slowly crawl along their supports, seeking positions that balance tension and resource intake. Nodules grow, swell, and then deflate as they transfer stored compounds deeper inside, their previous emptiness quickly colonized by opportunistic creepers.
+
+Predation, in this world, is plant-on-plant. There are no jaws, but there are enveloping sheaths, strangling coils, chemical sieges. One species—if “species” is even the right word here—grows translucent blister-like domes over the surfaces of others, sealing off patches of photosynthetic tissue and digesting them from above with exuded enzymes. Another grows needle-fine penetrators that seek out conduction conduits and tap into the victim’s transport system, siphoning resources silently.
+
+Yet there is also cooperation on scales hard to track. Where a column of basal tissue begins to strain under its own load, nearby parasitic growths sometimes reorganize, weaving themselves into reinforcements, integrating structurally in exchange for better access to flow and light. Networks of different morphologies form braided cables that are stronger and more resilient than any single tissue type alone—an emergent biomechanical engineering, updated in real-time by distributed chemical negotiation.
+
+Despite the noise and the crowding, there are pockets of comparative openness, but they are never empty. One such place might be a vaulted cavern where the basin of a huge cup-growth has thinned and broken through. The floor is a trembling film of tough membrane stretched over a lake of nutrient fluid below; above, the broken rim opens into a jagged oval that admits a diffuse, milky glow. Mist hangs in layered sheets: a lower, colder layer hugging the membrane, and warmer plumes steaming down from vents dozens of meters overhead.
+
+Every surface here is colonized by fine, hairlike plants that shimmer and buzz with the vibrations of the world’s endless engines. Passing pressure waves modulate their posture, and they in turn seem to slightly damp or redirect sound, as if the plant-world engineers its own acoustic environment. Even in this “open” chamber, there is no silence; the roar is multiplied by echo and resonance into something almost unbearable, an all-frequency susurrus that obliterates distance and direction.
+
+In narrower corridors—organic tunnels squeezed between structural columns—the sound is focused: the deep rumble of sap-flow becomes a thunder that makes conversation impossible, if anyone were here to speak. Narrow membranes overhead act like drumheads, beating out polyrhythms as internal pressures flex them. Every footstep, if you could make one, would be swallowed instantly by the ambient deluge of noise.
+
+Far above, in unreachable canopy layers, there may be slightly brighter zones where the plant-surface comes closest to whatever passes for the true sky. There, large, shield-like plates angle themselves to maximize exposure, their surfaces coated in microstructures optimized not just for photosynthesis but for controlling radiation across a wide spectrum. They may be doing more than gathering light: they could be harvesting ambient electromagnetic noise, cosmic rays, or subtler fields, folding them into the planet’s biophysical economy.
+
+The true strangeness of this place lies in the sense that the “beyond-modern tech” implied here is not an external overlay but *intrinsic to the biology*. The plant has learned, or been made, to operate on physical principles that our current understanding only gestures at. Its tissues host coherent excitations that persist over meters, perhaps kilometers; its signaling may exploit quantum states maintained in the cool, sheltered depths of waterlogged chambers. Its structure hints at built-in redundancy against cosmic-scale events, self-repair protocols spanning continents, and an ability to alter its own fundamental processes in response to currently unimagined variables.
+
+Yet there is no artifact, no tool lying apart from the body that made it. Everything technological is self, and self is everywhere.
+
+From a vantage somewhere along a high, semi-exposed ridge—a long, flexed tendon of pale, load-bearing tissue whose top has been roughened into a kind of traction surface by low, gripping moss-equivalents—you might look outward and grasp the scale.
+
+You see nothing we would call a horizon, because the world’s curvature is softened by its own thickness. Instead you see distance fading into murk: one after another, enormous arches of trunk and root; billowing islands of canopy rising like verdant thunderstorms; sagging fan-like membranes that form continent-spanning shelves; vertical plumes of fog where internal vents meet cooler outflow and condense their breath. Everything is foreground. There is no “far away” that isn’t simply more layers of the same mind-boggling complexity.
+
+Above, faint streaks of internal lightning chase each other along deep channels, briefly painting certain arcs or cavities in electric cyan before winking out. Below, a constant underglow of dim bioluminescence hints at depths of space within the plant-body that no external eye could ever reach, caverns and labyrinths where processes stranger still unfold, insulated from any external weather, governed only by the planet-organism’s own rules.
+
+No animal moves. No wing beats, no insect whine pierces the wideband roar. Life is total and all-consuming, but it has not yet differentiated into hunter and hunted in the way you know. Here, competition is slow, structural, chemical.
+
+The world is high, wet, dim, saturated with presence, and unimaginably loud. It is a single, unfinished thought of plant, still speaking itself into form, its own physics humming and booming through its flesh as it grows toward whatever it intends to be.

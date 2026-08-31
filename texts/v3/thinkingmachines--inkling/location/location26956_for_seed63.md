@@ -1,0 +1,19 @@
+You stand in a chamber no wider than a cathedral’s nave, suspended high within the dead spine of a mountain—elevation not as vista but as pressure, a thin, scorching air that has forgotten weather. There is no sky here. The ceiling is a convex shield of black basalt, polished by centuries into a dull mirror that swallows what little radiance exists. Light measures 0.3: not absolute black, but a lingering, bruised crimson that seeps from fissures in the floor, as if the stone itself were feverish. You see by the glow of heat.
+
+The scale is intimate, bounded, hamlet-sized only if a hamlet were a single lung. Every surface—floor, wall, arch—is occupied. Density is total.
+
+There is no water. Not a film, not a vapor, not the memory of ice. The air is bone-dry, metallic, tasting of iron and sulfur. There are no plants—no roots, no mold, no lichen—only mineral. The ground is not soil but a compressed, satin-worn plate of obsidian and rust-ochre salt, settled into its own form by long erosion. It is weathered, in balance with itself, a landscape that has finished arguing with time. The stone curves like a bowl, guiding movement inward.
+
+And movement is everywhere.
+
+The fauna is overwhelming, near 3.0. They cover every inch in a living, silent carpet. Small—each the size of a clenched fist or smaller—segmented bodies of dull copper and matte black, like ceramic scales grown wings of heat. They have no voices. Sound remains at 0.9: mostly quiet. You hear only the dry whisper of their bodies sliding over one another, the faint tick of chitin on glass, an occasional crack of thermal stress in the rock. They do not fight loudly, do not call, do not warn. They simply are, packed so densely that the floor appears to breathe, a dark tide that never stills.
+
+They feed on the mineral exhalations rising from the hot cracks—thermophilic, waterless, sustained by chemistry and each other in a tight, predatory loop. Some crawl; some cling to walls in vertical fields; some cluster in seething knots around the warmest vents, their bodies glowing faintly with stored heat, then dispersing in slow, synchronized waves toward cooler edges. The dynamics are active, biological pace constant: birth, consumption, death, absorption, all silent, all immediate. There is no waste in this chamber. A fallen body is coated in minutes.
+
+Weirdness threads through their movement. They travel not in chaos but in strict geometries—spirals, parallel lines, angles that match the faint, scattered ruins embedded in the walls. Those structures are sparse, built at 1.0: not machines—there is no technology here, 0.4, nothing manufactured—but remnants. Small, low arches of fused stone, too perfect to be natural, too eroded to be recent. A pillar that might once have marked a center. Fossilized tracks? Altars? They stand scattered, partially swallowed by the living carpet, like forgotten punctuation in a language of heat.
+
+The temperature holds at 2.6—oppressive, dry, constant. You feel it in your bones, not as comfort but as presence. The chamber is high, isolated, a sealed organ in a dead body of rock. No wind enters. No rain has ever fallen.
+
+Yet it is alive. Overwhelmingly so. The darkness is not empty; it is saturated with presence. Every shadow shifts. Every wall crawls. This is a world without plants, without water, without sound—only mineral patience and the silent, packed urgency of creatures who have made heat itself their only ecology. They do not need light. They navigate by temperature, by vibration, by the chemical breath of stone.
+
+You step carefully, and the carpet parts—not in fear, but in density—closing behind you like water that was never wet. The air does not move, but the life does. Always. A quiet, active world, strange and complete, holding itself in hot, dark equilibrium high above anything that remembers the sun.

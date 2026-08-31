@@ -1,0 +1,17 @@
+In the heart of an ancient geode, a pocket universe persists. The chamber, no larger than a room, is completely submerged in a luminous heavy-water that seems to fold light through itself like liquid crystal. This is the Bright Deep, as the few who know of it call it.
+
+The walls are lined with countless millennium-old mineral formations - not stalactites or stalagmites, but impossibly delicate lattices of metallic crystals that have grown into and through each other over eons, creating a dense architectural maze that catches and splits light into scattered rainbows. These structures, somewhere between natural growth and engineered circuitry, pulse with faint electrical currents that travel in complex patterns through the conductive crystal networks.
+
+The water itself is thick with suspended particles that catch the light - microscopic crystal fragments, ancient mechanical spores, and tiny bubble-chambers containing even tinier ecosystems. These motes swirl in slow, deliberate currents that form three-dimensional geometric patterns, as if the water itself is computing something vast and patient.
+
+Scattered throughout this dense aqueous space are what appear to be artifacts of some vanished industrial civilization - small machines made of crystal and corroded metal, their functions now mysterious. Some still whir and click, driving the chamber's currents, filtering the heavy-water, maintaining whatever processes have kept this pocket-world stable for so long. Their movements create gentle rhythmic sounds that resonate through the dense liquid - somewhere between the tick of clockwork and the pulse of a heartbeat.
+
+The only living things here are rare visitors - tiny crystalline creatures that sometimes emerge from the maze-like mineral growths, gliding through the water in geometric formations before disappearing again. They might be automated sensors, or the highly evolved descendants of ancient maintenance systems, or something else entirely.
+
+The whole chamber feels like both a natural wonder and an ancient machine - as if over millions of years, the boundary between grown and built has completely dissolved. The water pressure is intense, but stable. The temperature remains consistently warm, maintained by processes hidden in the crystal lattices. Occasionally bubbles of different liquids form and rise through the heavy-water, catching the omnipresent light and creating brief, spectacular displays before being reabsorbed into the system.
+
+This is a place of extreme age that has reached a kind of terminal stability - not through decay, but through the perfection of its processes. Every pattern of current, every pulse of energy through the crystal matrices, every movement of the ancient machines has been optimized over eons into an eternal dance of maintenance and renewal.
+
+The light seems to come from everywhere and nowhere, as if the water itself is luminescent, or perhaps the light is being generated and channeled through the crystal networks in ways too complex to trace. This creates an environment of perpetual bright day, though the quality of light shifts subtly as different currents and patterns move through the chamber.
+
+It's a place that feels both impossibly ancient and perpetually active - a tiny universe that has evolved far past any simple distinction between natural and artificial, achieving a kind of immortality through perfect systemic balance.

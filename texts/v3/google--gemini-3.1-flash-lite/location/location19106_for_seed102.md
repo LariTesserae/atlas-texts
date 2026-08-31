@@ -1,0 +1,13 @@
+You are in the Grotto of the Resonant Silica, a pocket-world no larger than a cathedral nave, buried deep within the crust of a dead, airless planetoid. It is a sealed, subterranean blister—a fragile, isolated bubble of existence that has never known the passage of a single second.
+
+There is no water here. The "flora" that dominates the floor and walls is not wood or chlorophyll, but crystalline filaments—tall, translucent stalks that vibrate with a warm, pervasive golden glow. These are the *Hum-Bamboos*. They grow in sparse, scattered clusters, their glass-like roots feeding directly on the thermal radiation leaking from the planet’s core. Everything is young, sharp, and jagged; the ground is a field of freshly shattered obsidian and quartz slivers, clicking faintly as you displace the air. 
+
+The air is thick, dry, and heavy, heated to a constant, balmy temperature that never fluctuates. Because there is no water, nothing decays. The environment is locked in a state of eternal, frozen equilibrium. Time does not pass here; a leaf that fell a thousand years ago hangs suspended in its descent, caught in a permanent draft, its edges as razor-sharp today as the moment of its creation.
+
+The atmosphere is dominated by the sound. Because the crystalline vegetation is hollow and rigid, when the tiny, beetle-like fauna scuttle across them, the entire chamber erupts in a cacophony of glassy chimes and deep, resonant thrums. It is impossibly loud, a symphony of accidental percussion. The fauna—small, multi-legged creatures with shells of polished hematite—are abundant, darting through the sparse gaps between the stalks, their movements jerky and rapid, yet their overall population remains constant due to the stagnant nature of the world.
+
+Scattered amidst the stalks are the remnants of something primitive. A simple, hand-knotted tether made of spun mineral-fiber hangs from a stalactite; a crude, circular altar fashioned from a single, unpolished slab of basalt sits in the center of the grotto, untouched by dust or age. There are no signs of inhabitants, only these faint, lonely marks of an ancient, manual intervention. 
+
+The light is dim, sourced entirely from the bioluminescence within the crystalline structure of the plants and the rhythmic, oscillating pulse of the mineral walls. It is a world of shadows and hard edges. 
+
+If you were to stay, you would never age. The temperature would remain the same, the sounds would repeat their chaotic patterns in an infinite loop, and the golden, suffocating heat would wrap around you like a heavy blanket. It is a room of exquisite, trapped brilliance, buried beneath leagues of lifeless rock, screaming silently with the music of its own crystalline life.

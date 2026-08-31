@@ -1,0 +1,27 @@
+---
+
+You step out of the shaded mouth of a tunnel—a deliberate arch of packed, pale earth—and the world does not so much open as *resolve* around you.
+
+It is not a landscape that *grew*. It is one that was *decided*.
+
+The ground beneath your feet is a tessellation of flat, geometric plates, each the size of a small table, made of a compressed, ceramic-like substance the colour of bone. They fit together with impossible precision, and between them, a viscous, slow-moving seep of water rises from invisible fissures. This is the wetness: not rain, not rivers, but a constant, gentle weeping from the very structure of the world. The water is cool and curiously sweet, collecting in shallow, square basins that are part of the floor-plate design. The air is thick with a humidity that doesn’t condense into droplets, but instead coats every surface with a shimmering, transient film, like a breath on glass that never quite fogs.
+
+The vegetation is lush to the point of absurdity. Vines of iridescent, rubbery green spill over the edges of the plates and cascade down the sides of the nearest structures, which are not buildings but *uplifts*—massive, rectangular monoliths of the same pale ceramic, some standing alone, others connected by delicate, suspended bridges of woven, fibrous root. The plants do not grow from soil; they erupt directly from seams in the stone, their leaves broad and waxy, their flowers like solid bells of molten copper and violet. There is no topsoil, only this engineered substrate, and yet the ecology is abundant. Tiny, skittering things with too many legs and shells like glazed pottery rush through the vine-tangles. Larger, slow-moving grazers with blunt, shovel-muzzles nudge at the base of the monoliths, cropping the succulent moss that fringes the water-seams. Their calls are low, resonant hums that travel poorly through the heavy, still air—part of the profound quiet.
+
+The temperature is a hot, steady press. The light is bright, direct, and seemingly without source—the sky is a seamless, pale blue vault, with no sun discernible, yet the illumination is uniform and without shadow. Everything is lit from everywhere and nowhere. Because of this, and the world’s strange equilibrium, nothing moves quickly. The dynamic is zero; this is a state. The water weeps at a constant rate. The vines hang motionless. The grazers amble in looping, predictable circuits. There is no wind, no decay, no erosion in the sense of wearing down—the sharp, angular features of the monoliths and plates are pristine, as if formed yesterday. They are young, yes, but frozen in their youth.
+
+The scale is open: the patterned plateau you stand on stretches for what seems like many miles, bounded by a distant, linear horizon where more monoliths stand like a silent city. Yet the density is sparse. For every hundred plates, only a handful are overtaken by vibrant plant-life or visited by fauna. Most are bare, gleaming dully in the eternal light, connected by empty, perfect space.
+
+And this is where reality breaks down.
+
+The built quality is total. There is no natural substrate. Every rock, every rise, every basin is fashioned. But the technology is primitive. You see no circuits, no gears, no power sources. The construction is achieved through what looks like immense, manual craft: colossal masonry, terraforming with simple tools, biological engineering with fibres and grafts. It’s a world built like a megalithic garden, but with no apparent builders. The tools that would be required—the levers, the ramps, the scaffolds—are absent. The structures simply *are*, as if the act of their making was simultaneously their completion, and now only the result remains.
+
+The weirdness hums in the details. The water in the basins sometimes, for a single, silent moment, reflects a sky that isn’t there—a sky of nebulas, or of inverted cityscapes. A vine might, out of the corner of your eye, seem to twitch with a purpose beyond reaching light. The grazers have eyes that are smooth, dark ovals with no pupil, yet they seem to track you. The quiet is not an absence of sound, but a presence—a low, sub-audible thrum that you feel in your molars, the sound of a stable, unchanging system holding its breath.
+
+Rules of this world, as best you can tell:
+1.  **Form follows function, but the function is forgotten.** Everything serves a purpose in a system whose goal is no longer active.
+2.  **Growth without time.** Life thrives, but does not age, rot, or evolve. It is a snapshot of abundance.
+3.  **Construction without construction.** The world is made, but the making is over, leaving only the made.
+4.  **Stasis is the only motion.** Change is not just slow; it is conceptually impossible. A dripping tear of water is an eternal event, replaying exactly.
+
+You walk across the bone-plate ground, your footsteps muffled. The air tastes of wet ceramic and sweet sap. In the distance, a monolith with a perfect, square hole bored through its centre frames a void of that same unchanging blue. Nothing answers your call. The world is a museum of its own creation, curated by an absent hand, where the exhibits are alive, the lights are always on, and the doors have been locked since before time was counted. It is beautiful. It is terrible. It is finished.

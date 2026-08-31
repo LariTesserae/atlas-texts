@@ -1,0 +1,13 @@
+In the heart of an ancient processing facility, there exists a forgotten chamber - though "chamber" suggests more space than there really is. It's a dense geometric honeycomb of translucent crystal, every surface and angle precisely grown over centuries through some long-lost artificial process. The crystals pack the space completely, leaving only the thinnest of gaps between their faces - gaps no wider than a finger's width.
+
+The entire structure thrums with a constant, almost painful resonance. The crystals sing against each other, their frequencies combining and separating in complex harmonies that seem to follow mathematical patterns. The sound is everywhere, inescapable, a product of the incredible pressure keeping the crystal matrix stable.
+
+Brilliant white light suffuses everything. The crystals act as countless prisms and light pipes, catching and channeling illumination from some unseen source until the whole space glows from within. The light seems to bend in impossible ways, creating the illusion of depth where there is none, suggesting vast spaces within spaces that vanish when viewed directly.
+
+What little plant life exists here has adapted to grow in the narrow seams between crystals. Pale, threadlike stems with tiny leaves trace geometric patterns across the crystal faces. These plants don't photosynthesize - they draw energy directly from the resonant frequencies that permeate the chamber, converting vibration to sustenance through some bizarre adaptation.
+
+The temperature remains constant, cool enough to be refreshing but not cold, maintained by the same mysterious processes that keep the crystals growing in their precise patterns. The air is perfectly dry, any moisture immediately absorbed by the crystalline surfaces.
+
+This place feels simultaneously natural and artificial - every surface is clearly constructed, grown according to precise specifications, yet it has achieved its own kind of equilibrium. The crystal matrices are self-maintaining, expanding to fill any gap, retracting from any excess pressure, always maintaining their perfect geometric relationships.
+
+Time seems meaningless here. The chamber exists in a state of perfect stasis, the same frequencies ringing out for centuries, the same light bending through the same paths, the same thin plants tracing the same lines between crystals. It's a pocket universe of order, hidden away from chaos, endlessly singing its mathematical songs to itself.

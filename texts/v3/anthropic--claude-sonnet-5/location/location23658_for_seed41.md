@@ -1,0 +1,39 @@
+# The Sunken Hollow
+
+It is below grade, but not deep — a shallow depression in the earth's crust where the ground simply gave way, long ago, and never bothered closing back over itself. You descend perhaps four meters from the rim, down a slope of root-bound soil and slumped clay, and the temperature climbs as you go, which seems backward until you understand: the hollow is a sun-trap. Heat pools here like water would, sliding down the same slopes and settling into the basin, held by the close walls of earth, unable to climb back out except in slow exhalations during the coolest part of night.
+
+The light arrives filtered and reluctant. A canopy of broad, dark-leafed growth roofs most of the hollow — not a forest in any grand sense, but a dense tangle of low trees and over-leaning shrubs whose branches have grown laterally across the gap, seeking each other rather than the sky, until they've stitched together a ceiling. What sun gets through comes as coin-sized drops, shifting slowly across the mulch and stone as the day turns, never strong enough to dry the place fully. This is a dim place even at noon, lit the way a room is lit by a single shuttered window.
+
+## Ground and Walls
+
+The basin floor is uneven, broken into a dozen small terraces by old root systems and slumped earth-shelves, each one a slightly different micro-room within the larger hollow. The walls are exposed strata — bands of clay, a seam of soft sandstone, a darker mineral vein running diagonally through one section like a scar. Erosion has done its long, patient work: nothing here looks sudden. The walls slope at the angle they settled into centuries ago and have stayed there since, softened by moss and the slow grip of roots, not violent, not fresh. This is a wound long healed over, grown thick with scar-tissue greenery.
+
+Moisture is inconsistent but present — not a stream, but a logic of dampness. A seep near the northern wall keeps one shelf of clay perpetually dark and slick. Shallow basins in the stone, no bigger than cupped hands, hold rainwater for days after a storm before the heat finally drinks them dry. Condensation gathers on the undersides of the broadest leaves overnight and lets go in fat, irregular drips come morning — not rain, but rain's quiet cousin. The air itself carries humidity in pockets; you walk from a dry, dusty stretch into a sudden green-smelling thickness without warning, as though the hollow has invisible rooms with their own private climates.
+
+## What Grows
+
+Vegetation here is lush in patches and sparse in others, governed entirely by where the light-coins fall and where the seep-damp reaches. Ferns crowd the moist shelf near the northern wall, layered three and four deep, fronds overlapping like shingles. Elsewhere, between drier stones, only wiry grass and a few stubborn flowering things manage a foothold, leaning hard toward whatever light reaches them. Vines are the great unifiers — they don't care much about moisture gradients and travel everywhere, looping between low branches, dropping in loose curtains that you part with a hand to pass through. The overall feel is of density without uniformity: a crowded room with furniture pushed into clusters rather than evenly spread.
+
+Fallen leaf-litter is thick and slow to break down in the humidity, releasing a low, sweet rot smell that mixes with the green smell of crushed fern when you brush past. Fungi are abundant in the damper folds — shelf-fungus stacked on old wood, small pale clusters pushing up through litter, one startling bracket the color of a bruise growing from a fallen branch.
+
+## Life, Abundant and Quiet
+
+The fauna here outnumbers the available silence — but it has learned to move without announcing itself. This is the hollow's signature trick: abundant life, near-silence. Things rustle and then stop. A lizard crosses a sun-coin in a single fast comma of motion and vanishes into litter before the eye finishes registering it. Insects are everywhere — not loud, droning swarms, but a dense, layered population of crawling and softly-flying things occupying every terrace, every leaf-surface, every rotting log, mostly silent in their business, the occasional dry click or papery wingbeat the only evidence.
+
+Small mammals keep to the root-shadows, glimpsed as a shift in a dark gap rather than a clear shape. Birds are present but subdued, moving through the canopy-weave with quick, low calls rather than song — two notes, never three, then nothing for a long while. Something larger moves through occasionally, betrayed only by a heavier rustle overhead or the bend of a branch with no visible cause, gone before you can resolve it into a shape.
+
+The quiet here is not emptiness. It's the quiet of a crowded room where everyone is being careful.
+
+## Marks of Something Older
+
+Scattered, faint, easy to miss: a low ring of stones half-buried under leaf litter, too deliberate to be natural, too worn to read as anything specific. A scrap of something fibrous and ancient, hard as fossil, wedged in a wall-crevice — possibly woven once, now indistinguishable from root. Two flat stones leaned against each other at the base of the northern wall, perhaps fallen by accident, perhaps placed and never disturbed because no one ever came back. There is no path. There was perhaps, once, the suggestion of one — a faint compaction in the soil along one terrace, the kind of ground-memory that comes from repeated footfall over years, now overgrown but still slightly different underfoot.
+
+No tools, no metal, no constructed thing more complex than stacked stone. Whatever built that ring or wedged that fiber-scrap into the wall did it with hands and patience and nothing else, and did it long enough ago that the hollow has had time to absorb the evidence into its own slow processes — root, moss, leaf-fall, erosion, the whole quiet machine still running, indifferent to who or what passed through.
+
+## The Unusual Note
+
+It's subtle, but present: certain things in the hollow don't quite resolve the way they should. The light-coins on the floor sometimes seem to hold steady a beat too long, or move counter to where the canopy gaps actually are, as though the sun outside is not perfectly synced to the hollow's own light. The diagonal mineral seam in the western wall is faintly warm to the touch, warmer than the rock around it, for no evident reason — not hot, just present, like something breathing slow beneath stone. Twice a day, around the hottest hours, a low exhalation of cooler air rises from a crack near the seep, a breath from somewhere deeper that never gets explained by anything visible. None of it announces itself as wrong. It simply sits there, one register off, in a place otherwise content to be ordinary.
+
+## The Rhythm of It
+
+This is a small world, bounded clearly by its own rim, and everything within it runs on cycles you'd learn quickly if you stayed: the sun-coins crawl their slow arc across the floor and vanish by mid-afternoon, gathering the basin into a deeper dimness for the rest of the day. The heat builds through midday into something thick and pressing, then the cool exhalation comes, then evening brings out a different shift of creatures than the day did — a changing of the guard you'd hear more than see, a brief increase in rustle and movement before the night settles into its own version of careful quiet. Rain, when it comes, arrives as a sudden percussion on the canopy roof, audible long before any drop reaches the floor below — and by the time it does, it's reduced to that same patient, irregular drip, the hollow's translation of every loud thing into something softer, slower, and entirely its own.

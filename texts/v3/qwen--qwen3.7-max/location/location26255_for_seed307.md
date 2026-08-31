@@ -1,0 +1,23 @@
+High above the cloud deck, where the atmosphere is typically thin, freezing, and barren, a newborn spire of volcanic glass pierces the stratosphere. It is a violent, recent extrusion, a jagged needle of vitrified rock that has not yet been softened by wind or time. Its features are razor-sharp, unweathered, and violently young. Near the very summit of this extreme elevation, hidden from the sweeping, freezing gales, lies a single, intimate cleft. 
+
+To step into this pocket-scale hollow is to step out of the world. 
+
+The cleft is barely the size of a small parlor, a hidden geode embedded within the spire’s peak, but the environment inside is radically divorced from the altitude outside. The air is a sweltering, suffocating blanket of extreme heat and heavy moisture. Water weeps continuously from the fresh, glassy walls, bleeding from microscopic fissures in the obsidian. Yet, because the physics of this hidden room are fundamentally frayed, the water does not fall. Gravity here is a weak suggestion; surface tension is absolute. The weeping condensation gathers into hovering, trembling spheres of near-boiling water, floating like liquid marbles in the dense, humid air. They drift lazily, bumping into one another and merging into larger, quivering lenses of hot water that hang suspended in the center of the room.
+
+There is no plant life. No moss, no lichen, no root or spore. It is a purely mineral world, painted in the stark, high-contrast palette of fresh eruption: the blinding, mirror-like black of un-eroded obsidian, the porous grey of pumice, and the violent, jagged veins of raw yellow sulfur and orange realgar that bleed through the rock. 
+
+And it is overwhelmingly, impossibly alive.
+
+The hollow is packed to the point of saturation. A teeming, layered swarm of pale, translucent arthropods covers every available surface. They are packed shoulder-to-shoulder, a shifting, breathing tapestry of chitin, jointed limbs, and faceted eyes. They cling to the walls, carpet the ceiling, and navigate the floating water-spheres, dipping their mouthparts into the hovering liquid to drink. The density of the fauna is staggering; there is no empty space, only a churning, multi-layered mass of biological motion. 
+
+Despite the lack of constructed structures or built artifacts, this is not a feral swarm. It is an ecosystem of primitive industry. In their delicate, multi-jointed forelimbs, the creatures hold tiny, painstakingly knapped flakes of obsidian and pumice. They use these simple stone tools to scrape thin, mineral biofilms from the glass, to chip away at the sulfur veins, and to carefully groom one another, flaking away dead carapace with precise, practiced strikes. The space is in constant, active motion—a highly dynamic biological engine of scraping, grooming, harvesting, and drinking.
+
+A space this crowded, with thousands of stone tools striking rock and chitin scraping chitin, should be deafening. The clatter of a million tiny hammers should echo off the glass. 
+
+But the cleft is locked in a profound, oppressive silence. 
+
+The reality breakdown of this pocket extends to acoustics. Kinetic vibration cannot propagate as sound; the air, thick with suspended water and warped physics, instantly absorbs and transmutes acoustic energy. When a creature strikes the glass with its knapped flake, there is no *clack*. Instead, a silent, brilliant bloom of azure bioluminescence flashes at the point of impact, accompanied by a sudden, localized prickle of intense heat against the skin. The "noise" of the swarm is experienced not through the ears, but as a chaotic, strobing light show and a shifting mosaic of thermal blooms. The scraping of a thousand tools creates a silent, flickering aurora of blue and violet sparks, while the scuttling of thousands of claws registers as a wave of phantom, prickling warmth washing over the observer. 
+
+Normal daylight spills through the narrow fissure entrance, but inside, the light behaves strangely. It bends and pools, refracting through the hovering water-spheres and the dense, translucent bodies of the swarm. Shadows do not fall away from the light source; they curve, stretching along the non-euclidean angles of the cleft, pointing back toward the sun in impossible geometries. The corners of the room seem to fold inward, creating an optical illusion of infinite depth within a space only a few feet across.
+
+It is a hidden, sweltering crucible at the roof of the world. A silent, flashing geode of primitive industry and broken physics, where a million tiny stone tools strike the glass in absolute quiet, painting the hot, wet dark with cold, silent light.

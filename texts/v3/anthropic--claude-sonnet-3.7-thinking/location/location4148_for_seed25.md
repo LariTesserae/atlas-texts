@@ -1,0 +1,21 @@
+# The Whispering Hollows
+
+In the perpetual darkness, the Hollows extend outward beyond what any single sense can measure. This vast network of low tunnels and chambers has been carved into the dense limestone over millennia, water patiently sculpting every surface into smooth, flowing forms. The temperature hangs at a perpetual cool that makes exposed skin prickle with goosebumps, neither frigid nor comfortable, just persistent in its mild discomfort.
+
+There are no plants here. Not a single leaf or stem breaks the mineral monotony. Instead, the surfaces glisten with a slick biofilm—neither plant nor quite fungus—a primitive colony organism that coats nearly every surface in translucent, quivering sheets. These living membranes pulse with faint bioluminescence in rhythms that seem almost intelligent, casting just enough ghostly blue-gray light to make shapes discernible as deeper shadows against shadow.
+
+But it's the fauna that defines this place. The Hollows *breathe* with life—not metaphorically but literally. The air moves with the combined respiration of countless organisms that crowd every available space. The ceiling writhes with masses of cave swifts, their wings creating constant drafts as they shuffle and readjust. Their nests, built from their own saliva and whatever detritus they collect, hang like strange cancerous growths from every overhang.
+
+The floor is no less alive. Pale, eyeless salamanders with translucent skin writhe in such numbers that the ground itself seems to flow. Between them scuttle countless arthropods—some barely visible specks, others as large as a hand—with too many legs and exoskeletons that gleam like wet obsidian. In recessed pockets where moisture collects, blind fish swarm in such density that the water appears as a single writhing organism.
+
+The noise is overwhelming. What should be silence is instead a deafening symphony: the constant fluttering of wings, the high-pitched echolocation of bat-like creatures that dart through the passages, the chittering of insects, the slithering rustle of amphibians, all echoing and amplifying through the stone chambers until conversation would require shouting. The sound is physical—it presses against eardrums and resonates in the chest cavity.
+
+Moisture is omnipresent but never abundant. It beads on the walls, drips from stalactites, and collects in shallow depressions where creatures crowd to drink. The air itself feels thick with humidity, condensing on anything cooler than itself. Every few hours, a soft rain falls from certain chamber ceilings where water has percolated through the stone above, creating brief, gentle showers that the inhabitants rush to drink from directly.
+
+The creatures here have evolved strange adaptations. Many share a peculiar transparency—skin so thin that organs are visible as darker shadows within. Others have developed symbiotic relationships with the bioluminescent biofilm, hosting patches of the glowing substance on their bodies that pulse in patterns to attract mates or prey. Some of the largest predators—sleek, eyeless things that move like a cross between serpents and centipedes—can grow to the length of a human and hunt by sensing the electrical impulses of other creatures' nervous systems.
+
+In certain chambers, towering colonies of creatures that resemble sea anemones but exist entirely in air sway gently in the perpetual drafts. Their tendrils, some extending several meters, are sensitive enough to detect a single mote of dust and quick enough to snare the darting cave swifts mid-flight.
+
+The whole ecosystem exists in a strange equilibrium, feeding not on sunlight but on nutrients that wash down from above and on the complex web of predation that has evolved here. Nothing goes to waste—dead creatures are consumed within minutes by swarms of scavengers that can strip a carcass to nothing in less time than it takes to draw a breath.
+
+The Whispering Hollows is not a place for humans. The overwhelming density of life, the perpetual darkness broken only by ghostly bioluminescence, the deafening noise, and the cool dampness that seeps into bones—all create an environment as alien as another planet, yet existing just beneath the familiar world above.

@@ -1,0 +1,13 @@
+The world begins at the edge of a precipice that has no true floor. You stand upon a jagged spine of obsidian-glass and pressurized silicate, an altitude so immense that the air should be thin, yet it feels heavy—dense with the scent of ozone and pulverized static. 
+
+There is no water here. The thirst of this place is absolute, bone-dry and mineral-sharp. Instead of moisture, a translucent, crystalline fungus blooms from the raw cliff faces, thick purple carpets of velvet-threads that pulse with a rhythmic, bioluminescent hum. This is the "lushness" of the world: not chlorophyll, but fungal architecture. Wide, translucent stalks sprout from the rock, their caps vibrating at frequencies that make the teeth ache. 
+
+The sound is not an ambient noise; it is a deafening, discordant roar—a perpetual, grinding grinding of tectonic plates shifting against one another in slow motion, layered with the high-pitched shriek of light refracting through reality-tears. 
+
+Because the erosion is in its infancy, the terrain is composed of impossible geometry. Huge, slab-like monoliths of raw, unweathered basalt drift lazily in the air like gargantuan puzzle pieces, tethered to the main spines by spiderwebs of calcified energy. Every few minutes, a section of the sky—or what passes for the sky—flickers and peels away, revealing a churning, violet-black void behind the curtain of existence. Space-time is fragile here, fraying at the edges.
+
+Scattered across the peaks are the marks of some long-forgotten or early-dawn hand. There are stone circles, arranged with primitive precision, and small, cairn-like towers of fused glass that seem to focus the dim, gray light. These structures are not built by hands that we would recognize; they appear grown from the rock by the vibration of the spores. There are no creatures, no beating hearts, no lungs to draw the cooling, stagnant air. Only the movement of the fungi and the seismic groan of the mountains.
+
+The light is a sickly, bruised slate color, filtered through a haze of floating, crystalline dust. Because the density is so low, you can see for miles across the fractured, floating archipelago of the heights. Between the islands lies a terrifying emptiness where gravity seems to have folded in on itself; things that fall into the gaps do not plummet, they simply cease to be, dissolving into the static. 
+
+Nothing changes quickly. A single tremor might take a day to travel from one end of the ravine to the other. The fungi grow by mere millimeters in a century. It is a slow, dying, yet blooming construction site—a world that is being born out of the wreckage of a previous dimension, still ringing with the noise of its own violent assembly, forever cool, forever thirsty, and entirely alone.

@@ -1,0 +1,11 @@
+You stand upon a vast, barren plain, stretching to the horizon in all directions. The landscape is defined by sparse, scraggly vegetation and towering boulders that dot the expanse like sentinels. Where the earth is visible between the rocks, it is dry and cracked, split by fissures that indicate it has been long without rain.
+
+The air is cool and still, with an ever-present tang of dampness, as if moisture clings to every surface in a futile attempt to soften this harsh environment. Despite the arid conditions, the path up to this blighted highland was redolent with the sounds of water - rushing streams, burbling brooks, and the occasional distant roar of a hidden waterfall. Now, silence reigns.
+
+To the north and west, a range of craggy mountains looms, their peaks lost in swirling cloud. The stone is dark - basalt and obsidian, shot through with veins of strange metallic ore. Upon closer inspection, you notice the rock has been slashed and gouged by the neighbors of engine and piston that churn unseen in the depths - this entire range is honeycombed with tunnels and shafts.
+
+The sky above is a sickly yellow-grey, lit by a weak, diffused light. Of the sun, there is no sign - it remains below the jagged horizon, screened by a haze of cloud and smoke. Twin moons, one bloated and ashen, the other a pale ghost, hang in the heavens, casting everything in a wan pall.
+
+The only movement is that of small, scurrying creatures in the shadows of the boulders - mammals, reptiles, arachnids, and stranger things yet. The ecosystem here is impoverished, but tenacious, clinging to existence in every crevice and rugosity. That it persists at all is testament to the doughtiness of life.
+
+The lack of natural light and abundance of artificial excisions lend the place an otherworldly air - timeless, of its own natural succession, pertaining to its own subterranean machinations. The small, hardy organisms eking out a life on the surface areivytoerstood by the regular susurrus and interveningNrrithmetic blats and arhythmic grinds that rise from the bones of the medial blight - the muffled sound sof Marsom resonantorealisng. The confounding of natural and industrial, the small and the Paulo, the slow and theMarsylo. In this blighted Welt, there is nothing modernist in the interplay of the floratopic and the technick.

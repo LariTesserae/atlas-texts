@@ -1,0 +1,45 @@
+# The Cavern of the Long Hum
+
+The place first presents itself as absence. You walk uphill through a forest so thick with itself that the air forgets which direction is down, and then the ground simply stops being there. Not steeply. The earth rounds inward like the throat of a sleeping animal, and the trees lean with you, their roots curving over a lip of mossy basalt until they, too, lose interest and let go.
+
+What opens below is roughly the size of a small cathedral, or a generous dining hall, or a town square that has been folded into the mountain and forgotten. The walls are not walls. They are the interior of a thing that was once proud and is now very tired. The basalt has been answering water for so long that it has forgotten what it wanted to be. Every surface is cupped. Every edge has been taught to bow. The stone holds the shape of patient surrender, the form that remains when nothing is left to resist.
+
+It is warm here, in the way that caves are warm — the warmth of things that have stopped trying. The air is close and very wet. Water is everywhere and going nowhere. It gathers on the underside of every overhang in trembling silver beads that hang and hang and then commit themselves, falling the half-inch to the next ledge, where they join a film that is already sliding toward the center of the floor. There is no visible river. There is no visible pool. The whole chamber is gently weeping from every pore, and the floor is a single shallow skin of moving water, dark and quick, pouring toward a black mouth at the far end that you cannot quite see.
+
+Above you, where the roof ought to be, there is no roof. There is a forest hanging upside down. Ferns the size of opened hands have colonized the inverted ceiling. Their roots are the only ceiling you have. Long mosses descend from them like beards, and they brush your shoulders as you pass, leaving a thin cool track on your skin. Where a tree has lost its footing and toppled inward, it lies across the hollow with its crown still growing, its leaves arranged to catch what little falls from above — a thread of true sunlight, perhaps, or a shaft of weather — and to translate it, slowly, into sugar, and then into more leaf, and then into nothing in particular.
+
+The light, such as it is, has been here for a long time and has aged into something you do not have a name for. It is not dark. It is also not light. It is the color of the inside of a closed eye held against a deep green leaf held against a clouded sky. You can see. You can see the opposite wall, which is forty meters away. You cannot see the wall's color. Everything is the same brown-black-green, as if the chamber has been dipped in a single, very old ink.
+
+The sound is the thing you notice last, because it has always been here.
+
+It is loud.
+
+It is loud the way a sea is loud — not in any one event, but in the accumulated insistence of ten thousand small ones, none of which is willing to be silent. There is the water, which never stops falling from one surface to the next, and the fall is not a fall but a tipping, a running-over, and yet each tipping has its own pitch, and the pitches do not agree with each other, and so the air is filled with a soft, ragged silver argument. There is the wind, somewhere above, which the chamber translates into a low, felt pressure, a presence at your eardrums more than a sound, the breathing of the mountain moving past its own mouth. There are the creatures. There are a great many creatures. They are mostly small. They are mostly dark. They speak to each other in tones too high and too low for you to track, and the aggregate of their speaking is a kind of humming choir, a felt vibration at the back of the skull, as if the stone itself were full of small, busy opinions.
+
+And under all of it — *under* all of it — there is the hum.
+
+The hum is not from any creature. The hum is not from the water. The hum is coming from the floor.
+
+If you kneel, and put your palm flat against the wet stone, you can feel that the floor is not entirely stone. There is something beneath it. It hums at a frequency that does not correspond to any vibration your hand wants to translate into language. It is steady. It is older than the mountain. It has been humming since before the forest remembered to grow, and it will be humming when the forest has forgotten. You cannot dig to it. The stone is only a few inches thick, and then the hum becomes everything, and your fingers go numb, and you stop trying.
+
+There are seven of these places in the floor. They are arranged in no pattern you can parse. A local tradition — if anyone still keeps a local tradition here — would say they are the seven listening stones, or the seven sleeping hearts, or the seven mistakes someone made long ago and never came back to correct. They are not stones. They are not machines. They are something the chamber grew around, or something that grew the chamber around itself. The water that weeps over them does not quite behave like water elsewhere in the room. It bends. It hesitates. It runs up the sides of certain depressions and pools where it should drain, and sits there, perfectly still, reflecting nothing, because there is nothing here for it to reflect except the inverted forest and the slow drip of time.
+
+The creatures know about the seven.
+
+They have built a civilization around them, in the only sense that matters here. Mosses have learned to grow in concentric rings around each one, and the rings record, in their thickness, the hum's unchanging tone — a kind of calendar that does not advance. A kind of clock that does not move. Where the rings are thickest, certain small dark amphibians have laid their eggs for as many generations as the moss can remember, which is more generations than the moss can count, which is why the moss has stopped trying to count and has begun, instead, to thicken. The amphibians are almost blind. They do not need to see. They navigate by the hum. They sing back to it in frequencies that the chamber accepts, and the chamber answers, and the conversation has been going on since before the first fern unfurled against the inverted ceiling.
+
+There are other presences here, sparser, stranger.
+
+On a low ledge at the chamber's edge, half-encased in a stalactite of its own making, there is a shape that was once a thing. It is the right size to have been worn on the body. It is the wrong weight, by a factor you cannot estimate. If you were to lift it — which you cannot, because it has been here longer than the stalactite and the stalactite has been here longer than the moss — your arm would report back something your eyes would refuse. It is not moving. It is also not not-moving. It is doing something in between, something that occupies the middle of the verb in a language that has no middle. If you sat near it for a long time — and people have sat near it for a long time, you can tell by the polished stone at its base — you would begin to feel that it was listening to you, and that it was disappointed, and that the disappointment was very, very kind.
+
+There is a second shape, near the back, where the water vanishes into its black mouth. This one is larger. This one is not a shape so much as an absence — a region in which the chamber has arranged itself slightly differently. The water that flows toward it slows down as it approaches, and spreads out into a perfectly still, perfectly black ellipse, and then, at the very edge, it accelerates, and is gone. There is no splash. There is no sound. Things that fall into the ellipse are not seen again. Things that are thrown into the ellipse do not arrive at the bottom, because there is no bottom, only a longer and longer agreement to keep falling. The amphibians avoid it. The moss avoids it. The water avoids it, except as a final obligation, a place where even water must concede that it has somewhere to be.
+
+You cannot tell whether the ellipse is technology or geology or a mistake. You cannot tell whether the seven humming things are its servants or its siblings or its parents. You cannot tell whether the chamber is a ruin or a workshop or a nursery. You can only sit, and let the water run over your hand, and feel the hum come up through your wrist, and listen to the choir of small dark creatures sing back to a thing they have never seen and will never see and have decided, with great patience and great tenderness, to love anyway.
+
+The chamber is old. The chamber is final. The chamber has been listening for a long time, and has not yet said anything back, and may be waiting for someone to ask the right question, or may be waiting for no one, and is content, and is warm, and is full of small wet life, and is darker than any night you have slept through, and is louder than any silence you have ever tried to keep.
+
+The dripping does not stop.
+
+The dripping has never stopped.
+
+The dripping will not stop.

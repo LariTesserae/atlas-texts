@@ -1,0 +1,49 @@
+The lowland here is not flat so much as *settled*: a shallow basin that has had a long time to decide what it wants to be. The ground dips and rises in slow, weathered swells like the inside of a palm, with old drainage lines pressed into it—channels that have run so many seasons they’ve become part of the design. Nothing is sharp. Even the places that look broken are broken in the way driftwood is broken: rounded, patient, made stable by repetition.
+
+Water is present, but it refuses to be a landscape feature. It’s a habit.
+
+It appears as dampness that never quite dries, as a cool film on the underside of leaves, as sweat on smooth bark, as occasional rain that seems to happen *inside* the canopy first—condensation gathering, letting go, gathering again. There are pockets where it admits its true form: bowls in root-knuckles holding dark, leaf-stained water; a thread of river you can hear long before you see it, moving under living bridges and disappearing under mats of fern; a sudden open cistern the size of a room where the air turns almost drinkable. Then, a few steps away, the ground feels merely humid and springy, and you start to doubt the memory of standing near water at all.
+
+Vegetation is not “everywhere” so much as “everything.” The place is built from plant matter the way a town is built from brick, except no one laid it. Stems serve as columns, vines as cables, leaf-sheaths as roofing, and thick interwoven roots as streets. There are lanes—clear, continuous paths with edges—formed by the refusal of certain plants to grow where the footfalls and passages are constant. The pathways curve in deliberate arcs around old trunks and plunge through archways where branches have grown together and sealed their seams. The “buildings” are mostly hollow spaces within living mass: chambers inside swollen buttresses, galleries in braided liana walls, tall shaftlike voids inside trunks wide enough to walk through.
+
+And yet, despite all this total green construction, the dominant quality is emptiness.
+
+The plant-city is mostly air. Great volumes of it. Vaulted gaps under canopy domes; plazas that are simply spaces where nothing has the right to take hold; vertical corridors in which you can stand and look up through layers of leaves like stacked ceilings, each one far away. The structures read as urban—organized, layered, infrastructural—but the occupancy is sparse. The “streets” are broad, the “rooms” cathedral-high, and long stretches are uninhabited except for the movement of wind and the thin drift of spores. It feels like a district designed for a population that never arrived, or that became something else and no longer requires the same density of presence.
+
+Warmth settles in the basin the way a scent settles into fabric. It is not oppressive, but it is constant, a slow pressure against the skin. The air holds moisture enough to soften everything—your hair, the edges of sound, the fibers of dead leaves—yet it never becomes a true wet heat. It alternates: a breath of drier air comes through a channel in the greenery, then the humidity rolls back in like a tide.
+
+Erosion shows itself in how the living architecture has adapted to the old flow lines. Root-bridges are thickest where water once surged. The ground has smooth, varnished hollows where generations of feet—animal, not human—have compressed the same routes. There are exposed ribs of stone in a few places, but they’re not ruins so much as foundation glimpses, wearing their moss like clothing. Where something has collapsed—an old tree that hollowed and gave way, a root lattice that sagged—the gap has been accepted into the plan. Vines rim it, ferns claim its edges, the place rebalances around the absence.
+
+Sound is the first thing that tells you this basin does not obey ordinary scale.
+
+It is deafening, not as a single roar, but as an overfull world that has never learned to be quiet. The canopy drums: droplets falling from a hundred heights onto leaves that each have their own pitch. The air thrums with insect-wing resonance, layered into chords so dense they become a texture. Birds do not call; they *broadcast*, trading phrases across the voids with such volume that the hollows act as amplifiers. Somewhere, always, there is a rushing—water in a concealed channel, wind forced through a tube of bamboo-like stalks, or the breath of something large moving through a root corridor you cannot see.
+
+Even small movements make noise because the plants themselves participate. Leaves click as they adjust their angles; seedpods rattle like thrown dice; vine tendrils scrape lightly as they tighten. The soundscape has the complicated, continuous labor of a city—traffic, industry, crowds—except the “machines” are lungs and wings and sap pressure, and the “streets” are resonant cavities.
+
+Fauna thrives in this noise. The emptiness of the big spaces does not mean a lack of life; it means life uses the volume.
+
+Swarm-creatures move like weather: clouds of midges that condense into columns and then scatter, shimmering; butterflies or something like them, but with translucent leaf-veins in their wings, rising and falling in slow spirals that look like breath made visible. There are ground-runners—sleek, quick animals that use the broad root-roads as highways, pausing only at intersections where scent is thick and layered. Predators exist not as solitary stalkers but as coordinated presences: a sudden silence in one quadrant of the canopy, a ripple through the swarming insects, then a burst of motion as something hunts along the underside of leaves with a speed you hear more than see.
+
+Everything is active. Pollination happens like storms. Spore releases are scheduled by heat and humidity in ways so precise they feel deliberate. The plants flex and reorient over the course of minutes, not days—slow enough to watch, fast enough to be unsettling. In places, you can stand in a “plaza” of air and feel the architecture adjusting around you: a vine tightening, a leaf-panel turning, a root ridge subtly rising as if the ground is breathing.
+
+And then the reality breaks, gently at first, as if the basin has always been slightly misaligned with the rest of the world.
+
+Distance does not behave. A corridor between two living walls may take ten steps to cross one day and fifty the next, without any visible change in width. Sound arrives wrong: an animal shriek echoes before it happens, or a dripping pattern continues after the dripping has stopped. Shadows sometimes detach from their owners and slide a little way along the floor like spilled ink, then snap back. The most common rupture is in repetition—walking a loop and returning not to where you began, but to the same intersection with the same root-braided archway, except the epiphytes on the left are flowering now, as if time has been folded and ironed.
+
+The plants seem to notice these faults and use them.
+
+There are places where the vegetation has grown into shapes that look like repairs: lattices woven across empty air as if stitching a tear, spiraling buttresses around nothing as if supporting an absent pillar. In one chamber inside a vast trunk, the inner bark is patterned with growth rings that do not form circles but nested streets, like a map of an impossible city. Stand too long in that chamber and you’ll hear footsteps that match your own pace, except they’re coming from above, and when you look up there is only the smooth hollow and its dripping, shining walls.
+
+Rules emerge if you stay:
+
+1. **The basin amplifies intention through sound.** Loudness isn’t just volume; it’s *agency*. A call thrown hard enough can push back the ambient chorus for a heartbeat and make space around it—briefly clearing insects, opening a lane in the swaying fronds, changing the direction of a swarm. The world listens, and listening has consequences.
+
+2. **Empty space is a resource the ecosystem hoards.** The great voids are not failures of growth; they are stored capacity, like lungs. When a rain cycle hits, those hollows become reservoirs of cool air and mist. When a breeding surge begins, they become arenas. When a predator moves through, the emptiness becomes a weapon—nowhere to hide, nowhere to cling.
+
+3. **Nothing dead stays inert for long, but nothing living is fully stable either.** Fallen leaves are compost before they finish falling. Bark-sheds become new floors. But trunks also hollow unexpectedly, vines redirect, bridges thicken or thin as if responding to stresses you can’t see.
+
+At the edge of this small world—small enough to feel bounded, like a neighborhood you could learn by heart—there’s often a perimeter, though not a wall. It’s a ring of older growth, tighter and darker, where the plant-substrate compresses into a living palisade: buttress roots interlocked, thorny lianas braided into screens, leaf layers overlapping so densely the air beyond looks flat. The noise changes there. Inside, it is continuous, civic, overwhelming. At the perimeter it becomes a pressure, a held breath, as if the basin is a resonant chamber and the boundary is the rim of a drum.
+
+If you step out, you may find yourself still inside.
+
+Not because you got turned around, but because the place does not always agree to let the same exit be an exit twice. The plant-city is warm, damp, and anciently eroded into equilibrium, but its equilibrium includes the occasional refusal of geometry. It is a living district built without tools, full of animals and empty air, where the loudness is not a byproduct of life but one of its primary structures—an architecture of noise that keeps the basin stitched together, moment by moment, leaf by leaf, echo by echo.

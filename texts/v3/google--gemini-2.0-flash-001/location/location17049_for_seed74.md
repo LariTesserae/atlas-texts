@@ -1,0 +1,21 @@
+The Shivering District is what they call it, and the name is apt. Not because of the cold, though it is a damp, penetrating chill that settles deep in the bones. No, the Shivering District shivers from the *processes* running through it, the constant hum and throb and shudder of a living machine perpetually on the verge of seizing up.
+
+The scale is deceptive. From the outside, it looks like a dense, low-lying copse, perhaps a half-mile across. Gnarled, moss-draped trees cling to the perpetually slick earth, their roots sprawling across what were once paved streets. But step inside, and the illusion of a natural grove dissolves. This isn't a wood; it's a city *become* wood.
+
+The vegetation is total, relentless. But it's not the wild, untamed growth of a forest reclaiming abandoned territory. It's… *engineered*. Vines thick as your torso writhe with oily sap, and strange, bioluminescent fungi pulse with a faint, sickly green light along the decaying brickwork. Enormous, bladder-like leaves drip condensation with a rhythmic *plink… plink… plink* that echoes in the otherwise still air. Giant lily pads fill the flooded basements of derelict factories, their pale, fleshy undersides pulsating gently.
+
+This isn't just plant life; it's plant *technology*.
+
+Look closer, and you see the ruins of the industrial age swallowed and repurposed. A clock tower, its metal face rusted and obscured by creepers, now serves as the central support for a vast, arboreal web. Rusted pipes, once carrying water or gas, are now veins for the engineered flora's circulatory system, pumping viscous, nutrient-rich fluids to shimmering, crystalline blossoms that seem to feed on the ambient electricity crackling in the air. Abandoned factories have become vast, hydroponic farms, the hollow shells filled with stacked tiers of cultivated fungus and genetically modified ferns.
+
+The air is heavy with the smell of wet earth, decaying metal, and something vaguely antiseptic. It's a quiet place, mostly. The only sounds are the dripping of condensation, the soft hum of machinery buried within the plant life, and the occasional groan of a collapsing structure. But beneath that quiet, there's a tension, a feeling that the whole ecosystem is precariously balanced.
+
+The erosion is pervasive, but it's not simply the work of time and weather. The vegetation *itself* is an agent of decay, its roots relentlessly burrowing into foundations, its acidic secretions dissolving stone and metal. The built environment is giving way not to nature, but to a new, synthetic ecology entirely.
+
+Rare, but not absent entirely, are the descendants of the creatures left behind after the District claimed its new form. Small amphibians with translucent skin that exposes the thrumming of their internal organs, scuttle along the moss-coated ruins. Bioluminescent beetles with mechanical-looking shells click and whir through the humid air. They are adapted in unnatural ways to the environment that has consumed the city.
+
+And even more rarely, you see... people. Or what once were people. Their bodies adorned with grafted bark and tangled vines, their minds seemingly fused with the network of plant-life. They seem more like pieces of the engine. They are not hostile, exactly, but neither have they much awareness of the outside world. They are simply there, tending to the needs of the Shivering District in a way that no outside observer could fully comprehend.
+
+The Shivering District actively adapts, shifts, and reforms, driven by a complex interplay of biological and mechanical processes. One day a building will be covered in vines, the next, repurposed into a mechanical irrigation system.
+
+The Shivering District is a garden, a factory, a city, and a grave. It is something new, something strange, and something perpetually on the edge of some unknown transformation. Walk carefully. The ground beneath may be firm today, but tomorrow it might be a newly formed bog, a gaping pit, or a tangle of sentient roots eager to ensnare the unwary. This place changes, shivers, and grows – and it does not care what it consumes in the process.

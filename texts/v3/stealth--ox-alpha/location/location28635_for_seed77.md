@@ -1,0 +1,43 @@
+# The Laying Fields
+
+There is no old stone here. That is the first thing you understand, and the last thing you stop noticing. Every surface underfoot and overhead is brick, fired clay, rammed earth, lime plaster — and all of it is young. Not restored, not maintained: *young*. Edges crisp as the day they left the mold. Arrises you could draw blood on. Walk for days in any direction and you will not find a rounded corner, a worn stair-tread, a threshold polished by passage. The whole inventory of this place's decay would fit in two hands.
+
+The plain runs level to every horizon — a continental floor of masonry, low as a river terrace, broken only by broad stepped platforms, low ramparts, long shallow basins, and walls that run true as ruled lines for miles. The color is pale buff shading to plum where the firing went hot, and at noon the sun stands nearly overhead and erases shadow entirely, so that the world becomes a single blazing fact. You squint. The air above the great empty courts bends and shivers. The horizon goes brass.
+
+Everything here was made by hands. You can prove it. The bricks vary by a fingerwidth, each one domed slightly from the throw, many scored with tally scratches — three strokes and a slash, thousands upon thousands of counts. Mortar joints carry thumb-swipes where someone smoothed the squeeze-out without looking. Rope-burn grooves are worn into parapet copings where hawsers dragged; sockets that once held scaffold poles are plugged neat with brick. In the long expansion joints between pavement fields, compressed reed rope serves as gasket — and the reeds grow in the channels themselves, a closed loop: the world braids its own caulking. No machine ever touched any of it. Whatever built this place did it the slow way, and is possibly still at it.
+
+Because that is the other thing: it is not finished.
+
+## The Water
+
+Moisture arrives on a schedule you learn slowly. Before dawn, the entire plain sweats. The plaster has radiated its heat away all night, and the warm wet air lays condensation on it in a skin of beads; whole walls go pewter-gray and slick. Fog stands ankle-deep in the sunken courts in flat sheets. For an hour the world ticks — drips falling from a million parapets, each drop a small struck note, arrhythmic, everywhere. Then the sun clears the eastern ramparts and the burn-off begins: steam lifting off the long east-facing walls in ghosts, the bead-skin shrinking, the pale surfaces brightening as they dry.
+
+Rain comes as visitors. You see them coming for an hour — gray-skirted cells walking in across the curve of the plain, trailing visible veils. You hear one before it reaches you: a hiss like distant applause, advancing. Then warm fat drops, briefly violent, and the smell rises — wet clay and hot lime, a petrichor with chalk in it. And the water *goes somewhere*. That's the revelation. Every court is graded. Every rill is cut. Within minutes of the first drops, the drainage wakes: gutter-lines threading silver across pavements a mile long, converging, feeding the Long Rill, which carries the whole catchment off toward the settling basins — broad terraced ponds that fill in sequence, each overflowing through a stepped spillway into the next. The cascade is the loudest thing that happens here, a white noise of falling water audible for miles, and it lasts, at best, an afternoon.
+
+By dusk the basins sit glassy under a rose sky, ringed with tide-lines. Shallow evaporation pans nearby crust over with salt lace overnight. At the world's lowest rim — days away, at the faintly gleaming margin called the White Flats — the brine gathers permanently, and the salt blooms pinkish in the last light.
+
+## The Heat, and What It Builds
+
+The sun is the second architect. All day the plain expands; all night it contracts, and you hear it — a ticking, pinging discourse of cooling brick that starts the moment shadows lengthen and runs until full dark. Joints breathe open by day, close by night. Deep in the mass, things settle: once or twice a night, from somewhere far off, comes a single deep thud, like a fist on a table in another room. A section easing into its footing. The plain is finding its posture.
+
+Weather happens at district scale here. Cloud-shadows the size of counties slide across the emptiness. Dust-devils — actually devils of plaster-fines and brick-dust, white as flour — wander the great courts for hours, spinning, harmless. Heat-hazes stand up over the widest expanses like columns of dirty glass. From atop the Counting Stair — a stepped platform, the tallest thing for a hundred miles — you can watch a rain cell be born, live, and die without ever touching the ground, and you can see, faintly, the drop of the horizon itself. The world curves. The plain is not a plain; it is a shell, and you are standing on the inside of its skin.
+
+## The Green
+
+Life is arriving, and it is early. The channels carry a felt of bright green algae, thin as paint. North-facing walls, which hold their dawn-damp longest, wear a dark cyanobacterial film the surveyors' term would call ink-shadow — faintly sweet when the sun warms it. After rain, colonies of Nostoc swell on the compacted clay floors: brown-black jelly, inert for months, suddenly glossy and alive. At the lips of the settling basins stand a few thin rushes, countable. In the expansion joints, waxy silver herbs have taken root — pioneer spurges, blown in from somewhere, seeds riding the same winds that bring the rain. On the oldest quarter's brick — the eldest courses, cured and streaked — the first lichen specks have appeared, pinpricks, a handful in a square mile. You could date this whole world by its colonizations. By lichen reckoning it is a child. By its own reckoning it is barely dressed.
+
+And there is nothing that drinks. No birds, no insects, no lizards basking on the warm coping stones. The basins lie mirror-flat because nothing rings them. Where a rain puddle stood in clay, the dried mud records only raindrop craters and wind-ripple — no tracks, not one, in a surface the size of nations. The silence has a structure: it is not the silence of emptiness but of *withheld* sound, a hall before the audience.
+
+## The Front
+
+Walk long enough and you cross a seam where the age of the world changes underfoot. One quarter's brick is cured, rain-streaked, salt-bloomed; the next is chalky, raw, its mortar still smelling sour-fresh. Nobody crosses your path. But the seams keep moving. Somewhere out past every horizon, the work continues — and at night you can confirm it: a dim ember-line lying along the darkness of the world's edge, kilns firing new brick, and once, faint and rhythmic, a tapping like a heartbeat heard from another room. Rams packing earth. Hands at work.
+
+Travel toward it — weeks — and the ember-line retreats ahead of you, patient as the moon. You never close the distance. What you do reach, eventually, is rumor of the edge: the trench country, where the raw ground shows for the last time. Cut faces of homogeneous clay, featureless, unwritten rock, drying pale in the heat, waiting to be dug, molded, fired, laid. The world eats virgin ground ahead of it and leaves masonry behind it, and nothing natural survives the conversion except what blows in on the seeds.
+
+## What It Is For
+
+Here is the tell, if you want one: nothing here has been used. The stairs are unworn. The benches beside the basins have never warmed to a seated body. The channels are cut double-wide for their little silver trickle, sized for demands that do not yet exist. The shade arcades are deep and generous and empty. Everything is proportioned not for what is here but for what is *implied* — a population anticipated, a climate expected, a use foreseen with monumental patience. Infrastructure before inhabitance. A table set before the guests.
+
+So you learn to read the place as a tense, not a ruin and not a city: the tense after *finished*, before *begun*. Time itself feels recently switched on here — the first rains were not long ago; the first lichen is younger than that; the first footprint anywhere on this world has not yet been made.
+
+At dusk the whitewash goes rose, then ash. The ticking starts. Far off, the kiln-line glimmers like a banked fire on the rim of night, and the Long Rill still carries the afternoon's water down through its graded miles, unhurried, exactly as designed. The plain breathes — expand, release — and waits with the confidence of something built to outlast everyone who will ever explain it.

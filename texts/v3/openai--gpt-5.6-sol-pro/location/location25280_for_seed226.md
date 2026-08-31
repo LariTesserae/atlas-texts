@@ -1,0 +1,43 @@
+The town occupies a high basin no wider than a large cathedral precinct, cupped just below the summit of a young mountain. From the ridges above, it appears complete: a ring wall, streets, terraces, towers, cisterns, bridges. Yet almost everything encloses emptiness. The houses stand far apart along excessively broad lanes. Courtyards are large enough for crowds that have never gathered. Roofed arcades frame patches of moss and open air. The place has the plan of a city and the population of a remote camp.
+
+Its mountain is not old enough to be ruined.
+
+The rock has risen in blunt, unweathered masses, dark gray beneath a faint blue bloom. Faces that should have been sharpened by frost and rain remain rounded and swollen, as if the stone cooled only recently or is still deciding its final shape. There are few screes, no deep gullies, almost no soil washed down from above. Cracks end abruptly. Small boulders sit half-detached from the bedrock, joined to it by smooth necks of stone. In places the basin floor buckles upward by a finger’s width over the course of a season, lifting paving slabs without breaking them.
+
+The builders have learned not to force the mountain. Walls are laid in loose courses, with gaps packed in moss, felt, and twisted roots. Door lintels rest in forked wooden cradles so they can be raised when the thresholds rise. Streets are paved with small, unfired stone tiles cut while the rock is still soft near the springs; after several years in the air, they become hard enough to ring beneath a hammer. Nothing is squared more precisely than necessary. Corners drift. Towers lean deliberately inward, toward the slow swelling of the basin.
+
+Water is everywhere near the surface but seldom gathers into anything broad. It beads on walls in clear rows. It leaks from joints between stones and hangs under bridges in trembling strings. After the frequent, fine rains, every roof edge drips, every stair becomes a sequence of shallow silver basins, and the moss darkens to almost black. Narrow canals run down the center of the streets, fed less by streams than by the mountain’s continual weeping.
+
+These channels make the town loud.
+
+Water falls through stone grates into hollow chambers beneath the paving, where it booms and knocks like distant carpentry. Wooden gutters clatter against brackets. Cistern mouths gulp when pressure shifts underground. From the upper retaining wall comes a constant roar: hundreds of thin springs pouring over a broad ledge into a catchment pool. The fall is only twice the height of a person, but its sound fills the whole enclosed basin and rebounds from the bare house fronts until ordinary speech must be given at close range.
+
+No single thing happens quickly. The noise suggests violence, but the water accomplishes almost nothing. It has not yet cut channels into the new rock. It slides over smooth surfaces, is gathered, redirected, spilled, and gathered again. Even storms leave no scars. The mountain seems to absorb consequences.
+
+Vegetation thrives in the damp without forming a forest. Low plants occupy every horizontal surface: deep cushions of moss, pale liverworts, tiny ferns with translucent stems, and mats of broad, cool leaves that collect raindrops without shedding them. Dwarf rowans grow in sheltered courts, their trunks bent not by wind but trained along ropes to keep them from blocking the open streets. Green vines climb the outer walls, though they root in baskets of compost hung from pegs rather than in the thin ground.
+
+The lushness is close and skinlike. It covers stone without hiding its form. From a distance, the basin remains spare: black walls, wide gray paving, open rectangles of water, and a few vertical posts. Only on entering does one see that every edge is furred green, every seam holds a miniature garden, and the roofs carry whole meadows no deeper than a hand. White flowers bloom under benches. Red fungi grow inside drain spouts. A bitter, aromatic herb fills abandoned doorways, planted there to keep the damp from smelling stale.
+
+Beyond the ring wall, the slopes rise naked toward the summit. There the raw geology shows itself in smooth fins and folded shelves, scarcely cracked by winter. Clouds move at nearly the same height as the town. They arrive not as dramatic banks but as a whitening of distance; roofs fade, towers become pale bars, and moisture condenses on hair, wool, lashes, and tool handles. Then the cloud passes, restoring ordinary daylight—clear, cool, and surprisingly even. There are few deep shadows because so much light returns from wet paving and low sky.
+
+The settlement is built largely of stone, turf, timber, and hammered copper used sparingly where wood would rot. There is no machinery beyond leverage, water pressure, and patient workmanship. A forest of simple cranes stands over the central plaza: tripod frames with rawhide ropes, stone counterweights, and drums turned by hand. Their arms are almost always motionless. The town is never finished, but construction proceeds at the pace of the rising ground. A crew may spend an entire summer resetting one flight of steps.
+
+Workshops occupy long sheds with open sides. Stone cutters use antler picks and bronze-edged blades on newly exposed material before it hardens. Gutter makers split straight saplings with wedges. Felt workers press mountain wool into thick panels for roofs and cistern covers. The city’s most valued craft is surveying. Along every street stand waist-high measuring stones incised with old level marks. Threads are stretched between them after the rains, and any alteration in the basin is recorded on thin wooden tablets. The records show not subsidence but emergence: walls slowly lifted, wells growing shallower, new shelves of rock appearing beneath storerooms.
+
+This is why the city has so much room.
+
+Its builders do not place structures where the mountain is, but where they believe it will be. Broad vacant courts reserve space for stone expected to rise generations hence. Bridges cross dry hollows in anticipation of springs. Doorways open onto blank rock faces bearing painted plans for streets that may become possible when the ground reaches them. Some towers are only timber skeletons built around invisible future cores. They look ceremonial, but they are practical acts of waiting.
+
+Only a few dozen people live here at one time. Their dwellings cluster in the southern quarter, where hot cooking smoke can be carried away by the prevailing wind. The rest of the city is maintained in readiness. Lamps are placed in uninhabited windows during festivals. Empty plazas are swept. Drains serving nonexistent houses are cleared of leaves. At dawn, someone rings a row of stone slabs suspended beside the main cistern—not to wake a populace, but to test whether their pitches have changed overnight.
+
+Animals are scarce. A few shaggy goats graze the roof meadows, each wearing a wooden clapper that is usually lost beneath the louder water. Small slate-colored birds sometimes descend with the fog and pick insects from the moss. They have no settled nests in the basin and may vanish for weeks. In the cisterns live pale, slow-bodied newts, treated with respect because they appear only in water that has remained sweet. There are no swarms, no choruses of frogs, no rodents in the grain stores. The town’s innumerable cavities seem made for animals, yet remain unoccupied.
+
+At the center lies the First Court, an empty square surrounding a low dome of uncut stone. It is the newest part of the mountain, though it looks like the oldest object in the city. Each year it rises slightly higher from the paving. Water condenses on it even in dry weather, gathers into large drops, and runs upward along shallow grooves before vanishing at the crown. The phenomenon is accepted rather than explained. Bowls are set around the dome, not to catch the water—they would remain empty—but to measure the dampness of the air.
+
+The inhabitants say the mountain is still below them, arriving.
+
+At night the water continues its immense hollow conversation beneath the streets. The cranes creak once or twice as their ropes contract in the cold. Moss exhales the day’s rain. In the vacant districts, roofless walls frame ordinary stars, and the unfinished towers stand against them like diagrams.
+
+By morning, perhaps nothing has changed. Perhaps a measuring thread touches stone where yesterday there was a hair’s breadth of air. A paving tile gives a new note beneath the surveyor’s mallet. Somewhere behind a blank wall, water begins to fall into a chamber that no one remembers building.
+
+Then the town adjusts itself by a fraction and waits again.

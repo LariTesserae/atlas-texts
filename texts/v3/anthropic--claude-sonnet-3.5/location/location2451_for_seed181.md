@@ -1,0 +1,17 @@
+High above the cloud line, a city clings to the near-vertical face of a mountain peak. Its buildings, a chaotic blend of industrial-era factories and newer, gleaming structures, seem to defy gravity as they jut out from the sheer rock face. The air is thin and bitingly cold, yet a constant mist hangs in the atmosphere, condensing on every surface and running in rivulets down the mountain's side.
+
+The city is densely packed, with narrow walkways and bridges connecting buildings at various levels. Steam pipes and electrical cables crisscross between structures, creating a web-like network that hums with energy. The sound of machinery is ever-present, a cacophony of clanks, whirs, and hisses that echoes off the mountain walls.
+
+Despite the harsh conditions, vegetation thrives here. Lush, alien plants with iridescent leaves and twisting vines grow from every crevice and ledge, their roots seeming to draw moisture directly from the mist-laden air. These plants move with an unsettling intelligence, reaching out to grasp passing objects or retracting when approached too closely.
+
+The fauna of this place is both abundant and bizarre. Swarms of winged creatures, somewhere between insect and bird, dart through the air in dizzying patterns. Their bodies shimmer and shift, sometimes appearing solid, other times becoming translucent or even vanishing entirely before reappearing elsewhere. Larger beasts cling to the walls or lumber across narrow ledges, their forms a nightmarish fusion of mountain goat, reptile, and something altogether unrecognizable.
+
+Water is a constant presence, not just in the omnipresent mist but in the numerous springs and waterfalls that emerge from the rock face. These streams of water don't always obey gravity, sometimes flowing upwards or sideways, creating impossible arcs and loops before disappearing back into the mountain or evaporating into the air.
+
+The very fabric of reality seems unstable here. Occasionally, rifts appear in the air, offering brief glimpses into other worlds or dimensions before snapping shut. Objects sometimes phase in and out of existence, and the laws of physics appear to be more guidelines than rules. Time itself feels fluid, with some areas of the city seeming to move faster or slower than others.
+
+Despite the chaos, there's a sense of purpose and industry to the place. Workers, their forms as varied and strange as the fauna, move about their tasks with determination. Factories process raw materials extracted from the mountain itself, producing goods that defy conventional understanding. Research facilities probe the boundaries of reality, harnessing the zone's unique properties for purposes unknown.
+
+The entire city thrums with an energy that's both exhilarating and terrifying. It feels like a place on the cusp of something monumental, a grand experiment in the making. Yet there's also a sense of precariousness, as if the entire settlement could at any moment be swallowed by the mountain or slip into another dimension entirely.
+
+As night falls, the city transforms. Bioluminescent plants and creatures come to life, bathing the mountain face in an eerie, ever-shifting glow. The mist takes on phosphorescent qualities, and the boundaries between solid matter and energy become even more blurred. The cacophony of day gives way to a different symphony of night sounds - the calls of nocturnal creatures, the low hum of night shift machinery, and the whisper of reality itself as it bends and flexes in this liminal space.

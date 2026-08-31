@@ -1,0 +1,13 @@
+Deep beneath the sun-bleached crust, in a lightless, heat-heavy hollow no larger than a grounded cathedral, lies the Foundry of Dew.
+
+The air here is thick, stagnant, and humid, hovering at a temperature that makes the lungs feel they are breathing liquid gold. Despite the intense heat, the space is not dry; the walls, formed of sharp, jagged obsidian-like rock—still fresh from the earth's recent upheaval—constantly weep. Moisture gathers in heavy, slow-forming beads on the basalt faces, trembling with the weight of surface tension before surrendering to gravity, slicking the floor in dark, erratic veins of condensation.
+
+It is a garden of metal and moss. LUSH vegetation, paradoxically vibrant and deep-green, thrives in the furnace-heat of the dark. Great, fleshy ferns with leaves as thick as leather sprout from cracks in the floor, their bioluminescence suppressed by the sheer oppressive density of the shadows. They do not grow toward a sun that does not exist; they grow toward the heat-sinks, fanning out in slow, patient cycles that take years to shift a single millimeter.
+
+There is no animal life. No skittering, no chirping, no breath. The ecosystem is entirely botanical and thermal.
+
+Across this small, confined floor, humanity—or what once occupied this space—has left a sparse, industrial footprint. A single, segmented iron pipe, rusted only at the joints, runs the length of the chamber, bolted to the rock at irregular intervals. Every few minutes, it lets out a low, shuddering *hiss*—the only sound in the cavern—as it purges a plume of pressurized steam into the dark. It is an automated, electrified haunting. A handful of copper gears, half-embedded in a mound of damp, mineral-rich soil, are polished to a mirror finish, not by human hand, but by the slow, relentless abrasion of the dripping condensation. 
+
+The machinery serves no master. It is a factory of condensation, its engines turning over once every cycle of the moon, vibrating the heavy air with a deep-seated, infrasonic hum that vibrates more in the marrow than in the ear.
+
+The rules of this place are simple: the moisture feeds the metal, the metal warms the ferns, and the heat keeps the cavern suspended in a permanent, suffocating stasis. It is a young, jagged pocket of existence, unaware of the world above, forever refining its own slow, dark distillation of drip and steam. There is a profound sense of "waiting" here, as if the entire room is a pressurized vessel waiting for a button to be pressed that no one remains to find.

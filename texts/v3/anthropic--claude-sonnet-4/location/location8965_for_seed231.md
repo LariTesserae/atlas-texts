@@ -1,0 +1,21 @@
+The Throat of Echoes sits cupped in a shallow bowl of weathered granite, no larger than a village square, where the mountain's bones have been worn smooth by countless seasons of mist and sudden storms. Here, at this modest elevation where the air still carries warmth but thins enough to make breath deliberate, reality has developed a stutter.
+
+The stone itself weeps constantly—not from any visible spring, but from the rock's very pores, as if the granite remembers being ocean floor and cannot forget. Water beads and runs in ribbons down the curved walls, pooling in worn depressions that have been the same shape for generations, yet somehow the water never quite behaves as water should. It flows upward in thin streams, pauses mid-drip, forms spirals in the air before splashing down with sounds that arrive moments before the water itself hits stone.
+
+Sparse clusters of wire grass and stunted thornbush cling to cracks in the rock, their roots more memory than matter, growing in patterns that shift when you're not looking directly. A few twisted junipers have found purchase along the rim, their branches reaching in directions that don't quite align with any consistent wind pattern. The vegetation seems ancient, settled, as if it has negotiated some private peace with this place's peculiarities.
+
+But it's the sound that defines the Throat. Every drip, every whisper of wind through the sparse growth, every footfall on wet stone becomes something more—amplified, layered, twisted back on itself until the air thrums with a constant, overwhelming chorus. A single dropped pebble becomes a landslide; a breath becomes a wind storm; silence becomes impossible because even the absence of sound here has weight and texture and voice.
+
+The acoustics bend in ways that suggest the bowl's geometry is more complex than it appears. Sounds arrive from directions that don't exist, conversations echo from conversations not yet spoken, and sometimes—in the spaces between the endless noise—you can hear the mountain itself breathing, deep and slow and not entirely friendly.
+
+At the bowl's center, where the water collects deepest, the pooled moisture sometimes shows reflections of skies that aren't overhead, or movements of things that aren't there. The water's surface ripples without wind, responding to sounds that haven't happened yet or happened long ago in some other version of this place.
+
+No tools work quite right here. Stone knapping produces flakes that sometimes fall upward. Fire burns cold and throws shadows in too many directions. Even simple cordage twisted from the wire grass tends to tie itself into knots that weren't intended, forming patterns that hurt to look at directly.
+
+Animals avoid this place, though their absence feels more like a held breath than true emptiness. Sometimes tracks appear in the wet stone—impossible prints that could belong to creatures that exist only in the spaces between sounds, drawn by the acoustic chaos but never quite manifesting.
+
+The warm air moves in spirals, carrying moisture that condenses and evaporates in rapid cycles, creating brief fogs that seem to contain glimpses of other versions of the Throat—sometimes fuller of life, sometimes carved deeper, sometimes not there at all. The mist carries scents of places that might be distant or might be imaginary: salt spray from seas that could be beyond the mountain or beyond possibility.
+
+Time stutters here like everything else. Shadows move independently of their casting objects. The water-stained granite shows wear patterns that change when observed closely, as if the stone is simultaneously ancient and young, weathered by storms that are always about to arrive and have never stopped arriving.
+
+Standing in the Throat of Echoes, surrounded by its modest boundaries and overwhelming presence, you understand that some places accumulate more reality than they can properly contain, until the excess spills over into impossible acoustics, stuttering time, and water that remembers being something else entirely.

@@ -1,0 +1,17 @@
+A vast liquid-crystal sea stretches in all directions, its surface not a surface at all but a gradual phase transition where the lower, denser medium gives way to an upper, lighter one. Both are the same substance - a transparent, silicon-rich solution that simultaneously dissolves and precipitates, creating endless geometric formations that grow and dissolve like time-lapse crystals.
+
+The "sea floor" lies kilometers below, though depth becomes an abstract concept here. Massive crystalline spires rise up through the liquid layers, their faceted surfaces catching and splitting the intense light that penetrates the upper medium. These towers aren't static - they're actively growing and eroding, their edges extending and dissolving in patterns that appear random at first glance but suggest deeper mathematical rules at work.
+
+The light comes from everywhere and nowhere, as if the medium itself is faintly luminescent. It creates complex caustics and internal reflections that dance through the crystal forests, occasionally concentrating into bright points that trigger rapid crystal growth in new directions. The constant interplay of light and mineral gives the impression of a living system, though no conventional life exists here.
+
+The temperature maintains a cool steadiness that allows for this delicate balance of dissolution and precipitation. Currents move through both layers of the medium, creating slow vortices and upwellings that carry dissolved minerals and influence the growth patterns of the crystal structures. These movements produce subtle harmonic tones - not quite audible, but felt as vibrations through the dense liquid.
+
+At certain points, the crystal growths form vast geometric networks that seem almost engineered - regular lattices and spiral formations that extend for kilometers. These aren't built structures, but rather emerge from the complex interactions of current, temperature, and mineral concentration. Occasionally, entire sections will dissolve or restructure themselves in sudden, catastrophic events that send shock waves through the medium.
+
+The upper layer, while less dense, is still thick enough to support floating crystal islands - fragments of the larger structures below that have broken free and now drift in complex orbits, their surfaces continuously reforming. These cast deep shadows that move across the crystal forests below, creating zones of accelerated or inhibited growth that add to the system's complexity.
+
+There's an industrial quality to the process - as if witnessing a vast, autonomous factory operating on principles just beyond comprehension. The entire system exists in a state of dynamic equilibrium, never still but never truly changing, endlessly rebuilding itself according to its own inscrutable logic.
+
+The scale is difficult to grasp - individual crystal formations might be meters or kilometers across, and the depth could be oceanic or extend far deeper. Distance becomes distorted through the layered medium, creating false perspectives and impossible geometries that shift as currents move through the system.
+
+This is a place of perpetual becoming, where the line between growth and decay, between pattern and chaos, dissolves as completely as the crystals themselves. The only constant is change, manifesting in the endless dance of dissolution and precipitation that shapes this strange, luminous world.

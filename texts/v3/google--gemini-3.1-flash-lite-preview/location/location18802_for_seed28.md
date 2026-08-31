@@ -1,0 +1,15 @@
+This place exists within the hollowed-out skull of a titan—or something of that scale—an airtight, calcified cranium buried deep beneath a desolate, waterless plain. It is the size of a cathedral, but its density is deceptive; the air is thin, dry, and resonant, and the “city” is built not of stone or steel, but of woven, calcined marrow and iridescent, drought-hardy fungi that pulse with the rhythm of the environment.
+
+The light is blinding. It does not come from a sun, but from the walls themselves; the interior bone is inlaid with a mineral dust that phosphoresces at a static, brilliant white. It is a sterile, desert-bright radiance that catches every mote of floating spore-dust, creating a permanent, shimmering haze.
+
+Because there is no water, the ecosystem operates on a chemistry of friction and sonic resonance. The "vegetation"—which covers every surface in thick, fuzzy, amber-colored mats—is not plant life, but a sprawling, lithotrophic mycelium that feeds on the vibrations caused by the "City." 
+
+The city is a layered, vertical labyrinth of suspended walkways woven from braided plant-fibers and sanded bone-shards. The construction is primitive, held together by friction-fit joints and sticky, hardened resin. There are thousands of rooms, balconies, and interlocking pipes, yet the place feels cavernous and empty because the inhabitants are so rarely seen. You might walk for hours through the elaborate, artisanal arches and perfectly leveled plazas without encountering a single soul.
+
+And yet, the world is deafening. 
+
+The sound is not an ambient noise, but a rhythmic, structural grinding. The skull-dome is slowly settling, and every few minutes, the entire environment shifts with a low-frequency groan that vibrates through the teeth and marrow of the structures. This is paired with the sound of the "Prowlers"—long, spindly, translucent-skinned arachnids that skitter across the ceilings. They do not have mouths, but they possess rasping limbs that act like violin bows against the calcified architecture. They are rare, perhaps only a dozen in the entire cavity, but they move constantly, creating a relentless, high-pitched scratching that cascades through the vast, hollow space, echoing off the bone walls until the atmosphere itself feels jagged and shredded.
+
+There is no weather here, only these cycles of structural vibration and the static, unblinking light. One walks across the bone-floors, which are worn smooth by aeons of footsteps that no longer exist, leaving a trail of fine white dust behind every movement. It is a world of incredible, intricate, hand-wrought beauty—all of it built to survive in a place where nothing is wet, nothing is soft, and every sound is magnified until it feels like a physical blow against the senses. 
+
+To live here is to be perpetually startled, surrounded by the architecture of a thousand years, waiting for the ceiling to groan, listening to the friction of the dark, and never feeling the touch of a single drop of rain.

@@ -1,0 +1,11 @@
+The canyon country is alien, but unmistakably a landscape. Dim light filters from above, hotter than the sun we know, mostly blocked by the high rock walls. But the true heat—the burning, arid intensity—emanates from the ground.
+
+Strange shapes crowd the low horizons. These appear to be cities, or at least extensive settlements, built to an ancient, alien design. They are a complex of structures, low-built and tightly packed, appropriate to their low elevation. Their forms—squat towers, domes, oblong chambers, arches—isolated courtyards, narrow passages and enclosed avenues—were not built to any human perspective. Everything is assembled from dull, dark stone and a dense, fibrous substance that might be some mineral-based 'wood.'
+
+Most remarkably, within the confines of courtyards or along major roads, are dense clusters of alien plant life. These show an almost black-green foliage. Some grow vertically from narrow, sunken plots in the rock floor, while thickenings carpet the inner surfaces of low walls or flow like living mats over sheltered flat surfaces. All are lushly developed despite the heat and absence of water.
+
+There are no animals. Nothing moves that seems capable of independent locomotion—no birds crossing the sky overhead, no insects crawling among the plants, no tiny burrowers digging through the dry soil. Unusually, the cities show no traffic, no lights, no activity of residents. 
+
+Stranger still: the wind is dense with sound. Not of life, but a thousand scrapes and clatters and dry, rustling sighs—the constant sound of erosion in a world without water. Stone rasps on stone where the wind pushes pebbles across bare rock faces. A dry breezing, hot and thin, sounds through the reeds of plants and through the complex interfaces of the dense, low settlements.
+
+This is a hothouse world. It exists at the bottom of deep canyon country. Everything is permutations of desert and rock and strange green life—there is no water, not in any ordinary sense. The wind is a constant presence. There is no animal life. And somehow this remains a hot, lush, buried, urban world.

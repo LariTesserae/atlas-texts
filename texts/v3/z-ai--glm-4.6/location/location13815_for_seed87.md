@@ -1,0 +1,27 @@
+The first thing is not the cold, though the cold is absolute. It is a patient, sullen cold, the chill of water that has never known sun. It presses in, not sharp but vast, a weight that has long since ceased to be a pressure and has become a simple, defining fact of existence.
+
+The second thing is the silence. It is a perfect, unbroken quiet, a thick, velvet hush that absorbs all echoes. In this world, sound is a failed form of communication. Here, to make a noise is to be primitive, to reveal an ignorance of the true language. The only vibration is the one you feel in your bones, a subliminal thrum so deep it is more a memory of a sound than a sound itself—a note held for millennia, the resonant frequency of creation.
+
+You are submerged. This is not a sea; it is the entirety of the environment. There is no surface, no shore, no sky. There is only here, and the endless crystalline dark above and below.
+
+Here, there is a structure. It is the only feature, a world unto itself. It is a city and a single creature.
+
+First, it appears as a ghost. In the dim, directionless gleam, you see shapes that resolve and then dissolve again: spires too delicate and too vast to be architecture, woven from something like bone and mother-of-pearl. They do not stand on a floor; they grow from a floor that is simply older, denser strata of the same material. This is the Chitin-City, the Ossuary.
+
+The light is what guides you. It is a viridian fire, a cold, internal luminescence that pulses through the entire structure in slow, steady waves. It is not light for seeing, but light for being. It travels along nerve-like traceries within the translucent walls, illuminating the city's anatomy from within. A brightening glow in a distant corridor signals a process; a soft, rhythmic flashing from a high arcade marks a change in the deep currents. This is the traffic, the news, the law of this place.
+
+The scale is deceptive. Floating in a "nave"—a cathedral-like chamber whose arched ceiling is lost in the gloom above—you feel infinitesimal. But you are inside a contained space. This entire world is a single, embryonic geology, a pocket of raw order forming itself in the universal solvent of the deep. The structure is always emerging. Look closely at a junction where a new buttress is being extruded, and you can see the process. It is not being built. It is being secreted.
+
+There is no tech, yet the place is urban. It is dense with presence. There are no roads, only guided currents that pull you gently along cavernous "streets." There are no houses, only alcoves and hollows, each pulsing with its own soft, internal light, occupied by the city’s fauna.
+
+And the fauna is abundant. They are the citizens, the maintenance, and the building material all at once. The primary beings, the Architects, are vast, slow-moving creatures that resemble a cross between a nautilus and a lacewing insect. They are the city's mobile construction units. Their forelimbs secrete the chitinous, crystal-laced matrix of the structure, extruding it in gossamer-thin sheets that harden instantly in the cold water. They move through the largest avenues, their shells already beginning to merge with the walls they are expanding, their soft bodies a dimly lit heart within the growing bone.
+
+Then there are the scuttling, translucent Cleaners, like glass-armored crabs, whose multifaceted eyes are clusters of living light. They flow over every surface, feeding on the microbial films that would otherwise cloud the structure's transparency, their movements creating a constant, silent rustle of shadows.
+
+Higher up, in the woven vaults of the great chambers, drift the Ghosts. They are fish-like, but their bodies are shaped like kites made of spun silk, and they are almost entirely hollow. They do not swim; they filter-navigate, riding the thermoclines and micro-currents created by the city's metabolism. Their bodies are filled with bioluminescent bacteria which they can flash in complex patterns, communicating with each other and with the structure itself in the silent language of light.
+
+The vegetation is sparse because the structure *is* the plant-equivalent. It is a single, collaborative organism that photosynthesizes geothermal energy and the faint, omnipresent chemosynthesis of the deep. A few leech-like organisms cling to the spires, their bodies flattened into leaf-like shapes, drawing nourishment directly from the city’s circulatory system of light and fluid. They are parasites, or perhaps just another organ of a whole too vast to comprehend.
+
+The rule is that nothing is wasted. A spire that fractures or grows opaque is not eroded. It is reclaimed. A different kind of fauna, the Dissolvers, flow over it like a living acid, a soft, amoeboid mass that breaks down the old material back into its nutrient-rich slurry, which is then carried by the currents to where the Architects are creating anew. The city is constantly digesting and regenerating itself, an active, dynamic process of urban metabolism.
+
+To be here is to be inside the mind of a sleeping god. You are a thought, a fleeting anomaly. The silence is not an absence but a state of focus. The dim light is the low hum of a colossal brain. The cold is the temperature of a process that has outlasted stars. You are in a place that has not yet fully decided what it is to be, a raw, embryonic world, still under construction, waiting in the quiet dark to be born.

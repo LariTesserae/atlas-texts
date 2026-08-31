@@ -1,0 +1,31 @@
+The place is low enough that the horizon never quite arrives. It lies in a shallow country of old ground: peat-dark soil, collapsed reed beds, sedge mats layered over one another until they have become a single thick skin. Nothing rises far. There are no hills, no cliffs, no ruins standing above the plants. The land has spent so long settling that every former edge has softened. Banks have slumped into channels; channels have choked into green seams; dead wood has gone down and become ground again.
+
+Yet it is not a flat marsh exactly. It is a grove-sized hollow, perhaps no broader than a village green, enclosed by vegetation so complete that the world beyond it is only suggested. A ring of ancient willow, alder, and water-loving poplar holds the perimeter. Their trunks are not straight individual columns but fused, fluted masses, roots swelling into one another beneath curtains of moss. Their crowns meet high overhead in a coarse, living roof. Vines climb every available surface. Ferns occupy the spaces between roots. Pale fungi are tucked under wet bark. The soil itself seems more like woven plant matter than earth.
+
+The middle of the hollow is strangely open.
+
+There is no clear path through it, but there is space: a broad expanse of low moss, flattened grasses, and black, springy peat. It feels empty in the way a workshop floor feels empty after the machines have been cleared away. One can stand in the center and see the ring of trees all around, though never very far beyond them. The plants have made walls and ceiling, but have left this central chamber unoccupied.
+
+Water is present without being abundant. It gathers in the old places: in dark root hollows, in narrow trenches beneath the sedges, in beads along the undersides of leaves. A recent rain may have passed hours ago, or several days ago; the hollow keeps its dampness carefully. Cool mist clings near the ground in the morning. By afternoon, droplets still shine in the moss where the sun has not reached. A thin stream, more a sustained seep than a brook, enters through one side of the tree ring and disappears beneath a mat of roots on the other. It never swells, never dries. Its course has been fixed so long that even the surrounding stems bend around it as if around an established piece of equipment.
+
+The air is cool and green-smelling: wet bark, crushed leaves, mineral water, the faint sweetness of decay. There is no wind worth naming. The canopy stirs only in the uppermost leaves, and even that movement seems habitual rather than weather-driven. This is a place governed by long equilibrium. Nothing has recently fallen. Nothing is visibly growing. The moss remains moss, the water remains in its narrow black channels, the roots retain their huge, patient shapes. A leaf may drift down, but it does not alter the place. It is accepted into the floor.
+
+The loudness comes as a surprise.
+
+At first it is a continuous vibration, as though some unseen engine were running beyond the trees. Then it resolves into layers. Insects rasp in the bark and hum in the fern banks. Frogs deliver blunt metallic calls from unseen pools. Water ticks beneath the peat. The trunks creak occasionally, deep and low, with the slow friction of wood against wood. Above all is the ceaseless collective noise of life: wings, throats, mandibles, sap-moving tissues, innumerable small bodies working at once.
+
+It has the rhythm of industry without any factory in it.
+
+The cicadas pulse in shifts. Beetles worry at rotten timber with an audible dry crunch. Ants travel in dark, purposeful lanes across the roots, carrying pale fragments of leaf and fungus. Bees move through the few openings in the canopy with the busy, direct authority of machinery. In the wet margins, snails graze the green films that coat fallen branches. A water rail calls from the reeds. Small birds flick through the roof of leaves, never silent for long. There are too many creatures to see, but their labor is everywhere audible.
+
+The hollow’s technology is not made of metal. It is the mature technology of an ecosystem: pumps in root systems, filters in sphagnum, conveyors of ants and beetles, fermentation chambers beneath the soil, valves in the reeds, turbines of insect wings. Every organism is doing a minute, repetitive task. Each task has been repeated for so many generations that it has become indistinguishable from a law of the place.
+
+There are no human structures here. No boards, no cut stumps, no fence wire swallowed by roots. The occasional straightness in a branch is only chance. The ground bears no lasting footprints; any pressure sinks gently into the moss and is slowly raised back out by its resilient wet fibers. Even the fallen trees do not look fallen so much as incorporated. Their wood has become mossy retaining walls, nurseries for saplings, galleries for larvae, water traps, and dark sponges.
+
+Normal daylight reaches the center in a muted, workable gray-green. The open hollow receives a pale square of sky, often clouded, sometimes blue. At noon the light lies evenly over the moss, without drama. It is enough to see the fine red stems of bog plants, the glossy black surfaces of water pockets, the silver undersides of willow leaves. At the edge of the grove, daylight breaks into narrow vertical strips between trunks, making the root walls look deeper than they are.
+
+The oldness of the place is not a matter of ruins or great age visible in stone. It is an oldness of completion. This hollow has found the form it prefers. Water has found its level. Plants have found every surface they can occupy. Animals have divided the available work among themselves. The central clearing remains open, not because anything keeps it clear, but because the shade, wetness, root pressure, and thin soil have agreed upon it.
+
+Standing there, one gets the sense that the landscape is not waiting for an event.
+
+It does not need a storm, a visitor, a season, or a future. It runs loudly and steadily inside its green enclosure, cool and damp and full of labor, held in the final shape of a small, ancient world.

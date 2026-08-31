@@ -1,0 +1,27 @@
+# The Breathing Flats
+
+The noise hits you first—a wall of sound so total it becomes a kind of pressure against the chest. Not a single source but thousands, tens of thousands, layered into a roar that the body interprets as weather. You are standing at the edge of a vast lowland basin, perhaps thirty kilometers across, and every centimeter of it is in motion.
+
+The ground itself is barely visible beneath the vegetation. Mosses in seventeen shades of grey-green carpet everything, but these are not passive plants. They ripple. They breathe. Fronds unfurl and retract on cycles measured in seconds rather than seasons, and the collective susurration of their movement—multiplied across this entire basin—creates a bass drone that you feel in your teeth. Layered atop this: the clicking of seed-pods exploding in the cold air, the wet percussion of moisture shaking loose from broad leaves, the constant background static of condensation forming and falling from surfaces that never quite dry.
+
+It is cold—cold enough that your breath fogs thick and immediate, cold enough that the omnipresent water hangs at the edge of freezing but never quite crosses over. The air is saturated. Visibility should be poor, but something keeps the atmosphere clear at eye level while mist roils in bands above and below, stratified by temperature differentials you can't quite explain. The light is minimal, a deep violet twilight that seems to come from everywhere and nowhere, diffused through cloud layers you cannot see. There is no sun. There may never have been a sun. The plants don't seem to need one.
+
+---
+
+The basin floor is young—you can tell by the sharpness of the terrain's features, the way creek channels cut with knife-clean edges rather than weathered curves. Obsidian-black rock outcrops jut through the moss in places, their surfaces glassy and new, still holding the precise angles of their formation. Water seeps from every crack and seam, running in thin sheets across stone faces before disappearing into the vegetative mass below. The whole landscape feels recently emerged, as if the basin rose from somewhere deeper just decades ago, or perhaps was made.
+
+And it was made. You can see evidence of that making scattered across the flats—small structures of pale material that glow faintly against the darkness, their forms organic but too regular to be natural. They look like shells, like cocoons, like the shed casings of something immense. Most are partially buried in moss now, consumed by the vegetation's aggressive advance. But some still function. Columns of light—thin, precise, wrong-angled—extend from their openings at irregular intervals, reaching upward into the mist before terminating abruptly, as if cut. The light does not illuminate anything. It simply exists, vertical and humming at a frequency that adds another layer to the cacophony.
+
+The technology here is not hidden. It is simply incomprehensible. Where exposed rock meets soil, you can see filaments—thread-thin and silver—woven through the ground in patterns that suggest purpose but refuse to yield meaning. They pulse with faint bioluminescence, or perhaps something that merely resembles bioluminescence, and where they cluster densely the moss grows faster, the movement becomes more frantic. The ground in those places seems to breathe deeper, to exhale visible plumes of moisture that spiral upward before dispersing.
+
+---
+
+The fauna are everywhere, but they move too quickly to see clearly in this light. You catch impressions: something low-slung and many-legged flowing through the moss like water, something else with translucent wings hovering at the edge of perception before vanishing into a fold of vegetation. The sounds they make are lost in the general roar—or perhaps they are the roar, or part of it, their collective voice indistinguishable from the voice of the plants and the water and the humming technology.
+
+In the middle distance, perhaps three kilometers out, the basin floor rises slightly into a ridge of fresh stone. Water pours over its edge in dozens of thin falls, and the mist there is thickest, swirling with the agitation of falling water. Something moves along that ridge—something larger than the skittering things in the moss, something that walks upright and pauses occasionally to adjust equipment mounted on tripods. Human, probably, or human-enough. Researchers. Harvesters. Pilgrims. It's impossible to tell at this distance, and the noise makes calling out pointless.
+
+The ground trembles. Not an earthquake—something more rhythmic, more intentional. The moss ripples outward from a point several hundred meters to your left, and for a moment you can see the soil itself shifting, rearranging, as if something beneath is turning over in sleep. Then the vegetation closes back over it, and the trembling subsides, and the roar continues unbroken.
+
+This is not a dangerous place. The strangeness here is industrious rather than predatory—a system engaged in work you cannot fathom, productive toward ends you will never understand. The cold is survivable. The creatures ignore you. The technology hums on regardless of your presence. You are simply irrelevant to the processes underway.
+
+But the noise. The noise is relentless. It will follow you into sleep if you stay. It will become the shape of your thoughts.

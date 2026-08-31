@@ -1,0 +1,59 @@
+At first it appears to be a high, cold forest filling a mountain basin. There are no roads into it and no ruins beneath it. The slopes descend in long, weathered shelves, each one softened by immense quantities of vegetation. Under an ordinary pearl-gray sky, the whole valley is green-black, iron-blue, and the dull red of dormant buds. Snow lies only on the highest ridges. Lower down, whatever falls is caught, melted, absorbed, and passed inward before it can whiten the ground.
+
+There is almost no ground.
+
+What seems from a distance to be soil is a compressed mat of living fibers hundreds of meters deep. It spans gullies, climbs cliffs, and folds over old rockfalls. Root over root, stem through stem, trunk grown inside hollow trunk: the vegetation has become its own terrain. It forms causeways, sinkholes, escarpments, soft plains, and steep-sided ravines whose walls flex almost imperceptibly in the cold. The basin’s original stone survives only where erosion has polished it too smooth for roots to grip. These exposed ribs are old gray schist, rounded by ages of ice and by the patient abrasion of plants continually crawling across them.
+
+The valley is open in extent but crowded in every part. One can look for many kilometers, yet nowhere is empty. Great columnar growths rise from the living floor, not quite trees and not quite towers. Their skins are composed of overlapping scales, matte and dark, each scale edged with pale frost. Between them stand thickets of jointed stalks, coils of translucent vine, low mats of copper-colored leaves, and masses of soft black filaments that stir without wind. Higher plants carry entire lesser ecologies in the furrows of their bark. Every surface bears another surface.
+
+The cold has not reduced this abundance. It has disciplined it.
+
+Growth here is slow in substance but violent in arrangement. Nothing wastes heat on tender foliage. Leaves are thick as leather or fine as insulated wire. Sap is dark, saline, and reluctant to freeze. Buds open beneath protective membranes. Root tips generate a faint metabolic warmth and gather in communal knots, so that the deep plant-mat remains several degrees warmer than the air. In places, condensation rises from it as a low breath. The vapor collects on undersides, runs along waxen channels, and drips into hidden cisterns formed by cupped leaves.
+
+Water is present, but seldom as a broad surface. There are pockets of it everywhere: clear beads inside hollow stems, black pools at the bottom of sudden apertures, thin streams conveyed through braided root gutters. Rain comes irregularly, usually as cold needles driven across the uplands. The valley captures nearly all of it. Leaves turn edgewise to funnel the drops. Vast ribbed crowns contract and spill accumulated water toward the interior. For an hour after a shower, rivulets appear in thousands, crossing and recrossing the vegetation; by evening they have vanished into the living mass.
+
+Only one river remains exposed. It threads along the basin’s lowest seam, narrow, quick, and almost perfectly transparent. Its bed is not stone but interlocked roots worn smooth by centuries of current. At intervals the river disappears beneath the mat and returns kilometers away. Each emergence is bordered by pale plants with glassy blades. They lean into the flow and extract silt so efficiently that the water carries little color.
+
+The valley’s turbulence reveals itself gradually. Nothing is still, though almost nothing makes a sound.
+
+A stand of tall columns may begin to incline in sequence, one after another, until the motion passes across a slope like a hand brushing fur. Root bridges tighten, lift, and migrate. Whole acres of the upper mat buckle into ridges and then settle somewhere else. Blunt growths force their way up from below, unfold arrays of dark vanes, remain exposed for several days, and are dismantled again by swarms of threadlike creepers. Openings dilate in the forest floor and close without warning. Groves exchange places over the course of a season, moving by the coordinated advance of roots and the abandonment of their rearward tissues.
+
+The transformations can be abrupt. At certain temperatures, entire hillsides enter a phase of synchronized activity. Branches lock together. Membranes stretch between trunks. Thousands of pods rotate toward the prevailing air. Pressure builds through vascular chambers until seeds are launched over the ridges in dense, nearly invisible streams. Meanwhile, older tissues are cut apart, sorted, dissolved, and fed toward warm central beds. A mature column can vanish in a week, leaving no stump—only a shallow hollow lined with new shoots.
+
+Seen from above, these events have the scale and intricacy of industry.
+
+There are assembly lines, though nothing was designed. Jointed vines carry seed capsules from one zone to another by rhythmic contractions. Broad leaf-belts slide continuously around living rollers. Cavities beneath the mat pulse like furnaces, fermenting dead cellulose and venting thin columns of warm vapor. Mineral-bearing roots descend to rock, secrete acids, and return with deposits of iron, copper, and phosphorus locked into their tissues. Some trunks plate themselves in metallic bark. Others grow chambers of hard, translucent resin in which pale electrical discharges move during storms.
+
+No hands built any of it. No artifact lies anywhere in the basin. The industrial character belongs to the ecology itself: extraction, transport, refinement, storage, recycling, coordinated production. It is a factory without a plan and a wilderness without innocence. Every component is alive, or was alive recently, or is being prepared to become alive again.
+
+Its power comes partly from the cold. Temperature differences between the warm under-mat and the freezing air drive slow currents through immense vascular towers. Wind pressure flexes high crowns, compressing fluid through buried networks. When clouds pass, leaf fields darken or brighten in coordinated bands, balancing photosynthesis across the basin. On clear days the ordinary sunlight is divided among countless layers until even the deepest chambers receive a dim green measure of it.
+
+There is no visible glow, no perpetual dusk, no theatrical color in the sky. The light is simply daylight: flat when overcast, sharp when the clouds break, blue in shadow. This normality makes the valley’s behavior stranger. The moving slopes and contracting groves are plainly present, without mist or darkness to excuse them.
+
+For all its activity, the place is quiet.
+
+The plants do not rustle. Their leaves have soft margins and their joints are lubricated with wax. Stems bend without cracking. Seeds are propelled by pressure but leave their pods with little more than a breath. Even the river runs beneath a sheath of moss that suppresses its voice. During the valley’s largest reorganizations, when root terraces rise and whole canopies rotate, the dominant sound is still only a faint wet tightening, like cloth being wrung far underground.
+
+Wind crosses the crowns without finding loose foliage to shake. Rain is swallowed rather than struck. Thunder, when it comes, seems indecently loud and travels from ridge to ridge long after the storm has passed.
+
+Animals are scarce. The vegetation occupies too many roles and leaves too little unclaimed food. There are no herds, no choruses of birds, no persistent insect cloud. One may occasionally find a white, six-legged grazer walking along a warm root seam, clipping fungal films with a mouth too small to mark the plants. Tiny black-winged pollinators emerge for several hours during the opening of certain high-altitude blossoms, then crawl into insulated pods and remain there for months. A long-bodied animal, perhaps the basin’s largest, moves through submerged channels under the root-mat. Its passage can be traced by a temporary lifting of leaves, but it is seldom seen.
+
+The fauna survives by being negligible. Anything that consumes too quickly is enclosed. Vines grow around it not with predatory speed but with absolute persistence. Bones, when found, are clean and mineralized, already threaded with exploratory roots.
+
+The plants appear to recognize disturbance, though not as an animal would. Pressure travels outward through the mat. A footstep changes the angle of leaves many meters away. Repeated movement causes paths to close—not by overgrowth in the usual sense, but by relocation. The walking surface softens ahead, hardens behind, and subtly guides the intruder toward stony exposures or toward the river. Nothing attacks. The valley merely edits trajectories.
+
+Fire cannot live here for long. If a spark catches dry upper fibers, nearby tissues rupture their water chambers and flood the site. Frost is tolerated; drought is answered by contraction. During severe dry periods, the basin pulls inward. Outer slopes brown and detach while central groves tighten into dense, warm knots. When rain returns, the dead margins are broken down and pushed outward again as new terrain.
+
+Thus erosion has reached a peculiar balance. The mountains are old and deeply worn, but the valley does not preserve a fixed topography. Rock erodes slowly; vegetation rearranges quickly; the overall form persists. Cliffs retreat while living buttresses advance. Gullies deepen and are roofed over. Landslides occur inside the plant-mat, folding layers of recent growth into ancient buried forests. Nothing is stable locally, yet the basin as a whole has endured in this state for an immense time.
+
+At the upper edge, near the wind-stripped ridges, the vegetation thins enough to reveal how far it extends. Beyond the first basin lie other dark basins, connected by saddles and root-filled passes. Their movements do not quite synchronize. One valley may be opening its crowns while another closes them. Vapor rises in separate columns. Dark bands travel across slopes against the wind. The region resembles a group of enormous, slow organs working beside one another beneath the cold sky.
+
+There are seasons, but not four. There is the Season of Intake, when rain and meltwater are gathered. The Season of Sorting, when minerals rise from the depths and the valleys alter color. The Season of Casting, when seeds cross the passes. The Season of Compression, when outer growth dies back and the entire landscape becomes low, dark, and nearly motionless.
+
+Between these are brief unstable intervals. During them, old biological agreements fail. Root networks disconnect. Species that have shared resources for centuries suddenly seal themselves apart. Groves collapse and are recycled. New forms emerge from the warm depths: provisional trunks, useless sails, flowers without pollinators, leaves that face the ground. Most are disassembled within days. A few persist and alter the valley’s workings permanently.
+
+That may be the central rule of the place: it remembers through matter, not intention. Nothing has a blueprint for the whole. Each generation inherits the physical consequences of the last—the channels already worn, the minerals already lifted, the old trunks available as scaffolds, the patterns of shade. The landscape is ancient not because it resists change, but because it has made change into its most reliable process.
+
+Standing still within it, one feels no gaze and hears no warning. Frost gathers on the dark scales of the columns. Condensation threads downward. Somewhere below, unseen belts of root and vine continue their measured transport. Far across the basin, a hillside lifts, folds along a line several kilometers long, and settles into a new configuration.
+
+It happens in almost complete silence.

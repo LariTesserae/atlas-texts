@@ -1,0 +1,23 @@
+There is a plateau here, recently lifted — the rock still has the look of something just exposed, sharp-edged where the land tore upward and hasn't yet learned to round itself. You can see the layering in the cliff faces, clean as a cut cake, undisturbed by the slow softening that comes with age. The high country, then. Cool air, thin enough that the light arrives without apology.
+
+And the light. This is the first thing and the last thing. It comes down so bright that it seems to have weight, a flat brilliance that fills every space without casting much shadow — as though the sky itself were the source rather than any single sun. The vegetation glows under it. Everything is washed white-gold at the edges and saturated green beneath.
+
+The vegetation is the dominant fact of the place, layered and near-overflowing. Mosses thick as upholstery on every cool surface. Ferns crowding the seams of the young rock, lichens in mineral greens and oranges, and above them a canopy of low, dense, twisted trees with leaves like wet glass. They grow into each other. There is no clear ground — only stratum upon stratum of growing things, pressing, overlapping, filling the volume of the air the way water fills a basin. You could not walk a straight line for ten paces.
+
+Water is scarce here in the sense that it does not pool or run in rivers — but it is everywhere as moisture. Condensation beads on the leaf-glass. The morning fog settles into the low pockets between rock shelves and stays, feeding the moss, never quite raining and never quite drying. The plants drink from the air. There is a faint dripping somewhere, always somewhere, never near.
+
+Now the strange part, which I have been circling.
+
+Scattered through this lush, cool, blazing-bright wilderness are machines. Industrial machines — large ones, the kind that imply factories and production and the noise of work. Turbines half-swallowed by moss. A long building of riveted iron with its windows green-glazed by algae. Pipes that run between the trees, articulated, purposeful, vanishing into the foliage. There are gantries and condensers and what might be a forge, all of it still, all of it *working* — you can tell it is working because the pipes are warm to the touch and the condensers weep their gathered moisture in slow rhythmic drops, and somewhere a flywheel turns.
+
+But there is no sound.
+
+This is the deepest strangeness of the place. An industrial landscape ought to roar. Instead the machines run in perfect silence — the flywheel spins without a whisper of bearing-friction, the turbine turns the fog-laden air without a hum, the drip of the condensers falls into the moss without splash. The silence is total and intentional-feeling, as if the place had been engineered to swallow noise the way it swallows shadow. You speak and your voice comes out small, absorbed instantly by the upholstered green. The machines are doing something patient. They have been doing it for a very long time, and they change so slowly you cannot watch it happen — a valve creeps a quarter-turn over the course of a day. A gauge needle drifts across a week.
+
+What are they making? The evidence suggests: *moisture management*. The machines are gardeners. They condense the fog, distribute the water through the articulated pipes, regulate the temperature of the cool air just so, maintain the bright sky's even glow. They tend the impossible density of the plants. Someone built a factory whose product is this overgrowth itself — a manufactured wilderness, an industrial process that outputs *jungle*, running in silence on the freshly raised rock.
+
+The fauna is almost absent. A pale insect now and then, drifting between leaves. Once, perhaps, the shape of something larger moving in the deep foliage — but rare, so rare you doubt it. The makers, whoever they were, are not here either. Only their machines remain, faithful, mute, slow, turning the fog into forest under a sky that never dims, on a mountain too young to have grown old enough to know how strange it is.
+
+The whole valley extends past what you can see — over the next sharp ridge there are surely more turbines, more pipes, more glass-leafed trees, more silence. A regional installation. A patient green engine the size of a country, breathing condensation, keeping itself alive, asking nothing, saying nothing at all.
+
+You stand in it. You hear your own pulse, which is the loudest thing for miles.

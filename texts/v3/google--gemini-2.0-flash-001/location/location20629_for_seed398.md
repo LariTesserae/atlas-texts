@@ -1,0 +1,19 @@
+The Scaldgate Spire is less a place than a circumstance. Imagine, if you can, the discarded core of a sun-dwarf star, collapsed and folded into a pocket within a greater reality. Its crushing density is averted only by the alien physics of containment, a lattice of force that smells of ozone and burnt sugar.
+
+The Spire itself is a colossal needle of hyperdense matter, hematite-black, that rises into an empty, violet firmament. Its surface is scarred, raw, freshly cleaved. Though the physics that hold it together are unknown, they are *new*: the rock has not yet learned to be old. Runnels of superheated condensation, not quite water, streak down its sides, carving new paths every few minutes. The air shimmers with escaping energy, a heat haze visible even in the dim light.
+
+"Dim" is relative. The Spire generates its own illumination, a faint, internal luminescence. It leaks from cracks in the rock, from the thin water-trails, from the very *air* around it, painting the scene in shades of amethyst and sulfur. It is a light that does not warm, only reveals.
+
+The urban aspect is…complex. From a distance, the Spire appears pristine. But as one approaches, clinging to its flanks like iron filings to a magnet, are the Stations. Imagine metal hives, fused to the Spire by processes unknown, their surfaces shimmering with heat-reflective compounds. They are built, rebuilt, and repurposed constantly, a living, breathing metal organism clinging to the titanic stone.
+
+These are not dwellings in any traditional sense. They are more like nodes, conduits, in a vast and intricate system. Wires fine as spider silk, yet strong enough to bear unimaginable loads, crisscross the Spire's surface, connecting Stations to each other and to unknown points deep within the colossal structure. Heat bleeds from these connections, creating localized shimmer-pools where the air warps and distorts.
+
+Sound is nearly absent. The constant low hum of the Spire itself, a resonance felt more than heard, is punctuated by the occasional *crack* as a new fissure forms, or the hiss of superheated condensate vaporizing in the near-vacuum. Otherwise, silence reigns. It is a silence so profound it feels like pressure on the eardrums.
+
+The technology here is… not understood. It exists beyond the veil of current paradigms. Nano-assemblers, powered by the Spire’s own internal energy, weave intricate networks of sensors and actuators. These systems seem to be monitoring, adjusting, learning. The Stations are not just structures; they are interfaces to an alien intelligence, a slumbering god dreaming in stone and fire.
+
+The "active" aspect of the environment is subtle, pervasive. The Spire itself is not inert. It shifts, groans, and releases pent-up energy in unpredictable bursts. The Stations respond in kind, their configurations altering, their purpose shifting in ways only hinted at. The superheated condensate is not just water; it carries particles, data, from deep within the Spire, depositing them in run-off patterns along the rock surface.
+
+There are no animals. There are no plants. There is only the Spire, the Stations, and the intricate dance of energy and information flowing between them. If life exists here, it exists in a form unrecognizable, integrated into the very fabric of the place, as inseparable from it as the heat from the stone. Maybe life *is* the system itself.
+
+Why is this here? What purpose does it serve? What secrets does the Spire hold within its hyperdense heart? These are questions that echo in the violet void, unanswered. This is a hidden world, a folded whisper in the grand narrative of the cosmos, an ongoing experiment of impossible scale and incomprehensible purpose. And it is still being born.

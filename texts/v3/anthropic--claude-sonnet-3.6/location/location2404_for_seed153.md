@@ -1,0 +1,13 @@
+A forgotten courtyard lies nestled between old stone buildings, their weathered walls rising three stories to form a intimate square of sky above. The buildings themselves are dignified but showing their age - local limestone gone soft at the edges, cornices wearing down into organic shapes that echo the vegetation below.
+
+The heart of this pocket space is a long-abandoned fountain, its basin now a thriving miniature wetland. Water still seeps from somewhere deep in the masonry, but instead of arcing through the air, it weeps slowly down green-furred stones. The basin brims perpetually, maintaining a shallow pool perhaps four inches deep, its surface taut and trembling.
+
+Ferns have colonized every crack and corner, their fronds unfurling in waves of green that catch the indirect light. They emerge from between cobblestones, cascade down walls, and cluster especially thick around the fountain where the air stays heavy with moisture. The stones of the courtyard have settled unevenly over decades, creating shallow dips that collect water and sprout thick cushions of moss.
+
+The air here is consistently warm and still, trapped by the surrounding buildings. Water vapor hangs visible in the shafts of sunlight that angle down during midday, giving the space an almost underwater quality. Small droplets continually form and fall from the undersides of windowsills and architectural details, creating a sporadic, gentle percussion.
+
+The only regular visitors are a pair of doves that nest in a protected alcove, their soft calls occasionally breaking the quiet. More often, the soundscape is purely hydraulic - the whisper of water finding its way down stone, the subtle drips from surfaces, the faint trickle of overflow finding its way into ancient drains.
+
+While the surrounding city has grown and modernized, this space feels suspended in time, protected by the very forgetting that allowed nature to reclaim it. The warm, wet air has gradually softened every hard edge, while the constant presence of water has encouraged a slow transformation of the built environment into something that, while still clearly artificial in origin, has developed its own balanced ecosystem.
+
+At dawn and dusk, sun briefly strikes the upper windows of one wall, reflecting golden light down into the courtyard. In these moments, the water vapor turns to floating gold, and every wet surface glows, revealing countless beads of water that have been invisible in the diffuse light of day.

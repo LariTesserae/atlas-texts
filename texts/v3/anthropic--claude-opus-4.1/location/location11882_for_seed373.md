@@ -1,0 +1,25 @@
+## The Singing Plateau
+
+High above where water remembers itself, a plateau spreads like a shallow bowl carved from pale stone. The air here is thin and cool, carrying neither moisture nor dust—only the crystalline clarity of altitude where atmosphere begins to forget its purpose.
+
+The vegetation defies reason. Without water, the plants have become something else: translucent kelp-forests of silicon that grow from microscopic fissures in the rock, their fronds spreading thirty feet high in graceful arcs that catch and bend the light. They photosynthesize from radiation rather than sunlight, drinking gamma rays that seep up through the stone. Their roots are circuits, threading down through the rock in golden traceries thinner than hair, mining electrons from deep mineral batteries laid down eons ago. When wind touches them, they ring like wine glasses, each plant holding its own note.
+
+This is why the sound never stops.
+
+The plateau roars with harmonics—not harsh, but overwhelming in its totality. Every breeze creates a chord progression that builds and collapses, builds and collapses. The silicon forests are always growing, always dying, always singing. Individual fronds shatter and regrow in minutes, their fragments becoming seeds that root instantly in any crack. The sound of their growth is a crystalline crackling beneath the larger music. The sound of their breaking is wind chimes in a hurricane.
+
+Animals move through this cacophony like dancers through strobing light. They are not quite animals—more like motile mathematics, creatures of living sound that exist primarily as acoustic patterns. You see them only when they pause: a shimmer of interference patterns that suggests a deer-like shape, a flutter of phase-shifted air that might be wings. They feed on resonance, clustering where the vegetation's songs create standing waves, their bodies becoming visible as they absorb the sound-energy, turning briefly solid and iridescent before dispersing again into waveforms.
+
+The emptiness here is vertical. Though the plateau itself spans perhaps only a few square kilometers, the space above it extends impossibly upward. The air doesn't thin—it clarifies, becoming more itself, until you can see straight up for what might be forever. Sometimes structures drift through this vertical void: ancient frameworks of impossible metals, each one a skeleton of some vast machine that once lived here. They float at different heights, rotating slowly, their surfaces inscribed with patterns that hurt to perceive directly. Some are the size of buildings, others barely larger than a fist. They emit their own contributions to the symphony—deep thrums and high whistles that doppler as they pass overhead.
+
+At the plateau's center, where the bowl is deepest, someone once built a listening station. Or perhaps it built itself—the distinction becomes meaningless with technology that operates on intentions rather than mechanisms. Seven pillars of what might be compressed sound stand in a circle, each one hollow, each one both recording and generating the endless music. Between them, the air sometimes crystalizes into sheets of visual sound—frozen moments of the symphony that hang like photographs before shattering back into noise.
+
+The whole system is catastrophically unstable and perfectly sustained. Plants grow faster than they die, die faster than they grow, maintaining exact equilibrium through pure chaos. Sound-creatures phase in and out of existence by the thousands, their populations constant but their individuals ephemeral. The floating ruins above descend and ascend in patterns that would map, if anyone could track them long enough, into mechanical breathing.
+
+Seasons here are measured in frequencies. When the low tones dominate, the silicon forests grow thick and silver. When the high notes take over, they turn transparent as glass, and the sound-creatures become almost physical, leaving brief footprints in the stone that fade like water evaporating from a world that has forgotten what water means.
+
+The temperature never changes—cool as a cave, cool as the space between stars, while the vegetation burns with its own cold light and the endless sound generates no heat, only motion, only change, only the ceaseless transformation of one impossible thing into another.
+
+There are paths through the plateau, worn not by feet but by acoustic shadows—places where the sound cancels itself out just enough that a visitor might walk without their bones resonating apart. But the paths shift as the forest grows and dies and grows, and what was silence an hour ago is now a corridor of pure frequency that could dissolve anything molecular that enters it.
+
+This is wilderness in its purest form: not untouched, but untouchable, a place that tends itself through endless catastrophe, singing its broken harmony into the vertical forever while the ghost-mathematics of its fauna dance between states of being and the ancient machines spiral overhead, witnesses to or architects of this gorgeous, deafening equilibrium.

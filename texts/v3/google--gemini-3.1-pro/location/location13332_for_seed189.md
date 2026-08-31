@@ -1,0 +1,23 @@
+Deep within the geologic crust, buried under millions of tons of solid rock, there is a spherical hollow. It is not a cave worn by water. It is a living, violently animated geode—a pocket room whose boundary is comprised entirely of dense, churning vegetation. 
+
+To breach the threshold of this subterranean space is to step into a profound and broken reality. The pocket is intimately small, perhaps twenty feet in diameter from wall to wall, yet stepping inside, the spatial logic collapses entirely. The interior is dominated by a vast, breathless emptiness. The curving wall of tangled roots opposite you appears simultaneously within arm’s reach and miles across a hazy, terrifying void. The air inside this intimate room feels stretched, tenuous, and unnervingly hollow.
+
+In the exact gravity-less center of this emptiness hangs a jagged, two-dimensional rupture in space itself. It is a literal tear in the dark, spilling out a blinding, unrelenting daylight. It looks as though an overexposed noon sky is bleeding through a slit in the fabric of the universe. It floods the pocket with harsh, crisp illumination, throwing razor-sharp shadows across the interior. 
+
+And in that stark light, the deafening industry of the room reveals itself. 
+
+The environment is anything but still. The walls—a continuous architecture of thick stalks, massive coiled roots, and violently interlacing vines—operate in a continuous state of hyper-accelerated panic. The space is filled with an industrial roar. But it is not a human machine; it is an algorithmic, prehistoric botanical engine. 
+
+The flora possesses a mindless, distributed intelligence focused entirely on localized spatial expansion. Thick, muscular tendrils reach outward, pulling chunks of raw chert and flint from the rock beyond the sphere. Under immense hydraulic pressure, the vines slam the stones together, physically knapping the rocks. They strike and peel away sharp, pristine lithic flakes. Before the dust can settle, other vines exude a sticky, fibrous sap, quickly lashing these newly broken stone blades to thick, wooden shafts formed by their own twisting bodies. 
+
+Primitive hand-axes. Wedges. Crude mauls. Not a single human hand is involved. As soon as a tool is grown and fastened, a colossal root swings it backward, brutally smashing the stone against the unseen earth behind the plant-wall, pulverizing the surrounding crust to push the boundaries of the room outward. As tools dull or break, the vines holding them wither, snap, and are overgrown in seconds by fresh green scaffolding to begin the process anew. 
+
+The sound is immense. The cavern rings with the thunderous *thwack* of stone on stone, the gnashing of rock, and the high-pitched, shrieking crackle of rapid cellular division. But because the chamber’s reality is unraveling, the sounds are entirely unmoored from their causes. The deafening echo of an axe-strike booms through the empty void long before you actually see the vine swing. 
+
+The atmosphere is a sweltering, sticky hothouse warmth, smelling heavily of crushed chlorophyll, ozone, and striking flint. The sheer friction of the ecosystem’s growth makes the environment sweat. Beads of moisture bleed continuously from the young, unweathered flora. But within the warped void of the cavern, the water refuses to fall. Heavy droplets detach from the razor-serrated tips of leaves and drift sideways into the vast internal emptiness, caught in localized gravity wells. Some orbit the central tear of light, boiling into stroboscopic trails of mist. Others freeze mid-air into sharp geometric shapes that shatter into damp silver powder, settling on the vines like morning dew. 
+
+Everything you look at is aggressively young. There is no decay, no softly eroded edges. Every wooden splinter is a fresh break; every tool is newly struck; every leaf is sharply uncurled and intensely green. 
+
+Life outside the vast, architecting plant is almost nonexistent. Only rarely do you spot a creature—perhaps a single, pale, translucent beetle no larger than a fingernail, scurrying frantically down the length of a swinging vine-hammer. Sustained by the aerosolized sap expelled in the wreckage, it clings tightly, riding out the immense kinetic violence of its world.
+
+It is a pocket universe of blistering emptiness contained within a living shell. A violently active ecosystem that thinks in the language of rudimentary tools, swinging stone against the subterranean dark to carve out an ever-expanding bubble of noise, mist, and impossible light.

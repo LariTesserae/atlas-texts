@@ -1,0 +1,25 @@
+To find this place, you must first descend. It sits in a deep, geological dimple, a low-elevation basin scooped out of the earth like a thumbprint in wet clay. From the rim, the scale is deceptively modest—a hamlet-sized depression, perhaps three hundred meters across, bathed in perfectly ordinary, bright midday sunlight. 
+
+But as you step over the lip and look down into the hollow, the sheer, staggering emptiness of the interior arrests you. 
+
+The center of the basin is a vast, echoing void. The density of the space is near-zero, a massive cathedral of empty air. Yet, this void is entirely encased by a total, unbroken mass of vegetation that has organized itself into the unmistakable geometry of a city. 
+
+This is the Arbor-Sprawl, a metropolis grown, not built. There are no tools here, no cut stone, no forged iron. Instead, colossal, ironwood-like trunks form the load-bearing pillars of sweeping arcades. Vines as thick as suspension cables weave together to form the vaulted ceilings of grand, open-air plazas. Broad, waxy leaves overlap like terracotta tiles on the pitched roofs of tiered, spiral terraces. It possesses the layered construction and infrastructure density of an urban center—there are avenues, balconies, aqueducts formed from hollowed branches, and stepped amphitheaters. But it is purely biological, a single, sprawling, hyper-organism that has mimicked the architecture of civilization.
+
+The air in the hollow is pleasantly warm, holding a steady, breath-like heat. It is distinctly damp. Condensation weeps continuously from the high, leafy vaults, gathering into heavy, glistening drops that fall into the empty center. Pockets of water collect in the cupped "plazas" of giant bromeliad-like structures, creating shallow, reflective pools that mirror the bright, normal sunlight pouring in from above. 
+
+But as you stare into the bright, empty air of the hollow, the reality of the place begins to fracture. 
+
+The geometry of the plant-city is fundamentally broken. An avenue of woven root-wood sweeps upward in a gentle curve, only to seamlessly connect to the underside of a terrace hanging inverted above you. Staircases spiral inward and emerge on the outside of the trunk they are attached to. The bright, normal sunlight casts shadows that detach from their objects, pooling in the wrong corners, while the light itself seems to bend around the empty center, making the far side of the hamlet-sized void appear simultaneously miles away and close enough to touch. Space folds in on itself here. You can look across the vast emptiness and see the back of your own shoulder reflected in the curvature of a colossal, translucent fern.
+
+This is not a place where reality is currently collapsing; it is a place where reality broke long ago and the ecosystem simply adapted. The erosion of the wood tells the story. The bark on the paradoxical arches is deeply weathered, smoothed and polished by centuries of wind and friction. The growth rings of the impossible, self-intersecting trunks are settled and balanced. The breakdown of physics is the established, ancient state of this environment. The plants have grown into the paradoxes, their biological forms scarred, warped, and ultimately stabilized by the broken rules of the world.
+
+And then, there is the sound.
+
+It hits you not just in the ears, but in the sternum. The noise is absolute, a physical, deafening roar that vibrates the fluid in your eyes and rattles your teeth. The vast, empty volume of the hollow acts as a perfect acoustic resonator, amplifying the ecosystem into a wall of solid sound. 
+
+The fauna is abundant, frenetic, and utterly overwhelming. The empty air of the center is a swirling, three-dimensional tornado of life. Flocks of hollow-boned, iridescent birds dart in tight, fluid formations, their wings snapping with the sound of cracking whips. Swarms of carapaced insects, each the size of a fist, drone in a continuous, chest-compressing bass note. Strange, leaping mammals with grasping limbs ricochet off the wooden terraces, their calls piercing the din like shattering glass. 
+
+The ecosystem is in violent, beautiful motion. Predator chases prey in dizzying, non-Euclidean loops, running "down" a vertical wall that the prey is running "up," their paths crossing in impossible, gravity-defying intersections. The flora responds to the deafening cacophony; the broad, acoustic-baffle leaves of the canopy physically shudder and shift, angling themselves to channel the soundwaves, preventing the sheer acoustic pressure from tearing the wooden city apart. 
+
+Standing on a weathered, root-woven balcony, feeling the warm, damp condensation misting your skin, you are surrounded by the towering, silent intent of the plant-city. Yet the air is entirely empty, and the space is entirely full of noise. It is a sunken, village-sized paradox—a hollow, roaring cathedral of living wood, where the laws of physics are merely suggestions, and life has loudly, violently, and beautifully filled the void.

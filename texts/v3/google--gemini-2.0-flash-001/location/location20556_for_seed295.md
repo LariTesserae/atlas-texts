@@ -1,0 +1,23 @@
+The Obsidian Alveary hangs in the warm, thick darkness.
+
+It is not a mountain in the conventional sense, though it is undeniably high. It is a construction, a single, impossibly vast honeycomb wrought from a substance like cooled volcanic glass. The material is smooth, unbroken by seams, and reflects what little light there is in fractured, distorted glimmers.
+
+Water is omnipresent, not as a flood but as a film. Condensation weeps constantly from the black surfaces, coalescing into slow, unwavering streams that follow the labyrinthine architecture. The obsidian itself seems to breathe, subtly expanding and contracting in slow, almost imperceptible cycles. This respiration encourages an unbelievable jungle of bioluminescent mosses, fungi, and other unclassifiable flora that cling to every surface, creating a vibrant, pulsing ecosystem within the perpetual night.
+
+The vegetation is so dense that it obscures the Alveary itself. The only true sense of the artificial structure comes from the geometry, the unnatural regularity of the passageways and chambers that drip and gleam. This geometry is rarely direct. The tunnels spiral and curve in on themselves, constantly rising and falling, never seemingly leading anywhere in a straight line, but always leading, as if deliberately.
+
+The Alveary teems with life. It is difficult to know where the structure ends and the inhabitants begin. Everything that moves feels fused together. Bats with wings like stained glass navigate the fungal forests. Giant, blind, cave-dwelling salamanders drag their bellies over the mossy obsidian, their skin shimmering with symbiotic bacteria colonies. Insects, impossible in both size and form, crawl over every surface.
+
+But these are almost incidental, secondary to the true masters of the Alveary: the Singers.
+
+They are colossal, impossible to comprehend in totality. Individual Singers might be larger than any familiar land animal, but their bodies are so intricately woven into the structure, so overgrown with the Alveary's flora, that it is impossible to separate them from the environment. They are sessile for the most part, rooted to the obsidian matrix. They seem to digest minerals and exude a honey-sweet, phosphorescent nectar that fuels much of the Alveary's ecosystem.
+
+The "Singing" is their primary mode of interaction, perception, and manipulation. It is not vocalization as humans understand it, but a resonance, a complex interplay of vibrations that permeates everything. The sound is ever-present, a cacophony of tones that seems to come from everywhere and nowhere at once. It is not merely noise, though. The Singers shape the very fabric of the Alveary with their resonance, directing the flow of water, controlling the growth of the flora, and influencing the behaviors of the lesser creatures. The Singers cultivate and make use of everything within the Alveary, either as a source of energy or a tool.
+
+The light, or the lack thereof, is dictated by these resonances. The bioluminescent organisms pulse in response to the Singers' commands, creating flickering patterns of light and shadow that dance across the walls. Some areas plunge into absolute darkness, while others are bathed in an ethereal glow. The Singers modulate this light to communicate, to hunt, to cultivate the Alveary.
+
+The entire ecosystem operates on an agonizingly slow cycle. Generations of creatures live and die in what seems like the blink of an eye compared to the lifespan of a Singer. The Alveary itself changes slowly, shaped by the cumulative effects of the Singers' endless song. Erosion is a constant, patient sculptor, gnawing at the obsidian structure, but the Singers counteract this, subtly shifting their resonance to repair damage and maintain the Alveary’s delicate balance.
+
+There is no real technology. Everything is biological, but the Singers' understanding of biology far surpasses any human comprehension. They manipulate life with their resonance, shaping organisms to suit their needs, creating symbiotic relationships of unimaginable complexity.
+
+Despite the overwhelming activity, there is a strange sense of balance, of established order. The Alveary is not anarchic. It is a profoundly structured and intentional place, a masterpiece of biological engineering orchestrated by the silent, resonating Singers. The structure is not merely a habitat but an extension of the Singers' own bodies and minds, all part of a single, colossal organism. It is strange, otherworldly, and utterly terrifying in its alien perfection. And the ever-present, deafening hum of the Singers' song fills every chamber, every tunnel, every glistening surface of the black Alveary.

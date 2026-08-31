@@ -1,0 +1,23 @@
+# The Fermentation Uplands
+
+---
+
+The air here does not move so much as *digest*.
+
+Moisture clings to everything in fine suspension, a perpetual damp that never quite resolves into rain but never fully lifts either. It gathers in the whorls of bark, beads along filaments of mycelium that stitch entire hillsides together, pools in the concave crowns of leaves the size of dinner tables. The humidity carries a mineral sweetness — not unpleasant, but *present*, the taste of old chemistry. Occasionally, in the deepest hours of the polar night that stretches long even here at altitude, the damp will crystallize briefly into hoar frost before sublimating back into the clutching mist before true morning arrives.
+
+What is not water is *plant*.
+
+Not in the way one usually means the word. The Uplands are not vegetated so much as *constituted* by it. The green here has texture, mass, *intention*. Ancient growth-forms tower thirty meters and more — trunks neither quite wood nor bone, pale and ringed with the patience of centuries, their canopies interlocked so thoroughly that the ground below receives light only as a rumor, a green-brown twilight that never fully resolves into day or night. Between the great trunks, the undergrowth is not a layer but a *medium*: a dense fermentation of fronds, runners, aerial roots descending like the rigging of half-seen ships, fungal shelves erupting from every surface in shelfs of pale lavender and bruise-purple. Walking here requires pushing through — the vegetation closes behind you within minutes, and the paths you make are never the same twice, because the plant-matter is always *arriving*, settling, establishing.
+
+The cold is constant. Not the clean cold of true altitude, but a damp cold that finds the spaces between your clothing, your thoughts. The Uplands sit high enough that the air thins and bites, but it is the moisture that makes it *felt* — a cold that seems to come from the ground itself, as if the earth here has forgotten how to hold warmth and leaks chill in slow seeping exhalations. Frost flowers bloom on dead wood overnight. Ice forms in the cup of every hollow. Your breath does not mist so much as *curdle*, a thick white thing that hangs in the stillness.
+
+Yet for all this stillness — this absolute, oppressive silence — the Uplands are not still.
+
+The plant-life *moves*. Not in the slow drift of growth one might expect, but in *reaches*, in *settlements*, in sudden migrations of vine and root that occur over hours rather than seasons. Whole groves shift position overnight. What was a clearing becomes a thicket, becomes a wall of pale fungal stalks, becomes again a clearing — different in shape, same in intent. The erosion here is ancient, settled, the landscape having weathered itself into a state of long negotiation with its own elements. But the vegetation does not erode. It *overwrites*. The rock beneath the Uplands is gneiss and granite, scoured and smoothed by centuries of patient water and colder patience still, but you will never see it. The plant-life has won this argument already, has been winning it since before memory, and now it simply *maintains*, its turbulent motion a kind of conversation with itself, a market-bazaar of growth and retreat and growth again.
+
+There is a sound the Uplands make — or rather, there is an *almost*-sound, a vibration felt in the soles of the feet and the bones of the jaw rather than heard. A sub-bass thrum that might be the movement of sap at scale, the hydraulics of a continent-sized organism. Or it might be the industrial processes that the Uplands have somehow become: not built structures, but *built conditions*, the landscape itself running its own ancient machinery of decomposition and synthesis, of chemistry that predates and postdates any factory, that *is* the factory, the factory without walls, the factory where the walls are everything and the nothing is nothing and the everything continues.
+
+Fauna is rare here. Occasionally one sees the passage of something — a track pressed into the wet loam, a blur of movement between trunks — but the animals of the Uplands are secretive, sparse, perhaps wise. The vegetation does not invite guests. It is too busy being everything itself.
+
+In the moments when the mist thins and light arrives in actual shafts — pale, cold, almost disappointed — the Uplands can be beautiful in the way a dream is beautiful: terrible and intricate and impossible to hold. Then the mist returns, the silence reasserts itself, and the plant-life continues its silent, turbulent work of being.

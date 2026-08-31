@@ -1,0 +1,25 @@
+You stand on a balcony of woven, living ironwood, looking out into a dark and hollow world. 
+
+This place is a sunken caldera, a low-lying basin dug deep into the earth, but the scale of the interior defies its physical boundaries. It is the size of a grand cathedral or a small hamlet—perhaps three hundred feet across—yet the space within feels like a void. The density of the air and the volume of the hollow are profoundly empty, a vast, echoing drop that swallows distance. The darkness is absolute, save for the faint, bruised-purple bioluminescence weeping from the moss beneath your feet. Your breath plumes in the cool, crisp air, hanging for a moment before being pulled down into the abyss.
+
+Everything here is plant, yet everything is city. 
+
+The architecture is total vegetation, but it follows the strict, organized logic of an urban settlement. Avenues of braided, calcified vines spiral down the crater walls. Plazas of flattened, leathery lichen jut out over the drop. Dwellings are hollowed-out burls and suspended seed-pods, arranged in dense, terraced tenements. But this city is not worn by time; it is embryonic. There is no erosion here, no smoothing of edges by wind or rain. The structures are raw, blunt, and urgently extruding from the walls like wooden tumors. You can watch the urban sprawl actively accreting: a new staircase of pale, wet sapwood pushes its way out of a bulkhead, its steps unformed and bulbous, still hardening into existence. 
+
+The air is persistently damp. It does not rain, but the cool temperature forces a heavy, intermittent condensation. Moisture beads on the waxy canopy high above and drips in a slow, muffled rhythm. *Plink. Plink.* The sound is swallowed instantly by the vast, empty volume of the hollow and the acoustic dampening of a million layers of moss. It is mostly quiet. The silence is heavy, almost pressurized.
+
+Yet, beneath the silence, the city is an engine. 
+
+Deep within the living walls, industrial processes grind and thrum. This is a mechanized ecosystem, a botanical factory performing scaled production. You feel it before you hear it: a subsonic, rhythmic vibration shaking the soles of your boots. Heartwood gears the size of houses turn with the agonizing creak of shifting tectonic plates. Xylem-pistons pump pressurized sap through arterial pipes, hissing as steam vents from the bark. The plant-city is manufacturing something on a massive, industrial scale. Boilers of fermented nectar bubble in the deep roots, driving turbines of spun cellulose. The air smells of hot ozone, crushed leaves, and wet iron. 
+
+The empty space of the caldera is not truly empty; it is teeming, though the sheer, unnatural volume of the void makes the life within it seem sparse. Abundant fauna drift through the dark. Translucent, eel-like creatures swim through the humid air as if it were water, their gills flaring as they feed on the condensation. Moths the size of human hands flutter silently between the suspended walkways, their wings dusting the embryonic buildings with glowing, phosphorescent spores. Swarms of microscopic midges form shifting, geometric clouds in the dark, moving with the synchronized precision of a murmuration. They are the biological cogs of this active, dynamic ecosystem, pollinating the architecture, pruning the deadwood, and feeding the deep sap-engines.
+
+But as you stare across the void, the parameters of the world begin to fray. The weirdness of this place is not a feature; it is the foundation.
+
+The darkness across the caldera is not merely an absence of light; it is an absence of rendered space. The empty density of the hollow exists because the world has not yet been compiled. As the deep, industrial sap-engines thrum and grind, they are not just growing the city—they are manufacturing reality itself, extruding physics and geometry into the void. But the machines are struggling. 
+
+You look at a suspended bridge of woven roots across the chasm. Halfway across, the bridge simply stops, its edges fraying into raw, unformed conceptual static. The wood dissolves into floating equations and the smell of burning copper. 
+
+You look down into the abyss, and the darkness looks back. The bioluminescent veins of the city pulse, and in the flash of pale green light, you see that the "other side" of the caldera is actually the *same* side you are standing on, folded backward through a non-euclidean loop. The urban layout folds in on itself. A stairway of wet bark leads up to a ceiling that is also the floor. Time slips in the damp air; a drop of condensation falls from the canopy, freezes in mid-air, reverses its trajectory, and then falls again, striking the moss with a sound that echoes three seconds before it happens.
+
+The city breathes. The xylem-pistons hiss. A translucent air-eel glides past your face, leaving a trail of frost. The embryonic buildings push blindly into the un-rendered dark, desperately trying to build a world before the engines run out of sap, while the quiet, heavy dampness weeps over the beautiful, terrifying breakdown of everything that is real.

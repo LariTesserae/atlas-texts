@@ -1,0 +1,17 @@
+You are deep within the "Pulverulent Throat," a subterranean expanse stretching for leagues, situated far below the crust where the planetary heat rises from the core like a fever. There is no water here; the chemistry of this place is built entirely on the transmission of sap, viscous oils, and a pervasive, itching pollen that blankets every surface in a thick, ochre dust.
+
+The landscape is not a place where plants grow; it is a place that *is* plant. Every wall, floor, and ceiling is composed of colossal, interlocking vascular tissues—thick, corky trunks that pulse with the slow, rhythmic labor of internal hydraulics. They are intertwined, grafted, and fused into a singular, suffocating architecture of organic towers and spiraling galleries. There is little room for movement; everything is dense, layered, and competing for the available surface area.
+
+The noise is, first and foremost, the sensation of being inside a drum beaten by a million insects. The sound is a deafening, wet thrumming—a combination of millions of fibrous joints creaking under the weight of growth and the frantic, incessant buzzing of carapaced fauna. It is an auditory wall that vibrates through your chest, a soundscape so intense that stillness is impossible to imagine.
+
+The ecology here is frantic, embryonic, and brutal. Biological construction is constant. Massive, translucent pods swell against the walls, hardening into shells over hours before splitting open to release swarms of iridescent, multi-legged creatures that immediately begin grafting themselves into the wall-tissues to add their own biomass to the architecture. Nothing is ever finished. Features emerge and dissolve—a walkway of hardened cellulose may be dissolved by acidic fungi within a day, only to be woven anew by the hive-mind secretions of the canopy-dwellers.
+
+The fauna is overwhelming. The air is thick with wings, mandibles, and soft, gelatinous bodies that cling to the walls like living velvet. They are the builders and the building material. There is no distinction between a creature and its habitat; they walk on the skin of their ancestors, grooming the mossy growth, weaving silk bridges, and carving tunnels with primitive, chitin-grafted scrapers.
+
+Faint, scattered traces of "built" geometry exist—small, hollowed-out chambers where the growth has been artificially kept at bay by hand-tools fashioned from polished bone and obsidian. In these pockets, one might find a crude, woven artifact or a deliberate stacking of mineral-rich salts. These are the work of the scavengers who live in the gaps, using stone blades to trim back the encroaching vine-walls to maintain their tiny, sequestered rooms of relative silence. 
+
+The heat is a warm, humid pressure, smelling of crushed cloves, fermenting starch, and ozone. 
+
+The light is an incongruously normal, diffuse golden glow that filters through translucent "skylights"—thin, membranous patches in the overhead ceiling tissue that turn the harsh, raw heat of the depths into a soft, diffused illumination. 
+
+This is a world in a permanent state of hyperactive birth. Every inch of the cavern is a riot of expansion. To stand here is to feel the landscape itself—it is not merely changing, it is *accelerating*. Growth is the landscape’s only verb; there is no erosion, only the layering of new life over the old, a subterranean bazaar of biology where everything is for sale, everything is alive, and everything is waiting to be dismantled to feed the next frantic cycle of construction.

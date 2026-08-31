@@ -1,0 +1,23 @@
+The Vertical Gardens of the Drowned Sky
+
+You find yourself suspended in a column of living water that rises impossibly upward, defying every law you thought you knew. This is no ocean—it is a tower of liquid that pierces the atmosphere, its walls held in place by some industrial miracle that hums just below perception. The water here is warm as blood, thick with dissolved minerals that make it shimmer like molten glass.
+
+Within this aqueous cathedral, vegetation grows in ways that shouldn't be possible. Kelp forests spiral upward in perfect helixes, their fronds heavy with bioluminescent fruit that pulse in slow, synchronized waves. The plants here have evolved beyond chlorophyll—they feed on the industrial processes that maintain this place, their roots drinking electricity from copper veins that thread through the water like exposed nerves. Ferns unfurl in fractal patterns that repeat at every scale, from microscopic to monstrous, their edges sharp as fresh-cut steel.
+
+The space feels both intimate and infinite. You can see the curved walls of this liquid chamber perhaps a hundred meters away in any direction, yet the water above and below fades into brilliant, sourceless light that suggests distances beyond comprehension. The brightness comes from everywhere and nowhere—not from any sun, but from the water itself, as if each molecule were a tiny star.
+
+There are no fish here, no darting schools or prowling predators. The absence of animal life makes the constant growth of the vegetation feel hungry, purposeful. Vines reach and retract, testing the currents. Flowers bloom and close in patterns that might be communication or calculation. The plants move with mechanical precision, as if following programs written in their DNA.
+
+The industrial presence reveals itself in glimpses: massive turbines that turn without sound in the depths below, their blades cutting through the water so smoothly they leave no wake. Chains of carbon spheres rise through the center of the column like prayer beads, each one containing pressures that could crush diamonds. Sometimes you catch sight of brass pipes that emerge from nowhere and disappear just as quickly, carrying purposes you cannot fathom.
+
+Reality stutters here. You'll watch a strand of seaweed grow backwards into its seed, or see the same flower bloom simultaneously at different heights, each iteration slightly different as if exploring variations on a theme. The water occasionally forgets it's water—becoming air for a heartbeat, or stone, or pure light, before remembering itself with a soundless sigh. Time moves in eddies and currents; you might spend hours watching a bubble rise only to realize it hasn't moved at all, or see entire gardens grow and die in the space between thoughts.
+
+The silence is profound, broken only by the occasional crystalline chime as mineral deposits form and shatter in the currents. Even the industrial mechanisms work in perfect quiet, their efficiency so complete that they waste no energy on sound. Your own movements feel muffled, as if the water were absorbing not just noise but the very concept of disturbance.
+
+Yet for all its emptiness, the place thrums with activity. Chemical reactions cascade through the water in visible chains of color. The plants engage in slow wars for space and resources, their roots wrestling in tangles that take days to resolve. The industrial systems adjust and readjust, maintaining parameters you can sense but not understand. Weather happens here—not clouds and rain, but currents of temperature and salinity that sweep through like storms, carrying seeds and signals, rearranging the gardens in their wake.
+
+This is a young place, for all its strangeness. The edges of things are crisp, unworn. The industrial components gleam without corrosion. Even the plants, ancient as their forms might be, grow with the eager vigor of pioneer species. You sense that this impossible column of living water was born recently—perhaps spontaneously, perhaps deliberately—and is still discovering what it wants to become.
+
+The paradox of submersion at altitude resolves itself as you realize the column has no top, no surface to breach. It extends upward until the pressure becomes negative, until the water becomes lighter than vacuum, until the very concept of "up" breaks down and inverts. You are simultaneously at the bottom of an infinite ocean and at the peak of an impossible mountain, breathing water that remembers being air, surrounded by machines that run on principles that haven't been discovered yet.
+
+In this bright, quiet cathedral of contradiction, the gardens grow.

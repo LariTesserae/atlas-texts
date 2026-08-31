@@ -1,0 +1,19 @@
+At the end of time, on a high plateau where the world has already worn itself to silence, the city of Epilogue rises from the plants.
+
+The plateau is not mountain-tall but feels it; the air bites thin and cool against your skin, tasting like metal and old paper. There are no clouds, only a white sky that has forgotten the sun’s exact name, but remembers the idea of brightness. Underfoot, everything is green—not as in foliage, but as in being made from it. The ground is not ground but a mat of mossy stuff that has been growing for epochs, so deep and layered and long-compacted that it has become the stone of this place.
+
+This is Ur-shelf: the oldest of highlands, an almost-flat expanse of life that has been shaved to its near-final shape by erosion too slow to see. The landscape is singular but not simple: the world has been allowed to settle into its last possible configuration. The moss-rock ripples and cracks and heals into low mounds and shallow depressions, like a sea that has given up trying to crash. Where you expect stone, you find instead something that is not bark but also not bone, not lichen but not not-lichen. It is not slimy but damp, always slightly damp, as if the air itself sweats from time to time.
+
+Water here is an occasional event rather than a place. There are no rivers, no lakes, no obvious springs. There are only moments of moisture: a thin film that appears on the moss-rock before dawn, a fine rain that falls for exactly the same amount of time each evening, beading on the surfaces until it is taken up again. The condensation is not random but orchestrated. The city’s plant-chitecture seems to calibrate its own respiration: dew gathers on the lower vaults in the late night and then vanishes by the false noon, as if the world inhales itself back.
+
+In the center of Ur-shelf, the city of Epilogue fills itself.
+
+This is not built from wood or stone or steel but from the root of time. The structures are not separate from the plateau but are outgrowths of it, like compressions of the world. They rise from the ground in smooth, slender columns, not quite trees and not quite pillars, branching only where they need to—not into simple leaves, but into halls, floors, thresholds, all formed from the same translucent-green material. The “architecture” is also organism: it photosynthesizes in the uncanny light, you can feel it, giving the air an extra dryness of taste that plays against the cool damp.
+
+Passages are not carved but exhaled by the plant. You can see the ripples of growth rings in the walls, where centuries of cellular accumulation are compressed into strata that are, impossibly, also spires of habitat. Sometimes you pass a narrow railing which is just a darker line of living tissue, and if you place a hand on it, you feel the slow trudge of sap; not a pulse, but something deeper and heavier than a heartbeat.
+
+Windows are not glass but clear, hardened exudations: like resin but not resin, something like cellulose but with the memory of transparency. The panes are old. They have not grown in years but have not stopped either; they merely thicken by micrometers per century until they slowly become opaque to the world they’re supposed to reveal.
+
+Inside the structures, the plant-mass continues as if indifferent: walls bulge not quite round but close enough, gentle curves that tempt you to think in geometry but then resist you. The ceilings are low and ribbed, not like vaults but more like the insides of lungs inverted. The floors are resilient to the foot, not bounce but quiet, as if they are listening to the weight you put on them.
+
+The city is not dense but scattered. The buildings are cl

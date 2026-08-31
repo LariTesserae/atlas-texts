@@ -1,0 +1,39 @@
+# The Ghyra Slate-Cliffs
+
+You find yourself at the base of a vertical world.
+
+**Scale and Form:** The “area” is a single, sheer-walled cirque, a half-bowl gouged from the living stone of a mountain range that scrapes the low-hanging clouds. The scale is indeed small—you could walk the circumference in less than an hour—but the elevation is absolute. You stand at the bottom of a natural amphitheater three kilometers from floor to rim, the cliffs rising like the pages of a tilted, black book. The rock is **greywacke and slate**, fractured into gigantic, angular plates that still hold the memory of the tectonic violence that raised them. It is **young terrain**: no soil, no softened curves. Every edge is a knife, every surface scored with fresh, **sharp** abrasion marks from recent rockfalls. **Erosion** is not a gentle process here; it is a constant, granular weeping.
+
+**Water & Atmosphere:** The **water** rating of 1.3 manifests as **subterranean stress**. The cliffs are not dry, but perpetually **damp**. No rivers flow, but a network of **seeps and weeps** blankets the rock face in vertical, glistening channels. Where these converge, they form cold, stagnant **pocket-pools** in natural basins on the floor, the color of strong tea, filled with suspended silt. The air is cool (1.1/3) and carries a constant, fine mist that condenses on your skin and on the black rock. It smells of **wet slate, cold stone, and a faint, organic tang** like fermenting moss.
+
+**Light and Weirdness:** The **darkness** (0.4/3) is profound, but not absolute. The cirque’s rim catches the high-altitude sun, but the floor exists in a permanent, blue-tinged **twilight**. The weirdness (2.2/3) enters here. The **dampness** interacts with the mineral-rich rock. Where water flows almost constantly, the slate is **not** water-worn smooth, but strangely ** embellished**. Thin, brittle **films of crystalline growths**—like salt, but iridescent—coat some sections. In the darkest, wettest alcoves, the rock seems to **pulse with a slow, subsurface bioluminescence**, a faint violet glow that ebbs and flows with no visible rhythm. This is not magic; it is a strange, symbiotic ecology of chemo-luminescent bacteria and mineral catalysts, a light born of stone and water.
+
+**Vegetation & Density:** The **vegetation** is sparse (1.2/3) to the point of seeming absent. There is no grass, no tree. Instead, life clings as **crusts and stains**. Thick, leathery **liverwort mats** in charcoal grey and deep purple hug the wet rock where seeps are constant. More bizarre are the **glass-coffins**: fragile, hollow cylinders of fused sand and organic resin that grow from the cliff face, each containing a single, dormant spore-case. The **density** (1.5/3) is not in plant life, but in the **total occupancy of space**. Every possible surface is used. The air is thick with motes, the rock is paved with lichen, the pools are crowded with silvery, microscopic life.
+
+**Fauna: The Overwhelming Presence:** This is the heart of the place. **Fauna** is **overwhelming** (2.6/3). The scale is wrong for it. You expect birds, mammals. You find none.
+
+Instead, the life is **invertebrate, colonial, and pervasive**.
+
+1.  **The Click-Swarms:** Billions of **wingless, cricket-like insects**, each the size of a rice grain, live in the rock fractures. They feed on the bio-luminescent bacteria and mineral films. In their trillions, their synchronized,percussive mating clicks create a **constant, loud (1.6/3) vibrating drone** that is the cirque’s baseline sound—a sound you feel in your teeth as much as hear. When disturbed, a section of cliff face seems to dissolve into a living, clicking fog.
+2.  **The Scription-Snails:** Slow, armored gastropods with **chitinous, drill-bit radulas**. They **etchtiny, precise runes and circuits** into the softest rock faces and the glass-coffins. No one knows why. Their trails cross and recross, creating a **dense, layered script** over the entire basin. Their trails are sometimes illuminated by the violet glow.
+3.  **The Weeper Bats:** Blind, leathery flyers with **skin stretched over elongated finger-bones**. They do not echolocate. They **scream**. Their high-frequency, burrowing shrieks (another layer to the **loud** soundscape) are used to **disorient the Click-Swarms**, sending them into chaotic clouds the bats then skim through, filtering the insects through pores in their wing-membranes. Their colonies are in the highest, driest fissures, and their constant, eerie weeping is the sound of predation.
+4.  **The Stone-Eaters:** At the very bottom, in the tea-colored pools, are **flat, segmented worms** with maws of grinding silicate teeth. They consume the colloidal rock slurry, processing it for minerals. Their trails are visible as **slow, creeping scorings** on the pond beds. Their movement is the only thing that could be called dynamic (1.1/3)—a gradual, centuries-long grinding of the basin’s floor.
+
+**Built & Tech: None and Primitive:** There are **no built structures** (0.4/3). No nests, no hives, no obvious constructions. The “architecture” is all biological and geological—the glass-coffins, the Scription-Snail runes, the woven colonies of Click-Swarms in recesses. But the **tech** is **primitive** (0.8/3). The bats use **acoustic lures** (their screams). The snails use **micro-tool fabrication** (their radulas). The bacteria are **mineral processors**. This is a stone-age of chemistry and vibration, not of stone or metal.
+
+**Sound:** The soundscape is a **dense, layered cacophony**:
+*   The **subsonic drone** of the Click-Swarm billions.
+*   The **high, tinny clicks** of a million radulas at work.
+*   The **occasional, piercing shriek** of a Weeper Bat, followed by the collective, sudden silence of the swarms as they scatter.
+*   The **drip-drip-drip** of water from countless seeps, a slow, steady metronome beneath it all.
+*   The **low, grinding hum** of the Stone-Eaters on the pool floors.
+*   The **creak and pop** of the young, settling rock.
+
+**Rules of This World:**
+1.  **Verticality is Law.** All life exploits the cliff-face. The floor is a subsidiary zone, a processing plant for what falls.
+2.  **Density Trumps Size.** Individual forms are small, but their aggregate mass and activity dominate the biome. You are not an observer in a landscape; you are a disturbance in a **saturated, humming medium**.
+3.  **Wet Stone is Alive.** Moisture is not just water; it is a solvent, a catalyst, a breeding ground, a conductor of light and sound. The driest spots are dead zones.
+4.  **Sound is a Primary Nutrient.** The acoustic environment is as curated and used as the physical one. Silence is rare and dangerous.
+5.  **Weirdness is Metabolic.** The bioluminescence, the etched runes, the glass-coffins—these are not ornaments. They are byproducts of a strange, mineral-organic chemistry that defines the ecosystem’s energy cycle.
+
+**The Feeling:** It is a place of **profound, unsettling richness**. It is dark, loud, and cold, yet vibrantly, shockingly *busy*. The overwhelming fauna does not feel like a plague; it feels like the normal state of things, a dense, chattering, scratching, screaming **living film** coating a newborn mountain. You are an enormous, clumsy, dry, and silent anomaly here. The rocks seem to watch you with their faint violet glow, and the air, thick with the drone of a trillion lives, feels less like an atmosphere and more like a **substance** you have to push through. It is a cathedral built not by gods or men, but by pressure, water, and the relentless, strange industry of life finding a way to be *dense* in the deepest dark.

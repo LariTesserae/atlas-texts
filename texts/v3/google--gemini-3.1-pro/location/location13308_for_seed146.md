@@ -1,0 +1,25 @@
+The heat presses in, heavy, absolute, and entirely dry. 
+
+To stand in this place is to be swallowed by a subterranean bake, a deep-mantle oven where the air holds no moisture, no humidity, no trace of vapor. It smells of baked iron, ozone, and the sharp, metallic tang of sheared rock. There is no light, save for the faintest, ghostly blooms of deep-infrared radiation—heat signatures translated as dull, bruised purples by any eye capable of seeing them. 
+
+You are standing within a macro-porous fracture, a subterranean void of planetary proportions. It is less a cavern and more a three-dimensional shattered lattice stretching for thousands of miles in every direction. The scale of the space commands a physics of its own, dizzying in its verticality, though the eye cannot verify it. You feel the immensity in the immense, still pressure of the atmosphere. 
+
+The bedrock of this world is uncorrupted by time, water, or wind. There has never been a drop of rain to smooth a stone, nor a draft of wind to sandblast a ledge. The geology was born in some ancient, sudden thermal expansion, and the cooling left millions of miles of jagged cleavage planes, pristine obsidian-like blades, and towering columns of razor-sharp silicate. Every edge is a weapon. Every fracture is immaculate, as fresh and sheer as shattered glass created only a second ago. 
+
+Yet, against the logic of this razor-edged geology, the dark is incredibly crowded. 
+
+The void space of the labyrinth is densely choked with life, though not a single leaf, spore, or fungal thread exists here. It is an ecology of pure, waterless fauna—creatures built of pliable, heat-resistant polymers, silicon-chitin, and dry, semi-conductive tissues. They are packed together in staggering abundance. The walls are carpeted with overlapping architectures of angular, segmented bodies. Colossal, delicate grazers resembling brittle-stars the size of small ships hang suspended between the sharp pillars of rock, their geometries spanning the darkness. Below them, ribbons of velvet-like, multi-legged organisms ripple in near-touching density, carpeting the sharp floors and ceilings to feed on the raw geothermal energy weeping from the stone.
+
+Despite the intense overcrowding, the abyss is blanketed in a heavy, almost reverent quiet. 
+
+There are no vocalizations, no roars, no songs of the dark. The only sounds are the exquisite, isolated acoustics of dry mechanics: the faint, glassy *click* of a segmented leg lifting from a surface; the slow, papery slide of one dry husk dragging over another; the microscopic scratching of a billion mandibles scraping mineral heat-films from the rock. The atmosphere is so thick and still that these tiny noises travel for miles, hanging in the dark like isolated motes of dust.
+
+This profound silence is born of slow-motion. The ecosystem operates in an eternal, inescapable equilibrium. Nothing changes here. The heat never fluctuates; there are no seasons, no diurnal cycles, no tectonic shifts to alter the terrain. As a result, the dense canopy of strange fauna moves with glacial deliberation. They are locked in a perfect, time-invariant balance. Birth and death happen at the exact same, agonizingly slow rate. When an organism finally reaches the end of its life, its dry, mummified carapace is immediately and silently dismantled by its neighbors, completely recycled into the living lattice without a single molecule wasted. 
+
+Hidden within this dense, slow-moving carpet of biological geometry, one can find the scattered, haunting marks of primitive intelligence. 
+
+Lodged between towering blades of black rock, you might pass a small, precarious scaffold made of discarded fauna-husks, glued together with a secreted mineral resin. A bridge of spun, dry filaments stretches across a chasm, anchoring to the razor-edges of the stone. There are tools left resting on small ledges: hand-axes knapped from the subterranean glass, wedges of native bismuth used to pry apart geological faults for the warmer ores inside, and crude nets woven of heavy, abrasive static-silk. 
+
+The creatures that made these—perhaps they are the multi-armed, asymmetrical shadows moving sluggishly just out of reach—possess a localized, primitive industry. They flake the sharp rock. They build tiny, scattered platforms to reach higher thermal vents. But they, too, are trapped in the unchanging nature of the abyss. They do not innovate. They do not expand. For countless ages, they have chipped the exact same glass blades, woven the exact same nets, and occupied the exact same small corners of the staggering void. 
+
+It is a world held in a permanent, breathless breath. A warm, immense, shattered dark, saturated with life, where everything is sharp, everything is blind, and time itself seems perfectly, permanently paused.

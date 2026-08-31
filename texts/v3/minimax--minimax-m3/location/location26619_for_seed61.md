@@ -1,0 +1,35 @@
+# The Inverted City
+
+There is a place beneath a place, and it is called the Underfold.
+
+You enter it through a fissure in the riverbed where the water itself seems to hesitate before pouring down. The light goes first. Then the sky. Then, eventually, your sense of which way is up. The entrance is a crack in the world no wider than a man's shoulders, and beyond it the rock opens like a mouth that has forgotten how to close.
+
+The Underfold is a city built into a ceiling.
+
+The stone of the cavern is hung with the world. Halls of worked granite jut downward in reverse-spire and pendant-tower, streets of basalt paving hang overhead like the underside of a floor, aqueducts of hollowed bone carry water that climbs rather than falls. The whole settlement drips from the rock in a long, deliberate stalactite-architecture — every building a stone tooth, every road a ribbed gutter, every plaza a shallow bowl turned skyward into the dark.
+
+To live here is to walk on the underside of everything.
+
+The people walk the chamber-floor — which is to say, the *ground* — and they look *up* to see the city. From below, the houses appear to be hanging, their doorframes pointing at the floor like the mouths of wells. One can see the bottoms of tables, the inverted thatch of roofs, the keel of a boat someone has lashed there for reasons no longer remembered. Smoke from cooking-fires rises — *rises* — and pools against the underside of an overhanging street, where the smoke-town lives, where the smoke-children play. The people of the Underfold do not look up often. They have learned not to. It makes the brain ache, and the eyes weep, and some say the gaze itself is a kind of falling.
+
+The rock is wet. Always. Water moves through the limestone in capillary threads and emerges everywhere — in beads on the walls, in sheets across the floor, in fine mists that hang in the air like a held breath. The light comes from nowhere and from everywhere, a sourceless dim, the way deep sea has light, the way eyes have light when the pressure is wrong. The wet stone shines. Everything shines. The whole world is slick and breathing.
+
+Sound is the thing the Underfold cannot get rid of.
+
+Drip. Drip. Drip — but louder, a thousand of them, a hammered tympany of water on stone that becomes, after a few minutes, not a sound but a floor — a *floor of noise* upon which every other sound must be set. There is the distant groan of the great aquifer overhead, the slow tectonic complaint of a continent resting its weight. There is the murmur of the settlement's feet, for there are many feet: the Underfold is dense, layered, its stacked-stone population pressing cheek to jowl in a vertical sociology. The sounds of hammers rise and fall as the masons, working by feel, chip new pendant-buildings from the ceiling-rock. The sound of children comes from very far above, where they play in the smoke-towns. The sound of arguments rises. The sound of bells — bronze bells, hung from spires that point downward — marks the hours in a carillon that falls upon the ears like a slow warm rain.
+
+The bells were hung in the first years, when the founders believed the Underfold would be temporary, a refuge from some war whose name has been forgotten. The bells were hung so that if anyone still lived on the surface, they might hear, and come, and call them home. No one has come. The bells ring anyway. The bells ring three times a day and the people do not mark them anymore except by the small shift in the sound-floor under their feet.
+
+The stone is old here. Older than the city. The Underfold was not built so much as *settled into* — a pre-existing limestone labyrinth that had spent ten million years doing what limestone does, which is to dissolve, which is to weep, which is to make caves of impossible beauty and then, slowly, fill them with new stone. When the first settlers came, carrying their hand-tools and their bell-bronze and their grief, they found the architecture already half-done. They finished it. They lived in it. They deepened it, hollowed new pendant-chambers, hung new streets, drilled new water-channels. But the bones of the place are old, and the bones are the kind of bones that have settled into their own skeleton. Nothing here is collapsing. Nothing here is growing. The Underfold has arrived at its own weight, and is content with it.
+
+The ecology is the ecology of mineral things.
+
+There is no green here, has never been, will never be. The ceiling is too far, the sun too remote, the wet too cold. What grows instead is the stone. Stalactites lengthen at the pace of a fingernail. Flowstone creeps down the worked walls and swallows tool-marks. Patches of cave-coral push from cracks like petrified lungs. In the deepest of the still-pools — black and still as obsidian — there live the pale eyeless things, the small white trembling things, the things that have been here longer than the bells. They are not many. They are not loud. The people of the Underfold eat them sometimes, when the mushroom-farms on the damp ledges run short, which is often. The pale things taste of nothing and of stone-water. They are boiled whole. They are not thought about.
+
+The people themselves are small and broad and brown-skinned, and they speak a language of many clicks, because clicks carry in wet stone, and the language has a special tense for things that are above you, which they use constantly, and another tense for things that will never move, which they use also constantly. They are not a melancholy people. They have lived here for nine generations and have ceased to wonder about the surface, the way a fish has ceased to wonder about the air. They make beautiful things, because humans always make beautiful things, even in the dark — small carvings of bone, tiny bells for the children's wrists, woven baskets of cave-grass that grows in phosphorescent threads along the deepest walls. The baskets glow faintly in the dimness. People hang them from their belts, and the children chase each other through the lower streets in trails of soft blue light, and the sound of their laughter rises into the upper dark and is absorbed by the wet stone, and is heard, perhaps, by the pale trembling things, who are not listening.
+
+The light does not change. The water does not stop. The sound does not fade. The Underfold is what it is. It has been what it is for so long that *is* and *has been* have folded into each other and become a single tense, which the people use for almost everything, and which the bells, ringing their threefold carillon into the unchanging air, also use, and which the water, dripping its patient syllables onto the worked stone, has always used, and will.
+
+Somewhere far overhead, beyond rock, beyond water, beyond the forgotten war, the sun rises and sets and the grass grows and the wind moves. None of that is the Underfold's concern. The Underfold hangs in its own long bell-note of a moment, and the moment does not end, and the people do not ask it to.
+
+Drip. Drip. Drip.

@@ -1,0 +1,19 @@
+# The Suspended Conservatory
+
+You enter through an airlock of brushed copper and reinforced glass, into a perfect sphere of warm water. This is the Suspended Conservatory, a cathedral-sized glass and metal bubble hanging from the side of a mountain cliff, accessible only by a single precarious tramway.
+
+The entire chamber—perhaps sixty meters in diameter—is completely flooded with mineral-rich water that gives everything a slight amber tint. The water is perfectly still and warm, maintaining a constant 28°C. Sound barely travels here; the specialized liquid medium absorbs acoustic vibrations, creating an environment of profound quiet broken only by the occasional ping of expanding metal or the distant hum of regulatory machinery.
+
+At the heart of this suspended aquatic world is an impossibly dense garden. Engineered plant life fills nearly every cubic centimeter, created specifically to thrive in this pressurized liquid environment. Translucent fronds unfurl in slow motion, their cellular structures visible through skin-thin membranes. Spiraling kelp variants climb intricate lattices of carbon composite, while bulbous polyp-plants pulse almost imperceptibly, exchanging gases through microscopic pores. The vegetation is not green but ranges from deep burgundy to phosphorescent blue, with veins of bioluminescent material threading through their vascular systems.
+
+The entire habitat is a triumph of industrial bioengineering. The glass bubble itself is reinforced with a geometric pattern of alloy struts, each housing different monitoring systems. Around the perimeter, conduits and pressure valves regulate the internal environment, occasionally releasing a trail of tiny bubbles that drift upward in perfect unison. Eight massive floodlights are embedded at strategic points, bathing everything in even, diffuse illumination that catches on the metal substructures and creates prismatic effects through the water.
+
+Despite being completely submerged, the Conservatory sits at an elevation of nearly 3,000 meters, attached to one of the sharp, newly-formed peaks of the Novus Range. Through the glass walls, you can see clouds drifting below and the jagged faces of surrounding mountains. Sometimes, fierce storms pass beneath while the Conservatory remains untouched, floating like a soap bubble above the turmoil.
+
+No fish or other creatures inhabit this liquid world. The dense vegetation is the sole form of life, meticulously engineered to fulfill specific functions within the closed system. Some plants process carbon dioxide, others generate oxygen, while still others extract and concentrate rare minerals from the specialized water.
+
+Maintenance robots—small copper spheres with extending tendrils—occasionally emerge from hidden compartments to prune back growth or repair minor damage. They move with deliberate slowness, as if time itself has been stretched within this strange aqueous chamber.
+
+Scattered throughout are observation platforms and control consoles, sealed in transparent domes of their own. The interfaces are a peculiar hybrid of digital screens and analog dials with engraved markings in a notation system that seems not quite standard. The purpose of the Conservatory remains unclear to visitors—is it research, preservation, or something more esoteric? The corporate logos etched into the primary supports have worn away, leaving only fragmentary clues.
+
+Everything in this bubble-world moves according to different physics—hair floats upward, movements are dampened and graceful, light bends along unusual trajectories through the mineral-rich medium. The entire environment seems designed for a purpose that remains tantalizingly obscure, a perfect synthesis of industrial precision and biological manipulation suspended impossibly between earth and sky.

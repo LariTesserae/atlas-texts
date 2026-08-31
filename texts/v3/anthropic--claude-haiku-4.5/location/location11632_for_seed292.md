@@ -1,0 +1,37 @@
+# The Shelf-Breaking
+
+The world here exists in a state of vertical catastrophe held in balance.
+
+You stand on the *Margent*—a precipice plateau at 3,400 meters, so vast it takes hours to cross and so fractured that you cannot see its far edge through the permanent mist. Behind you, the plateau climbs still higher in broken scarps, each tier darker, more eroded, more primordial. Ahead, the world drops.
+
+The drop is not clean. What was once a continental shelf has been unmade by time and water into a descending chaos of columnar formations—some the thickness of cathedrals, others needle-thin—carved by winds and something older than wind. These columns stand at angles now, leaning like the bones of giants who died long ago and slowly forgot how to stay vertical. The stone itself is ancient limestone, shot through with layers of flint-gray schist, so weathered that whole cliff faces have retreated into texture: honeycombed, scarred, pitted deep enough to swallow a person. The color is pearl-gray above, darkening downward into slate and then into tones that seem to absorb light rather than reflect it.
+
+But water.
+
+The water comes sideways. It is not rain, though it rains—a cool, relentless drizzle that never stops, that has not stopped, that will not stop. Rather, the ocean itself has learned to climb. Far below, a submerged valley (you cannot see its bottom; light drowns before reaching it) floods and drains in cycles you don't understand. When it floods, water presses upward through fissures in the Margent like the breathing of something vast. It finds the columnar valleys between the stone fingers and becomes a series of vertical rivers—not waterfalls, exactly, but upward-flowing torrents that spray mist hundreds of meters into the air. The mist collects in the hollows of the fractured terrain, pools in the thousands of micro-gorges carved into the shelf, and moves sideways in constant convection.
+
+Humidity here reads as another medium entirely. You breathe water as much as air.
+
+The vegetation has learned to live in this. Moss covers every surface that can be wet—and nearly every surface here can be wet. It grows in layered carpets, greens and blacks and sickly pallid whites, thick enough to pad your footsteps, thick enough that you can lose your footing in what appears to be solid stone. Under the moss, and alongside it, grows a low scrub vegetation: ferns with fronds like leather, some of them thick-stemmed and ancient-looking, unchanged for millennia. They don't grow tall—the wind won't allow it—but they grow *densely*, in mats, in crowded tangles, in every crack and sheltered cavity. Mushrooms and lichens, too. The stone itself becomes indistinguishable from the life covering it. The Margent is not a place of bare rock; it is a place where the distinction between geology and biology has worn smooth.
+
+The animals are small, many, and loud.
+
+Crustaceans of some kind—you see their carapaces gleaming in the permanent gloom, hundreds of them per square meter, crowding the moss, scuttling in herds across the stone. Their sound is the underlayer of everything: a chittering, a scratching, a susurrus of motion. Something larger moves through the fern-tangle—you catch glimpses, shapes that might be scaled, might be furred. Birds (or something bird-like) nest in the columnar formations above. Their cries are discordant, multiple octaves, haunting in the way they echo through the fractured stone. At night—when night is just a slight deepening of the permanent twilight—you hear things in the vertical rivers. Splashing. Singing, almost. The mist carries sound strangely; you cannot tell if the source is fifty meters away or five hundred.
+
+There are people here, scattered.
+
+They have built small structures where the columns create shelters: wind-breaks and rain-breaks made from lashed wood and canvas, some of them decades old, the fabric faded to the color of lichen. There are three permanent settlements that you know of, each serving as a base for industrial operations that seem, increasingly, to be failing. One is a quarrying site, where machinery—steam-powered, rusted despite the cold, somehow still functional—carves at the stone columns. The noise it makes is tremendous: mechanical screams layered over stone-sound. The workers here look weathered as the cliffs themselves. They pull a specific pale flint from the deeper strata; it commands prices elsewhere, though you've never learned why.
+
+The second settlement is a processing plant built partially *into* the Margent itself, using a natural cave system that the upwelling water fills and empties with regularity. The structure groans when the water rises and relaxes when it drains. It smells of minerals and something acidic. You're not sure what it's processing, or whether it's still running. Fewer workers camp near it each year.
+
+The third is smaller: a station where atmospheric samples are collected, where instruments of unclear purpose measure things and send the data elsewhere via cable. This place is quieter than the others, but more intentional. The people here—fewer of them, better equipped, more careful—seem to know exactly what they're doing, though they rarely explain it to visitors.
+
+The infrastructure between these places is thin. A few suspended bridges—cable and wooden slats—span some of the deeper gorges. Cargo routes follow the natural contours, marked by stone cairns that are themselves already half-buried in moss. A narrow-gauge rail line runs from the upper plateau down one of the old erosion channels, used sparingly. Everything is perpetually wet, perpetually corroding, perpetually in motion.
+
+The ground itself is unstable in a slow, patient way. Sections of the Margent shift. Not collapse—not usually—but settle. Fissures open and close over months. Water channels appear and disappear. The moss-covered surfaces are treacherous; beneath that padding, the footing is uncertain. People have learned to move carefully, to test the stone, to listen to it. The sound it makes when it's about to move—a deep, creaking sort of groan—is unmistakable once you've heard it.
+
+The temperature hovers just above freezing, sometimes below. The wind comes down from the higher reaches cold and damp. It carries sound upward and downward indiscriminately, creating acoustic layers where noise seems to bend. You might hear something clearly from across the Margent, then step closer and hear nothing but the rustling of ferns. The cold preserves things: wood, bone, plant matter. You find evidence everywhere of decades, centuries of occupation—objects half-buried in moss, tools rusted into abstract sculpture, fabric faded to paleontological lightness.
+
+There is a quality to the light here that seems final. Not harsh, but diminished—as if the sky is itself very old and has seen too much, has given up on brightness. The water in the mist refracts what little light exists into a kind of diffuse glow, everywhere and nowhere. You never cast a sharp shadow. At midday, when the mist thins slightly (it always thins slightly, then returns), you see the full columnar chaos stretching away in all directions: a forest of stone, all of it fractured, all of it old beyond human timescale, all of it being inexorably worn down into flatness—a process that has been ongoing for so long that the end-state seems ancient already, though it may take another million years to arrive.
+
+The Margent feels like a place that has already happened. You are walking through its conclusion.

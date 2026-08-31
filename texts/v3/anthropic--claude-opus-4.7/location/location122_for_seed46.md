@@ -1,0 +1,27 @@
+# The Kiln-Pocket
+
+It is a cavity. That is the first thing to say, and the hardest to hold onto, because the cavity does not feel like a cavity when you are inside it — it feels like a valley, a high valley, the kind that opens between shoulders of mountain where the air thins and the sun presses harder than it should. But there is no mountain around it. There is no outside. The pocket exists, and beyond its edges there is a soft refusal of the question.
+
+Call it a room, then. A hot room, high up in nothing, maybe eight hundred paces across, floored in raw mineral that has not yet decided what it wants to be. The ground is banded in rust-orange and pale sulfur and a greenish-black that sweats faintly where you press your palm to it. No weathering has touched these stones. Their edges are sharp in the way only new things are sharp — not freshly broken, but freshly *arrived*. As if the rock were still settling into the idea of being rock. In places you can see the banding flicker, very slowly, the colors trading positions over the course of an afternoon, like something is still drafting the geology.
+
+The heat is the kind that gets inside the sinuses. Dry. There is no water anywhere — no streams, no dew, not even the suggestion of humidity — and yet the plants are lush. This is the first wrongness you notice after the heat. Thick cycad-like growths, wide glossy fronds the color of old bronze, scattered at careful intervals across the mineral floor. Between them, tall spired things that might be horsetails if horsetails had been dreamt by a chemist — segmented stems the color of dried blood, topped with clusters of glass-bright bracts. They are spaced so generously that you can walk between them without brushing any; the place is sparse, uncrowded, each plant given a wide apron of bare stone.
+
+They do not drink. They run on something else. If you stand close to one of the bronze fronds you can hear it — a low, steady mechanical thrumming, almost subsonic, like a refrigerator compressor three rooms away. The plants are industrial. Somewhere inside the thick stems, something is turning. You can feel the faint pulse of reciprocation in the ground when you kneel. They are engines that have grown leaves, or leaves that have grown engines, and the distinction has lost its grip here.
+
+What do they make? Heat, partly — they are contributing to the oven-quality of the air. And a thin, shimmering exhaust that rises off the tallest of them in visible columns and disappears upward into the unresolved ceiling of the pocket. And something else, something harder to name: a sense that the air near them has more *decidedness* to it, as if reality is more committed in their vicinity. Walk between two cycads and you feel briefly more real. Walk into the open stone and you feel the place thinking about you with less certainty.
+
+There are no animals. There have never been animals here. The plant-engines do not seem to need pollinators; whatever they are doing, they are doing alone, and the silence between their soft thrummings is vast. You can hear your own blood. You can hear, occasionally, a ticking from deep under the stone — the sound of minerals still crystallizing, committing to their lattices. A slow place. Things happen here on the timescale of cooling magma, of vegetation that might take a century to unfurl one new frond.
+
+The light is ordinary. That is perhaps the strangest thing. It falls at the angle of a late afternoon in a temperate country, warm and long, casting proper shadows from the bronze fronds across the banded floor. But there is no sun. Look up and the light simply *is* up there, in a sky that declines to resolve into either blue or ceiling. The shadows know where the sun would be if there were one, and they agree among themselves, and that agreement is the only source of the sun's existence.
+
+At the edges of the pocket — if you walk toward them — the ground does not end so much as grow *tentative*. The mineral bands become suggestions of bands. A cycad at the periphery has fronds on its inner side and, on its outer side, the memory of fronds, a kind of visual stutter where leaves are being considered. Past that, a softness. You cannot go further, not because anything stops you, but because there is less and less of you the further you press, and at some point the walking stops being done by anyone.
+
+The rules, so far as they can be stated:
+
+Water is not permitted, but lushness is. The plants have found another way and the place honors it.
+
+Nothing here erodes. Nothing wears. The stones are young and will remain young; the fronds do not brown at their tips. Time passes — you can feel it passing, in the slow ticking underground and the patient thrum of the engines — but it passes without consuming.
+
+The pocket is small and will stay small. It is not growing toward anything. It is not a seed of a larger world. It is a held breath, a kiln with something curing inside it, and whatever is curing is in no hurry, and may in fact be the place itself, slowly deciding to exist.
+
+If you sit long enough on the warm banded stone, between two thrumming bronze cycads, and let the dry heat work into your shoulders, you begin to suspect that you are one of the things being cured. That the pocket is patient with you. That somewhere, on some timescale you cannot access, a decision is being made about whether you, too, will be allowed to finish arriving.

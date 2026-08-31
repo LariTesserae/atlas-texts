@@ -1,0 +1,67 @@
+# The Roost at Kethane Ridge
+
+---
+
+You come to it by climbing—always by climbing—up a slope of basalt scree that has been worn into soft rounds over centuries, each stone the size of a fist or a skull, dark and warm to the touch even through gloves. The heat comes from below. Not from sun. There is almost no light here. The sky is a low iron overcast, or perhaps not a sky at all but the underside of something—a geological shelf, a planetary canopy of mineral cloud—that radiates a dull warmth downward and permits no stars, no moons, no visible source of illumination. What light exists is biological. And it moves.
+
+The ridge itself is a narrow formation, perhaps two hundred meters long and sixty wide at its broadest point, a shelf of compressed volcanic rock jutting from the side of a much larger massif that disappears into darkness both above and below. The elevation is considerable. You can feel it in the thinness of the air, which is hot and dry and faintly sulfurous, the kind of atmosphere that desiccates the membranes of your throat with each breath. There is no water. Not a seep, not condensation, not a mineral spring. The rock is powder-dry in its crevices and warm like a body.
+
+And the ridge is full.
+
+---
+
+Full is not the right word. The ridge is *saturated*. Every surface, every crack, every hollow and ledge and wind-scooped depression is occupied by living things, and the living things are occupied by other living things, and those in turn by others. It is a single compressed ecosystem stacked upon itself in the dark, generating its own faint light, its own heat differential, its own chemistry.
+
+Start with the largest. The **vethryn**—that is not their name; they have no name; but the shape of them demands a word with weight. They are between a large dog and a small horse in mass, though their bodies are nothing like either. Six-limbed, low-slung, their torsos broad and flat as tables, covered in a hide that is not skin but something closer toiteiteite—closer toite—closer to mineral felt, a dense nap of fibers that are half keratin and halfite somethingiteiteite crystalline.Ite. The hide is dark, nearly black, and it absorbs what little ambient light reaches the ridge. But along their flanks and the undersides of their wide, splayed feet, bioluminescent organs pulse in slow, rolling waves of deep amber and burnt orange. Forty or fifty of them crowd the ridge. They lie pressed against each other in overlapping ranks, their flat bodies creating a living floor, a second surface atop the stone. When one shifts, it pushes against its neighbors, and a slow ripple propagates outward through the mass. They breathe in audible unison—a low, bellows-like compression, almost subsonic. This is the dominant sound of the place: a tidal breath that is not quite heard but felt in the sternum.
+
+They are not sleeping. Their eyes—four per animal, arranged in a shallow arc across a face that is more like a front edge than a head—remain open. The eyes are reflective, tapetal, and when you catch them at the right angle they throw back green-gold coins of light. They are watching everything. They are watching each other, and the things that live on them, and the things that live in the gaps between them.
+
+---
+
+In those gaps—in every crevice between vethryn bodies, in the warm channels where flank meets flank—the **lesser fauna** is beyond counting.
+
+There are creatures like elongated hands, five-fingered, pale, that creep slowly across the vethryn hides, feeding on the crystalline fibers. They harvest them with sideways motions of their finger-tips, which are serrated. Hundreds of them. They leave faint trails of exposed under-hide, darker and slightly luminous, which the vethryn seem to tolerate or perhaps require—a grooming symbiosis. The hand-creatures are in turn host to smaller organisms: clusters of bead-like things, strung along their dorsal ridges, that swell and contract rhythmically and may be parasites or may be reproductive bodies or may be sense organs belonging to something else entirely, some distributed creature whose full body-plan you cannot identify from what is visible.
+
+Between the vethryn legs—those six thick limbs folded beneath them—dart faster things. Quick, angular, built like origami wasps but the size of mice. They are not insects. They have internal skeletons; you can see the joints articulate with vertebrate precision. But they fold and unfold themselves as they move, compressing to slide through the tightest spaces, then expanding into a wider, more aggressive configuration when they encounter each other. Brief displays. Mandible-analogues flared. A faint crackling sound, almost electric, produced by some unknown mechanism—one of the few sharp sounds on the ridge. These confrontations last two or three seconds before one or both parties refolds and darts away.
+
+On the rock itself, in the rare patches not covered by vethryn, the surface crawls. Not with individual organisms but with something like a living mineral crust—a dense biofilm, or perhaps a colonial organism, dark purple-brown, slightly raised, textured like lichen but mobile. It advances and retreats in slow tides, responding to the pressure of the vethryn bodies above it. Where a vethryn shifts and exposes a patch of stone, the crust surges inward. When the vethryn settles back, it compresses but does not die. It may be the oldest thing on the ridge. It may be the foundation of everything else. It has a smell: dry, metallic, faintly sweet, like old blood and hot quartz.
+
+---
+
+And above. Look up—carefully, because the dark is thick and what you see will arrive in fragments.
+
+The air above the ridge is not empty. It is *inhabited*. Flying things—no, not flying. Drifting. Buoyant. They are gas-filled, translucent, shaped like elongated teardrops or deflated bells, ranging from the size of a human hand to the size of a large pillow. They float in the hot updraft that the ridge and its living cargo generate, rising and sinking in slow convective cycles. Their skins are membranes stretched over cartilaginous frames, and through those membranes you can see the dim shapes of internal organs, dark against the faint amber glow from below. They trail filaments. Long, thin, almost invisible threads that drape down onto the vethryn and the hand-creatures and the crust, and these filaments are sticky, or perhaps absorptive—where they touch the living surfaces below, they adhere briefly, then release, and when they retract they carry something. Nutrients. Shed cells. Crystalline fiber-dust. The drifters feed without landing, without effort, without sound. There are dozens of them overhead, and they bump against each other constantly in the congested air column, rebounding softly, their membranes dimpling and restoring. No aggression. No reaction at all. They are too simple for conflict, or too patient.
+
+Among the drifters, rarer and more purposeful, move the **shard-hunters**. These are true flyers—winged, fast, angular. They are dark-bodied and their wings are stiff, more like fins than feathers or membranes, vibrating at high frequency with a faint hum that is the only airborne sound. They are predators. They strike the drifters from above, puncturing them with a single sharp appendage, riding them down as they deflate, consuming something from the collapsing interior before releasing the spent membrane to fall onto the ridge below. The vethryn do not react to the falling membranes. The crust absorbs them within minutes. Nothing is wasted. Nothing leaves.
+
+---
+
+Now the built things.
+
+There are remnants on the ridge that are not biological. Near the eastern edge—if direction has meaning here, in this lightless vertical world; call it the edge closest to the massif—a few stones have been placed with intention. Not recently. They are weathered to the same roundness as the scree, but their arrangement is deliberate: a rough arc, waist-high, enclosing a space just large enough for a body to sit in. The vethryn avoid this arc. Their living floor stops a hand's breadth from the placed stones, leaving a crescent of exposed crust. Inside the arc, three flat stones are stacked. They could be a seat. They could be an altar. They could be a simple territorial marker left by something that once climbed here and understood the ridge as a place worth marking.
+
+On two of the stones, faint scratches. Not language—or not any recognizable language. Tally marks, perhaps. Or claw-sharpening grooves. Or the meaningless weathering of time made to look purposeful by the human need for pattern. The scratches are deep enough to have survived the long erosion that softened every other edge on the ridge. Whatever made them pressed hard.
+
+Farther along, near the point where the ridge narrows to a blade and drops away into nothing, a single upright stone stands wedged into a crack. It is darker than the basalt around it—an import, a carried thing, dense and fine-grained. Obsidian, maybe, or something analogous. It has been shaped. One edge is worked to a bevel, though no longer sharp. A tool or a marker. It leans slightly leeward, and a vethryn has pressed its flank against the base, and the hand-creatures are already colonizing its surface, leaving their faint grooming-trails up the worked stone as if it were hide.
+
+Who placed these things is unknowable. They were placed a long time ago. The ridge has absorbed them into its ecosystem the way the crust absorbs the fallen membranes of the drifters. Purposeful once, material now.
+
+---
+
+The dynamics of this place are not seasonal—there are no seasons in the perpetual dark, in the geothermal constancy. The dynamics are instead **respiratory**. The ridge breathes. The vethryn shift in slow migratory waves, those at the edges moving inward, those at the center pressing outward, a circulation pattern that takes hours to complete and ensures that no individual animal is permanently at the exposed periphery. As they move, the crust beneath them is alternately compressed and released, and in its released state it undergoes a rapid phase of activity—expanding, thickening, throwing up tiny fruiting-body structures (not plant, not fungus, something else: mineral-organic hybrids, tiny spires of crystallized protein that glitter faintly in the bioluminescence before being consumed by the hand-creatures or crushed under returning vethryn weight).
+
+The shard-hunters follow their own cycle. They arrive in small groups from the darkness beyond the ridge, hunt the drifter column for an hour or two, then depart. When they are present, the drifters sink lower, pressing closer to the vethryn, and the filaments trail more densely, and the hand-creatures retract their fingers, and the whole ridge seems to clench. When the hunters leave, a slow exhalation—the drifters rise, the hand-creatures extend, the vethryn settle more loosely, and the gaps between bodies widen by a centimeter or two, and the crust surges, and the tiny spires grow, and for a little while the ambient light increases slightly as more bioluminescent flank-skin is exposed.
+
+This is the pulse of the ridge. Tension and release. Predator-presence and predator-absence. The whole living mass responding as a single organism to a stimulus, though it is not a single organism—it is dozens of species, hundreds of relationships, thousands of individual bodies packed into a space the size of a large building, all reacting to the same pressures and finding, in their reaction, a temporary and imperfect unity.
+
+---
+
+It is not silent. But it is *quiet*. The bellows-breath of the vethryn. The faint electric crackle of the origami-creatures. The nearly inaudible hum of the shard-hunters' wings. Occasionally, a sound like tearing fabric when a drifter is punctured. Occasionally, a deep, resonant *tok*—stone on stone—when a vethryn shifts its weight and displaces a piece of scree that tumbles off the edge into the dark below. You wait for it to land. It doesn't. Or if it does, the distance swallows the sound.
+
+And beneath everything, felt more than heard, the sub-bass vibration of the massif itself. Geothermal. Tectonic. The planet's deep heat working its way upward through kilometers of rock, arriving here as warmth and as a vibration too low for conscious perception but present in the way your teeth feel slightly loose, the way your vision seems to tremble at the edges.
+
+---
+
+Stand in the stone arc, if you can reach it. Let the vethryn watch you with their four-eyed, edge-of-face gaze. Feel the heat rising from below and the dull warmth pressing down from above. Watch the drifters bump against each other in their slow, purposeless convection. Watch the hand-creatures work their patient way across the crystalline hides. Watch the crust advance and retreat, advance and retreat, the oldest rhythm on the ridge.
+
+This place has been here a long time. It is weathered into itself. The stone is rounded, the ecosystem is tuned, the relationships are old. Nothing here is new except the things that die and are replaced by things identical to them. The ridge does not grow or shrink. It holds. It persists, in the dark, in the heat, packed tight with life that has nowhere else to go and no reason to leave, breathing together on a shelf of warm rock high above an abyss that has no bottom anyone has found.

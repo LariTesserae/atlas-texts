@@ -1,0 +1,11 @@
+You are standing—if you can call being braced against a vibrating, slick alloy grate "standing"—within the Great Sump of the Upper Spire.
+
+It is a pocket-environment, a hidden, circular chamber nestled deep within the structural housing of a planetary-scale industrial monolith. It is entirely artificial, its "floor" a grid of interlocking, high-tensile steel plates that have never touched ground.
+
+The sound is absolute. It is a deafening, rhythmic thrumming—a mechanical roar that vibrates through the soles of your boots and settles deep into your marrow. It is the sound of massive, piston-driven cooling pumps operating somewhere behind the seamless, seamless-welded bulkheads that hem you in. The air does not move in a breeze; it pulses in sync with the machinery, a pressurized, synthetic respiration that feels like the heavy, wet breath of a giant.
+
+The environment is saturated with moisture, though there is no rain. The atmosphere is perpetually condensing. Water bleeds from the ceiling seams in erratic, heavy droplets, turning the black, brushed-metal walls into weeping surfaces of silvered oil and distilled condensation. Every surface is slick, filmed with a thin, frigid layer of recirculated vapor. Because the elevation is so extreme—you are miles above the planet’s crust—the air here is thin, recycled, and bitingly cool.
+
+There is almost no vegetation. What little life exists here is accidental and pale: clinging, lichen-like patches of white, calcified mineral buildup that sprout in the corners where the vibration is less intense. These are not plants; they are chemical efflorescences, brittle and sparse, blooming from the stress-cracks in the plating where hot coolant meets the cold, exterior-facing hull.
+
+The terrain is remarkably young and sharp. The metal panels have not been weathered by time, only by the violent, incessant vibration of the facility. The joints are lethal, etched with razor-fine precision. There are no smooth corners here; everything is an angle, a pipe, a bracket, or a drain

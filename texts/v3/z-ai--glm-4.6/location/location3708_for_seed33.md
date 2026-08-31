@@ -1,0 +1,27 @@
+The sky here is not a dome but a compression, a heavy, slate-grey lid pressing down on the world, lit by a diffuse, bruised luminescence that offers no shadows and casts no glare. It is a cool, thin place, the kind of cold that does not bite but rather slowly extracts the heat from your bones, leaving you sluggish and crystalline.
+
+This is the High Geometry, the Spire-Lands.
+
+You stand on a platform of smoothed, grey stone that stretches outward until the curvature of the world—or the failure of your eyes to parse distance—hides the edges. It is an extreme elevation, a summit that exists without a base. There are no foothills, no slopes leading up to this height; the land simply begins at the clouds. The air is dangerously thin, hypoxic and sharp, tasting of ozone and dust.
+
+There is no water here. Not in liquid form, not in ice, not even in the air. It is an absolute desiccation (0.2). The concept of wetness is absent, replaced by a pervasive dry granularity. The ground is covered in a fine, silicate powder that feels like static electricity against the skin. To spit is to create a fossil; moisture is a crime against the local physics.
+
+The terrain is undeniably urban (2.1), yet it possesses a terrifyingly low technological quotient (0.1). There are no circuits, no glass, no metal rivets. The "city" is composed entirely of megolithic stone structures, ziggurats and causeways carved directly from the bedrock of the plateau. They look as though they were grown rather than built, the stone extruded in vast, impossible geometric shapes—hexagonal shafts the size of skyscrapers, staircases that spiral into nothingness, plazas large enough to hold armies that have never existed. The construction is purely geological, organized on a sub-city scale but devoid of artifact or tool-mark. It is a ruin of a civilization that never discovered the wheel, only the mathematics of stone.
+
+Silence (0.3) is the dominant sensory input. It is not the peaceful silence of a library, but the heavy, expectant silence of a vacuum. The wind, which must exist at this height, makes no sound against the aerodynamic lines of the stone towers; it merely slides over them, leaving trails of dust that hang suspended in the air for hours, defying gravity.
+
+This emptiness (0.2) is profound. The density of the built environment suggests millions, yet you are utterly alone. The scale of the architecture (2.5) dwarfs the human frame. Doorways, if they can be called that, are fifty feet high. Streets are vast canyons of polished basalt. It is a landscape designed for giants who have long since evaporated, or perhaps for something that was never biological to begin with.
+
+Vegetation (0.5) is non-existent. No moss clings to the stone; no lichen stains the grey. Occasional, strange growths occur—mineral accretions that resemble branching lightning or frozen smoke, protruding from the corners of the masonry. They are sharp, glass-like clusters of crystal that humming with a faint, sub-aural vibration.
+
+And this is where the world begins to break.
+
+The weirdness (2.9) is subtle at first, then aggressive. The erosion here (2.1) is established and weathered, suggesting age, but that age is contradictory. You see a statue that is worn smooth by millennia of wind, yet next to it lies a structure that looks unfinished, its raw extrusion fresh against the sky. Time here is not a river; it is a pooling static.
+
+The reality breakdown is most evident in the depth perception. As you walk the long, empty avenues, the distance between objects fluctuates without motion. You look toward a distant monolith, blink, and find it has snapped to within ten yards of your face, its texture suddenly granular and clear. Turn your head, and the horizon stretches away to an infinite, fractal vanishing point. The geometry is non-Euclidean; the angles of the stone corners do not add up to 360 degrees if you measure them carefully with your eye.
+
+Despite the silence and the stillness, the environment is dynamic (2.5). The city is breathing. Not with lungs, but with structure. Slowly, incrementally, the vast stone blocks are shifting. A massive wall will grind forward an inch over the course of an hour, the movement silent, dustless, driven by tectonic muscles deep within the plateau. Staircases unspool from the sides of towers like ribbons. The "active" element is the landscape itself rearranging its empty furniture, a vast, geological shuffling in the dark. It is a slow-motion dance of erosion and erection, a perpetual cycle of the world building and unbuilding itself in real-time.
+
+Fauna (1.4) is rare, solitary, and terrifying. Occasionally, you see something moving in the periphery—a silhouette against the dim light. It moves with a jerky, stop-motion speed, as if it is deleting its own position in space and pasting it a few feet forward. These are not predators in the biological sense; they are scavengers of order. They look like spindly, tripods of wrought iron, picking at the mineral crystals. When they sense you watching, they snap out of existence, leaving only a visual afterimage that lingers on the retina like a sunspot.
+
+This is a place of perfect, hollow logic. A waterless, treeless city at the top of the world, endlessly rebuilding itself in the dark, following rules of geometry that have not yet been invented. To be here is to be a ghost haunting a machine that has forgotten its purpose, trapped in a gallery of stone that is too big, too empty, and too awake.

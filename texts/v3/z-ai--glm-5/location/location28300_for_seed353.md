@@ -1,0 +1,57 @@
+# The Charcoal Canopy
+
+The first thing is the heat. It comes from everywhere and nowhere—no sun, no visible source, just the thick wet weight of it pressing against the skin like a hand that has been resting there for a thousand years. The air tastes of carbon and sweetness, of sugars caramelizing in the dark.
+
+---
+
+This is a place that has never known rain.
+
+Not once in its geological memory has water fallen from above or risen from below. What passes for precipitation here is a fine particulate drift—spores and ash intermingling, settling on every surface like snow that will never melt. The substrate beneath your feet, if you could call it that, is chitin-laminated cellulose packed to a depth of meters: compressed mycelial mats, lignin scaffolds, the remains of generations of growth that died standing and were consumed from within by their own daughters. You walk on the bodies of the thing that surrounds you, and the thing does not mind. It does not notice. It is too busy.
+
+For this is not a forest. A forest has spaces between trees, has clearing and meadow and the gap where light falls through. Here there is no gap. Here the plant has become the place—has become the architecture, the industry, the ground and the wall and the ceiling and the duct and the vessel. There is no "between." The vegetal mass fills the cavity from floor to the vault overhead, and what cavity remains exists only because the growth has not yet reached it, or because something inside the growth is hollowing channels for a purpose you cannot guess.
+
+The ceiling—if ceiling is the word—is not visible. You know it exists because the heat reflects back from it, because sometimes a faint bioluminescent pulse travels across it like slow lightning in a trapped sky, illuminating for a half-second the vast corrugation of interlocked bark and engineered vine. The pulses come at irregular intervals, and they reveal always the same topology: an inverted landscape of buttressed trunks fused into a continuous membrane, studded with the puckered mouths of pneumatophores breathing out warm gases, draped with the fibrous cables of structural lianas thick as a torso. The light is rust-red, almost black, and it does not reach the ground. It exists only to confirm the darkness.
+
+---
+
+The heat, you begin to understand, is metabolic.
+
+Somewhere in the mass—in a hundred thousand places in the mass—exothermic reactions are running. Not the slow cool combustion of ordinary respiration, but something faster, something scaled up, industrial. You can feel it when you press a palm against a trunk: the wood is warm, almost hot, and inside there is a vibration. Not a hum—nothing so regular. A fibrillation. A flutter. As if the heart of the thing is not one heart but millions, and they are not synchronized, and the resulting rhythm is complex beyond hearing.
+
+This is the industry.
+
+Deep in the tissue of the Canopy—workers have tunneled into it, or the Canopy has grown chambers for them, or both—there are vats. Not chambers of wood, exactly, but hollows lined with a waxy cuticle that glistens in the dark with something that is not water. The fluid inside is amber, viscous, heated to eighty degrees or more. It bubbles. It bubbles constantly. The bubbles rise and burst and release a vapor that is immediately absorbed by the surrounding tissue, and the tissue swells slightly and contracts slightly and the process feeds itself. The vats are fixed in rows. They are arranged. They are not random growths but *designed* vessels, and the fluid they contain is being processed—fermented, distilled, cracked—into the compounds the Canopy needs to build more of itself.
+
+You find pipes. Not metal, no—cellulose extruded as hollow tubes, wound with reinforcing fibers, carrying pressurized sap from the vats to the extremities of the growth. The sap moves audibly if you press your ear to the pipe: a low organic throb, the sound of circulation on a scale that makes the body feel very small. The pipes join and split and join again in manifolds that look like the intersections of some vast logic diagram, some circuit board rendered in wood and living membrane. There are valves. Some are open. Some are closed. Some cycle open and closed on rhythms measured in hours, in days, in the slowest breaths of the Canopy's deep time.
+
+---
+
+There are no animals here. No insects, no birds, no vermin in the walls. The Canopy does not need them. What pollination exists is done by air currents through the ductwork, by the designed oscillation of stamens that release their load when the temperature in a chamber reaches a specific threshold. What decomposition exists is autogenous—the dying tissue is invaded not by foreign agents but by its own parenchymal cells, which switch function upon some chemical signal, becoming saprophytic, consuming their neighbors, recycling their own architecture. The Canopy is self-contained. It eats itself in measured portions and builds itself in measured portions and the total mass never increases and never decreases because it has reached its terminal state.
+
+It is ancient.
+
+Not in the way of a bristlecone pine standing on a mountainside, ancient in solitude. Ancient in the way of a coral reef, each layer built upon the skeletons of the last, the total structure recording in its strata a history so long it has no beginning that matters. The lowest levels—far below where you walk, far below the compressed remnants of the first growths—are mineralized. Lignite. Jet. The plant matter has become coal under the weight of itself, and the coal is being mined by the living plant above it, bored into by specialized roots that extract the carbon and reincorporate it into the active biomass. The Canopy is eating its own dead. It is eating its own geological record. It has been doing this for so long that the distinction between living and fossil has collapsed into a continuous metabolic loop, a snake eating its tail, a system in final equilibrium.
+
+And yet it is not still. It is not calm. The equilibrium is dynamic—must be dynamic, because the alternative is true death, and the Canopy is not dead. It is the opposite of dead. It is the most alive thing you have ever encountered, alive in the way a factory is alive, alive in the way a city is alive, alive in the way a process is alive. Every surface is doing something. Every surface is a surface of work.
+
+---
+
+You walk for what feels like hours and the landscape does not change because there is no landscape. There is only the interior of the thing. The passages slope—sometimes up, sometimes down—and you realize you are moving through a structure built on the sides of a vast depression, a caldera or a basin, now completely colonized. The original geology is buried beneath kilometers of accumulated growth. The elevation is real; you can feel it in the pressure behind your eardrums, in the thinness of the air. But the ground is not ground. The ground is the Canopy, and the Canopy is the ground, and if you dig—if you could dig—you would find only more Canopy, layer on layer, younger tissue on older tissue on ancient tissue on mineralized ghost, all the way down to whatever rock was here before the plant came.
+
+There was a before. The architecture proves it. No natural growth arranges itself in aisles. No forest builds vats in rows or lays pipes in manifolds or cycles valves on schedules. Something designed this. Something built the original infrastructure, set the initial growth patterns, encoded the logic of the industrial processes into the genome of the founding organism. But that something is gone. The builder is extinct, or departed, or was consumed by its own creation in the early centuries and has been recycled so thoroughly that not even a bone remains in the coal. The Canopy does not remember its maker. It does not need to. The instructions are in every cell, and the cells execute them without cognition, without memory, without purpose, and the result is this: a cathedral of process, a continent-sized engine of growth and processing and growth, running hot in the dark, running quiet in the dark, running.
+
+---
+
+The quiet is the strangest thing.
+
+All of this activity—the bubbling of vats, the pressurized surge of sap, the fibrillation of metabolic heat, the cycling of valves, the slow expansion and contraction of the tissue as it processes and builds and processes—should be loud. It should be deafening. But the sound is absorbed. The cellulose walls are thick, the air is dense with vapor and spore, and the geometry of the passages bounces and deadens whatever acoustic energy is generated. You hear only what is near you: the creak of your own footsteps on the laminated floor, the faint tick of your own pulse in your ears, and beneath it, always, the subsonic pressure of the Canopy's respiration. Not a sound, exactly. A presence. A vibration in the chest that tells you the thing around you is breathing.
+
+Sometimes a distant section groans. A structural member settling under centuries of accumulated load, or a pipe expanding as a surge of hot sap passes through it. The groan travels through the wood like a voice, and for a moment you can hear the size of the place—a size that extends far beyond your immediate passage, beyond your comprehension, into passages and chambers and vats and manifolds that you will never see, that may be kilometers away, that may be processing and building and processing still, in the dark, in the heat, in the unending quiet industry of the thing that has replaced the world with itself.
+
+---
+
+You find a junction where three main corridors meet, and in the center of the junction there is a pillar thicker than the others, and the pillar is split, and from the split a faint light emerges. Not the rust-red bioluminescence of the ceiling but something whiter, something hotter. You approach and you see that inside the pillar there is a cavity, and inside the cavity there is combustion. Actual fire—a contained flame, fed by gases venting from a mineral seam deep below, maintained by the engineered geometry of the cavity, which draws air in at the base and exhausts it through the split at the top. The Canopy has built a furnace. The Canopy has captured a volcanic vent and shaped it and is using the heat to drive some process you cannot see—some distillation, some chemical transformation happening in the pipes that converge on this point from every direction.
+
+The flame is small, no larger than a hand, but it is the brightest light in this place and it illuminates the walls of the junction and you see: the walls are carved. Not by the Canopy—by something else, something older. Grooves in the lignified surface, patterns that might be script or might be decoration or might be the tool marks of the builders who set this thing in motion eons ago. The Canopy has grown over most of it, but here around the furnace the heat has kept the growth back, and the marks are visible. You cannot read them. You do not know what they say. But you understand, suddenly, that this place was not always silent, was not always empty of animals, was not always a sealed system running on internal logic alone. There were builders here once, and they built a plant, and the plant outgrew them, and the plant consumed them, and the plant forgot them, and now the plant is all that remains.
+
+The flame flickers. The Canopy breathes. The heat goes on.

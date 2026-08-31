@@ -1,0 +1,31 @@
+# The Drowned Quarter
+
+Begin with the water. Begin always with the water, because here the water is the medium through which everything else is known. It is warm — not the cold black of true abyss but something closer to blood temperature, a held breath of a sea. You can feel it on your skin (if you have skin here) as a softness, almost a thickness. Salt, but not much. Something mineral and old underneath the salt, like the taste of a copper coin held too long in the mouth.
+
+There is almost no light. What light exists comes from the creatures.
+
+The city was a city once. That is the first thing to understand. Long enough ago that the question of *when* has stopped mattering — the corals have made the answer for themselves. The streets are still streets, in the sense that they run between things, but they run between coral-furred towers now, between archways grown thick and bulbous with the slow architecture of polyps. Stone has become substrate. Doorways have become the openings of caves. The geometry of human intention — right angles, repeating windows, the proud verticality of a tower — is still legible underneath, but only just, the way a sentence is legible after being copied a thousand times by hand.
+
+The erosion is settled. That's important. This isn't a place mid-collapse; it's a place that has finished collapsing and discovered, on the far side, a second life. Nothing here is falling further. Everything has reached the shape it was going to take.
+
+The towers lean. Most of them lean slightly toward one another, as though in conversation, and where their tops nearly meet — fifty, sixty feet above the silted streets — the coral has bridged the gaps. There are arches now that no architect built. There are passages overhead where small fish move in slow ribbons, a thousand of them, twisting through the dark like a single thinking thing.
+
+The density is the city's density, but layered with the density of the reef. Every surface is occupied. Every crevice has a tenant. A doorway holds an octopus the color of old bronze, and the octopus holds a hermit crab in one curious arm, and the hermit crab's shell holds a small anemone, and the anemone holds, in its slow tentacles, a shrimp barely larger than an eyelash. The shrimp holds nothing. The shrimp is the end of that particular sentence.
+
+It is quiet. People imagine the sea as roaring, but down here at this depth, in this drowned town, sound is mostly the sound of your own attention. The click of a distant claw. The soft *whuff* of a larger body moving water somewhere down a side street. The constant low thrum that might be current or might be something the city itself is doing, breathing through its hollow stone lungs.
+
+Vegetation is sparse. There are some long ribbons of a dark weed that grows from the windowsills, swaying in slow synchrony, but nothing forested, nothing thick. Plants want light, and there is almost none here. What does the work of plants is done instead by the corals and the things that live in symbiosis with them, drawing energy from chemistry rather than from sun. The cycle here runs on minerals seeping up from below, and on the slow rain of dead things from above.
+
+The slow rain. That is one of the things you notice once you've been here a while. Marine snow — flecks of organic matter drifting down from the lit world far above — passes through the streets continuously. Particles catch on the coral, on the algae-fur of statues, on the upturned faces of stone saints whose features have been softened to suggestions. It looks, if you let yourself see it that way, like the city is in a permanent, gentle, downward snowfall. The smaller fish feed on it. The filter-feeders feed on it. Nothing is wasted.
+
+Now — the unusual thing. Because there is one.
+
+The towers are not, all of them, oriented to gravity. Most are. But a handful — perhaps one in twenty — lean *upward* at an angle that gravity does not explain, as though they were drawn toward something above the water and froze partway through the reaching. The coral on these towers grows differently: in spiraling helices instead of the usual lobes and shelves. The fauna avoids them, mostly. When a current shifts, you can sometimes hear, from inside these particular towers, a sound like a very large bell being struck once, very softly, in a room two rooms away. No one rings it. It rings on its own schedule, which is not regular but is not random either. The fish know to be elsewhere when it happens.
+
+The ecology is busy. A moray as long as a man threads itself through what used to be a colonnade. Something with too many fins for its body grazes the algae on a fallen pediment. A school of silver fish enters a window on the third story of a building and exits a window on the fifth, having found whatever they needed in between. Predators work the alleys at the pace predators work. A grouper the size of a barrel hangs motionless in a doorway, considering. Considers for a long time. Eventually moves on.
+
+There are no people. There have been no people for a very long time. But the city, in some sense, is more populated now than it was when it was a city — there are simply more lives per cubic meter, more attentions, more small decisions being made every second. The drowning was not an ending. It was a handover.
+
+If you stay long enough — if you let the warmth and the dark and the slow rain settle into you — you start to understand the rules. Move slowly. Trust the schools, which know currents before currents arrive. Don't enter the spiral towers. When something larger than you passes, hold still and become a feature of the architecture for a moment; the city is full of features, one more will not be noticed.
+
+And listen for the bell. Not because it threatens anything. Just because, in a place this quiet, it is the closest thing to a voice, and a voice in a drowned city is worth attending to, whatever it is trying to say, whoever or whatever is — across some distance the water has not yet measured — still ringing it.

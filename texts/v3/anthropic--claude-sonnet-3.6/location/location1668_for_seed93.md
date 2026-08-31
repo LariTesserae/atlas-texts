@@ -1,0 +1,17 @@
+Liquid glass flows upward here, defying gravity in ribbons that move with the patience of centuries. The streams emerge from scattered wells - perfect circular holes in the red clay earth - and weave through the dense vegetation before dissipating into a fine mist high above. The glass carries a slight pink tinge, reflecting both the clay below and the perpetual sunset that hangs frozen in the sky.
+
+The vegetation grows in impossible geometries, forming Fibonacci spirals that extend for miles. Ferns unfold into fractal patterns that repeat at increasingly large scales, their deep green fronds housing smaller versions of themselves, which house yet smaller versions, continuing far past what should be visible to the naked eye. The plants seem to pulse with their own inner light, a subtle throb that matches the deep bass resonance emanating from the glass wells.
+
+Scattered throughout this geometric garden are the remains of what appears to be an industrial complex. Rust-streaked towers lean at physically impossible angles, their tops disappearing into the mist where the liquid glass disperses. Conveyor belts spiral between the towers, their metal surfaces overgrown with the mathematical ferns, but they still rumble occasionally - moving nothing, their purpose long forgotten.
+
+The air is warm and heavy with moisture, though it never quite rains. Instead, droplets form in mid-air and hang suspended, refracting the endless sunset into prismatic displays. These droplets sometimes coalesce into temporary streams that flow horizontally before dissolving again.
+
+The few animals here don't seem quite real - they flicker at the edges of vision, their forms suggesting familiar creatures but never quite resolving into anything recognizable. Their calls echo with metallic overtones, as if filtered through the machinery that still hums in the towers.
+
+At random intervals, portions of the landscape fold in on themselves like paper, revealing glimpses of other versions of this same place - some where the glass flows downward instead of up, others where the ferns grow in different dimensions, still others where the industrial ruins stand pristine and new. These folds smooth themselves out after a few moments, but their frequency is increasing, slowly but noticeably.
+
+The ground itself seems uncertain of its nature. In some places it's solid clay, in others it becomes transparent or seems to lose its materiality altogether. The border between earth and air is more of a suggestion than a definite line, and sometimes the two swap properties entirely.
+
+There's a logic to this place, but it's not human logic. It's the logic of dreams and algorithms combined, of nature attempting to follow industrial patterns while industry dissolves into organic chaos. The whole landscape feels like a translation error between different versions of reality, growing more pronounced with each passing moment.
+
+The overwhelming sense is of a place caught between states - between growth and decay, between natural and artificial, between existence and theoretical possibility. The slow pulse of the ferns, the upward flow of glass, the hanging droplets, and the folding space all move to the same rhythm, like a vast machine running down or a new universe winding up.

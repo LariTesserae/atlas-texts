@@ -1,0 +1,23 @@
+# The Weeping Shelf
+
+At the apex of the world, where the air thins and the stone turns black and glassy, there is a place that should be barren. The rock here is too sharp, too exposed, too high for most life to reach. And yet.
+
+Water seeps from every seam. The cliff face weeps constantly — not rain, not runoff from above, but something deeper, something that rises through the grain of the stone itself. It emerges in thin threads across the obsidian surface, catching light like nervous systems, and falls in constant whisper to the pools below. The rock here is dark and wet, veined with white mineral deposits that look like scar tissue, like the mountain is still healing from some ancient wound.
+
+The hollow opens like a cupped hand. Cathedral-sized, bounded on three sides by rising walls that squeeze toward a ragged opening that faces south, toward clouds and weather. The floor is gravel and sand, fine-textured, washed clean by centuries of seepage. Between the stones, moss grows in thick cushions — not green but almost black, drinking the moisture greedily. Ferns crowd the shaded recesses where water collects in pools no wider than a cupped hand, and from these pools, always, the sound: a chorus of insects, a滴答滴答滴答 of water into pooled basins, a constant hush of moisture moving through air.
+
+In the dry years, this place would hold nothing. The parameters say it should be empty — and it is, in the way that high places are empty, vast nothing overhead, silence between stone and sky. But the water persists, and so does the life it calls.
+
+Small structures — or what remains of them. Three, four stone platforms built against the base of the western wall, their surfaces worn smooth, their corners crumbled. They might have been altars once, or shelters, or something else whose purpose the erosion has taken. The builders are long departed; their tools, if any, have been carried away or buried beneath centuries of mineral deposit. A ring of small post-holes circles the largest platform, rotted to near-nothing, their purpose now guessed rather than known. Primitive, the environment says, and so: hand-shaped stones fitted together without mortar, a fire pit ringed with water-smoothed lava, a single stone face set into the cliff wall that water has nearly erased.
+
+Fauna thrives here in a way that defies the thinness of the air. Birds nest in the cliff's crevices — small, dark, restless things that call and answer across the hollow in long chains of notes. Insects cloud the wet surfaces in patterns that seem almost deliberate, their bodies catching light. A low mist hangs in the hollow even at midday, not quite fog, not quite cloud, but something between — the mountain exhaling, perhaps, or the weep keeping the air permanently damp. In the silence between drips, you can hear the wind moving through the gap to the south, carrying the scent of lower places, of forests and rivers and the green world that exists below.
+
+The light here is normal — sun by day, shadow by night — but the water makes it strange. Everything gleams. Everything drips. The obsidian rock drinks the sun and gives back only darkness, but the moisture on its surface catches fire from the same light, and the combination — dark stone, bright water, the sheen of wet everywhere — produces a visual texture unlike anything at lower elevation. The eye cannot settle. The eye keeps finding new seams, new drips, new pools.
+
+Established, the environment says. In balance. And it is, though the balance is violent: the water wins against the stone a little more each year, and the erosion speaks in the smooth curves of every surface, the mineral veins, the sand beneath your feet that was once a cliff. The ferns colonize what the water leaves damp. The birds nest where the erosion has carved a hollow. The small artifacts of the primitive builders have been nearly consumed, but something remains — a platform, a pit, a suggestion — and what remains is enough.
+
+It is loud here, and active. The drips keep their rhythm. The birds keep their calls. The insects keep their hovering, their breeding in the small dark pools. The mist keeps its slow rotation through the hollow, carrying moisture from the weeping stone to the plants to the air to the stone again. Nothing stops. Nothing rests. The mountain is alive, if life means motion and presence and the endless exchange of water and time.
+
+---
+
+A place to rest the weary. A place that should be empty and isn't.

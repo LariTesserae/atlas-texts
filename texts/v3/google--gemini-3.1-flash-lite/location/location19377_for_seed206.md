@@ -1,0 +1,15 @@
+You have stepped inside the hollow of a single, colossal, ancient root-complex, tucked deep within the spongy underbelly of a damp lowland forest. It is a world contained within the diameter of perhaps twenty feet, an intimate cathedral of xylem and shadow.
+
+The scale is intensely local, yet within this pocket, the industry is absolute. 
+
+The vegetation is not merely present; it *is* the architecture. The floor, walls, and ceiling are composed of fused, petrified-soft root tendrils, thick as ship masts and slick with a permanent, weeping condensate. The water here is omnipresent—a 1.9 concentration—not as a pool, but as a weeping of the environment itself. Beads of warm, mineral-rich moisture collect on the underside of fibers and drop rhythmically onto the mossy floor, a constant, heavy tapping that creates a percussion of damp echoes.
+
+Despite the organic substrate, the atmosphere is unmistakably industrial. This is the "factory" of the organism. Rigid, metallic-looking nodules protrude from the plant-walls, vibrating with a self-sustained, low-frequency hum. These aren't built artifacts; they are evolved organs of production. Within these nodules, the plant conducts a hyper-efficient alchemy, churning sap into polymerized resins that bleed out from hairline fractures to seal the chamber against the external world. It is a living, automated production line—a bioluminescent assembly of internal pressures and chemical flows. 
+
+The sound is overwhelming (2.4/3). It is not the sound of nature, but the sound of heavy machinery: the rhythmic *thrum-hiss-thrum* of internal hydraulic pulses, the screech of straining fiber rubbing against fiber, and the constant, wet *splat* of condensation hitting the peat. It is loud, insistent, and mechanical, yet there is no change. This is a frozen-equilibrium environment (0.5/3). The cycle has been established for eons; the rhythm does not speed up to accommodate effort nor slow down for rest. It is a state of perpetual, perfectly balanced output.
+
+The fauna here is abundant but specialized. Tiny, translucent crustaceans scuttle along the damp root-walls, grazing on the industrial runoff, their multi-jointed legs clicking rhythmically in time with the thrumming nodules. They are efficient scavengers in this closed-loop system, part of the machinery of decomposition, living and dying in the same few square feet of the root-hollow.
+
+There is a sense of "established erosion" here—not the breakdown of the environment, but the perfection of its wear. The roots have been polished by the passage of moisture and the friction of growth into smooth, matte-finished conduits. They have weathered into a state of structural grace, where every curve is necessary and every drop of water is recycled.
+
+It is a warm, humid, and deafening room. You are standing inside a pulse. You are in the stomach of a green engine, a place that does not know how to stop, where the difference between a plant and a piston has long since been erased by the slow, grinding patience of a billion years.

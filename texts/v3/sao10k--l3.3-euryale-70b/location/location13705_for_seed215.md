@@ -1,0 +1,1 @@
+High-rise buildings made of hardened steel a few hundred feet high tower above the wet landscape.  Water trickles from ledges.  On the glassy floors, a lone woman chases a dog.  The air is crisp and cold.

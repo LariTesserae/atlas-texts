@@ -1,0 +1,25 @@
+The place is smaller than a heartbeat.
+
+You stand inside a single fracture no wider than a man’s outstretched arms, yet the fracture feels like a canyon because its walls rise so far above you that the slit of sky is only a trembling violet thread. This is not a cave. It is a wound that the mountain tore open yesterday, or perhaps an hour ago; the stone still remembers the violence of its birth. Every surface is new, raw, glass-sharp. Obsidian-black basalt meets pale rhyolite in jagged sutures. The rock is still warm from the upheaval that lifted it into the thin air of extreme altitude. You can feel the heat radiating through the soles of your boots like a living thing that has not yet decided whether it is dying or being born.
+
+Water is everywhere, but never calm. It does not flow so much as sweat, weep, and condense. From every ledge and every hairline fissure, droplets the size of tears form, tremble, and fall. They strike the floor with soft, deliberate plinks that seem louder than they should be because everything else refuses to make sound. The air itself is wet and heavy; breath condenses the moment it leaves your mouth, turning into tiny glittering clouds that drift upward like reversed rain. Steam and mist braid together in slow, deliberate spirals, catching the thin, hard light that spears down from the violet slit above. The light is normal in color—sunlight, perhaps—but it has been filtered through altitude and through the mountain’s own fever, so it arrives as a metallic gold that makes every droplet flash like molten wire.
+
+There is no vegetation. Not a blade of moss, not a lichen, not even the expected high-altitude crusts. Life has not been given permission here yet. Instead the walls are coated in a living mineral fur: microscopic silica filaments and sulfur crystals that grow in branching, antlered patterns too regular to be accidental. Some of them pulse faintly, as though they are breathing. In the hottest crevices, where the rock is almost too painful to touch, translucent orange filaments of sulfur bacteria have already begun their first, desperate colonization. They look like melted plastic caught in the act of becoming alive.
+
+But the fauna—God, the fauna.
+
+They are everywhere, layered so densely that the air itself seems knitted from wings and legs and wet eyes. Most of them have no names yet; the mountain is still inventing them in real time. Finger-length translucent millipedes with bodies like strands of molten glass crawl over one another in slow, boiling carpets. Clouds of minute white moths—no larger than snowflakes—rise and fall in perfect synchrony, their wings producing no sound at all. In the deeper recesses, where steam vents exhale like slow lungs, things that resemble wet red starfish cling to the ceiling and rhythmically inflate, sucking moisture from the air and then squirting it in fine aerosols that drift down like warm rain.
+
+The strangest are the echo-beetles. They are coal-black, perfectly silent, and move in sudden, liquid jerks. Each one carries a single droplet of water balanced on its back like a mirror. When they collide—which they do constantly—the droplets touch and merge with an audible *tok*, a sound so precise and musical it feels like the only honest voice in the fracture. The beetles seem to be listening to one another through these collisions, trading information in liquid semaphore. Their density is oppressive; you cannot set your hand against the rock without covering a dozen of them.
+
+Reality here is not broken so much as it is still soft. The mountain has not finished deciding what physics it will obey. Gravity loosens its grip near the ceiling; droplets sometimes drift sideways before remembering to fall. In one corner of the fracture a thin blade of rock has grown sideways for three feet, perfectly horizontal, defying every rule of erosion that should have carved it away. Tiny lightning arcs, no longer than your little finger, snap between sulfur crystals when the steam density reaches a certain saturation. They make no thunder, only a faint, crystalline *tink*.
+
+The heat is ferocious but not fatal. It is the heat of a body that has just finished running. The air tastes of iron, sulfur, and wet stone. Every few minutes the entire fracture gives a single, deep seismic sigh—more felt than heard—and a new hairline crack appears somewhere high above, releasing another thin curtain of warm water that hisses where it touches the hottest rock.
+
+There are no artifacts. No ruins. No handprints. This place has never been witnessed before. It is so new that even memory feels like trespassing.
+
+You realize, with a slow shiver that has nothing to do with temperature, that the mountain is not finished giving birth. The walls are still moving, millimeter by millimeter, folding and unfolding like the inside of a vast black lung. The echo-beetles race to keep up with the changing geometry. The steam braids itself into new patterns. The violet thread of sky far above darkens by a single degree.
+
+This is not a landscape.
+
+It is a moment that has learned how to bleed.

@@ -1,0 +1,17 @@
+In the fold between two ancient mountains, where the stone has worn smooth over millennia, there's a hidden city. Not hidden by intention or artifice, but by the simple fact of existing in a pocket that the eye slides past - a geological parenthesis, a place that feels both vast and intimate, like being cupped in a giant's palm.
+
+The buildings are seamless extensions of the mountain itself, as if the rock decided to grow upward in geometric patterns. They rise in tight, organic clusters, each structure leaning on its neighbors for support, their walls streaked with constant condensation that catches what light makes it into this sheltered place. The moisture feeds countless varieties of moss that pattern the stone in waves of deep green, teal, and purple-black.
+
+Water is everywhere but quiet. It seeps from the rock faces that form the pocket's walls, collecting in channels worn smooth by centuries of flow. These channels thread through the city like capillaries, disappearing under buildings only to emerge again, joining and splitting in a natural engineering that the city's growth has learned to follow. The water is cold enough to sting, carrying minerals that have gradually transformed the original stone structures with deposits of travertine and flowstone.
+
+Despite the cold - or perhaps because of it - life thrives here in dense layers. Ferns cascade from every crevice, their fronds beaded with permanent moisture. Thick cushions of moss shelter countless small creatures - iridescent beetles, translucent springtails, miniature snails with shells like opals. Birds with specialized curved beaks probe the moss gardens for prey, their movements quick and deliberate in the dim light.
+
+The air itself feels alive and dense, heavy with moisture and the spores of countless fungi that glow with subtle bioluminescence in the darker corners. These fungi have formed symbiotic relationships with the moss and the stone itself, creating complex matrices that both strengthen and slowly reshape the structures they inhabit.
+
+The city's passages are narrow and winding, following the natural contours of the mountain's fold. Sometimes they squeeze so tight that shoulders must turn sideways to pass, other times they open into small courts where the sky above is visible as a ribbon of light. The buildings rise three, four, five stories, their upper levels connected by bridges of living stone that have been gradually rounded and softened by time and water.
+
+Small gardens are tucked into every available space, not decorative but functional - hardy plants that provide food and medicine, adapted to the perpetual twilight and cool temperatures. These plants grow in tight spirals around each other, maximizing the use of limited space.
+
+The sounds here are muffled by the moss and the constant presence of water - footsteps are softened, voices seem to come from everywhere and nowhere. The most consistent sound is the gentle drip and trickle of water, punctuated by the soft calls of birds and the rustling of small animals in the vegetation.
+
+This is a place that feels as if it has grown rather than been built, where the line between natural and constructed has blurred to meaninglessness over centuries of coexistence. It's a living city in the most literal sense, where every surface hosts its own ecosystem, and where the slow patience of water and stone continues to shape and reshape the space in tiny increments, day by day.

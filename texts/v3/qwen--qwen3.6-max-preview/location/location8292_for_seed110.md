@@ -1,0 +1,39 @@
+You do not see it until you have already stepped inside.
+
+The high pass gives way without warning. One moment the air is thin, scoured by altitude and wind; the next, your boot drops half a pace into a sheltered hollow cupped in the mountain's costal rock. The sky folds away. Not by ceiling, but by curvature. The stone leans inward, shoulder to shoulder, and the world outside is simply gone. What remains is a pocket of warm, wet dark, no wider than a long room, held like a breath in the rock's ribs.
+
+The darkness is complete. Not the dimness of shade or the grey of overcast stone, but an absolute absence of light. You learn the place through skin, through breath, through the soles of your feet. The air is thick enough to press against you. It does not move. There is no draft, no convection, no sigh of circulation. Warmth saturates every inch equally, a uniform, body-close heat that seems to radiate from nowhere and everywhere at once. Moisture hangs in layers so dense they feel woven. You part it as you would heavy fabric, and it closes behind you without a ripple.
+
+Water is everywhere, yet it does not flow.
+
+The walls weep. From fresh fracture planes and raw, unblunted edges, droplets swell with patient inevitability. They gather along ridges, fatten into perfect spheres, and stop. They do not fall. They simply hang, heavy and still, beading on stone like glass seeds strung on invisible thread. Where the floor dips, shallow basins hold water that does not evaporate, does not seep, does not ripple. The surface is so motionless it feels solid until your fingers break it, and even then the disturbance dies within a breath, swallowed by the equilibrium. Condensation coats everything in a continuous, seamless film. It gathers on your wrists, your collar, your hair, warm and weightless, as if the air itself is sweating.
+
+The stone is newborn.
+
+Every surface is sharp, unweathered, caught mid-emergence. Jagged extrusions push from the walls like frozen exhalations. Fracture planes gleam with the raw, clean break of recent stress. Crystalline fingers, translucent and brittle, cluster in tight thickets along the floor. There is no rounding. No softening. No channels carved by time or runoff. The geology looks as though it was extruded yesterday, or an hour ago, or in a moment that does not belong to sequence. Yet nothing progresses. The water touches stone and halts. The crystals form and do not grow. The fractures open and do not widen. Erosion has not begun here, not because the place is young, but because it has refused to age. It is a landscape arrested in the instant of its own making, held in a suspension so complete that becoming and being have merged into a single, quiet state.
+
+Vegetation is sparse, not from hostility, but from lack of urgency.
+
+Pale filaments drape from overhangs, mineral-crusted and heat-adapted, more like glassy thread than leaf. They do not photosynthesize; they persist. A few low, succulent nodules cling to the floor, their skins tough and translucent, holding warm water inside like sealed bladders. They do not spread. They do not wither. They simply occupy their space, perfectly adjusted to a world that asks nothing of them. Roots, where they exist, are shallow and pale, gripping fresh stone without penetrating it, as if the rock and the plant have agreed to touch without merging.
+
+Fauna is rarer still.
+
+You might go hours, or what feels like hours, without encountering anything that moves. Then, perhaps, a slow shadow detaches from the base of a crystalline cluster. A blind, heat-sensing arthropod, no longer than a thumb, crosses your path with deliberate, almost ceremonial slowness. Its carapace is the color of wet ash. Its legs place themselves with such care that they leave no mark, stir no water, make no sound. It does not flee. It does not investigate. It simply traverses the space it occupies and dissolves back into the dark. There are no calls, no scurrying, no rustle of wings. Life here is an occasional presence, not a population.
+
+Scattered through the hollow are the quiet marks of hands.
+
+Not a settlement. Not a ruin. Just visits, spaced by seasons or years or generations that mean little in a place without change. Cairns of unweathered stone stand in three places, stacked with precise, primitive care. Each rock is sharp-edged, freshly split, placed without mortar or tool-marks beyond the strike that freed it. Woven mats of high-altitude reed lie flat on the floor, stiff now with mineral dew, their patterns still visible under the damp. Clay bowls, thumb-printed and low-fired, rest where they were set down, holding water that has neither risen nor fallen since it was poured. Bone awls, chert flakes, and twists of hand-rolled cordage sit nearby, untouched by rot, untouched by use. The technology is early, honest, shaped by friction and strike. Nothing is broken. Nothing is discarded. Things were simply left, and the equilibrium kept them exactly as they were.
+
+Sound is mostly absent, and what remains is folded close.
+
+The dense, still air swallows distance. Your own breath sounds muffled, as if heard through wool. Footfalls do not echo; they press into the floor and vanish. Occasionally, a droplet reaches fullness and releases a soft *tick* against stone, so quiet it registers more in the jaw than the ear. Condensation shifts across a fracture plane with a faint, papery sigh. Beneath it all, or perhaps within it, is a low resonant hum, felt in the teeth and the sternum, as if the rock itself is holding a note too deep to hear. Nothing carries. Nothing builds. The quiet is not empty; it is saturated, layered, heavy with presence that refuses to announce itself.
+
+The weirdness is not in spectacle, but in physics.
+
+Heat does not rise. Moisture does not condense and run. Sound does not travel. Time does not accumulate. The pocket exists in a state of perfect, frozen equilibrium. There are no gradients: no warmer center, no cooler edge, no drier corner, no deeper pool. Every cubic inch holds the same temperature, the same humidity, the same stillness. Entropy is arrested. What forms, remains. What breaks, stays broken. What is placed, is preserved. The place does not decay because it does not progress. It is not dead; it is paused. Or perhaps it has simply decided that motion is unnecessary.
+
+To stay is to feel the stillness seep into you.
+
+Your pulse slows without effort. Your shoulders drop. The instinct to shift, to adjust, to seek comfort or variation, gradually unspools. The dense air supports you. The uniform warmth requires no adaptation. The darkness asks for no focus. You begin to understand why the tools were left, why the cairns were stacked, why the water was poured and never drunk. This is not a place for doing. It is a place for arriving. The mountain holds it like a cupped hand, and inside, the world rests in the moment just after birth, just before motion. It does not wait for anything. It has already become what it is, and it will not become anything else.
+
+You could leave. The pass is only twenty paces behind you, up the gentle curve of stone. The thin air, the wind, the sky, the relentless forward drag of time—all of it waits outside. But here, in the warm wet dark, in the dense and quiet hollow where water hangs and stone stays sharp and nothing erodes, you understand, quietly and completely, why some who found this place simply sat down, set their tools beside them, and let the equilibrium take them. Not into sleep. Not into death. Into stillness. Into the rare, suspended grace of a world that has finished becoming, and chosen, forever, to simply be.

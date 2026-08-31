@@ -1,0 +1,39 @@
+# The Gilded Geode
+
+You do not find this place. It finds you, usually when you are lost, or when the world’s skin grows thin.
+
+It is not a valley, nor a cave, but something in between: a hollowed sphere of raw, pink-veined quartz the size of a modest cathedral, buried deep within a mountain that does not officially exist. The elevation is absolute—the external world is a sheer, impossible drop into cloud-wisps—but the scale is a held secret. You are inside a geode the size of a room, and the rules of size have been politely, firmly, asked to leave.
+
+**The Terrain & Materials:** The floor is not floor, but a tangled, three-dimensional lattice of roots and ropes. They are made of woven *slickfiber*—a plant that exudes a resinous, glassy sap—and knotted hemp grown from seeds that descend from the ceiling. This lattice is the *true* ground, a hammock-nest suspended over a bottomless, misty drop. You walk upon it, and it yields like wet leather. The walls and ceiling are raw quartz, still cracking and settling with tiny, crystalline *pops*. Embedded in the quartz are vast, fossilized bubbles of a vanished sea, now filled with a slow-dripping, honey-thick brine that condenses from the air. The brine pools in suspended buckets made of braided reed and sealed with pitch, catching the dim light.
+
+**The Atmosphere & Light:** The light is the bruised, pre-dawn grey of a world under a permanent, high blanket of cloud. Yet it is not sunlight filtering down; it is *emissions*. The vegetation glows. Not with fire, but with a cold, sourceless luminescence—a pale jade from the *glowmoss* that carpets every surface, a deeper amber from the veins in the leaves of the *candelabra lilies*. The air is thick, warm (2.8/3 hot), and perpetually damp. It tastes of wet stone, salt, and the sweet-rot of overripe fruit. It carries a static charge that makes the fine hairs on your arms stand up.
+
+**The Sounds:** It is loud (2.1/3), but not with noise—with *presence*. The dominant sound is the **drip-hiss-thrum**: a constant, overlapping symphony of brine dropping from the quartz ceiling into the pools below (*plink… sssssss…*), the low, sub-audible hum of the quartz lattice resonating with geothermal pressure (*thrummm*), and the high, skittering *tick-tick-tick* of the *glass-bark beetles* as they tunnel through the solidified sap-veins in the walls. Over this is the creak of the root-ropes under strain, the wet slap of giant lily pads folding shut, and the sudden, chittering cry of something unseen in the mist.
+
+**The Ecology (Lush, Packed, Rare):** Life is **dense (2.8/3)** to the point of suffocation. There is no “empty.” Every cubic inch is claimed.
+*   **Plants:** The *slickfiber* vines are the architects, growing with visible, jerky motions, seeking purchase. *Candelabra lilies* stand like torches, their broad leaves funneling condensation to their centers. **Glowmoss** is the地毯, the wallpaper, the.cloud—it pulses gently in time with the geothermal thrum. Fungi with caps like wooden bells release puffs of phosphorescent spores that drift like lazy fireflies.
+*   **Fauna (Rare, 1.2/3):** Animal life is scarce, but what exists is **integral**. The *glass-bark beetles* (jeweled, many-limbed) are the maintenance crew, boring holes that become new drip-channels. The *brine-riders* are tiny, six-legged crustaceans that live in the suspended pools, filtering nutrients. The only larger creature is the **Mossback**, a slow, slug-like being the size of a badger, its back a living garden of glowmoss and fungi. It moves once per day, a seismic event in this fragile world, and where it passes, the slickfiber roots part and then slowly reseal behind it. Its grazing is the primary “disturbance” in the packed ecosystem.
+
+**The Built Environment (Total, Primitive):** There is no “natural” substrate. Everything is **made (2.6/3)**, but made by what? By the plants themselves? By some prior, forgotten hands?
+*   The root-lattice is clearly cultivated, knotted with precision.
+*   The brine-catching buckets are uniform, woven from a single, impossibly long reed.
+*   Scattered on larger quartz outcroppings are low, dome-shaped shelters woven from slickfiber and lined with dried moss. They contain simple, carved stone bowls, flint scrapers, and piles of dried lily-pad (0.9/3 primitive tech). No one lives here now, but the tools are sharp, recent.
+*   The most striking feature is the **Weeping Wall**: a section of quartz scored with deep, regular grooves. From these grooves does not drip water, but **time**, or memory, or possibility. It drips a silvery, viscous fluid that, upon hitting the brine pools, causes momentary, localized reversals—a drop leaps back upward, a beetle scurries backward for a second, a puff of spores un-gusts. This is the **reality breakdown (3.0/3)**, the core weirdness. It is not a glitch; it is a **feature**. The whole geode is a lens, a focus, a *work in progress*.
+
+**Erosion & Dynamic (Emerging, Active):** Erosion is **0.0/3—emerging**. The quartz is still fresh, unweathered. The grooves on the Weeping Wall are newly cut. The root-lattice is still growing into its final, optimal shape. This place is **under active construction (2.5/3)**.
+*   The **dynamic** is the slow, relentless growth and dripping. The geothermal thrum cycles—a pulse every 37 minutes that makes the brine in the buckets shiver. The Mossback’s daily migration. The slow, decade-long creep of the slickfiber as it searches for new quartz fractures to exploit. And the Weeping Wall’s constant, quiet revision of local cause and effect.
+
+**The Unwritten Rules & Atmosphere:**
+1.  **Gravity is a suggestion.** Near the Weeping Wall, it can weaken. On the periphery of the glowmoss fields, it can pull slightly sideways. You learn to move with a low center of gravity.
+2.  **Growth is thought.** The plants here are not just alive; they are *building*. Their growth rings are decision points. To break a slickfiber vine is to interrupt a calculation.
+3.  **The past is a material.** The silvery fluid from the Wall is not just time—it’s *discarded possibility*. The brine pools are saturated with what-might-have-been. To drink from them is to risk a flash of an unlived life.
+4.  **Silence is dangerous.** The loud, constant soundscape is a **cocoon**. It masks the sound of the quartz settling, of the world-form grinding into place. When the sound dips—even for a moment—you hear the true sound beneath: the dry, papery rustle of the universe being *folded* around this pocket.
+
+**What Emerges:**
+You are not in a landscape. You are **inside a nascent idea** given physical form—a world-model being stress-tested in a quartz bubble. The total built environment is the scaffolding. The primitive tools are the calibration instruments. The packed, lush density is the complexity of the simulation. The rare fauna are the test subjects. The dim light is the limited processing power. The extreme elevation is its isolation in the conceptual schema. The wetness is the coolant.
+
+The **weirdness** is not magic. It is **debugging**.
+
+You are in a place that is **pre-erosion** because it has not yet decided what weather, or wear, or death, will be. It is a hidden (0.1/3) pocket not just of space, but of *becoming*. To stay too long is to become part of the build—your memories, your body, your timeline, woven into the slickfiber lattice, another grooved channel on the Weeping Wall, dripping silent, silvery corrections into the dark.
+
+The loudest sound, after you’ve been here a while, is not the drip-hiss-thrum. It is the sound of your own heartbeat, suddenly seeming very, very slow, and very, very *constructed*.

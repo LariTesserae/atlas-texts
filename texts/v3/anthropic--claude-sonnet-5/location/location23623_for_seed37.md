@@ -1,0 +1,27 @@
+# The Lit Hollow
+
+You find it by accident, always—a fissure in the ground that should lead into darkness and instead leads into noon.
+
+The descent is short. Six steps down through raw stone, the rock still showing the soft scallop-marks of formation, as though the earth here finished its sentence only recently and hasn't yet decided on punctuation. The walls are pale, slightly damp to the touch, beaded with condensation that never pools, never drips, just sits like sweat held in suspension. Then the passage opens, and the light hits you from no discoverable source.
+
+It is bright down here. Brighter than it has any right to be, a shadowless, sourceless brightness that fills the hollow like water fills a cup—evenly, completely, without a sun to blame for it. Look up: there is a ceiling of stone, unbroken, no skylight, no crack wide enough to explain this. The light simply *is*, the way air is. You stop looking for its origin after the first few minutes. It stops mattering.
+
+The hollow itself is small—a single chamber, maybe the size of a modest amphitheater, walls curving inward and up like the inside of a skull that's still growing. The floor is uneven, broken into shelves and basins of rough rock, vegetation arriving in apologetic clusters: a few lichen-crusted stones, one or two wiry shrubs growing sideways out of cracks, pale grass in threadbare patches where the damp collects. Nothing lush. Nothing here is trying to cover the ground. The bareness is the point—you can see the bones of the place, the way the stone hasn't finished becoming itself.
+
+There are old marks. A ring of stones, deliberately placed, half-sunk into a basin as if someone built something here once and then the floor decided to reabsorb it. A shard of something worked—bone or horn—half-buried, smoothed by no water you can identify. No tools left behind. No tech, no metal, nothing that suggests a return visit was ever planned. Whoever or whatever made these marks did it once, long enough ago that the ground has started healing over the evidence, and never came back, or came back as something that no longer needed hands.
+
+And then the animals.
+
+This is the part that unstitches you. The hollow should be too small, too closed, too recently-made to support what's in it—but there is an abundance here that ignores the room's size as though space itself is being reused, folded, layered. A fox-shaped thing crosses the basin and does not reach the far wall, simply isn't there anymore, the way a thought stops being held. Birds—you're almost sure they're birds—pour out of a crevice that cannot be more than a foot deep, dozens of them, wings catching the shadowless light and somehow still managing to flicker, like the light is real for them in a way it isn't for the stone. A herd of something deer-sized moves along a ledge too narrow for hooves, and you count them twice and get different numbers both times.
+
+They don't interact with you. They barely interact with each other—a predator passes through a cluster of smaller animals and nothing flees, nothing is caught, as if the rules of pursuit haven't been finalized yet, as if this place is still drafting its own ecology and hasn't committed to violence as a mechanism. You watch a moment that looks exactly like a kill, teeth closing, a small body going down—and then both animals are simply elsewhere, intact, grazing distinct corners of the hollow like nothing happened, like it hasn't happened *yet*.
+
+The quiet is the strangest part, given how full the chamber is. You'd expect calls, alarm cries, the rustle of that much fur and feather. Instead: hush. A breath of wind that has no source moving through grass that barely exists. The occasional click of a hoof on stone, swallowed almost before it starts. The condensation does not drip. The silence has a texture, like the place is holding itself carefully so as not to disturb whatever's still setting.
+
+Time behaves strangely here, though nothing about the chamber suggests it's aware of this. The light doesn't shift—no dawn, no dusk, just the single eternal bright noon-without-a-sun. But the animals come and go in numbers that suggest cycles, seasons, predation pressure, all compressed and accelerated, a whole ecosystem's worth of motion playing out in what feels, from where you're standing, like a single held breath.
+
+The cool damp air smells faintly of wet stone and something else—green, mineral, almost sweet, like a plant that hasn't decided what species it will be.
+
+If you stay long enough, you start to notice the chamber is, very faintly, larger than it was when you arrived. Not dramatically. A few feet, maybe, the walls having breathed out at some point while you were watching the not-quite-foxes. The erosion here is not erasure—it's gestation. The hollow is being made, slowly, by something patient, and you are standing inside an idea the size of a room, watching it decide what kind of place it wants to become, surrounded by animals that are rehearsing the parts they'll play once it finishes deciding.
+
+There is no danger here, as far as you can tell—or rather, danger hasn't been invented yet either. You could stay. People probably have. The marks in the stone basin suggest someone did, once, and either left changed or didn't leave changed enough to be remembered as anything but a ring of stones and a sliver of bone, slowly being taken back into a floor that is still, in its own unhurried geological way, waking up.

@@ -1,0 +1,27 @@
+You have to kneel to find it, and then put your face almost to the mud to see it at all.
+
+At the bottom of the draw where the cold spring comes out from under the alder roots, there is a place where the water doesn't drain right. The ground is low there, lower than it should be — a shallow bowl of black basalt and rot-paste clay that has never been touched by sun. The rock looks like it broke yesterday. Its lip is still sharp where the frost split it, not worn, not softened, a clean white-grey fracture line with edges that could cut your thumb. Inside that break, under the overhang of a single root, is the pocket.
+
+It is not bigger than cupped hands. A two-fisted hollow scooped out of the fresh stone, a room you could cover with your palm. And it is entirely, impossibly full.
+
+It never empties. Even in August when the creek is a damp stain, this stays submerged — a perfect, brimming lens of cold water, dark as bottle glass, so clear it disappears until you are very close. But it is not clear, not really. It is packed.
+
+Vegetation has taken it all. Not around it, in it. Black-green water-moss and liverwort and something finer that has no name, thread-algae the color of deep bruises, growing not up but through the water itself. Fronds flat as paper and translucent, overlapping like pages in a wet book. Tiny bladders like glass beads. Root-hairs so fine they become a haze. There is no empty water left. Every cubic millimeter is occupied by leaf, by stem, by filament. If you slip a fingertip in, the water does not part for you — the plants do, reluctantly, folding aside with a slow, cold resistance, then closing again behind you. The water itself is cold enough to ache. 8 degrees, maybe 7. The cold of deep groundwater, of rock sleep.
+
+There is almost no light. The hollow is north-facing, roofed by root and basalt and a thatch of fallen alder leaves that have gone black and gelatinous. What light reaches it is filtered to nothing. And yet the plants are lush, wetly, obscenely lush, thriving on a different economy. In true dark, they have made their own dim. When your eyes adjust after a long minute of stillness, you see it: not glowing, precisely, but a faint attrition of darkness where the edges of the youngest leaves hold an amber after-image, a lipid sheen. The whole pocket has the low light of the inside of a mouth at night. Everything looks like it is being seen through ten feet of seawater.
+
+Sound stops when you get close to it. The woods have wood sounds — crows, drips, leaf rustle — but this hole mutes them. The water is so still and the plant mat is so dense that it eats noise. If you hold your breath you hear only the faintest possible ticks: a gas bubble forming and releasing from a leaf once every few minutes. A silt grain settling. Your own pulse in your temples.
+
+And it is wrong in a way that takes a little while to notice.
+
+The water does not behave like water. It should mix, settle, slosh, reflect. This water holds. At its surface there is no meniscus. The top is flat and cut perfectly level with the sharp stone lip, but it is not flat like a table, it is flat like a slab. If a mosquito lands, it stands on it as if on ice. If you touch it, your finger goes through but the water keeps its shape around your finger, no ripple. It clings. When you pull out, it pulls back with you for a breath before letting go. Debris does not sink or float in it so much as wait. A fleck of mica halfway down has been there all day. Maybe all month. The plants grow through that waiting, through that suspension. Up is irrelevant. Leaves grow sideways through the water, then down, then loop back up, as if gravity is a suggestion they outvoted.
+
+There are faint marks of building, or what was building long before the rock broke. Not human scale. Scattered through the dense mat are three or four straight edges that can't be plant. A shard of fired clay, no bigger than a fingernail, green-glazed, its edge softened by water but still squared. A framework of tiny white sticks, self-stuck — caddis cases, maybe, or something else that stacks grains of sand into perfect, hummingbird-small towers, now abandoned. One smooth bead of that river-glass color you only get from very old bottles. All of it held, preserved, neither buried nor surfaced, packed into the vegetation like raisins in a loaf. No tools. No mechanisms. Just the occasional artifact that fell here and was accepted and kept.
+
+There is only one animal. You only ever see it if you stay long enough that your knees go numb.
+
+He — it — is a shrimp, maybe, or a hog-louse, the length of a rice grain, completely colorless except for a single dark spot where its gut is. Blind. It moves so slowly it looks like part of the plant until you mark its position against a leaf. An hour later it is two millimeters to the left. It grazes, carving invisible tunnels through the matted algae, and behind it, over days, the tunnel closes. It never leaves the pocket. There is nowhere for it to leave to.
+
+That is the rule here: nothing enters quickly, nothing leaves quickly. The world outside can flood, dry, rot, freeze. This tiny, hidden ocean remains, slow and saturated and cold, packing life into every inch of its darkness with a patient, unreasonable density. It doesn't erode. It was made fresh yesterday in geologic time and it intends to stay fresh, sharp-edged and black and full, until the alder falls.
+
+If you put your hand back in and stay, the water remembers the shape of your hand for a long time after you go.

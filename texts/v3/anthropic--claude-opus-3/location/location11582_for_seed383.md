@@ -1,0 +1,13 @@
+In the depths beneath the earth's crust, an ancient subterranean city pulses with strange, frenetic energy. The primordial tunnels and caverns, carved by long-vanished underground rivers, form a vast labyrinthine network. Mineral deposits glisten on the walls - bands of translucent crystal and shimmering metallic ores layered over eons.
+
+No plants take root in this deep realm, but everywhere, pale bioluminescent fungi cling to the stone, emitting an eerie blue-green glow. Thick patches of spongy mycelium mat the floors. In their dim light, dense clouds of spores drift through the stagnant air.
+
+The ruins of a primitive settlement sprawl through the low-ceilinged grottoes. Cyclopean blocks of granite, hand-hewn and irregular, are stacked and balanced to form archways, walls and precarious tower-like structures. Fossilized wooden beams and the husks of simple machines - pulleys, winches, carts - lie half-entombed in flowstone. 
+
+But the ruins are not abandoned. Teeming hordes of pallid, eyeless creatures swarm through the cavernous streets and buildings. Centipedes the length of a human arm undulate across walls. Bulbous crickets hop between porous boulders. Tentacled cephalopod-like beings ooze and slither, pulsing with ripples of bioluminescent patterns. Their eerie clicking and chittering echoes through the tunnels.
+
+These lifeforms engage in a constant dance of predator and prey, birth and death, construction and decay. Towers of guano and chitin are endlessly erected and eaten away. Swarms of fluttering bat-like creatures cyclone up into huge cathedral-like caverns. Strange larval monsters burst from leathery egg sacs and are immediately set upon by ravenous hunters.
+
+Despite the teeming life, an oppressive, sepulchral silence hangs in the air, broken only by the skittering of exoskeletal feet and the distant, muted roar of underground rapids. The unchanging dimness is punctuated by sudden flashes of blinding light - the glow of magma briefly illuminating a chasm, bioluminescent bursts from deep-dwelling ocean creatures, or perhaps something stranger.
+
+There is a sense that this frenetic ecosystem has existed for eons in the darkness, never seeing the sun, barely changing since the primordial dawn. A feeling that human eyes were never meant to gaze upon this hidden world and its uncanny inhabitants. And yet the crumbling remains of that ancient forgotten outpost are unmistakable...

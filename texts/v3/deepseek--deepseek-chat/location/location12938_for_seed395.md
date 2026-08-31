@@ -1,0 +1,13 @@
+**The City of Roots**  
+
+The land is a vast, low basin, cupped between unseen horizons—a sprawling, shallow depression where the air hangs thick and warm, heavy with the scent of damp earth and living wood. There is no water here, not in the way one might expect—no rivers, no lakes, no pools—yet the place is lush, verdant, teeming with life. The vegetation does not drink from streams or rain, but from something deeper, something older, a slow pulse of moisture drawn up through the earth itself, seeping through the roots of the world.  
+
+The city is not built, not in the way humans might build. It grows. Towers of living wood rise from the ground, their walls woven from fibrous vines, their foundations sunk deep into the earth. The structures are not separate from the forest—they *are* the forest, shaped by some unseen will, some slow intelligence of root and branch. Pathways wind between them, not paved but worn smooth by the passage of countless feet, the press of countless bodies. The air is alive with the rustle of leaves, the creak of growing wood, the occasional low hum of something unseen moving through the canopy far above.  
+
+There is no technology here, no tools, no machines—only the slow, deliberate work of biology. The inhabitants are many, a dense and thriving fauna: creatures with long, many-jointed limbs, their bodies furred or scaled or feathered in patterns that blend seamlessly with the bark and leaf around them. They move in silence, or near-silence, their footfalls soft, their voices a murmur beneath the weight of the living air. They do not speak as we speak; perhaps they do not need to. The city itself seems to breathe around them, to shift and adjust in slow, organic rhythms.  
+
+The land is young, still forming. The roots of the great trees push outward, splitting the earth in slow, deliberate fractures. New growth surges upward in sudden bursts, reshaping the landscape in fits and starts. There is no erosion here, only accumulation—layer upon layer of living matter, settling, hardening, becoming something more.  
+
+The light is ordinary, filtered through the dense canopy in shifting patterns, dappling the ground in gold and green. The air is never still. There is motion everywhere—the sway of branches, the scuttle of small creatures, the slow, inevitable expansion of the city itself. It is a place of constant, quiet activity, a world in the midst of becoming.  
+
+And yet, for all its strangeness, it feels familiar. It feels like a place that has always been, even as it grows. A place that knows itself, even as it changes. A city of roots, a forest of towers—alive, vast, and utterly silent.

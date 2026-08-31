@@ -1,0 +1,15 @@
+The Glass Mill
+
+It's a hollow sphere, perhaps forty meters across, enclosed in weathered copper and bronze panels that have settled into deep verdigris. The panels aren't original - they're salvage, overlapped and sealed with whatever was at hand over decades or centuries. The sphere perches on massive struts, their feet sunk deep into the pale mineral plain that stretches to the horizon.
+
+Inside is constant motion. Thousands of glass spheres, from marble-sized to basketball-sized, cascade in intricate patterns through a complex network of brass chutes, wheels, and launchers. The spheres catch and scatter the light from gaps in the outer shell, creating an ever-shifting constellation of reflections and refractions. The sound is overwhelming - a continuous musical thunder of glass on metal, sphere on sphere, the deep resonant hum of the shell itself acting as a bell.
+
+The glass spheres are being slowly ground down, becoming more perfect as they tumble. The dust falls through gratings to collectors below, where it's automatically gathered and reformed into new rough spheres that join the dance above. Nothing is wasted. The system maintains itself, driven by the thermal gradient between day and night, by subtle magnetic fields in the mineral plain, by the very motion of the spheres themselves.
+
+The few creatures that make their home here have adapted to the rhythm. Spider-like things with crystalline bodies nest in the support struts, emerging to repair worn tracks with spun glass threads. Patches of hardy lichen grow in the shadow of the sphere, feeding on trace elements in the glass dust that escapes. Their slow growth forms patterns that mirror the paths of the spheres above.
+
+The air is hot and utterly dry. What little moisture exists is immediately captured by the hygroscopic minerals of the plain, creating tiny perfect crystals that crumble to dust at a touch. The wind carries a constant subtle chiming, the voice of the Glass Mill carrying across the desert.
+
+Around the base of the structure are the remains of what might have been a settlement - low foundations, mysterious anchor points, a few twisted pieces of metal reaching up like fingers. But they're old, older than the Mill itself, and whatever purpose they served is long forgotten. The Mill's builders are long gone, if they were ever here at all. It simply continues its endless work, grinding spheres to perfection for no clear purpose, following rules written in its very structure.
+
+At sunset, when the light strikes at just the right angle, the whole structure blazes with reflected and refracted light, throwing complex patterns across the plain. For a few minutes, it's possible to see ghost-images of other Mills on the horizon, as if this is just one node in a vast network. But when the light fades, there's only the eternal sound of glass on metal, the endless perfection of spheres, and the patient watching of the crystal spiders as they tend their mysterious charge.

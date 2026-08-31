@@ -1,0 +1,15 @@
+**The Foundry Caverns**
+
+In the belly of a low hill, where ancient limestone once yielded to patient water, now lies a warren of interconnected chambers that hum with ceaseless mechanical purpose. The caverns stretch perhaps half a mile end to end, their ceiling rarely rising more than twenty feet above the cluttered floor—intimate in scale yet dense with the accumulated weight of industry.
+
+The air shimmers with dry heat that radiates from countless brass pipes threading through the walls like metallic veins. Steam hisses not from water but from the vaporization of exotic salts—great crystalline deposits of sodium chloride, potassium nitrate, and stranger compounds that form rainbow crusts along the chamber walls. The salt formations have grown over decades of industrial process, creating terraced galleries of white, pink, and sulfur-yellow that catch what little light filters down from scattered oil lamps.
+
+Machinery fills every available space in dense, purposeful arrangement. Gear trains the size of carriage wheels mesh with delicate clockwork mechanisms no larger than dinner plates. Belt drives snake overhead, powered by a central steam engine that burns not coal but compressed blocks of harvested salt-grass—the only vegetation that grows here, thin and hardy, sprouting from cracks where mineral-rich condensation gathers. The grass grows in sparse, geometric patches, its silver-green blades brittle as wire, adapted to extract moisture from the chemical air itself.
+
+The dominant sound is a rhythmic thundering—not quite percussion, not quite grinding—as massive trip-hammers shape heated metal against anvils carved from single blocks of salt. Smaller sounds layer beneath: the tick-tick-tick of escapements, the whistle of pressure valves, the scrape of automated sorting mechanisms that separate refined crystals by size and purity. Everything echoes strangely in these chambers, the salt walls both muffling and amplifying sound in ways that seem to follow no earthly acoustic law.
+
+In the amber gloom cast by sodium-flame burners, shadows pool thick as oil between the machines. Workers might once have tended these mechanisms, but now they run according to their own inscrutable logic—governors spinning, regulators adjusting, the whole system locked in perfect, perpetual equilibrium. Nothing changes here; the hammers strike the same rhythm they have struck for decades, the crystalline deposits grow at their steady, predetermined rate, and the salt-grass pushes through the floor in the same sparse, geometric patterns.
+
+The air tastes of metal and minerals, sharp on the tongue. No creatures stir in these depths—the chemistry is too strange, the environment too specialized. Only the machines persist, and the patient accumulation of salt, and the endless, echoing percussion of industry reduced to its most essential, crystallized form.
+
+This is a place that has found its perfect expression and holds it, unchanged and unchanging, a monument to the marriage of mechanism and mineral in the earth's quiet depths.

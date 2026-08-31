@@ -1,0 +1,45 @@
+# The Unnamed Coast
+
+You stand on a ridge that did not exist a hundred thousand years ago.
+
+The stone beneath your feet is dark, almost blue-black, and wet in a way that isn't quite rain — it's sea spray carried upward by winds that have no continent to slow them. The ridge runs east and west like a spine just barely lifted from the water, perhaps sixty kilometers long, perhaps less, you cannot tell because the atmosphere is thick with weather and the curvature of the earth is just visible if you watch the horizon long enough. Beyond the spine, in every direction, the sea.
+
+The sea is not like a sea. A sea implies a coast beyond. Here there is no coast beyond. The water extends until the curvature of the planet itself takes it from view, and the wind has been blowing across unbroken fetch for so long that the waves are not waves but standing corrugations in the surface — long, low, regular as a combed field, moving in directions that change every few minutes because the storm systems themselves are still organizing themselves into stable patterns. Nothing has stabilized. Nothing has had time.
+
+The ridge you stand on is basalt. Not the old basalt of cooled magma chambers, the kind you can date and study — this is glass. Vitrified. It shines where the spray has polished it, and where the wind has scoured it the surface is matte and slightly iridescent, the way very fresh glass sometimes looks when the chemistry isn't quite settled. Some of it is still warm. If you kneel and put your palm flat against a sheltered face of rock, you can feel heat rising from below — not residual heat from eruption, that would be cooling by now, but something more even, more deliberate, as if the stone were being warmed from beneath by a process that has no intention of stopping.
+
+This is the strange thing about the place, and it is the only thing that makes it habitable at all.
+
+The rock is doing something it should not be able to do.
+
+Look — at the wave-cut shelf a hundred meters below the ridge, where the sea gnaws at the foot of the basalt. The water there is black with depth, and cold, the kind of cold that comes from a planetary ocean that has not yet been warmed by any sun-warmed current because no such current has existed long enough to organize. And yet, where the water touches the stone, where it laps and retreats and laps again, the basalt is growing. Slowly. By amounts you would not notice if you sat and watched. It is accreting new surface, thin as a fingernail's growth in a year, mineral precipitating out of seawater that has been touched by something in the rock and changed.
+
+The ocean is being built into land, one atom at a time.
+
+Above you, the sky is doing the same work in the opposite direction. Clouds — and there are always clouds — are not water vapor in the ordinary sense. They move strangely. Some of them are dense and dark and conventional, raining in vertical sheets onto the sea and the ridge alike. Others are translucent, almost visible only as a moving dimness in the air, and they carry something other than water. You can see them against the far horizon as faint bands of distortion, like heat shimmer but colder, moving with purpose. Where they pass over the ridge, the basalt darkens and a fine dust — not ash, not quite mineral — settles into the crevices. After a season, a smear of green appears in those crevices. Not a plant. Something simpler. A consortium of cyanobacteria and a fungus-like organism that has no name yet because no one has had time to name it.
+
+There is no soil. There will not be soil for a million years.
+
+But there is already life. Sparse, stubborn, a green that has the texture of paint more than of vegetation. It clings to the north faces of the rocks where the spray falls but the direct sun does not. You can walk for an hour along the ridge and count the patches of green on one hand. Each one is a small manifesto. Each one is a continent-sized event at the scale of the organisms involved.
+
+The wind is the loudest thing here. It does not stop. It varies — a low whistle when it comes straight off the water and funnels through a notch in the ridge, a percussive hammering when it meets the glassy basalt face and shatters into turbulence, a deep tonal moan when the storm systems rotate past and the whole atmosphere begins to slide sideways in slow spirals that last for days. The sound of it is geological. It is the sound of a planet trying on its weather for the first time and not yet knowing what fits.
+
+Under the wind, if you listen, there is another sound: the sea. Not the slap and crash of breaking surf — there is no surf here, the wave regime is wrong for surf, the swells are too long and the water too deep close in. Instead, a deep, continuous, bass-register booming, the sound of an entire ocean basin flexing against a coastline that is still, tectonically speaking, deciding whether to be a coastline. The basalt groans sometimes, very low, at the limit of hearing. This is not the sound of stone breaking. It is the sound of stone being asked to be stone.
+
+Below the booming, if you could listen deeper, there is the sound of the process itself. Not audible. But inferable. A planetary-scale engineering event, distributed across every square kilometer of ocean floor and emerging ridge, taking the dissolved minerals of an ancient sea and the heat of a still-cooling interior and assembling, with extreme patience, a crust. The continents are being extruded. The mountains are being precipitated. The chemistry that will, in another two billion years, produce a stable biosphere and breathable air and recognisable weather is being set up now, and the apparatus doing it is so large that it has no edges. You are standing on its output.
+
+There is nothing built here. No structures, no artifacts, no traces of any being that might have made a tool. And yet the place is unambiguously constructed. Someone — not someone, some*thing*, some process operating at scales that exceed the biology that will eventually arise to study it — has intervened in the geochemistry of a world. The intervention is invisible except in its results. The basalt is too uniform. The mineral precipitation is too even. The pioneer organisms that have arrived on the wind, spores and cells and microscopic travelers from some other, older world, are finding conditions on this new rock that are suspiciously amenable to them, as if the chemistry had been adjusted with their eventual arrival in mind.
+
+But the adjustment is patient. It is not in a hurry. It will not be finished in your lifetime, or in the lifetime of any organism currently alive.
+
+The light here is good light. Not golden, not dramatic. The sun, when it appears between the rotating storm systems, is a slightly cooler yellow than you might be used to, the spectrum of a younger star that has not yet accumulated the heavy-element absorption lines of an older one. Shadows are sharp when the sun is out, and the wet basalt throws them blue-black. The clouds, when they pass across the sun, dim the world gradually rather than abruptly, because there are so many layers of them, at so many altitudes, each one a slight filter.
+
+There are no animals. Nothing moves on the ridge except the wind and the occasional slow creep of water down a glassy face. The green patches do not move. Nothing flies. The ocean has fish in it somewhere, presumably — there are dark shapes visible from the highest point of the ridge, far out at sea, where something large and slow moves just below the surface and leaves a wake that is visible for minutes — but they do not come to the land. The land has nothing to offer them yet. They are not part of the project, or if they are, they are part of a different phase, a later draft.
+
+The place is loud and the place is empty and the place is being made.
+
+You can feel it if you stand still long enough. Not as a vibration in the rock, though there is some of that. As a kind of attention. A sense that whatever is happening here is not happening *at* you but is happening *around* you, the way you might sit in a workshop where someone is building something large and not be addressed but still know, by the quality of the work, that you are not the point of it. The point of it is the thing being built, which is a planet, which is a coast, which is this exact ridge, which is the green in the crevices, which is the cold black sea and the slow warm basalt and the clouds that carry something other than water across a sky that is still being chosen.
+
+You are early. You are very early. You are early enough that the wind has not yet decided which direction is prevailing. You are early enough that the ocean has not yet decided where the coast is. The whole arrangement is provisional. In a hundred million years this ridge will be a mountain range, or it will be gone, eaten back into the sea by processes that have not yet started. You cannot know which. The system is not old enough to have precedents.
+
+You stand on it now, in its first draft, in the wind, in the spray, on glass that is still warm.

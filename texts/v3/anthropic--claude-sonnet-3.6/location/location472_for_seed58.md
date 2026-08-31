@@ -1,0 +1,15 @@
+In the depths beneath an unnamed city lies a vast mechanical condenser - a cathedral-scale chamber of copper pipes and iron gratings where the heat of the world above is harvested. The space feels almost biological in its density, with ducts and tubes wound around each other like arteries, their surfaces beaded with perpetual condensation that gives off a faint metallic smell.
+
+The heat is oppressive here, radiating from above through layers of industrial detritus and urban foundation. But rather than dissipating, it's caught and channeled, forced through an intricate network that draws what little moisture exists from the hot air. Droplets form and collect, running in rivulets down the curved walls to feed the city's water systems.
+
+Thin vines have found their way down through cracks in the masonry ceiling, their pale leaves adapted to the dim light that filters through occasional maintenance grates. They survive on the perpetual dampness, creating delicate webs between the pipes. Their presence feels almost transgressive in this mechanical space, yet they've become part of its function, their leaves catching additional condensation that drips down to join the collected moisture below.
+
+The chamber pulses with a constant, barely-audible rhythm - the sound of pressure changing, of water collecting and releasing, of heat exchanging through metal. Every surface vibrates subtly with this industrial heartbeat. Occasionally, a pipe will release a long, low whistle as pressure equalizes, the sound echoing through the cramped spaces between the infrastructure.
+
+The floor, where visible beneath the maze of pipes, shows signs of recent excavation - sharp-edged cuts in the bedrock, fresh-poured concrete footings, newly-driven bolts. This is a young system, still being expanded, still finding its final form. Workers have left their marks: half-finished junctions, tools forgotten on makeshift scaffolding, chalk measurements scrawled on pipes.
+
+Steam occasionally bursts from release valves, temporarily filling small sections with white mist that quickly dissipates into the hot air. The moisture never quite leaves - it's always being pulled back into the system, processed, collected, redistributed. The whole chamber functions like a mechanical gill, extracting what it needs from the city's waste heat and exhaust.
+
+Navigation through the space requires intimate knowledge - there are no straight paths, only narrow passages between pipes, sudden drops bridged by maintenance catwalks, and ladder rungs set into walls. The few lights are dim orange work lamps, creating deep shadows that make the space feel larger than it is, the boundaries lost in darkness and steam.
+
+At the lowest point, where the main collection tanks rest on bare rock, the heat is most intense. Here the pipes converge into massive joints, their surfaces so hot they shimmer, while below them the collected water waits in darkness, gradually cooling before being pumped back up into the city above.

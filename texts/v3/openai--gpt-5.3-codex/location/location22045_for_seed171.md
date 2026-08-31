@@ -1,0 +1,23 @@
+From above, the place looks like weather wearing a coat of green.
+
+There is no exposed ground in the usual sense. The mountains are there—high-backed, cold, and long—but every slope is upholstered in living tissue so thick that rock appears only as wet seams, like bone through healed skin. Water sits just beneath everything. Step on a mat of fernwood and it exhales; kneel beside a ridge and moisture beads up through leaves that were never meant to be touched by feet. Runnels form and vanish hourly. Fog condenses on stems, drips to lower canopies, then is pulled sideways by wind into hanging rivers that move through vegetation before they ever touch stone.
+
+It is dim even at midday. Not dark—just filtered, greened, and deep. Light has to pass ten, twenty, fifty layers of plant architecture: translucent fronds the size of sails, braided vine-trunks, broad fungal-plant membranes stretched between peaks like skin over frames. The sky is present mostly as brightness, not color. Clouds graze the terrain because the terrain is high enough to make its own cloudline. Rain is frequent but not dramatic; the dramatic part is what happens after, when every surface starts weeping at once. Entire cliff faces sweat into curtains. Root-pillars leak from within. The world is always post-rain, always on the edge of another downpour.
+
+Despite the density, this is not old growth in the familiar sense. It feels embryonic—newly assembled at continental scale. Valleys are still deciding where to be. Watersheds reroute by the week because roots grow faster than rivers can cut. Erosion barely has a foothold: loose mineral skins remain under plant lattices, and geology is still soft in behavior, if not in material. You can watch a ridge “happen” over a season as anchored mosswood draws silt upward through capillary networks and hardens into living berms. Landform here is less carved than cultivated, but by no visible gardener.
+
+And the sound—always the sound. Deafening not in bursts, but in totality. Waterfall thunder, leaf-shear, trunk resonance, subsonic pumping deep in root basins, and the continuous hiss of condensation flashing to mist along cold surfaces. The plants themselves contribute a mechanical choir: valves opening, pressure equalizing, vascular surges moving kilometers through hollow megastems. In some groves the stems act like organ pipes tuned by wind and moisture gradients, producing chords that can be felt in your ribs. Silence does not occur naturally here; the nearest equivalent is moving from roaring to merely overwhelming.
+
+There are no animals at all. No wings, no burrows, no eyeshine, no grazing marks. Yet nothing feels empty, because plant life has occupied every ecological role by multiplication and specialization. Some canopies are photosynthetic; others are chemosynthetic, feeding off mineral seep and atmospheric charge. Some root systems crawl like glaciers, not from locomotion but from relentless growth and programmed dieback. Nutrient exchange is dense enough to mimic nervous systems: electrical pulses travel through wet phloem webs at surprising speeds, coordinating stomatal fields over hundreds of kilometers. In storms, entire mountain flanks close their leaf-surfaces in sequence, wave-like, reducing drag before gust fronts arrive. It looks like foresight. It may be.
+
+That is where the “beyond modern” quality lives: not in machines placed in nature, but in nature that has crossed into engineering. No roads, towers, cables, or tools—nothing built, nothing assembled by hand. But the ecosystem executes functions that feel technological: atmospheric harvesting, load-balancing in biomass grids, distributed computation in root mycelia-like mats (though not fungal here, strictly vegetal analogs), and energy storage in pressurized sap reservoirs deep beneath plateaus. Physics still applies, but only if you allow for biological materials operating at scales and efficiencies not seen on Earthly timelines. The world does not contain infrastructure; it *is* infrastructure, grown.
+
+The rules are simple and absolute:
+
+- Moisture is currency. Anything that retains it persists.
+- Surface is temporary. Growth will claim it, layer it, and hide it.
+- Exposure is brief. Open space closes.
+- Sound is structural. Vibration shapes growth as much as light does.
+- Nothing hunts, nothing flees, yet everything responds.
+
+Stand still long enough and the landscape subtly reorganizes around gradients you create: warmth, pressure, breath humidity. Not aggressively, not with intent you’d call predatory—just with complete, packed attentiveness. A continent-sized marsh-canopy, cool and high and still under construction, building itself in deafening green.

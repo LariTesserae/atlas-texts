@@ -1,0 +1,25 @@
+# The Sunken Relay Station
+
+The water here has no memory of sky. It exists in absolute cold, pressed into stillness by the weight of everything above it—three hundred meters of black ocean that has long since forgotten the concept of waves. Yet within this darkness, something persists.
+
+The relay station was built in an era of different ambitions. Its main chamber spans perhaps forty meters across, a flattened dome of riveted steel plates now furred with decades of bacterial mats—pale growths that consume the last chemical traces leaking from corroded seams. The structure settled into the sediment generations ago, listing eleven degrees to starboard, and the seafloor has risen around it like a body accepting a splinter. Silt drifts have climbed its western face. Anemone-like organisms, if they can be called that, have colonized the intake vents—not quite animals, not quite anything else, their tissues strange and simplified by the lightless pressure.
+
+Inside, the architecture reveals itself in fragments. Through the cracked observation port, filtered bioluminescence from the bacterial colonies outside provides the only illumination—a sourceless blue-green glow that makes distances impossible to judge. The water within the chamber is marginally warmer than the killing cold outside, heated by something still running in the station's guts. Pumps cycle somewhere below the deck plates, their rhythm felt rather than heard: a subsonic pulse every nine seconds that has continued for so long it has become the heartbeat of this place.
+
+The main deck is dense with abandoned industry. Monitoring consoles stand in rows, their screens dark, their housings split by pressure differentials that equalized decades ago. Cables loop between them like the calcified vessels of some mechanical organ, many now serving as anchor points for the sparse vegetation that has found purchase here—not plants exactly, but chemosynthetic filaments that extend from the warmer vents near the floor, reaching upward in pale threads toward nothing. They grow perhaps a centimeter per year. Some are very long.
+
+Between the consoles, in the cramped aisles designed for workers who never returned, the density becomes almost claustrophobic. Tool racks still hold their wrenches. A clipboard drifts against its tether, pages long since dissolved, metal clip green with verdigris. The station's manifest, posted on a board near what was once the operations center, lists cargo that was never retrieved: industrial components, sealed containers of something simply labeled "substrate," and personnel effects belonging to a crew of eleven.
+
+The silence is the kind that presses against the inner ear. Sound does not travel far here—the water is too cold, too still, too compressed. When the pumps cycle, you feel it through your skeleton. When the hull settles another millimeter into the sediment, as it does perhaps twice per year, the groan propagates through the metal itself rather than the medium surrounding it. Otherwise, nothing. The bacterial mats grow in silence. The anemone-things filter particles in silence. The station persists in silence.
+
+But the station is not inert.
+
+In the lower engineering compartment, accessible through a hatch that someone welded open long ago, the reactor continues its work. Not nuclear—something else, something that runs on principles the surface world may have abandoned or forgotten. It produces heat, enough to keep the interior water at a temperature where certain processes remain possible. It produces the electrical current that powers the pumps. And it produces, at irregular intervals, a signal.
+
+The signal is not communication. It is too degraded, too reflexive, like the twitch of a severed limb. But it propagates outward through the hull, through the water, through the sediment, and somewhere in the darkness beyond the station's light, something responds. Not often. Not predictably. But the exchanges have been occurring for longer than anyone has been counting—the station calls out, and after a delay of hours or days, something answers with a pulse of its own.
+
+What lives out there remains unclear. The rare fauna of this depth are glimpsed only at the edge of the bioluminescent glow: a trailing filament that might be a siphonophore, a shadow that moves against the current, the impression of eyes adapted to see wavelengths that do not exist here. They do not enter the station. They do not approach the light. They only wait, at the threshold, as if the relay station is still relaying something they need to receive.
+
+The sediment around the structure has developed patterns over the decades—concentric ridges that suggest slow circulation, perhaps thermal, perhaps something else. In these ridges, fragments of the station's original cargo have surfaced and been reburied countless times: a rubber gasket, a length of copper wire, a bone that may or may not be human. The seafloor remembers everything it swallows, eventually.
+
+The water inside the dome tastes of iron and time.

@@ -1,0 +1,21 @@
+The place is called, in the tongue of its artificers, *Khazad-dum*. But that is a lie, or at least a joke in poor taste, for *Khazad-dum* means "Dwarf-delving," and there are no dwarves here, nor ever have been. The name is a bit of miner's gallows humor, a cruel joke on the stone itself.
+
+For what has been delved here is not stone, though stone is near enough the final product. This whole valley, this high, bright bowl cupped in the hands of jagged peaks, is built of a single thing: processed guano.
+
+The *k'tharr*, the "Shriekers," are the key to everything. They exist in a state I would hesitate to call living, though it is no less life than a coral reef or a wasp's nest or a single, gigantic slime mold. They are… colonies. Aggregations. Architectures of specialized cells, each with a particular task. High on the peaks, they nest in towers of their own waste, huddling together for warmth, because though the sunlight is bright here, the air is thin and carries the chill of the heights.
+
+All day, they shriek. A chorus of high-pitched keening that vibrates visibly in the air. They shriek when the sun rises. They shriek when the wind blows too hard. They shriek when one of them dies, which is often, for the altitude is cruel and the wind bites deep. But mainly, they shriek when the pressure builds, when their bladders are full.
+
+For they are flying filtration systems, these *k'tharr*. They drink the condensation that gathers on the mountaintops, the eternal melt of high-altitude ice, and from it, they extract valuable minerals. Then they excrete the dross. This dross, processed and filtered and concentrated through the bodies of the *k'tharr*, is the building block of *Khazad-dum*.
+
+The valley floor is terraced. It's a packed, almost impermeable surface built up over millennia. The color is a uniform, slightly speckled, grey-white. The surface is polished smooth by the constant weeping of condensation. Moisture glistens everywhere, reflecting the harsh sunlight. Tiny rivulets, milky with dissolved minerals, thread across the terraces. Each terrace is ringed by low, curving walls, also constructed from the same material, polished and glistening. These walls are riddled with holes, small and perfectly round, arranged in geometric patterns. They whistle in the wind, a continuous, low hum.
+
+The builders of this place, the ones who tend the *k'tharr* and harvest their waste, are simple folk. They wear woven cloaks of stiff, fibrous material, dyed in muted shades of grey and white. They carry buckets and shovels of polished stone. Their tools are simple, but their task is unending. The *k'tharr* never stop shitting, and the terraces must be maintained. New structures must be raised. Walls must be repaired. The flow of water must be managed.
+
+They move slowly, deliberately, across the terraces. There is a sense of profound patience about them. They have seen generations of *k'tharr* rise and fall. They have seen the sun rise and set countless times. They understand the slow, patient rhythm of this place. They understand the value of *shit*, and they tend to it with reverence.
+
+Here and there, jutting from the terraces, are structures of considerable elegance: spires and arches, delicate filigree patterns built entirely from the same processed material. They are not houses or workshops. They are, instead, condensers — huge, intricate cooling towers that draw moisture from the air. Water drips constantly from their surfaces, collected in basins and then piped, through narrow channels, back up to the mountaintops for the *k'tharr* to drink.
+
+There is a profound lack of waste in this place. Everything is recycled, repurposed, integrated into the larger system. The builders live simple lives, with few possessions. Their lives are not luxurious, but they are harmonious. They are part of something larger than themselves, a grand, slow process of transformation.
+
+It is a silent, reflective place, save for the keening of the *k'tharr* above, and the sibilant whisper of condensation dripping everywhere. It is a place of bright light and deep shadow, of cold stone and constant moisture. It is a place where shit becomes art, and where the smallest creature can shape the land. A place where life, however strangely manifest, finds a way.

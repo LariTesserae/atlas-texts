@@ -1,0 +1,27 @@
+The place is called the **Sighing Basin**.
+
+It sits high in a fractured young range that has no business existing. The rock is only a few centuries old—born yesterday by planetary standards—yet it has already been lifted into thin, gasping air. The peaks around it are jagged, almost serrated, as though the world’s crust tore open and simply never healed. Between these knife-edges lies a single cupped valley no larger than a modest cathedral district, perhaps four hundred meters across at its widest. That is the entire world you can walk without climbing.
+
+Everything here is wet in a way that feels personal.
+
+The air itself sweats. Moisture condenses on every surface the moment it cools even slightly, beading like quicksilver on black stone, then sliding downward in perfect, silent films. The rock weeps continuously; not in drips but in slow, glassy sheets that never quite reach the ground. Halfway down each face the water simply vanishes, translated by something that refuses to obey normal phase rules. Where it should pool it instead lifts away in trembling, mercury-like globules that drift upward into the hot mist.
+
+The temperature is ferocious—close to 48 °C in the direct light—yet the heat is never dry. It is a wet, suffocating heat that makes every breath feel like inhaling warm soup. The light is ordinary sunlight, almost aggressively normal, yet it arrives filtered through a permanent low haze of micro-droplets so that every edge glows with faint, prismatic halos.
+
+Vegetation is lush but strangely sparse. Between the scattered black monoliths grow isolated stands of something that looks like horsetail and bamboo had an offspring made of green glass. Their stems are translucent, segmented, and filled with slowly circulating luminous sap. They rise in tight groves of no more than seven or eight stalks, each grove separated from the next by thirty or forty meters of bare, steaming stone. Where the roots touch rock they secrete a dark enzyme that melts the surface into smooth obsidian bowls; each bowl holds a perfectly still mirror of water that reflects the sky upside-down, even when the real sky is hidden by mist.
+
+The only buildings—scattered, half-swallowed by the landscape—are three shattered remnants of what were once delicate lattices. They are not ruins in the ordinary sense. Their material is a post-modern lattice of exotic matter and stabilized wormhole foam; even broken, the fragments refuse to fall completely. A single arch still stands above the largest grove, hovering two meters off the ground, rotating one degree every hour. When the sun strikes it at the correct angle the arch sings a single, perfect note so low it is felt in the teeth rather than heard.
+
+Fauna is rare. Once every few hours something moves. A fist-sized creature like a cross between a jewel beetle and a hummingbird darts between the glass-plants, sipping condensed moisture from their joints. Its wings do not beat; they phase in and out of local spacetime, leaving faint after-images that linger for several seconds. You sometimes catch it watching you with eyes that have no pupils, only slow spirals of violet light. It never comes closer than ten meters. If you move toward it, the creature simply ceases to have ever been there, leaving only a small vacuum-pop and the smell of ozone.
+
+The Basin is active. You can feel processes older than language moving beneath the surface. Every twenty-seven minutes the temperature drops three degrees for exactly ninety seconds, long enough for the floating water globules to freeze into delicate crystal chandeliers that hang in the air like frozen prayers. Then the heat returns and they melt upward again. During these brief cold pulses the glass-plants contract with audible clicks, their sap glowing brighter, and the black rock blooms with transient frost-ferns that evaporate the moment the heat returns.
+
+Sound is mostly quiet, but not absent. There is the constant soft hiss of condensing atmosphere against hot stone. There is the low, patient note from the floating arch when it aligns with the sun. And, deepest of all, there is the Sigh itself—a slow, tectonic exhalation that comes up through the rock every few hours. It is not wind. It is the mountain breathing, pushing a wave of warmer, wetter air through invisible fissures. When the Sigh arrives, every floating droplet of water trembles in sympathy and the translucent plants bow as though in prayer.
+
+There are rules here that no one wrote down.
+
+- If you speak above a whisper the floating arch will rotate faster, as though irritated.
+- If you remove anything living (even a single leaf) the temperature will rise another six degrees within minutes and stay there until you leave.
+- At night—which is only a deeper shade of gold rather than true darkness—the jewel creatures gather in hundreds at the center of the largest mirror-pool and sing in frequencies that make new crystals grow inside your bones. The sensation is not unpleasant. Many choose never to leave after hearing it.
+
+This is a young place. It is still deciding what kind of strangeness it wants to become. For now it is content to be a hot, wet, breathing cathedral no larger than a hamlet, balanced on the edge of physics, quietly condensing its own atmosphere and sighing to itself in the thin, high air.

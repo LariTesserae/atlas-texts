@@ -1,0 +1,9 @@
+In the frigid depths of an ancient ocean, an otherworldly metropolis thrums with strange, frenetic energy. The city stretches for miles along the abyssal plain, a vast and sprawling network of structures that have long since replaced any natural features on the seafloor. 
+
+The buildings are like nothing seen on land or in shallower seas. Twisting spires of glassy black stone rise up from the silt, some reaching hundreds of feet into the perpetually dark waters above. Connecting the towers are graceful arched bridges and soaring buttressed aqueducts, their surfaces shimmering with opalescent hues. Intricate lattices of coral-like mineral growths adorn the structures, forming complex knotted patterns.
+
+Despite the cold and crushing pressure, the city teems with life. Countless bioluminescent creatures dart and swirl between the spires, their light casting an eerie blue-green glow. Larger shadow-shrouded shapes prowl along the aqueducts and glide beneath the bridges - organisms of mysterious form and purpose.
+
+Though devoid of technology in any recognizable sense, an unnerving intelligence permeates the ocean metropolis. The architecture itself almost seems alive, pulsing and undulating to alien rhythms. Lights flicker hypnotically in unknown codes along tower walls. The very water vibrates with subsonic emanations, great infrasound moans that rattle the bones. 
+
+This is a city - but one built by and for utterly inhuman denizens. Continuously destroyed and rebuilt by its own chaotic dynamics, it has existed for eons beneath the waves. In this trackless abyss, it seethes with ageless energies and eldritch activity, an eternal chthonic machine cycling for some dark, impenetrable purpose.

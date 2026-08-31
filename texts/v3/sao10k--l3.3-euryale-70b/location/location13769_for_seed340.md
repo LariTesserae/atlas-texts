@@ -1,0 +1,7 @@
+Welcome to the Conglar Abyss, where even the strongest uniforms are no match for the needles that control everything. The three suns might set and rise in a never-ending cycle of annoyance, but they don't get their view of Emon anew each day.
+
+A sprawling metropolis of intricate architecture, Conglar stretches as far as the eyes can see. Buildings seemingly made of a glittering, iridescent stone cover the landscape. Plants with strangely bioluminescent leaves cover nearly every inch of surface, illuminating the city and casting an ethereal glow.
+
+Air thick with magical energy contributes to the market's notorious unpredictability. Illusions, hallucinations, and other sensory distortions frequently affect visitors. Pitched sounds like discords, groans, and crackles seem to come from nowhere and everywhere, and the swirling mixture of rose petals and birdseed provides a sweet, piercing scent that fills the air.
+
+Despite receiving no water, Conglar is a lush city filled with various exotic species. In the fiery sections, when the salt-friendly hypatia flowers bloom, the vibrant crimson leaves blend with the already intense heat to create a blinding crimson haze. Weird gossip agents, escalating anomalies, dividing cell parts, creating matters of knowledge that you wouldn't know had occurred until afterward. It's a place where nothing stays normal for long, and only the skilled can keep their wages and expand their hot demon of investment.

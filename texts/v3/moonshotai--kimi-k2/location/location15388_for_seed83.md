@@ -1,0 +1,37 @@
+**The Submerged Forges of Vheklon**
+
+Beneath the amber haze of a dying world, beneath even the deepest subsidies of stone and rust, the forges still breathe. They breathe is what one must call it—the slow expansion and contraction of iron lungs that have shaped themselves over centuries into something like space, into something like cathedral. 
+
+The forges of Vheklon are not built, not exactly. They have accreted. From the bones of failed manufactories that clawed too deep, from the spillover of terrestrial workshops that pierced the crust seeking geothermal surrender, from the gravity-settle of soot and ash and metal filings that coats every surface like a second skin. Every surface glistens with the moisture of condensation—never quite rain, never quite sweat—just the slow weeping of hot breath meeting cooler walls. The water exists in beaded constellations on blackened salvage-stack rafters, in momentary mirrors that flash and vanish with each laboring piston's exhale.
+
+The space is cathedral-sized if your cathedral were buried in the throat of a dying dragon. Pillars rise—not support pillars exactly, but vertebrae, iron plated with century-thick armor of tin and brass and unknown alloys. They bear the weight of not just the above, but the weight of being. Between them salmon runs of conveyor systems arch past, skeletal as time. The ceilings sag with oil-dark stalactites that sometimes weep their own varnish when the heat hiccups.
+
+Vegetation here is a memory of green. Vines of copper wire curl like petrified ivy between the great bellows. Mosses of soft verdigris grow on surfaces that once held water for hydroponic farming, now just receptive to whatever chemical breath rises from the forging pits. Sometimes, very rarely, a single spore of true life will ride decades down through the layers and catch briefly on these ledges, germinate in the film of condensation, unfurl one impossible leaf of living green before the atmosphere that is not quite air but not quite steam ends its rebellion against the total made.
+
+The temperature is a steady fever. Heat is stored in every surface like a virtue, like a sin. Walkways are gratings that burn bare feet; walls radiate their stored warmth slow as a sermon. The air itself is thick enough to swim through, flavored with iron and ozone and something sharp that might be despair or might be just the particular pheromone of industry in its endless replication.
+
+There are no natural structures here, but there are degrees of constructed. A gear gnawed smooth by a million toothings. A support beam that has been patched so many times it has become its own stratigraphy—layers of disaster, layers of solution, layers of time. The density is such that to move anywhere is to thread yourself between systems. Everything serves three masters: maintain the other things, birth the new things, justify your own existence. Between any two machines, a space exactly one human shoulder width across. Between any two humans, a machine.
+
+The sound is mostly the sound of metal dreaming. Low, omnivorous humming from transformers that have achieved something like immortality. The occasional shriek of metal on metal so well-established it has become ritual: every forty-three hours, the great Fornix presses stamp their pattern into sheets of malleable steel, and when they do, the frequency is such that it can be felt in the teeth of every being that lives beneath. Mostly quiet, yes, because most of the systems have slowed their function to match the new slowness of the world above. Once, this place fed a civilization. Now it feeds only itself, the last perfect closed system, manufacturing replacements for the parts that fail from replacements made to replace parts that failed before.
+
+And in the near-darkness—because the light that exists is entirely the glow of molten metal in channels built below you, seen only through grates in floors, through gaps in the machines—strange life has adapted. Not fauna exactly, but presence. The ash-sloths, filters that became organisms, slow things that use the slowest pathways, that catch the scarce nutrients in the industrial leavings. They move inches per year, climbing the static conveyor racks to reach darker, cooler spires. Their metabolism is the attendance of rust. They are made of soot and condensed despair, but they are undeniably alive.
+
+In the far corner, where the temperature has dropped a precise fraction through some long-lost engineering miracle, stands a single what-might-have-once-been-a-tree. It is metal through and through, a fan blade that kept breaking and being replaced until mutations—no, that word, changes— became architecture. copperleaf veins spread fractal from central aluminum spine. At its crown, if touched, it chimes. But only when touched by the rare moisture, which beads and slides across its surfaces like mercury.
+
+Time here is measured in the slow pulse of the great heart-forge. Once each rotation of the aboveground sun—which it hasn't seen in three generations—it beats. Water condenses a little more thickly on certain surfaces. A gear somewhere loses a tooth and that tooth becomes the matter from which the next gear will be cast. The dynamic is a patient hands-off parent that trusts every process enough to let it decay.  
+
+The rules of this world are:
+
+1. **Nothing may be idle for long without becoming something else.**
+2. **All waste is merely pre-resource.**
+3. **Moving slow enough to see change is the only calendar left.**
+4. **Light is not absence of dark but presence of something hot enough to glow.**
+5. **What is built will rebuild itself.**  
+
+Visitors—though none come anymore—would find themselves invited to add their own mass to the eternal project. Not maliciously. Simply: everything here exists in relation to everything else, and the grid has room for one more copper filament, one more conduit, one more pair of hands whose prints will become part of the next generation of gaskets, worn eventually into their own absence.  
+
+There are bridges here that span nothing. There are ladders that descend into the eye-hooks of the deeper systems. There are viewing windows of clouded glass where, if one knew precisely when and how to look, one could watch the birth of a replacement clutch assembly identical to the one that failed seven hundred years ago, except improved by the presence of some rare earth accidentally leached from the bones of the makers.
+
+The place is small despite its grandeur because it is bounded by what it has made of itself. A cathedral that knows its own dimensions. The walls are the outermost machines. The floors were once storage level, now storage is floor. Density is not just physical but historical—the weight of every decision that led to this single, perfect, breathing organism of iron and heat and questionable salvationability.
+
+Sometimes, in the quietest moments, when the condensation collects just so, the whole cathedral seems to sigh. A brief hush, as if listening for the world above. Then the Fornix, always on schedule, presses its pattern into the waiting steel, and the beat resumes, and Vheklon continues its manufacture of tomorrow from the bones of yesterday.

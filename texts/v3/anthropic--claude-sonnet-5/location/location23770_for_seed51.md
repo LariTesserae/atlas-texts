@@ -1,0 +1,31 @@
+# The Lowmere Reach
+
+The land here is flat in the way that water makes things flat—not by force but by patience, by sheer accumulated millennia of settling. You are in a basin, though you won't see its edges; the scale of the place exceeds what any ridge could frame, and besides, there are no ridges here, only the suggestion of distance dissolving into vapor and the low gray ceiling of cloud that never quite lifts.
+
+## Ground and Water
+
+The terrain is a fretwork of channel and sward—peat-dark soil holding more water than land, threaded through with slow-moving rivulets that don't so much flow as *redistribute*. Step anywhere and the ground exhales: a faint give, a faint sound, water finding new paths under your weight. Pools sit everywhere, black-mirrored, fed from beneath rather than above, as though the water table has simply decided to stop pretending it's separate from the air. Mist condenses on every surface—not falling, not rising, just *occurring*, the way breath occurs on cold glass. The rocks, where they show through the moss and reed-mat, weep continuously, fine beads tracking down basalt-dark stone that has been smoothed by a erosion so long-practiced it reads as deliberate, almost architectural, though nothing built it.
+
+This is old ground. Erosion has done its slow editing work for so long that the land has stopped changing in any way you could perceive in a human lifetime—the channels have found their final arguments, the stones their final shapes. It has the settled quality of a sentence that has been revised down to its last necessary words.
+
+## What Grows
+
+Vegetation is lush but low—nothing claims the sky here, or rather, the sky has made an agreement with the ground that nothing will. Reeds, broad sedge, deep-cushioned mosses in greens that shade toward black in the dim light. Strange fungal shelves grow in radiating colonies off half-submerged logs, each ring glowing faintly at its growing edge—not bioluminescence exactly, more like the plant has learned to host something that isn't light but resembles it, a cold violet-green phosphorescence that pulses on a rhythm too slow to be breath and too fast to be tide. Clusters of broad-leafed plants stand in the shallows with leaves like cupped hands, holding rainwater that never spills even when the rain comes hard, as if the leaf and the water have negotiated a separate physics between them.
+
+Fauna is rare, present mostly as absence—a heron-shaped silhouette seen once at the limit of visibility and never again, the suggestion of something moving beneath a pool's black surface that displaces no visible wake. When you do see a creature, it tends to be wrong in a small, specific way: too many joints in a wading bird's leg, a dragonfly whose wings move in a meter that doesn't match the air around it, hovering with a sound like a struck bowl rather than a buzz.
+
+## The Sound
+
+It is loud here, though nothing about the landscape looks like it should be. The loudness comes from everywhere and nowhere—a continuous layered roar built from a thousand small sources: water finding water, reeds keening against each other in winds you don't feel on your skin, the resonant ring of those phosphorescent fungal shelves which seem to amplify and hand off sound between them like a bucket brigade. Underneath it all is a bass tone, felt in the chest more than heard, that doesn't rise or fall—a held note from the earth itself, as if the basin were a cavity and something very large were breathing through it from very far away. Occasionally this undertone *shifts*, half a step, and for a moment the whole landscape seems to lean with it.
+
+## The Wrongness
+
+This is where the place stops being merely a wetland and becomes something else. The light is dim, diffuse, sourceless—you can't find the sun in the cloud-ceiling, and shadows fall in directions that don't agree with each other, as if there are two or three competing light-sources resolved into one ambient grayness, like overlapping film exposures. Distances are unreliable: a pool that seemed forty paces off takes four hundred steps to reach, or three. Sometimes reflections in the black water arrive slightly before the thing they reflect moves—you'll see your hand lift in the pool a half-second before you decide to lift it, and have to choose whether to follow.
+
+There is no built structure anywhere—not a path, not a cairn, not a single human mark—and yet the place has the *feel* of engineering, vast and incomprehensible, embedded into its basic substrate. The fungal colonies are not natural light; they are something closer to instrumentation, though no one designed them, or no one you'd recognize as someone. The held bass note is not weather. The way water moves uphill in thin places, just slightly, just enough to notice and then doubt yourself—that is not hydrology, not anymore. Tech beyond modern doesn't appear here as machines or towers; it appears as a deep retuning of the rules water and light and growth are supposed to obey, applied so long ago and so thoroughly that it has been absorbed into the ecology itself, indistinguishable from nature except in these small persistent seams where the stitching shows.
+
+## How It Moves
+
+The place is not static. Mist thickens and thins on cycles that don't match any day you've lived. The pools sometimes go perfectly still and mirror-flat all at once, every one of them in the same instant, for the span of a breath, before resuming their micro-disturbed shimmer. The fungal light pulses build toward something—a slow crescendo over what feels like hours—and then reset without climax, as though the place keeps approaching an event it never quite has. Reeds lean as a whole field, synchronized, with no wind to explain it, then settle back into independent sway.
+
+You get the sense, walking here, of being inside a process much larger and slower than you, one that completed its architecture so long ago that the architecture became indistinguishable from a marsh, and that what you're hearing—the loudness, the held note, the half-second-early reflections—is not malfunction but ongoing function: something still running, still tending its instruments, in a basin that long ago stopped needing anyone to notice.

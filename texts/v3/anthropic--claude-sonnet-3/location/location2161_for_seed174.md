@@ -1,0 +1,11 @@
+You find yourself in a dense, verdant grove that seems to vibrate with life. The air is cool and crisp, hinting at high elevation, but the atmosphere is thick with moisture, water droplets beading on every surface. The ground beneath your feet is spongy, a carpet of mosses and ferns saturated with recent rainfall.
+
+Towering above you are gigantic, twisted trunks covered in layered bark like shingles. These immense tree-analogues stretch impossibly high, their tangled crowns weaving together into a canopy that blots out all but scattered shafts of brilliant light. Dangling from the branches are dripping curtains of ropy vines and cascades of leafy fronds, creating a living, shifting latticework all around you.
+
+The very architecture of this place is formed from the interwoven plants. Curved and gnarled branches lattice together to create echoing chambers and vaulted spaces within the grove. Shelves of fungi jut out like balconies, while hollows between massive roots form sunken alcoves. The air hums with a constant, overwhelming white noise - the sounds of countless lifeforms moving, chittering, thrumming in a deafening chorus.
+
+Forms writhe and scurry through the greenery at every scale. Bloated, slug-like creatures inch over bark, trailed by smaller, symbiotic fellows. Flickers of iridescent motion hint at colonies of tiny, winged biota riding the air currents. Somewhere, something much larger is pushing its way through the undergrowth with a series of muffled crunches and snaps.
+
+Tools and structures made of woven vines, molded bark and fungal materials are scattered here and there, hinting at a primitive technology born of this living world. But any sign of lasting settlement is quickly overgrown and reclaimed by the exuberant ecology. This is a place in the active throes of growth and constant renewal, where youth and age blend in an endless cycle of verdant life.
+
+The atmosphere here feels primordial yet alien - an evolutionary branch that took a strange turn into a universe composed entirely of arboreal flora and its symbiont fauna. A verdant genesis continuously birthing itself anew in an emerald chaos. A vibrant, fecund dream wholly unaware of the existence of anything but itself.

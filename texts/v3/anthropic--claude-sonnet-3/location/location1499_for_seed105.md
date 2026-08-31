@@ -1,0 +1,9 @@
+Welcome to the Frozen Tundra of Vhriskanor, an ancient and eerily silent expanse that stretches out under a dim, hazy sky. This high altitude plateau lies at the heart of a long-extinct volcanic range, its surface carved by eons of erosion into a gently undulating sea of deep crimson sand and gravel. 
+
+The air is thin and bitterly cold, each breath crystallizing into a faint mist. Strange, slow-shifting patterns of frost rime the ground in delicate fractal spirals. Though lifeless now, this desolate realm was once home to simple silicon-based organisms that thrived in searing temperatures and noxious atmospheres rich in sulfur compounds. Their fossilized remains jut from the ruddy sand like alien coral reefs or the crumbling spines of prehistoric leviathans. 
+
+Scattered across the vastness are the solitary remnants of some ancient culture – weathered standing stones, cubical structures of fused obsidian, or arched gateways leading nowhere. Their purpose and makers are long lost to the grinding entropy of time. Perhaps they were shrines, boundary markers, or functional constructs serving a civilization that perished aeons ago. Now they simply accent the barren landscape with an air of deep mystery.
+
+The pervading silence is profound, broken only by the faint subharmonic vibrations that hum through the ground – the subtle telltale signs of this world's sluggishly churning geology. Those with well-tuned senses might also detect the basso profundo whirrs and clicks of spindly, crystalline beings that traverse realms of bitterly cold plasma skirting the edges of reality.  
+
+To the far ultraviolet horizon, a bank of purplish cloud-like alakritions slowly etches itself across the sky in eldritch hues, refracting and distorting any light that dares shine through its miasmic folds. A reminder that in this most desolate and eerily hushed place, strangeness is as eternal as the enduring cinders of Vhriskanor's dormant majesty.
