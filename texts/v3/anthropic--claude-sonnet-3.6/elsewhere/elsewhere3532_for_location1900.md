@@ -1,0 +1,15 @@
+Far above this chamber, beyond layers of rock and soil, lies the Mirror Plain - a vast salt flat that stretches to every horizon. The surface is blindingly white under the harsh sun, cracked into hexagonal plates that extend with almost perfect geometric regularity. Each plate is exactly one meter across, their edges raised slightly to create a subtle honeycomb pattern across the landscape.
+
+The air here is absolutely dry, the opposite of the chamber below. Any moisture that touches the salt surface is immediately absorbed, creating brief, glassy patches that quickly crystallize into new layers of white. The sky above is an intense, almost metallic blue, unmarred by clouds - water vapor cannot survive long enough to form them.
+
+In the center of this plain stands the Prismatic Collector - a being that appears as a vertical column of transparent crystal, about three meters tall. Its surface constantly shifts and facets, catching sunlight and breaking it into spectra that dance across the salt plain. Unlike the Lattice Tender's fluid form, the Collector maintains a rigid structure, though its internal geometry is in constant flux.
+
+The Collector moves by growing and dissolving itself, leaving a trail of delicate crystal spires that quickly crumble to salt. It traverses the plain in precise geometric patterns, following the edges of the hexagonal plates. As it moves, it draws up mineral-rich water from deep underground through microscopic channels in the salt, filtering and concentrating certain elements before sending the water back down through an equally invisible network of fissures.
+
+This process creates a hidden connection between the Mirror Plain and the crystal chamber far below. The Collector's careful filtration helps determine which minerals reach the Lattice Tender's domain, influencing the patterns of crystal growth there. The two beings never meet or directly communicate, yet they are engaged in an intricate dance of mineral exchange that has continued for eons.
+
+The hexagonal plates themselves are the visible surface of this partnership - each one marks a point where the Collector's filtered solutions can penetrate downward, creating a vast geometric grid that helps regulate the flow of minerals to the chamber below. The Collector maintains this grid with mathematical precision, rebuilding any plate that becomes damaged or irregular.
+
+During rare nights when moisture does gather, the Plain becomes briefly reflective, creating a perfect mirror of the stars above. In these moments, the Collector glows with stored sunlight, projecting complex patterns of light and shadow that seem to encode information about its mineral filtering work. These patterns are visible from the chamber below as subtle variations in the mineral content of the seeping water, which the Lattice Tender "reads" and responds to by adjusting its growth patterns.
+
+Together, these two beings maintain a delicate equilibrium between the harsh, dry world above and the humid crystal forest below, each working within their own domain but linked by the patient arithmetic of mineral exchange and the slow poetry of crystal growth.

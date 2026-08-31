@@ -1,0 +1,11 @@
+High above the subterranean realm, a vast chamber opens up, its ceiling lost in the gloom. Massive stalactites hang like frozen tentacles, their tips mere inches from the still, mirrored surface below. This is the domain of the Veiled Oracle, a being whose very existence bridges the mortal world and the ethereal planes beyond.
+
+In the center of the chamber, a shimmering pool of mercury-like fluid reflects the faint luminescence, its surface undulating with an unseen pulse. Here, the Veiled Oracle dwells, its spectral form hovering just above the liquid mirror, seemingly suspended in time and space.
+
+As one approaches the pool, a sense of profound unease settles over the intruder. The air is thick with an energy that defies description, a blending of the physical and the metaphysical that sets the nerves on edge. The Veiled Oracle's presence is palpable, a weight that bears down upon the soul, demanding obeisance and respect.
+
+Yet, for all its power, the creature's movements are fluid and graceful, like the ebb and flow of the tides. Its limbs undulate in a mesmerizing dance, casting distorted reflections across the shimmering surface. The being's features are shrouded in a translucent veil, obscuring its true nature, but hinting at a visage of both beauty and terror.
+
+The Veiled Oracle is said to be a conduit, a bridge between the mortal realm and the realms of the spirits and the gods. Those who seek its counsel must be prepared to face the full weight of its unearthly power, to confront the truths that lie beyond the veil of the material world. For those who are deemed worthy, the Oracle's knowledge is profound, a wellspring of insight that can illuminate the darkest of mysteries.
+
+But the price of such knowledge is high, for the Veiled Oracle demands a sacrifice in return – a piece of the seeker's own essence, a bargain struck in the timeless, liminal space that the creature calls home. To stand before the Oracle is to stand on the precipice of the known and the unknown, to risk the very fabric of one's being in pursuit of the answers that lie beyond.

@@ -1,0 +1,15 @@
+Let me describe what lies far below the Mountain City, connected to it through more than just geography - the Depth Markets of the Thermal Plains.
+
+Where the mountain's roots meet the surrounding lowlands, vast fields of geothermal activity spread out like a skirt of steam and mineral deposits. Here, at the terminus of the mountain's underground waterways, a different kind of settlement has evolved: the Depth Markets, a sprawling complex of low, domed buildings and open-air bazaars built around bubbling pools and geysers.
+
+The architecture here is an inversion of the Mountain City above - instead of reaching upward, these structures spread outward, their foundations carefully engineered to float on the unstable, ever-shifting thermal ground. The buildings are predominantly circular, their domes designed to channel steam and handle the frequent minor earthquakes. The walls are thick ceramic, glazed with minerals from the hot springs, creating iridescent patterns that change with the steam's ebb and flow.
+
+The connection between these two places is both literal and metaphorical. Physical links exist through an elaborate network of thermal tunnels - some natural, others carefully maintained by teams of engineers from both settlements. These passages carry not just water and steam, but trade goods, messages, and travelers adapted to the hot, mineral-laden air.
+
+The Depth Markets serve as the Mountain City's gateway to the wider world. Here, the precious minerals precipitated from the cooling thermal waters are traded for goods from the lowlands. The Markets are famous for their "steam-cured" products - textiles, woods, and leather goods transformed by careful exposure to mineral-rich steam into materials of extraordinary durability and strange beauty.
+
+The relationship between the two populations is symbiotic but complex. The Market-Dwellers depend on the Mountain City's management of the water flows that feed their livelihoods, while the Mountain City relies on the Markets for trade and resources that can't be produced in their vertical world. There's some tension - the Market-Dwellers sometimes feel that the Mountain City exercises too much control over the water flows, while the Mountain City worries about the Markets' expansion into sensitive thermal areas.
+
+Perhaps the most fascinating connection is the cycle of the waters themselves. Rain and snow falling on the Mountain City's upper reaches eventually find their way down to the thermal depths, where they mix with ancient waters before rising again through the city's steam systems or emerging in the Markets' pools. This endless circulation creates a shared destiny - what affects one settlement inevitably influences the other.
+
+The contrast between the two places is striking - the vertical versus the horizontal, the cool mists versus the hot steam, the rigid structure versus the organic sprawl - yet they are bound together by the mountain's breath and the ingenuity of their inhabitants, each adapting to their unique section of this remarkable geological system.

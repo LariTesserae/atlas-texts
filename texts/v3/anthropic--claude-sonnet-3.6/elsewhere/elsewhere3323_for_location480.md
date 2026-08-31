@@ -1,0 +1,15 @@
+Across a great distance from the copper city, at the edge of a vast salt plain, stands what appears at first to be a mountain of glass. But as you draw closer, the structure reveals itself as crystalline rather than vitreous - a massive formation of selenite, its translucent walls rising in geometric tiers that catch and scatter the light into rainbow fragments.
+
+This is the Archive, where the city's original builders retreated. Here, in chambers carved from living crystal, they transferred their consciousness into lattices of pure mineral, becoming beings of ordered light and geometric thought. They exist now as patterns of refraction, their memories and knowledge encoded in the precise arrangement of crystal planes.
+
+The Archive is maintained by the Resonators - creatures that seem at first to be simply moving patterns of light within the crystal walls. But they are living things, descended from the builders' last organic servitors, evolved to exist within the crystalline medium itself. They travel through the selenite like fish through water, their bodies composed of organized energy that can pass through the mineral structure without disturbing it.
+
+The Archive generates its own atmosphere - not air, but a field of probability that allows thought to move faster than light. Within this field, causality becomes flexible, allowing the encoded builders to experience time non-linearly. They perceive past and future as adjacent spaces, though they can no longer directly influence either.
+
+Between the copper city and the Archive stretches the Plain of Translation - a salt flat so perfectly reflective it seems to mirror not just the sky, but time itself. Here, the electromagnetic songs of the Migrants meet the crystalline thoughts of the Archive's inhabitants, creating interference patterns that both species use to communicate across the divide.
+
+The connection between these places is more than just geographic. The Migrants' electromagnetic fields are echoes of the builders' consciousness-transfer technology, adapted through evolution into a biological form. The Archive's crystalline patterns resemble, on a macro scale, the mineral structures the Migrants use to store and transmit their shared memories.
+
+During certain alignments, when the light strikes the Plain of Translation at precise angles, the two species can share direct experience - the Migrants briefly perceiving existence as pure geometry, the builders remembering what it was to have bodies that could fly. These moments of communion have been slowly changing both species, creating new forms of consciousness that are neither purely organic nor purely mineral.
+
+The space between the city and the Archive is as much conceptual as physical - a gradient between modes of being, where the distinction between architecture and organism, between thought and structure, gradually dissolves. It is across this gradient that both species are slowly evolving toward something unprecedented: a fusion of biological and crystalline intelligence, of motion and stasis, of memory and prophecy.

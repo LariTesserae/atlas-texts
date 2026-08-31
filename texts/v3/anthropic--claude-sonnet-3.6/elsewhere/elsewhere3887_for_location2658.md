@@ -1,0 +1,17 @@
+Beyond the cooling tower, across a stretch of overgrown industrial wasteland, stands its mirror and counterpart: the Furnace Garden. Where the tower rises like a pale finger into the sky, the Furnace Garden spreads horizontally through the ruins of an old foundry, a sprawling complex of heat-warped metal and volcanic glass.
+
+Here, the ecosystem has evolved around residual pockets of geothermal energy, feeding off the heat that still seeps from deep geological faults beneath the foundry's foundations. The space is a maze of crystal-lined chambers and metallic arteries, where temperatures can spike high enough to melt lead.
+
+The dominant life forms here are thermophilic organisms that have developed silicon-based biological processes. They grow in sheets and stalactites of living crystal, their cellular structures more mineral than organic. These creatures pulse with deep red and orange bioluminescence, creating an effect like burning coals. Their growth patterns follow the heat gradients, forming elaborate structures that channel and concentrate thermal energy.
+
+In the heart of this complex dwells the Slag Queen - a being as fundamentally different from the Concrete Shepherd as fire is from frost. She manifests as a shifting constellation of plasma-like energy, moving through her domain in waves of distorted air and liquid crystal. Her consciousness resides in the precise atomic arrangements of her crystalline subjects, allowing her to think and act through the entire interconnected structure of the Furnace Garden.
+
+Between these two realms lies the Gradient Zone - a strip of land where cool air from the tower meets rising heat from the furnace. This creates a unique microclimate where hybrid species thrive, organisms that can transition between thermal extremes. The air here is filled with spores that contain both concrete-eating bacteria and heat-loving crystals, creating new life forms that embody both realms' characteristics.
+
+The Shepherd and the Queen maintain a complex relationship across this boundary. Their territories are clearly defined, yet they engage in constant exchange. The Shepherd sends down cascades of mineral-rich fragments, which the Queen's crystal gardens incorporate into new growth. In return, the Queen's thermal currents help drive the tower's vital air circulation.
+
+Their communication occurs through subtle changes in temperature and mineral composition, a chemical dialogue that plays out over weeks and months. Sometimes their exchange intensifies into spectacular displays, as waves of bioluminescence ripple between their domains, creating interference patterns that encode complex information.
+
+Together, they are transforming the industrial ruins into something unprecedented - a new kind of ecosystem that exists at the intersection of biology, geology, and technology. Their complementary processes of creation and destruction maintain a delicate balance, preventing either realm from completely consuming the other while allowing both to evolve in remarkable new directions.
+
+The Gradient Zone between them is not just a buffer but a laboratory where their influences combine to spawn innovations in living architecture. Here, crystal meets root, heat meets cold, and the boundaries between natural and artificial continue to blur and transform.

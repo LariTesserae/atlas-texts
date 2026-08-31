@@ -1,0 +1,13 @@
+Across the vast expanse of this inverted underworld, there lies another realm - a network of luminous chambers and towering, crystalline structures that seem to glimmer and pulse with an ethereal energy. This is the domain of the Selenite, a reclusive and enigmatic species that has adapted to thrive in the subtle, reflected light that filters down from the distant heights above.
+
+The Selenite dwell in elaborate, fractalized cities that cling to the underside of the towering spires, their homes and communal spaces carved directly into the glittering mineral deposits. Delicate walkways and bridges span the gaps between structures, creating a dizzying, three-dimensional web that seems to defy the very concept of "up" and "down." The air here is crisp and cool, filled with the faint, chiming sound of the Selenite's melodic, resonant language.
+
+Unlike the weathered, time-worn Lithomancers, the Selenite appear almost ethereal, their slender frames and graceful movements giving them an otherworldly, almost ghostly quality. Their skin is translucent, almost luminescent, and their large, expressive eyes seem to reflect the shifting patterns of light that dance across the crystalline surfaces around them.
+
+The Selenite are a deeply contemplative and introspective people, their culture steeped in the study of the celestial energies that filter down from the unseen heights above. They are fascinated by the mysteries of the cosmos, and have developed a sophisticated understanding of the complex interplay of gravitational and electromagnetic forces that shape their subterranean world.
+
+As you make your way through their luminescent cities, you can't help but feel a sense of awe and wonder at the delicate, intricate beauty of this realm. The Selenite move with a fluid, almost ethereal grace, their voices blending into a haunting, resonant chorus that seems to reverberate through the very fabric of the earth.
+
+And yet, despite the serene, almost ethereal nature of this place, you can't shake the feeling that there is a deeper, more fundamental connection between the Lithomancers' weathered, primal domain and the Selenite's luminous, crystalline realm. The two worlds, while seemingly disparate, are inextricably linked, joined by a vast and complex network of passages and channels that wind their way through the very heart of the inverted underworld.
+
+What mysteries and secrets might lie hidden in the depths of this interconnected realm? What ancient forces or cosmic energies might be at play, binding these two vastly different societies together? As you continue your exploration, you can't help but feel a growing sense of curiosity and anticipation, a desire to unravel the countless layers of this captivating, otherworldly landscape.

@@ -1,0 +1,45 @@
+The Deepwood
+
+Three hundred kilometers from the plateau's edge, where the land breaks and falls into a rift valley that splits the continent like a wound, the Deepwood spreads its canopy beneath perpetual cloud cover. No sunlight has touched the forest floor in ten thousand years. The trees here grow by different rules—their bark black as obsidian, their leaves evolved to capture not light but the faint radiation that seeps up through the planet's crust.
+
+The forest exists in vertical layers, each its own ecology. The canopy trees rise two hundred meters, their trunks so vast that entire communities of organisms live in the furrows of their bark, never touching ground or sky. These giants connect through root networks that run deeper than their crowns rise high, tapping into thermal vents and mineral streams far below. They do not photosynthesize but thermosynththesize, their modified chloroplasts processing heat differentials into chemical energy.
+
+Between the titans grow the understory trees—parasitic, symbiotic, or simply opportunistic. Some tap directly into the root networks of their hosts, siphoning processed nutrients. Others have evolved carnivory, their branches mobile as tentacles, their bark sticky with digestive enzymes. The air hangs thick with spores, pollen, and the chemical signals of a million ongoing conversations between species.
+
+At ground level, in the eternal twilight, bioluminescence provides the only light. Fungal networks glow in waves of blue and green, their patterns encoding information that propagates through the soil at the speed of chemistry. Decomposition happens so rapidly here that a fallen leaf vanishes within hours, dissolved by the aggressive saprophytes that carpet every surface. The soil itself lives—a meters-deep layer of interconnected organisms processing the constant rain of organic matter from above.
+
+The Deepwood knows the Hive Spire, though no road connects them. The knowledge travels in the bellies of the Merchants.
+
+---
+
+The Merchants
+
+They arrive at the Hive Spire once every three years, their caravan announced by deep thrumming sounds that penetrate stone—acoustic signatures that the Architects' sensors recognize from kilometers away. The Merchants travel the thermal currents that flow between plateau and rift, riding modified organisms that resemble living blimps more than any conventional beast of burden.
+
+The Merchants themselves stand tall as humans but thin as reeds, their bodies adapted for life in multiple environments. Their skin changes texture and composition in response to surroundings—leathery and heat-resistant on the plateau, porous and moisture-absorbing in the Deepwood. They have four arms, the lower pair specialized for climbing, the upper for manipulation. Their heads are elongated, dominated by specialized organs that detect chemical gradients across vast distances.
+
+They wear the Deepwood like clothing. Symbiotic mosses grow across their shoulders, processing toxins and providing nutrients. Fungal threads weave through their hair, extending their sensory capabilities. Seeds and spores of a hundred species hide in specialized pouches in their skin, ready for trade or transport. They are walking ecosystems, carrying miniature versions of the Deepwood wherever they travel.
+
+Their floating beasts are wonders of biological engineering. Descended from something like jellyfish that once swam in long-vanished oceans, these aerial creatures have evolved gas bladders that process atmospheric elements into lifting gases. Their translucent bodies ripple with bioluminescent patterns—not for beauty but for communication, each pulse and wave encoding navigation data shared among the caravan. The Merchants cultivate these creatures in hidden pools deep in the Deepwood, feeding them special fungi that enhance their lifting capacity and endurance.
+
+When the caravan arrives at the Hive Spire, the Architects pour from every entrance. This is the only time the colony breaks its rigid patterns, workers abandoning tasks to participate in the trading ritual. The exchange operates on principles older than either civilization, protocols encoded in instinct and refined through millennia of repetition.
+
+The Merchants offer what the plateau cannot provide: organic compounds synthesized in the Deepwood's unique environment, seeds of plants that fix nitrogen in ways the Architects' symbiotic bacteria cannot match, samples of new organisms that might fill empty niches in the spire's ecology. Most precious are the memory crystals—organic gems grown in specialized trees that can store vast amounts of information in their molecular lattices. The Architects prize these for their deep archives, incorporating them into the spire's structure where they'll preserve data for geological ages.
+
+In return, the Architects trade what the Deepwood lacks: refined metals processed from plateau stone, synthetic polymers that resist the forest's aggressive decomposers, and most importantly, computational services. The Merchants bring problems—optimization challenges for growth patterns, chemical equations for new syntheses, navigation calculations for routes through the continent's shifting weather. The Thinkers process these in their linked networks, returning solutions encoded in crystalline matrices the Merchants can interpret.
+
+But the true trade runs deeper than materials or information. Each side carries trace elements of the other's ecosystem. Spores from the Deepwood ride in on the Merchants' skin, some finding unlikely niches in the spire where they adapt and evolve. Microscopic fragments of the Architects' construction—particles of their ceramic excretions, shed scales from their exoskeletons—travel back to the forest. Over evolutionary time, these exchanges have created hybrid zones, places where the two radically different biomes bleed into each other in ways that benefit both.
+
+The Merchants speak of changes in the Deepwood that concern even the patient Architects. The thermal vents that feed the forest are shifting, their output fluctuating in patterns that match no known cycle. New organisms are appearing from the deepest levels—things so strange even the Deepwood's byzantine ecology struggles to incorporate them. The forest is evolving rapidly, perhaps too rapidly, driven by pressures from below that neither Merchants nor Architects fully understand.
+
+In the highest chambers of the spire, where the Thinkers link in their greatest networks, models of the planet's deep structure run continuously. The Architects process data from both biomes, trying to understand the connections between plateau geology and rift tectonics. Their conclusions, shared with the Merchants in formats both mathematical and mythological, suggest changes coming on a scale that will test both civilizations' capacity for adaptation.
+
+The caravan never stays long. After three days of trading, the Merchants pack their acquisitions into specialized containers—living pods that will preserve their cargo through the journey. They perform farewell rituals that are part chemistry, part choreography, leaving pheromone marks that will guide the next caravan to find the spire even if it has grown beyond recognition.
+
+As they depart, rising on the evening thermals, their bioluminescent beasts create patterns in the sky that both species can read. The messages speak of connection across distance, exchange across difference, the slow weaving of a larger pattern that encompasses plateau and forest, spire and Deepwood, the patient Architects and the wandering Merchants. It is a civilization built not on conquest or control but on communication, trade, and the gradual recognition that survival on this strange world requires cooperation across scales of space and time that challenge comprehension.
+
+The Deepwood dreams its fungal dreams, processing sunlight it has never seen into forms of life that should not exist. The Hive Spire computes its crystalline futures, building structures whose purpose won't manifest for millennia. Between them, the Merchants carry more than goods—they carry the possibility that two such different forms of life might together discover what their world is becoming, and what they must become to survive it.
+
+In the space between forest and plateau, other forms of life watch the Merchants pass. Things adapted to margins and transitions, creatures that exist because of the trade between biomes. They are the unexpected outcomes of connection, the emergent properties of a world where isolation is impossible and adaptation is everything. They follow the caravans at a distance, learning, changing, becoming.
+
+The planet turns, its bronze sky hiding stars that neither Architects nor Deepwood dwellers have names for. But in their different ways—through patient construction and explosive growth, through calculation and symbiosis—they reach toward those stars, knowing without knowing that their world is one note in a larger symphony they're only beginning to hear.

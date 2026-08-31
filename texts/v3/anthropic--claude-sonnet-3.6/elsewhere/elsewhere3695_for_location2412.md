@@ -1,0 +1,13 @@
+Let me tell you about what lies above this city, beyond the highest reaches of its fungal spires where the mist begins to thin. There, suspended in the mountain's aureole, floats the Ascending Market.
+
+Unlike the fluid, organic forms below, the Market is a geometric impossibility - a three-dimensional mandala of intersecting planes and floating platforms, all crafted from what appears to be silver light given solid form. The platforms rotate in intricate patterns, occasionally passing through each other without collision, creating momentary spaces where merchants can set up their impossible wares.
+
+The merchants themselves are beings of pure transaction - crystallized exchanges given consciousness. Some appear as complicated knots of light and shadow, others as cascading sequences of symbols that might be mathematics or music or both. They trade in commodities that exist only in this rarefied atmosphere: distilled moments of clarity, preserved echoes of songs not yet sung, the weight of decisions unmade.
+
+The connection between these two places - the dream-city below and the Ascending Market above - is maintained by the cloud-whales, though not in any direct way. As they swim through the city's mists, their songs create temporary staircases of condensed possibility. These stairs, which might appear as frozen waterfalls or strands of starlight, allow the Resonant to ascend to the Market when they need to trade.
+
+What passes between these realms is subtle but vital. The Resonant bring up offerings from their crystal harvests - time-fragments caught in mineral form, holding moments of the city's dreaming. The merchants above transmute these into new possibilities, which rain down as fine silver dust that the moss-forests incorporate into their next exhalation.
+
+The space between the city and the Market is not empty but rather filled with potential - a gradient of increasing abstraction as one ascends, or increasing manifestation as one descends. Cloud-whales navigate this gradient instinctively, their bodies becoming more or less substantial as they move up or down, their songs modulating to match the local physics.
+
+Sometimes, during what might be called evening (though time here is more suggestion than law), the light from both realms - the organic glow of the moss below and the geometric radiance of the Market above - creates interference patterns in the intervening space. These patterns form a kind of musical score that the mountain reads to remember its own dreams, ensuring that neither realm drifts too far from the other in the endless dance of form and abstraction, of growth and exchange, of being and becoming.

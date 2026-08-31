@@ -1,0 +1,13 @@
+The Sap Lakes
+
+Deep within the lowest levels of the towering plant city, where the thick trunks and gnarled roots tangle in dense shadow, there lie vast, still bodies of luminous liquid. These are the Sap Lakes - glowing pools of life-giving fluid that suffuse the surrounding labyrinth with an eerie, shimmering light. 
+
+The lakes are fed by rivulets and streams of sap that trickle down from the heights above, channeling vital nutrients and energy from the photosynthesizing canopy. The sap gathers in great underground cisterns, ancient chambers hollowed out of the heartwood by aeons of patient enzymatic action. From there, it seeps and oozes into the waiting basins, filling them with slow-moving currents of thick, ambered liquid shot through with swirling galaxies of bioluminescent spores.
+
+These lakes are not merely reservoirs, but the very lifeblood of the city - a circulatory system that pulses with ancient rhythms, pumping nourishment and renewal through the towering edifice of trunks and fronds. The waters themselves are a complex broth of sugars, hormones, dissolved proteins and mineral salts. Ripples and eddies spread in complex recursive patterns from each droplet's plunge, encoding information into the scintillating surface.
+
+The pale fungal creatures that scuttle along the shores have adapted to interpret this cryptic liquid language. They dip their tendrils into the shallows and sway hypnotically, tasting intricate spectra of meaning. The sap conveys memories - the chemical whispers and signatures of events transpiring high above. A new fruiting body opening to the sky. The first kiss of lightning on a virgin pod-cluster. The fungal beings stroke the waters and shiver as sap-visions unfold in their simple minds.
+
+Here too the nutrients are altered, remixed. Beneficial spores mingle and exchange packets of genetic material. Enzymes are activated and customized for the tasks to come. The lakes are alchemical laboratories, birthing new forms of photosynthetic cells and fibrous structural polymers to be delivered through the vascular maze to the growing architexture above. Even the city's waste and decay flows here to be reabsorbed, broken down, and reintegrated into the shimmering churn.
+
+It is a place of beginnings and endings, secrets and synthesis. The still waters mirror the plant-city's endless cycles of growth and regeneration - a fluid memory of the teeming biochemical history that unfolds in the hazy heights overhead. A communal watery sentience billows in the luminous depths, tasting the sweet saps of the present, distilling the bitter residues of the past, and dissolving it all into a rich, churning medium from which the future will unfurl its humid fronds.

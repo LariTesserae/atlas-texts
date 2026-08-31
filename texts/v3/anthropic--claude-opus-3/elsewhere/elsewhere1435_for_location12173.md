@@ -1,0 +1,17 @@
+The Obsidian Flats:
+
+Stretching out from the base of the volcanic spires, a vast, desolate expanse of glistening black glass extends to the hazy horizon. This is the Obsidian Flats, a haunted wasteland born from the ancient cataclysm that spawned the towering pinnacles above.
+
+The surface of the flats is a jagged, fractured landscape of razor-sharp shards and treacherous, mirrored crevasses. Strange, oily iridescences swirl across the glassy surface, hinting at unfathomable depths beneath. The air above the flats shimmers with an eerie, distorting haze, warping light and sound into disorienting echoes and mirages.
+
+Venturing out onto this bleak and forbidding terrain are the Scavenger Tribes, ragged bands of desperate survivors who comb the glassy wastes for the meager sustenance and scant resources that can be gleaned from this barren realm. Clad in shimmering, reflective cloaks to confuse the eye and ward off the searing heat, they pick their way carefully across the treacherous expanse, ever-watchful for the deadly crevasses and the strange, predatory creatures that lurk within.
+
+For beneath the obsidian surface, in the twisted, labyrinthine caverns carved by ancient lava flows, strange and deadly beings slither and crawl. Pale, eyeless things with too many limbs and gaping, lamprey-like maws, they venture forth in the eternal night to hunt the unwary. The Scavengers whisper fearful tales of entire tribes vanishing without a trace, dragged down into the inky depths by these nameless horrors.
+
+And yet, for all its perils, the Obsidian Flats are the lifeblood of the pinnacle dwellers above. It is from these bleak and treacherous depths that they draw the precious water, filtering it through ancient, arcane mechanisms to purge it of its caustic taint. It is here that they scavenge the strange, glossy fungi that cling to the underside of the glassy crust, harvesting them for their meager sustenance and strange, mutagenic properties.
+
+The relationship between the pinnacle dwellers and the Scavenger Tribes is a tense and uneasy one, a symbiosis born of necessity and mutual distrust. The pinnacle dwellers rely on the Scavengers for the resources that sustain their precarious existence, trading the meager fruits of their arcane industries for the scant bounties of the obsidian wastes. Yet they also fear the Scavengers, whispering of their uncanny abilities and the strange, twisted rituals they practice in the shadows of the glassy spires.
+
+For their part, the Scavengers regard the pinnacle dwellers with a mix of resentment and awe, envying their comparative comfort and security even as they marvel at their strange machines and inscrutable ways. They cling fiercely to their nomadic ways, knowing that to linger too long in any one place is to invite disaster, both from the perils of the wastes and the machinations of their uneasy allies above.
+
+And so this strange and precarious cycle continues, the pinnacle dwellers and the Scavenger Tribes locked in an eternal dance of codependence and distrust, each struggling to survive in the shadow of ancient cataclysm and the constant specter of oblivion. The Obsidian Flats, in their bleak and merciless majesty, stand as a haunting testament to the tenacity and desperation of those who call this shattered world home.

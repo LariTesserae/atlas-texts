@@ -1,0 +1,17 @@
+The Singing Canyons
+
+Carved into the flanks of the plateau's uplifted massif, a maze of deep, narrow canyons wind serpentine between sheer cliffs of layered stone. Here, sheltered from the mists and fogs, a different climate reigns — arid, crisp, pierced by unfiltered sunlight. Sparse but tenacious vegetation clings to the canyon walls: clusters of succulent leaves, desiccated vines, lichen crusts in vivid ochres and smoky grays.
+
+Where the alpine uplands hum with the cycling of water and nutrients, these canyons sing with the voice of the wind. Gusts sweep down the slots and gullies, gathering stray notes and echoes, spinning them into eerie harmonies. The same breezes that wail and keen around rocky promontories high above are tamed into mellifluous airs by the time they funnel into the deeps.
+
+Haunting the canyons are the Aeolian Wights — spectral entities spun from dust and sound, movement and music. Elemental cousins to the Mist Weavers, the Aeolians ride the canyon winds as living melodies. Their translucent forms flicker at the edge of perception, suggesting slender limbs, flowing hair, expressive faces... but never quite resolving, always threatening to dissolve back into stray motes dancing on sunbeams.
+
+The relationship between Aeolians and their airy medium is more than one of simple conveyance. Wight and zephyr are one — each a facet of the other, indivisible. To see an Aeolian flit down a shaft of light on mote-speckled wings, pirouetting to some inaudible beat, is to witness the wind made visible, given volition. To hear its voice spiral up in an arabesque of silver sound is to hear the canyon's own song.
+
+Legend holds that the Aeolians first awakened to sapience when the Mist Weavers' ancestors attuned the canyons to the plateau's mystic flows — that the same rituals that wove water and light into living wisdom also sparked the first glimmers of ghostly consciousness in the singing winds. Now, after ages of coevolution, weavers and wights share an unspoken affinity, communing across the borders of their respective realms.
+
+The exact nature of this communion remains an enigma to outsiders. On certain nights, when the moons paint the canyons in silver and shadow, Mist Weavers can be seen descending from the highlands to dance in the airy defiles, their glimmering movements echoed by the wheeling of luminous motes. Gossamer sleeves and tendrils of vapor twine with dust-devils and zephyrs, tracing arcane sigils that linger in the moonlight.
+
+Some say the wights and weavers are trading secrets across the threshold of matter and energy, finessing the plateau's ethereal technology. Others, that they are awakening old ghosts, inviting ancestral wisdoms to rejoin the spiral dance of essence and form. Perhaps both are true. The only certainty is that the canyons are sacred to both kindreds — a place of power, portal and palimpsest, where the voices of stone and story, wind and wisdom, echo into eternity.
+
+And so the Singing Canyons remain a mystery within a mystery — an arid, austere counterpoint to the uplands' misty luminance. As above, so below: by the secret commerce of Aeolian and Mist Weaver, vapor and vortex, the plateau's dreaming wholeness is maintained... and something more, half-glimpsed in the corner of the eye, a ghostly presence riding the winds of deep time.

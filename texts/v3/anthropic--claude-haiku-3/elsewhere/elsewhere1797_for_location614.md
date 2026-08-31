@@ -1,0 +1,13 @@
+High on the remote slopes of the Comara Mountains, beyond the lush, verdant valleys, lies a hidden world - a place of stark, primal beauty. Here, the very elements seem to converge, creating a landscape of stark contrasts and ancient, timeless rhythms.
+
+Amidst the jagged, wind-sculpted rock formations, a series of deep, linear canyons wind their way through the mountainside, carved over eons by the relentless flow of water. These canyons are the domain of the Aelyr, enigmatic beings that have adapted to thrive in this harsh, unforgiving environment.
+
+The Aelyr are humanoid in form, but their features are angular and alien, their skin tones ranging from mottled grays to deep, earthy reds. Their bodies are lithe and nimble, allowing them to navigate the treacherous terrain with unparalleled grace and agility. Long, tapered fingers end in sharp, claw-like nails, tools used for climbing, hunting, and carving the intricate rock art that adorns the canyon walls.
+
+The Aelyr live in small, tightly-knit clans, their dwellings tucked into the sheltered alcoves and overhanging ledges that line the canyon sides. These structures are works of art in themselves, hewn from the living rock and blending seamlessly with the surrounding environment. Woven fibers and carved wooden elements provide additional shelter and decoration, but the overarching aesthetic is one of understated elegance and reverence for the natural world.
+
+The Aelyr are a reclusive people, their lives governed by the cycles of the seasons and the ebb and flow of the canyon's waterways. They are skilled hunters and foragers, using their keen senses and intimate knowledge of the land to track and capture the elusive, high-altitude creatures that inhabit this realm. The Aelyr also possess a deep understanding of the medicinal and spiritual properties of the native flora, utilizing these natural resources in their rituals and ceremonies.
+
+Though the Aelyr keep largely to themselves, occasionally they will venture out of their canyon stronghold, drawn by the promise of trade or the need to gather resources from the surrounding valleys and settlements. During these rare excursions, the Aelyr move with a sense of quiet purpose, their enigmatic gaze unreadable, their connection to this primal world palpable.
+
+For the Aelyr, the Comara Mountains are not merely a dwelling place, but a living, breathing extension of their very being. This is a world where the boundaries between the natural and the spiritual have blurred, where the ancient rhythms of the earth flow through every aspect of daily life. It is a realm of unparalleled beauty and timeless wonder, a place where the essence of the Aelyr is inextricably bound to the harsh, awe-inspiring landscape they call home.

@@ -1,0 +1,11 @@
+Beneath the primordial expanse, in the depths of the undulating rock formations, lies a hidden realm - a subterranean network of interconnected chambers and channels that wind their way through the earth's crust. This subterranean domain is the domain of the Geomancers, a collective consciousness of ancient, earthbound entities that have co-evolved with the very fabric of this alien landscape.
+
+While the surface world is defined by its towering rock formations, viscous waterways, and pulsing, fungal-like growths, the Geomancers' realm exists in a state of constant, unseen motion. Vast currents of energy and elemental forces flow through this underground labyrinth, guided and manipulated by the Geomancers' intricate, symbiotic control.
+
+The Geomancers are not mere passive inhabitants, but rather the very heartbeat of this subterranean world. Their forms are amorphous, ephemeral, and deeply attuned to the ebb and flow of the primal energies that course through the earth. They are masters of geomancy, the ancient art of shaping and directing the fundamental forces of the planet, weaving them into a complex, harmonious tapestry that sustains and nourishes the entire ecosystem.
+
+Through their intricate network of tunnels and chambers, the Geomancers monitor the surface world, sensing the slightest shifts in the ebb and flow of energy, water, and matter. They react to these changes with lightning speed, adjusting the subterranean currents and orchestrating subtle shifts in the surface landscape to maintain the delicate balance of their realm.
+
+Occasionally, the Geomancers will manifest on the surface, their forms coalescing from the rock and water to interact with the fungal-like entities and other surface dwellers. These encounters are rare and often fleeting, as the Geomancers' true power lies in their ability to manipulate the unseen forces that underpin the very foundations of this world.
+
+For those who are attuned to the subtle rhythms and patterns of this subterranean domain, the Geomancers' presence can be felt in the constant, pulsing vibrations that course through the rock and water. It is a presence that is both ancient and eternal, a testament to the enduring power of the earth itself and the intricate, adaptive intelligence that has evolved to steward its most fundamental forces.

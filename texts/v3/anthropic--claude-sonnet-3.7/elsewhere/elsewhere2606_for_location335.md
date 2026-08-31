@@ -1,0 +1,57 @@
+# The Surface
+
+The machines have been on for three hundred years, but the skies have been empty for much longer.
+
+Above the interlocking chambers of The Draining stretches a world that gave up its moisture to feed the great machine network below. The Surface is a realm of dust and stillness—vast plains where cracked earth forms hexagonal patterns stretching to distant horizons. The ground itself seems desiccated, as though the very soil has been freeze-dried, retaining its shape but none of its vitality.
+
+Massive intake vents punctuate the landscape every few kilometers, their circular openings like the mouths of buried giants. These structures rise from the ground in weathered concrete collars, surrounded by radial patterns where the earth has been gradually pulled inward over centuries. The vents emit a constant, gentle inhalation—drawing in air that will be processed deep below, the moisture extracted and fed into The Draining's eternal cycles. This perpetual breath creates microclimates around each vent; dust spirals lazily in the air currents, and the faint whistling sound forms a lonely counterpoint to the wind.
+
+The light here is relentless and strange. With little atmospheric moisture to filter it, sunlight falls harsh and white across the landscape, casting shadows with razor-sharp edges. Distant objects appear with unnatural clarity, creating a disorienting flattening of perspective. At night, the stars blaze with painful intensity, seeming close enough to touch, while the moon casts shadows nearly as sharp as the sun's.
+
+Temperature fluctuations are extreme. Daytime brings scorching heat that bakes the ground and forces all life into whatever shade can be found. Nightfall brings rapid cooling, the heat escaping quickly into the thin, dry air, often causing the surface of rocks to crack from thermal shock. The sound of these fractures—sharp reports like distant gunshots—punctuates the night.
+
+What plants survive here have evolved extreme adaptations. The predominant vegetation consists of what surface dwellers call "ghostgrass"—pale, wire-thin stalks that grow in sparse clumps, their roots extending dozens of meters horizontally just beneath the surface. These plants photosynthesize only at dawn and dusk, spending the harsh daylight hours with their stems coiled tightly against the ground. Other flora include the armored succulents—sphere-shaped plants with thick, overlapping scales that open only during rare instances of humidity to rapidly absorb any moisture from the air.
+
+The most spectacular plant is the explosion cactus, which lives for decades storing minuscule amounts of water before flowering in a sudden, desperate burst of reproduction. The flowering releases all stored moisture, killing the plant but sending millions of tiny seeds drifting across the landscape on gossamer parachutes, searching for any depression where water might occasionally gather.
+
+Animal life is equally sparse and specialized. Dust lizards, nearly translucent with scales that reflect the harsh sunlight, dart between patches of shade. Burrowing insects emerge only at night, their chitinous bodies evolved to retain every molecule of moisture. Most impressive are the drift mantises—insects grown to improbable size in this low-gravity environment, with wingspans reaching two meters. They ride the thermal currents that rise from the baked earth, sometimes staying aloft for weeks without landing, feeding on airborne spores and smaller insects caught in the same updrafts.
+
+Human settlements on the Surface are rare and tenuous—primarily clustered around the few remaining moisture farms. These communities construct their dwellings from the abundant stone and clay, building thick-walled structures partially sunken into the ground to maintain more stable temperatures. Most structures feature wind-catching towers designed to funnel any cooler air down into the living spaces below.
+
+The largest settlement, Drymarsh, houses perhaps five hundred people in a sprawling complex built around what was once a natural lake bed. Now it serves as the main trading hub between surface dwellers and the occasional Tidewalker expeditions that venture up through maintenance shafts. The central square features an ancient moisture collector—a massive structure of pipes, condensers, and solar panels that produces a few precious liters of water each day.
+
+Surface dwellers have developed distinctive cultural adaptations to their environment. They practice water conservation as a religion, with elaborate ceremonies surrounding the sharing of drink. Their language contains over forty words for different qualities of dryness but uses the same term for both blood and water—"the inner rain." Their clothing consists of layered, loose-fitting garments in pale colors, often incorporating reflective materials salvaged from ancient structures. Nearly everyone wears some form of eye protection against the harsh light and dust storms.
+
+These people maintain oral histories describing a time when the Surface held water—lakes and rivers that existed before The Draining began its endless work. Their most sacred ritual involves the ceremonial pouring of water into the parched ground, a symbolic gesture of return that they believe will someday restore balance to their world.
+
+# The Connection
+
+Between The Draining and the Surface lies a realm that belongs fully to neither—a zone of transition known to both societies as The Margin. This boundary space consists of a complex network of maintenance tunnels, half-collapsed access shafts, and the massive vertical structures that house the primary pumping mechanics.
+
+The physical connection between worlds occurs primarily through the Ascension Shafts—kilometer-high vertical tunnels that once allowed maintenance workers to move between systems. Most of these are now partially collapsed or flooded at their lower levels, but enough remain functional to permit careful travel between realms. The shafts feature ancient maintenance ladders and geared lift platforms that still function intermittently, powered by the same ageless systems that drive The Draining itself.
+
+More treacherous are the Vent Paths—narrower channels that follow the air circulation systems. These offer more direct routes between worlds but are subject to sudden pressure changes that can draw unwary travelers into crushing filtration mechanisms or blast them upward through intake grates.
+
+The environmental transition in these spaces is gradual but disorienting. As one ascends, the omnipresent moisture of The Draining gives way to increasingly dry air. The perpetual mechanical symphony fades, replaced by the hollow sighing of wind through metal passages. Temperature fluctuations become more extreme with each level climbed, until travelers reach zones where condensation and evaporation occur in rapid cycles as different air masses meet.
+
+These transitional zones have spawned their own unique ecology. The walls are covered with gradient colonies—organisms that are fungal at their lower, moister sections but evolve into something more plant-like as they grow upward into drier regions. These colonies create living maps of the moisture boundaries, their coloration shifting from the pale translucence of Draining life to the ruddy resilience of Surface organisms.
+
+The most mysterious inhabitants of this boundary realm are the Marginals—humans who have chosen to live neither above nor below but in the in-between spaces. They establish small communities in maintenance hubs and equipment bays, adapting these spaces into vertical villages that climb the walls of vast chambers. Marginals serve as guides and traders between worlds, their bodies displaying adaptations for both environments—the enlarged eyes and pale skin of Tidewalkers combined with the water-conservation tissue structures of Surface dwellers.
+
+The ecology of the two worlds connects through the phenomenon known as the Rising and the Falling. Each dawn and dusk, temperature differentials create powerful air movements through the vertical shafts. The morning Rising pulls warm surface air downward, bringing with it spores, seeds, and insects that may find new homes in The Draining. The evening Falling releases cooler, moisture-laden air upward, creating brief periods of relative humidity at surface vent openings.
+
+These daily atmospheric exchanges have profound effects on both realms. In The Draining, colonies of surface-originated organisms establish themselves near upper air intakes, creating hybrid ecosystems where pale fungi grow alongside adapted versions of ghostgrass. On the Surface, the evening humidity around vent openings supports microhabitats of relative lushness—collections of specialized plants that have evolved to complete their entire reproductive cycle during the brief hours of elevated moisture.
+
+The most significant material exchange between worlds is water itself—not as a natural resource but as a traded commodity. Tidewalkers process and purify water from The Draining, condensing it into transportable forms that Marginal traders carry upward to exchange for Surface goods: sun-resistant textiles, medicines derived from desert plants, and rare metals from exposed mineral deposits.
+
+This trade has evolved into a complex economic system balanced on the edge of scarcity. Surface dwellers measure wealth in drops, while Tidewalkers value the specialized technologies that help them navigate their flooded realm. The Marginals profit from their position as intermediaries but are always vulnerable to the shifting politics of both worlds.
+
+Beyond economics, there exists a deeper connection between these realms—one embedded in the machinery itself. The ancient systems of The Draining were designed with a purpose now forgotten by most inhabitants of both worlds. Yet certain clues suggest an intentional balance—that The Draining was created not merely to extract water but to manage it, perhaps even to eventually return it.
+
+In the oldest chambers of The Draining, the Pipewrights have discovered periodic reversals in certain massive pump systems—brief intervals where the flow changes direction, sending small amounts of processed water upward through secondary channels. These events correspond with readings on ancient gauges that the Pipewrights believe monitor surface conditions.
+
+Some speculate that The Draining is not merely a machine but a remediation system designed to cleanse the world's water—that some ancient catastrophe poisoned the surface water, necessitating its removal, processing, and eventual return. If true, then the two realms are not separate worlds but different phases of a single, centuries-long process—a planetary-scale purification that has been mistaken for permanent change.
+
+This theory is supported by the oldest records kept by the Stillpool Collective, which reference mysterious "release schedules" and "surface restoration metrics." It gains further credence from observations by Surface astronomers, who have documented gradual changes in the atmosphere's composition over generations—changes consistent with the slow return of moisture to the air.
+
+Between the desiccated Surface and the perpetually damp chambers of The Draining lies not just a physical boundary but a temporal one—a pause in a vast mechanical respiration that may, in time, exhale what it has so long inhaled, transforming both worlds yet again.

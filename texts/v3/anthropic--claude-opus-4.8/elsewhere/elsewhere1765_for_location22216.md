@@ -1,0 +1,45 @@
+**The Overflow Channel**
+
+Begin with motion, because that is the first rule here, and it is the opposite of the first rule there.
+
+Follow the water out. Not down through the room — the room weeps inward, holds its droplets, refuses the fall — but ask where the fog would go if it ever broke its discipline, where the substrate's weeping would run if grazing ever stopped and the paste finished and the floor at last became stone and pushed its old water out through the seams. It would go down. Water always goes down, given leave. And somewhere far below the held breath of the mountain there is a place that took the leave the room would not, a place built for the day the room finishes — built by the same makers, in the same dark iron, around the same impulse, and then abandoned in the opposite direction.
+
+The Overflow Channel is a throat of riveted plate, sloping, and everything in it is going.
+
+Where the room is small — nine cold steps — the Channel is long past measuring, a tube of iron running down through the body of the mountain at a grade just steep enough that nothing in it can ever come to rest. It was made to carry away what the room would one day release. The makers laid it like a drain beneath a held cistern, scaled it in the same overlapping plates, bolted it with the same cold rivets, and then — this is the kinship, this is the wound the two places share — they paused. Up there they paused at completion-that-is-not-completion. Down here they paused too, but at the other end of the stroke: they finished the Channel and left it empty, a perfect conduit waiting for a flood that the room above has spent an eternity refusing to send.
+
+So the Channel never got its great water. But it got a little. It got the half-degree of warmth that leaks down when something breathes in the room above. It got the few droplets that, despite everything, despite ten thousand voices saying *not yet*, do sometimes fall — one in a thousand years, one when the colony's attention turns, when a warm and breathing thing walks in and tips the held surface by the weight of its passing. Those stray droplets reach the lip of the seam and find the slope and *go*, and the Channel has been collecting them, drop by abandoned drop, for as long as the room has been clenching.
+
+That is the trade between the places. The room keeps; the Channel spends. The room defers; the Channel arrives, over and over, arrives and arrives. Every drop the room loses is a drop the Channel wins, and out of those losses, those tiny treacheries of the held breath, the Channel has made a current. Thin. A film of water no deeper than a coin, running down the iron floor in a bright cold thread. But it *runs*. After the deafening frozen roar above, the sound here is almost unbearable in its smallness: trickle. Trickle and slip and the faint tick of a single droplet finding the thread and joining it. A sound that changes. A sound that goes somewhere and does not come back.
+
+And where there is going, there is wearing.
+
+This is the thing the room has never known and the Channel knows in its every plate: erosion. The thin water has run the same line down the same iron for so long that it has worn a groove. The dark plate is bright along the thread's path, polished by water to a soft silver, scooped a hair's depth, then deeper, an old slow signature cut by the most patient knife there is. Up above, the finger-line in the standing water closes and forgets. Down here, every drop leaves a mark, and the marks accumulate, and accumulation is exactly the predator the colony distributed itself to escape. The Channel is made of accumulation. The Channel is what time does when you let it in.
+
+Now the life. The room is crowded to bursting; the Channel is nearly bare — and that is the second half of the kinship, the inversion that proves they are one body. Where there is no change, there is no end, and so there can be ten thousand. Where there is change, there is ending, and so there are few. Only the things that have made peace with passing can live in a passage.
+
+They live in the thread.
+
+Tiny iron-shelled grazers, cousins of the colony above — you can see it in the segmented plates, the calipered mouths, the click of machined joints — but oh, how the slope has changed them. The room's creatures cling and never move, oriented forever, holding. These ones *swim*. The thread of water is their whole world and they ride it, little riveted bodies tumbling and righting and crawling against the current and letting go to be carried, grazing not mineral paste but the soft rust-bloom that the wet iron grows along the polished groove. And here is the difference that is everything: these ones breed and these ones die. You can see the small spent shells caught in the eddies where the thread pools behind a rivet-head, empty carapaces, finished things, going still and pale and beginning at last to dissolve back into the water that carried them. The Channel's creatures are not one creature. They are many creatures, truly many, each a separate brief self with a center and an edge and a single place that says *I am here* — and each one ends, and is carried away, and is replaced by another that the thread has brought down from somewhere higher, perhaps from the very seams of the room itself.
+
+For that is where they come from. Trace any one of them up the groove and the lineage runs to the lip where the rare drop falls. They are the colony's lost children — the few cells the held breath could not hold, that fell with the falling water and learned, in falling, the thing their parent body gave up everything to forget: that you can move, and wear, and end, and still there will be more of you, because *more of you* was never about any single body refusing to finish. It was about the thread continuing after the drop is gone.
+
+So the colony above and the swimmers below are the same creature's two answers to the same terror.
+
+The room said: *I will not finish, and so I will not move, and so I cannot be many, and so I must be one, and so I must sing forever to prove I am still here, and so I am alone.* The Channel's creatures said: *I will finish, and so I am free to move, and so there can be a thousand of us, and so none of us need sing, because when I die the current carries me to the others and the thread does not break.* The room defeated death by becoming a single frozen scream. The Channel accepted death and got, in exchange, a quiet — a real quiet, the kind that has small sounds in it, trickle and tick and the dissolve of an old shell — and got company, and got descendants, and got the one thing the room can never have, which is a tomorrow that is different from today.
+
+Stand in the Channel and you can feel the room far above you, a pressure overhead, a held weight. The whole mountain is the strain between these two places: the cistern that will not pour and the drain that has waited forever to carry the pouring away. Every droplet that escapes the room's discipline and reaches the Channel is a tiny defection, a single vote cast for finishing, and the Channel gathers those votes and runs them downhill and makes life of them and lets that life die and carries the dying down to wherever the thread is going.
+
+Where is the thread going?
+
+Down. Always down, on the grade the makers cut for the flood that never came. It runs and pools and runs, gathering its stray inheritance drop by drop, wearing its silver groove a hair deeper each millennium, carrying its brief swimmers and their brief spent shells, going somewhere the makers meant it to go and never told it, and it does not need to be told, because going is its whole nature, the way holding is the room's.
+
+And here is the last thing, the thing the Channel knows that the room is too afraid to learn:
+
+The thread is so thin. It would take so little. If the room above ever answered the question — if the warm breathing thing that walked in tipped the held surface just enough, if ten thousand voices faltered for even one instant and the floor finished and the old held water came down all at once — the Channel is ready. The Channel has been ready since it was bolted into the dark. The whole flood would pour into this waiting throat and the thin patient thread would become a river, and the groove worn coin-deep over an eternity would carry it, and every swimmer would be swept down in a single roaring instant to wherever the slope has always been leading, and the long deferral would be over, and the mountain would finally, gratefully, *change*.
+
+The Channel does not dread this. That is the difference, all the way down. The room turned its whole frozen face to you and could not say whether it was ready to finish. The Channel already answered, long ago, with every dissolving shell and every drop it spends and every hair of silver it wears into the iron:
+
+*Yes. Send it down. I was built to carry you home.*
+
+It runs, and waits, and wears, and is not alone — and listens, under its small bright sounds, for the one great sound from above that would mean the holding had ended at last: the sound of the room beginning to fall.

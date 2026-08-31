@@ -1,0 +1,17 @@
+The Oneiric Tides
+
+Drifting languidly above the abyssal metropolis, the Oneiric Tides are a vast, shimmering expanse of warm, cerulean waters that seem to exist in a state of perpetual twilight. The boundary between sea and sky blurs here, as the tides are infused with a dreamlike quality that defies the laws of the waking world.
+
+Gossamer strands of ethereal light sift down from the heavens, weaving through the water like the silk of some cosmic spider. These luminous filaments are spun from the stuff of dreams itself, and they softly illuminate the Tides with a shifting, prismatic glow. As they dance and sway in the gentle currents, they brush against the minds of those who drift beneath them, stirring strange visions and half-remembered dreams.
+
+Shoals of floating islands navigate the Oneiric Tides like a scattered archipelago of the subconscious. These landmasses are formed from the accumulated detritus of countless dreamers: fragments of bone and shell, tarnished silver and opalescent nacre, all bound together by tendrils of kelp and the calcified roots of impossible trees. Each island is a unique ecosystem unto itself, home to a phantasmagoric array of flora and fauna that seem to have sprung directly from the depths of the collective unconscious.
+
+The islands are connected by a network of shimmering dream-bridges, spun from the same ethereal light that suffuses the Tides. These bridges are as insubstantial as a sigh, yet capable of supporting the weight of a dreaming mind. They wind and twist in mesmeric patterns, their paths constantly shifting according to the whims of the Tides and the tides of dream.
+
+Amidst this oneiric archipelago, the great dream-whales make their unhurried passage. These titanic, ethereal creatures are spun from wisps of silver and mist, their forms constantly shifting and re-knitting in the tidal eddies. They are the silent, benevolent guardians of the Tides, gliding serenely through the dreamscape and shepherding errant dreams back to their rightful dreamers.
+
+As the city grows and evolves in the abyssal depths below, the Oneiric Tides mirror its progress in the realm of dream. The light-woven bridges and islands shift and reshape themselves to echo the city's changing contours, and the dream-whales' songs carry whispers of its unfolding story. Dreams birthed in the sleeping minds of the Nephelai rise through the sapphire waters, manifesting as ephemeral wisps and phantoms that haunt the Tides like half-remembered memories.
+
+There is a constant exchange between the Tides and the abyssal metropolis, a dreamlike osmosis of inspiration and influence. The Nephelai sometimes ascend from the depths to drift amongst the islands, seeking wisdom or solace in the strange vistas of the dream. In turn, the ethereal energies of the Tides seep downwards, infusing the city with a numinous glow and subtly guiding its growth along the paths of myth and archetype.
+
+Together, the Oneiric Tides and the abyssal city form a single, seamless realm - a place where the boundaries between dream and reality, conscious and unconscious, blur and dissolve. It is a place of wonder and mystery, where the deepest secrets of the psyche are given form and substance, and where the act of creation is indistinguishable from the spinning of a dream.

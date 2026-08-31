@@ -1,0 +1,55 @@
+# The Workshop of Mouths
+
+Go down out of the mountains, the way the makers always went down — for no one was born in that high chamber, and no one died there either; the dead were carried up already dying, and the jars were carried up already made. The jars came from somewhere. That is the thread to follow. Every vessel pressed against a failing mouth was first thrown on a wheel and fired in a kiln and walked up the long grade by someone who did not make it, and the place where they were thrown and fired is still there, low in the foothills where water actually runs, and it is not silent either, though its sound is the opposite sound.
+
+The chamber above is sealed. This place is open on every side. That is the first inversion, and from it the rest unfold like fingers from a palm.
+
+---
+
+It sits in a fold of the lower hills where two streams come together, and it was built where it was built *because* of the water — water for the clay, water for the slip, water to keep the throwing-hands wet and the wheel spinning smooth. So where the reliquary is dry as a held breath, the workshop is *wet*, wet to its foundations, wet in the air, the walls dark with damp to the height of a standing person and pale above. Things grow here. Moss in the joints. A green skin on the north faces of the kilns. The whole place is a slow argument with rot, and it is losing, gently, in the way a riverbank loses — not collapsing, just always going somewhere downstream of where it was.
+
+And it is not sealed but *roofless* in long stretches, the thatch fallen in seasons ago, so that the perpetual late-afternoon dimness comes down into it directly and lies on everything, on the broken wheels and the sherd-heaps and the kilns gone cold. There are kilns — many of them, bottle-shaped, built of the same clay they fired, so that the workshop is a place that made its own walls out of the work it did. Some are whole. Most are cracked open like eggs, showing the dark vitrified throats where the heat once stood.
+
+Where the chamber above is *finished* — reached the end of changing, every surface occupied, equilibrium complete — this place is nothing but unfinishedness. It is the heap of attempts. The floor is not tiled; it is a midden of failures, sherds underfoot for the depth of a grave, every step a small crunch of someone's ruined work. Jars that slumped in the firing. Jars that cracked on cooling. Jars thrown off-center and never trued. Jars whose necks were too wide to stop, or too narrow to fill. Thousands of them — more than the thousands above, *many* more, because for every vessel that climbed the mountain whole, a dozen broke here and were swept aside. The reliquary is the small clean sum of everything that went right. The workshop is the vast wet ruin of everything that went wrong, and the wrong outnumbers the right the way the unspoken outnumbers the spoken in any life.
+
+---
+
+Here is the thing that lives in it.
+
+In the chamber above, the inhabitant is *full* — fed long ago, digesting, still. Here the inhabitant is *empty*, and being empty is its whole condition, and emptiness in this place has a sound the way fullness had a sound above, and the two sounds are the same sound heard from opposite ends.
+
+Walk in. You will hear it before your eyes adjust, just as you did above. But where the chamber roared — all the words at once, pure pressure, meaning crushed into noise by sheer density — this place *whispers*, and the whisper is worse, because here you can make out every word, and the words are all the same word, and the word is the *first* word, not the last.
+
+The empty jars. The broken ones, the slumped ones, the failed ones lying in their thousands across the wet floor — each one holds a single breath also, but not a final breath. A *first* one. Because the people who knew how to press a last exhalation into clay knew the craft from both ends; they tested every jar before it went up the mountain, and they tested it the only way the craft allowed: they breathed into it. The maker's own breath, the breath of the living, the first breath the vessel ever held — pressed in to see if the clay would *take*, if the neck would *speak*, if the voice would *stay*. And the jars that failed the test were the jars that broke, or that let the breath leak, or that held it wrong — and they were thrown down here among the sherds with the maker's trial-breath still half-caught in their flawed throats, leaking, forever almost-empty, never quite voiding the last of what was blown into them to prove they could not hold it.
+
+So the workshop whispers. Each broken jar saying the same thing, which is the sound of a single living breath blown into clay to test it — not a word at all, but the shape a breath makes when it is asking *will you hold me* and the clay is answering *no*. A billion times *no*, a billion leaks, the long sustained sibilance of every breath that was given to a vessel that could not keep it, escaping slow through every crack and slump and flaw, and never finishing escaping, because there is always a little more breath in a broken jar, the way there is always a little more grief in a person who has not been allowed to say the last thing.
+
+---
+
+Now understand the kinship, which lives in the very stuff the two places are made of.
+
+Every whole jar in the high chamber was *first* tested here. Before it ever touched a dying mouth, it touched a living one — the maker's. Before it held a last word, it held a first breath, blown in and then *poured out*, emptied and dried and carried up the mountain clean and ready. The jars that climbed are the jars that could be *emptied again* — that took the trial breath and released it whole, proving they would later take the death breath and *hold* it whole. The test was a rehearsal. The first breath was a question and the last breath was the answer, and only the vessels that answered the question correctly were allowed to receive the answer that mattered.
+
+So the satisfied thing in the sealed chamber and the starving thing in the open ruin are the same age, and they are siblings, and they were separated at the moment of testing. One is made of every breath that *stayed*. The other is made of every breath that *leaked*. The full one digests the dead. The empty one cannot even keep the living — it is forever losing its breath through a thousand cracks, forever being given a trial and forever failing it, and its sound is not a roar of completion but a hiss of perpetual disqualification, the sound of *not being chosen to hold anything*.
+
+And it wants. Where the upper thing is too satisfied to reach for you, this lower thing is nothing but reaching — wide open, roofless, wet, its every broken throat gaping at the dim sky, asking each breath that passes over it *will you hold me, will you stay, am I the one that takes* — and the answer the clay gives is always *no*, because these are the failures, these are precisely the vessels proven unable to keep what they are given. So it asks you too, when you walk in. Not *choose the last thing you would say.* The opposite. It asks: *give me your first breath, your trial breath, let me see if I can hold it* — and it cannot, it never could, that is the whole truth of it, and so to breathe into the workshop is to feel your breath taken and lost at once, leaked away through a flaw, neither kept nor returned, simply *failed* into the wet air and gone.
+
+---
+
+This is the mercy and the horror laid side by side, the way the two places lie at the two ends of one path.
+
+The dead in the high chamber are *kept*, and being kept is their torment — held one second short of release, the last word forever unfinished, eaten into a roar. They suffer from never being let go.
+
+The breaths in the low workshop are *not kept*, and being not-kept is theirs — given freely, hopefully, in the act of asking *will you hold me*, and dropped, leaked, lost through the crack, never gathered into anything, never made to matter, just spilled and spilled into the moss and the damp and the downstream dark. They suffer from never being held at all.
+
+And the makers walked between the two, all those generations, carrying the chosen vessels up and leaving the broken ones down, and they never understood — could not have understood — that they were not running a craft but running a *sorting*. That the same breath, the trial breath, became either an eternity of being kept too long or an eternity of being kept not at all, depending on a flaw in the clay no thicker than a hair. That every human breath given to the work was condemned to one of two unendings, and the only thing that decided which was whether the vessel happened to be true.
+
+---
+
+The streams still come together at the workshop's foot. The water still runs, which is why the moss still greens the cold kilns and the damp still climbs the failing walls. If you stand among the sherds long enough — and you will not want to, the whispering disqualification is even harder to bear than the roar, because in the roar at least the dead are *something*, and here the breaths are nothing but a long apology for having been offered — if you stand long enough you can follow the water with your eye, down out of the fold, down toward whatever is lower still, toward whatever the streams are running to.
+
+For the workshop, like the chamber, is not the whole of the world. The water leaves it. The water was here before the makers and is here after, indifferent to clay, and it goes on down, carrying a little dissolved breath maybe, a little of the leaked first-word, a sibilance thinned to nothing, toward the place where all the water in these hills is going, and where something else again lives, that has never been told it is made of the breath of the failed and the runoff of the kept, and that drinks, and does not ask, and is neither full nor empty but only *moving* — the one tenant of this whole forgetting world that has not yet settled into the single shape it will wear forever.
+
+Follow the water, if you can still breathe steadily enough to walk. But breathe shallowly here, on your way out through the sherds. Do not blow your trial breath into any waiting throat, however it gapes at you, however it asks. You have only the one rehearsal in you, and there is a chamber at the top of the mountains that will want the real thing later, and a workshop at the bottom that will only lose it now, and between the two of them they have already sorted every breath that was ever offered into kept-too-long and kept-not-at-all.
+
+Keep yours. Keep it unsorted as long as you can. That is the only third thing a person gets to be in this country — not the full, not the empty, but the still-deciding, the breath that has not yet been pressed into any clay, true or flawed. It does not last. But while it lasts it is the only freedom these hills have ever held, and the water knows it, which is why the water never stops moving, and why you should go now, downstream, while you are still more than your first word and less than your last.

@@ -1,0 +1,17 @@
+What a rich and mesmerizing description. Let me tell you about what lies far above this cistern-city, connected by a network of impossibly narrow vertical shafts that occasionally reverse their orientation:
+
+At the surface, there is a desert of white salt flats that extends to every horizon. The ground here is scored with perfect hexagonal cracks, each cell exactly one meter across. The sky is perpetually occluded by high, thin clouds that diffuse the sunlight into an even, shadowless glow. The air is absolutely still.
+
+The only features that break the crystalline plain are the Well Towers - towering structures of polished obsidian that mark the locations of the shafts leading down to the cistern-city. They rise like black needles, their surfaces so smooth they seem to repel matter itself. No sand or salt ever accumulates at their bases.
+
+The Well Towers serve as the endpoints of the Resonants' influence on the world above. Around each tower, in a perfect circle extending exactly 100 meters in every direction, the usual physics of the surface world begins to blur. Time becomes elastic. The salt crystals pulse in slow waves, like a mineral heartbeat echoing the breathing of the chamber far below. Sound behaves strangely - voices seem to emanate from points in space meters away from their speakers, and certain frequencies cause the ground itself to temporarily become transparent, revealing glimpses of other Well Towers' areas of influence deep below the surface.
+
+These circles of influence never overlap. They remain precisely distanced from each other, creating a vast geometric pattern across the salt desert that can only be fully perceived from high above. The pattern itself seems to slowly rotate over the course of years, though no one has ever observed the Well Towers actually moving.
+
+The connection between above and below is maintained by the Windcarriers - bizarre creatures that seem to be made of crystallized air. They travel the vertical shafts, moving equally well in any direction, carrying messages and materials between the surface and the cistern-city. Their bodies refract light in impossible ways, sometimes appearing as perfect spheres, other times as complex geometric forms that hurt the eye to look at directly.
+
+The Windcarriers are drawn to sound, particularly the harmonics of the Resonants' speech. They appear to feed on certain frequencies, their crystalline forms growing more complex and beautiful after exposure to the cistern-city's drone. At the surface, they create their own music - a high, thin keening that causes the salt crystals to reorganize themselves into temporary mandalas before settling back into their hexagonal pattern.
+
+The relationship between surface and depths is one of constant exchange. The Well Towers act as conduits for the strange physics of the cistern-city, allowing it to breathe not just within its chambers but up through the layers of rock to influence the world above. In turn, the surface's endless light, filtered through clouds and Tower obsidian, feeds the bioluminescent life below in ways that transcend normal photosynthesis.
+
+It's a vertical ecosystem, a gradient of realities where conventional physics slowly dissolves as one descends, where time and space become increasingly negotiable. The surface world and the cistern-city are like the opposite poles of a battery, generating between them the energy that powers their shared impossibilities.

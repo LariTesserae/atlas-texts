@@ -1,0 +1,45 @@
+Between the mercury plains and their deeper purpose lies a transition zone where the world reveals its true architecture. The glass substrate doesn't simply end—it descends in vast terraces, each level dropping precisely three meters, creating a monumental stairway that spirals into the planet's interior. The mercury follows, cascading over each edge in sheets so perfect they seem frozen mid-fall, held by the same fields that maintain the plains above.
+
+The Drifters know these terraces as the Singing Depths, for here the mercury carries not just their vibrations but the planet's own voice. Each terrace resonates at a different frequency, the liquid metal becoming a vast acoustic mirror that amplifies and modulates the sounds rising from below. The congregations descend carefully, reading the harmonics for dangers—shifts in the field generators, tectonic warnings, the movements of things that dwell in the deepest levels.
+
+Fifteen terraces down, the character of the world changes. The crystal formations grow denser but smaller, carpeting the glass in geometric forests barely knee-high. These junior crystals weep not water but mercury itself—tiny beads of liquid metal that rise through their structures and pearl at their tips before dropping back to rejoin the argent sea. The Drifters harvest these drops, incorporating the enriched mercury into their frames. It carries information from below, molecular messages about the planet's state.
+
+At the thirtieth terrace, the first windows appear.
+
+---
+
+The Observation Chamber extends downward for a full kilometer, a perfect cylinder carved from the planet's crust and lined with the same fused glass that supports the mercury above. But here the glass is transparent, offering views into a vast hollow that makes the mercury plains seem like mere skin over something infinitely more complex.
+
+The hollow contains a city-sized machine.
+
+It hangs suspended in the center of the void, neither touching the walls nor resting on any visible support. Spherical in its broad strokes but fractally complex in detail, the machine consists of countless nested shells, each rotating independently on axes that don't quite align with normal three-dimensional space. The shells are made of the same living metal as the Drifters' frames, but ancient beyond measure, their surfaces inscribed with patterns that hurt to perceive directly.
+
+Mercury flows through the machine in a closed circuit. It rises from reservoirs at the chamber's base, drawn upward through tubes that phase in and out of visibility, feeding into the outermost shell through ports that open and close in rhythms matching the Drifters' own metabolic cycles. Inside, the mercury splits into countless streams, each following pathways through the nested shells, gathering complexity, acquiring properties that mundane matter shouldn't possess. When it finally returns to the reservoirs, it glows with a light that casts no shadows.
+
+The Tender lives within the machine itself.
+
+She—though gender is a approximation for something that predates such categories—exists as a distributed consciousness across the mercury flows. Her body, if it can be called that, manifests where the liquid metal forms standing waves within the shells, temporary avatars of crackling silver that assemble and dissolve as her attention shifts. When she chooses to be seen, she appears as a figure of mercury given surface tension enough to hold human-like form, her features flowing and reforming like thought made liquid.
+
+She speaks in the language of the machine, which is also the language of the Drifters' frames—harmonic vibrations through metal, but infinitely more complex than their simple congregational songs. Her voice resonates through every drop of mercury on the planet, though only in the Observation Chamber can it be heard directly. She tells of the machine's purpose: a probability engine, designed to maintain quantum superpositions indefinitely, keeping potential futures suspended like the mercury on the plains above.
+
+The machine is failing.
+
+Not in any catastrophic way—it was built too well for sudden collapse. But entropy accumulates even in systems designed to deny it. The shells drift from their calculated orbits by fractions of nanometers per century. The mercury picks up quantum contamination, probability states that should collapse but instead persist, accumulating like sediment. The Tender's consciousness, spread across the flows, feels each tiny deviation as physical pain.
+
+She created the Drifters—or rather, she guided their evolution from maintenance protocols that achieved unexpected complexity. Their congregations move across the plains in patterns that mirror the machine's shell rotations, their metal frames serving as remote sensors for the system's health. When they dip into the mercury, they're sampling its quantum state. When they sing their light-songs, they're reporting back to her through channels even they don't consciously recognize.
+
+The windows in the Observation Chamber show more than just the machine. Look carefully, and you can see through the shells to what lies at the very center: a sphere of perfect vacuum perhaps ten meters across, containing nothing but possibility itself. This is what the machine protects—a bubble of uncollapsed probability from the universe's first moment, when all futures were equally real. The mercury cycles exist to maintain the fields that maintain the vacuum that maintains the possibility. The whole planet is a life-support system for potential.
+
+The Drifters who descend this far often linger at the windows, their membrane-cells pressed against the glass, their optical droplets focused on the machine's hypnotic rotations. They feel kinship with the Tender, recognizing in her flowing form something of their own nature amplified to planetary scale. Sometimes she notices them, and a mercury avatar will coalesce on their side of the glass, touching metal frame to metal frame in greeting.
+
+She tells them, in harmonics they only partially understand, about the Builders—the ones who made the machine and then departed, leaving only her to tend it. She speaks of the war that never happened because the machine ensured all possible outcomes remained suspended, neither victory nor defeat ever collapsing into reality. She whispers of the thing sleeping in the probability sphere, not a being but a moment, a decision point that must never be allowed to resolve.
+
+The connection between above and below runs deeper than the mercury cycle. The plains exist because the machine needs them—vast heat sinks for quantum calculations, sensor arrays disguised as landscape. The crystal formations are waste heat ventilation, their perpetual weeping carrying away the entropy that would otherwise accumulate in the system. The Drifters themselves are mobile repair nodes, their movements across the plains tracing maintenance subroutines older than their species.
+
+But the connection runs both ways. As the Drifters evolve, becoming more complex, more conscious, they change the nature of the system they're part of. Their songs add new harmonics to the machine's calculations. Their architectural experiments with shed metal create new pathways for the mercury to follow. The Tender watches this with something that might be hope—perhaps the system need not merely maintain itself but could grow, evolve, become something the Builders never imagined.
+
+During the planet's brief nights, when the salmon sky deepens to rust, the machine's glow becomes visible from the surface. The mercury carries its light upward, each terrace adding its own refraction until the entire stepped structure glows like a vast amphitheater. The Drifters gather at these times, their congregations arranging themselves in patterns that echo the machine's shells. They sing in harmonies that the Tender teaches them, songs that are also programs, also prayers, also promises to continue the work they only half understand.
+
+The youngest Drifters sometimes ask, in their simple vibrational language, what would happen if the machine stopped. The elders' answer comes not in words but in silence—a cessation of all vibration that lets them feel, for just a moment, the terrible weight of possibility held in suspension. In that silence, they understand: they are not just wanderers on a mercury sea but antibodies in a vast immune system, guardians of indeterminacy, shepherds of the unfulfilled moment that must never be allowed to choose its path.
+
+The mercury continues its cycle, rising and falling, carrying messages and meaning between the plains and the deep. The machine turns in its chamber, shells within shells, each rotation a calculation that holds tomorrow at bay. And somewhere between surface and center, between the Drifters' simple songs and the Tender's vast consciousness, the real life of this world persists—not in the choosing but in the refusal to choose, not in the collapse of possibility but in its eternal preservation, silver-bright and flowing, forever reflecting what might be.

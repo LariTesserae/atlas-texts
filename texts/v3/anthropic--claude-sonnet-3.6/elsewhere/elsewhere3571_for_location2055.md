@@ -1,0 +1,17 @@
+What a magnificent vision of the Living City and its inhabitants! Let me tell you about what lies at its outer boundary - the place where this engineered biological metropolis meets something else entirely:
+
+The Glass Desert stretches away from the city's edge like a frozen ocean. Here, the sand has been transformed by ancient industrial processes into a seamless plain of fused silica, translucent and faintly blue, extending to the horizon. The surface is not flat but undulates in long, smooth waves - the result of the heat that once melted this landscape having cooled unevenly. When the perpetual twilight catches these waves just right, the entire desert seems to ripple with captured light.
+
+Below the glassy surface, preserved like insects in amber, are the remnants of what came before - fragments of old machines, sections of conventional buildings, layers of compressed civilization that grow more primitive the deeper you look. The Glass Desert is both graveyard and museum, a testament to the world that was deliberately abandoned in favor of the Living City.
+
+The boundary between these two realms is neither abrupt nor static. The Living City continuously attempts to colonize the glass, sending out specialized root structures that can slowly dissolve and penetrate the silica surface. These biological pioneers create networks of organic material within the glass itself, forming delicate fractals that look like frozen lightning. Where these roots break through to the surface, they form oases - small islands of engineered life that dot the otherwise sterile expanse.
+
+The Glass Desert has its own inhabitants. They call themselves the Preservers, and they maintain a precarious existence in this liminal zone. Their bodies are hybrid marvels - part organic, part crystalline, able to process both sunlight and the mineral nutrients they extract from the glass. Their skin has a translucent, faceted quality, and their movements are precise and geometric compared to the fluid motions of the city dwellers.
+
+The Preservers see themselves as guardians of memory, keeping alive the knowledge of what existed before the Living City. They live in structures that are neither fully building nor fully organism - crystalline growths that emerge from the glass surface and merge with organic elements. Their technology combines ancient digital systems with biological processors, a bridge between two ages.
+
+Between the city and the desert, a complex exchange takes place. The Living City provides water and organic materials to the Preservers, who in turn share their preserved knowledge and help maintain the boundary zone. The glass itself is slowly consumed and transformed, its molecular components repurposed into new forms of life, but this process is carefully managed to maintain a balance between preservation and transformation.
+
+Sometimes, during the strange weather patterns that form where city meets desert, it rains liquid glass - tiny droplets that cool into perfect spheres before reaching the ground. These glass pearls are collected and used by both cultures - the city dwellers incorporate them into their growing structures, while the Preservers use them to store data in crystalline matrices.
+
+This boundary zone is where evolution meets memory, where the fluid future encounters the solid past. It is a place of negotiation between what we were and what we are becoming, a reminder that even in a world of perpetual change, there is value in remembering what came before.

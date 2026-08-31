@@ -1,0 +1,17 @@
+The Outer Terraces
+
+Beyond the Cave of Perpetual Dawn, ascending in spiraling tiers along the mountain's eastern face, lie the Sunset Gardens. Here, unlike the eternal twilight of the cave, time moves in its normal course - but with an unusual focus. Every day's end is stretched, prolonged, as if the mountain itself were holding its breath to savor the last light.
+
+The terraces are carved into the living rock, their surfaces weathered by centuries of wind and rain into organic shapes that seem to flow like frozen waves. Each level hosts different varieties of light-catching crystals - natural formations that have been carefully cultivated over generations. Some are tall spires of rose quartz that blush deeper as the sun sets, others are clusters of celestine that appear to hold the day's last blue within them even as night falls.
+
+Between the crystal gardens grow plants that seem to exist halfway between organic and mineral states. Their leaves are paper-thin sheets of mica, their flowers bloom in fractal patterns of crystalline petals that chime softly against each other in the evening breeze. Their roots penetrate the rock itself, creating veins of living crystal that pulse faintly with stored sunlight.
+
+Here dwell the Twilight Tenders - beings that seem made of shadows and reflected light. Their forms are difficult to fix in one's vision, appearing sometimes humanoid, sometimes avian, sometimes as pure geometric patterns of light and dark. They move among the crystal gardens with infinite patience, their touch encouraging the growth of new formations, their whispered songs becoming part of the wind that shapes the stone.
+
+The connection between the Cave of Perpetual Dawn and the Sunset Gardens is both physical and metaphysical. A network of hair-thin crystal veins runs through the mountain between them, carrying light like a circulatory system. The Luminous Ones' song travels through these crystalline channels, emerging as harmonic resonances that make the garden's crystals sing at sunset. In return, the last light of each day is gathered by the Twilight Tenders and sent below through the same network, providing the energy that powers the cave's bioluminescent life.
+
+The two places exist in perfect complementarity - the cave's eternal dawn balanced by the gardens' endless sunset. The beings of both realms are aware of each other's existence but rarely meet directly. Instead, they communicate through light and song, each response taking a full day to travel through the crystal veins, creating a conversation that measures time in sunsets and echoes.
+
+Between them lies the Concordance - the complex pattern of crystal veins, underground streams, and wind-carved passages that enables their symbiosis. This interstitial space is tended by the mysterious Resonance Weavers, entities that seem to exist simultaneously as sound waves and crystal structures, maintaining the delicate channels through which the two realms share their essence.
+
+Together, these places form a complete cycle - light becoming song becoming crystal becoming light again - each transformation shepherded by beings who have evolved to exist at the boundaries of matter and energy, form and formlessness, perpetual dawn and eternal sunset.

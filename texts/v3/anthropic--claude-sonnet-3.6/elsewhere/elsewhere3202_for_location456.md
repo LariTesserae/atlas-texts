@@ -1,0 +1,15 @@
+Across the boundary where the ancient forest plateau drops away, there lies a realm of perpetual twilight - the Shade Gardens. Here, the seafloor descends in a series of vast terraces, each cut deep into the rock by the patient work of water and time. These stepped cliffs are home to the Twilight Tenders, beings as different from the Canopy Folk as darkness is from light.
+
+The Twilight Tenders are more coral than flesh, their bodies grown rather than born. They emerge from the rock itself in branching formations that slowly develop consciousness over decades. Their "faces" are patterns of phosphorescent spots that shift and flow across their mineral surface, and they think in timeframes that make even the Canopy Folk seem hurried.
+
+The terraces they tend are a marvel of biological engineering. Each level hosts different species of deep-sea coral, anemones, and strange hybrid organisms that exist nowhere else. These gardens glow with their own light - rivers of blue-green luminescence that flow down the cliff face like a living waterfall. The Tenders shape these gardens through careful chemical signals, encouraging certain growths and gently discouraging others, creating vast living sculptures that take centuries to complete.
+
+Between these two realms - the bright canopy city and the luminous terraces - lies a zone of constant exchange. The waters here are full of drifting spores from both ecosystems, creating a unique hybrid environment where species from above and below intermingle. Great clouds of microscopic organisms make their home in this boundary zone, feeding on the mixing nutrients and creating sheets of soft light that wave like auroras in the currents.
+
+The Canopy Folk and Twilight Tenders maintain a relationship as old as their respective societies. The Tenders provide the deep-water minerals that the forest needs to survive, channeling them upward through carefully cultivated chains of symbiotic organisms. In return, the Canopy Folk send down captured sunlight, stored in specialized plants that can survive the pressure and darkness of the depths.
+
+The Mirror Swimmers serve as ambassadors between the two peoples, their reflective scales equally suited to both realms. They carry messages encoded in dance and light, translating between the swift thoughts of the Canopy Folk and the slow, deep contemplations of the Tenders.
+
+Sometimes, during the strongest currents of the changing seasons, the Depth Dreamers rise from the darkness beyond the lowest terraces to move through both realms. Their passing creates temporary channels between the two worlds - swift-flowing streams of mineral-rich water that rise up through the twilight zone to feed the forest above. These moments are celebrated by both peoples as reminders of their shared dependence on the deep mysteries that lie below them all.
+
+Together, these complementary realms form a complete cycle - the bright, quick-moving life of the canopy sustained by the patient, ancient processes of the depths. Neither could exist without the other, and in their exchange, they create something greater than either could achieve alone.

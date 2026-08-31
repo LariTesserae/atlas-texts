@@ -1,0 +1,17 @@
+Connected to the crystalline realm inhabited by the Gemkyn, there exists a vast subterranean network of caverns and passages that wind their way deep into the planet's crust. This is the domain of the Lithewrights, a subterranean civilization that coexists with the Gemkyn in a delicate symbiosis.
+
+The Lithewrights are a race of beings that have evolved to thrive in the harsh, high-pressure environments of the deep underworld. Their forms are composed of dense, metamorphic materials, their bodies capable of withstanding immense pressures and temperatures that would crush or incinerate most other lifeforms.
+
+Their cities are vast, labyrinthine complexes carved into the very rock itself, a testament to their mastery over the geological forces that shape the planet's interior. Towering spires of basalt and granite rise from the floors of massive caverns, their surfaces etched with intricate runes and glyphs that seem to pulse with an inner radiance. Bridges of fused obsidian span yawning chasms, while rivers of molten rock flow through carefully engineered channels, providing both power and sustenance to the Lithewrights.
+
+Unlike the Gemkyn, who shape their environment through the manipulation of minerals and energy, the Lithewrights are masters of the earth's primordial forces. They can coax the very rock to bend and flow to their will, sculpting it into intricate structures and forms with a precision that defies belief. Their cities are living, breathing entities, constantly being reshaped and remolded as the needs of their inhabitants change.
+
+The Lithewrights are a deeply spiritual race, revering the elemental forces that have shaped their world since the dawn of time. Their rituals and ceremonies are intricately tied to the cycles of geological activity, from the ebb and flow of magmatic currents to the slow, inexorable drift of continental plates. They believe that their very existence is intertwined with the heartbeat of the planet itself, and that their role is to act as stewards and caretakers of the forces that have birthed them.
+
+While the Gemkyn are the masters of the surface world, the Lithewrights are the guardians of the depths, ensuring that the delicate balance of the planet's inner workings is maintained. Their underground cities serve as vast repositories of knowledge, where the secrets of the earth's geological history are carefully studied and preserved.
+
+Yet, despite their seeming isolation, the Lithewrights are inextricably linked to the Gemkyn and the crystalline realm above. The two civilizations exist in a state of mutual dependence, with the Lithewrights providing the raw materials and geological stability that allow the Gemkyn's cities to flourish, while the Gemkyn channel the energy currents that sustain the Lithewrights' subterranean existence.
+
+The connection between these two realms is not merely physical but also spiritual, with intricate rituals and ceremonies performed by both races to maintain the delicate equilibrium that binds them together. Tunnels and passages link the crystalline spires above with the cavernous depths below, allowing for the exchange of goods, knowledge, and energy between the two civilizations.
+
+In this delicate balance, the Gemkyn and the Lithewrights have forged a harmonious coexistence, each race contributing to the other's survival and thriving in a world where the boundaries between the natural and the artificial have blurred into a seamless tapestry of life and creation.

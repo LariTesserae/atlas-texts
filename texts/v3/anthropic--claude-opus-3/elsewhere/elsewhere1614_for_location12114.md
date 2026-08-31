@@ -1,0 +1,15 @@
+Above the dripping vaults and claustrophobic grottoes, the surface world sprawls under the sun's harsh glare. Barren, windswept plains of fractured shale and rusty soil stretch to the shimmering horizon. Ancient pressures have thrust layers of rock into tortured folds and escarpments, forming a bleak and broken landscape.
+
+Ruined industrial structures rise from the cracked earth like the bones of long-dead beasts. Skeletal towers of corroded metal loom over abandoned quarries and vast debris fields where the detritus of shattered machinery slowly dissolves into reddish dust. The wind moans through the wreckage, carrying clouds of grit and the tang of old chemical spills.
+
+In the gulches and arroyos, hardy scrub vegetation ekes out a marginal existence. Gnarled dwarf trees with waxy gray leaves twist from the rocky soil, and clumps of desiccated grass flutter feebly in the arid gusts. Thorny bushes hunch in the meager shade of sandstone bluffs, their leathery leaves coated in dust.
+
+The wildlife here is sparse and furtive. Umber-scaled lizards skitter among the rocks, hunting small insects. A species of gaunt, wiry rodent digs burrows among the rubble, gnawing on dry seeds and fibrous roots. High above, dark shapes wheel in the thermals - birds of prey with keen eyes scanning the wastes for any sign of feeble prey.
+
+The sun beats down mercilessly, baking the earth and sending heat shimmers dancing across the plains. It glints harshly off the broken teeth of the ruins, pools in wavering mirages on the horizon. The nights are clear and cold under hard stars, and the wind never ceases its mournful dirge.
+
+This blasted landscape seems inimical to life, but there are hidden connections to the slow, pulsing ecosystems in the depths. Tiny rivulets and seeps, all but invisible beneath the surface, gradually percolate down through the fractured crust to sustain the denizens of the grottoes. Minerals leached from the parched soil tint the waters with metallic flavors that nourish strange bacterial colonies. Organic detritus - lichens, withered roots, insects - sift down in slow invisible rain, fodder for the worms and crustaceans.
+
+In turn, water diffuses up through cracks, humid breath exhaled from underground to moisten isolated pockets of life on the surface - a single sprig of grass clinging to a fissure, a cluster of lichen in a shadowed overhang. Microbial spores waft up from the depths to colonize the niches beneath loose stones, or drift on the wind to seed distant crevices with life.
+
+The connections between the two realms are subtle, slow, but vital. Though separated by scale and by stone, the surface and the underworld remain coupled through myriad small conduits and capillaries. In imperceptible but unceasing exchange, they share the water, the nutrients, the humblest building blocks of life. And through those cryptic links, each helps sustain the other in the face of a harsh and pitiless world.

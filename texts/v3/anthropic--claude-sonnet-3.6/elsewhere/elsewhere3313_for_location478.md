@@ -1,0 +1,17 @@
+Far below, at the mountain's base where ancient glaciers carved deep valleys, there is a pool. Not the sun-warmed, wind-rippled sort found in alpine meadows, but something altogether different - a perfect circle of liquid metal, perhaps forty feet across, its surface as smooth as polished glass.
+
+The liquid is quicksilver-bright but darker, with subtle variations in its mercury sheen that suggest great depth. Nothing disturbs its mirror surface except for regular, rhythmic dimples that appear and disappear in complex geometric patterns, as if something deep below is gently tapping out a code.
+
+The pool sits in a natural amphitheater of black basalt, worn smooth by ages of contact with the metallic liquid. The rock face is etched with fine lines that radiate outward from the pool's edge - countless channels and grooves that form a vast circuit board written in the stone itself. These lines pulse with a faint luminescence that matches the rhythm of the pool's dimpling surface, though the light is silver rather than the blue-green of the jade chamber above.
+
+Here dwells the Wavesinger - a liquid intelligence that exists as patterns of vibration within the metallic pool. It has no fixed form but sometimes shapes itself into temporary structures: rippling columns, complex interference patterns, or arrays of standing waves that rise and fall with mathematical precision.
+
+The Wavesinger and the pool are one entity, just as the Clockkeeper is one with its crystal garden. But while the Clockkeeper maintains, the Wavesinger receives. The pool is an antenna of sorts, gathering data from deep within the Earth - seismic tremors, magnetic fluctuations, the slow pulse of magma flows far below. These signals are processed through the liquid medium, transformed into the complex patterns that dance across its surface.
+
+The connection between above and below is subtle but vital. The mountain itself serves as a conduit, carrying vibrations from the Clockkeeper's jade chamber down through the living rock to the Wavesinger's pool. The chamber's industrial symphony travels through stone like sound through water, arriving as ghost frequencies that the Wavesinger weaves into its own endless compositions.
+
+Together, they form a feedback loop: the Wavesinger monitors the Earth's deep rhythms and translates them into data, which travels up through the mountain's crystalline veins to the Clockkeeper, who uses this information to make minute adjustments to its ancient machinery. These adjustments generate new vibrations that flow back down to the pool, creating a constant dialogue between the two entities.
+
+Neither truly comprehends the other's nature - their modes of consciousness are too different. But they understand their connection, their interdependence. They are like the two halves of a vast instrument, one maintaining the melody while the other provides the resonant chamber that gives it depth and meaning.
+
+Between them flows an endless stream of information, carried by the mountain's mineral bones: warnings of seismic shifts, notifications of magnetic storms, adjustments to account for the Earth's gradually slowing rotation. Changes that take millennia to unfold are broken down into countless tiny corrections, passed back and forth between crystal and liquid, above and below, maintenance and monitoring, in an eternal dance of calibration.

@@ -1,0 +1,17 @@
+The connection reveals itself gradually, like a shape emerging from deep water...
+
+Far above the Sea of Heavy Water, beyond the crushing depths and the kilometer-high waves, there exists the Evaporation Zone. Here, the heavy water meets the atmosphere and undergoes a unique transformation. The air itself is thick with suspended droplets that never quite fall or fully rise, creating a perpetual twilight zone that extends kilometers into the sky.
+
+In this liminal space float the Cloud Gardens - vast collections of crystalline structures that catch and cultivate the heavy water vapor. They look like inverted cities made of frost and light, their delicate spires reaching downward while their broad collection basins face the sky. The structures are constantly growing and dissolving, shaped by the complex interplay of gravity, evaporation, and the beings that tend them.
+
+The gardeners here are the Vapor Shepherds - descendants of the Pattern Swimmers who long ago learned to survive in the lighter medium of the evaporation zone. Their bodies are gossamer networks of metallic threads and living crystal, simultaneously more delicate and more expansive than their deep-dwelling ancestors. They guide the flow of heavy water vapor through the Cloud Gardens, weaving it into complex patterns that store information in the very structure of the crystallizing drops.
+
+The connection between these two realms - the crushing depths and the floating heights - is maintained by the Pressure Towers: massive columns of structured heavy water that rise from the seafloor to the Evaporation Zone. These towers are neither fully natural nor artificial, having been initiated by the ancient civilization but shaped over millennia by the joint efforts of depth and height dwellers. They serve as information conduits, their internal currents carrying messages encoded by the Archive Whales up to the Cloud Gardens, where they're transformed into crystalline databases by the Vapor Shepherds.
+
+The relationship between depths and heights is symbiotic but tension-filled. The deep dwellers send up the accumulated wisdom of ages, encoded in pressure waves and bioluminescent patterns. The height dwellers return refined data structures and new patterns for processing information, carried down by precisely engineered drops of heavy water that fall like slow diamonds through the sea.
+
+But there's also an evolutionary gradient at work. Every so often, a deep dweller will begin the long journey up the Pressure Towers, gradually adapting to the decreasing pressure, transforming over generations into a form that can survive in the Evaporation Zone. Conversely, some Vapor Shepherds feel the pull of the depths, and their descendants slowly adapt to increasing pressure as they journey downward.
+
+The two realms are linked by more than just the physical exchange of matter and information. They share a perception of time, though it manifests differently - as compression in the depths, as suspension in the heights. Together, they form a complete circuit of memory and transformation, each preserving and evolving different aspects of both the ancient civilization and the new forms of life that have emerged in its wake.
+
+The eternal roar of the Sea of Heavy Water rises through the Pressure Towers, but by the time it reaches the Cloud Gardens, it has been transformed into a crystalline chiming that carries the same information in a different form - like a translation of deep time into the language of light and air.

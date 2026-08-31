@@ -1,0 +1,17 @@
+Tunnels in the Deep
+
+Deep beneath the bustling streets and towering pyramids of the city, another realm exists - an intricate network of tunnels, caverns and underground streams known simply as the Deep. This subterranean world is inextricably linked to the city above, yet possesses a wholly different character.
+
+The tunnels of the Deep were first hewn from the living limestone by the ancient founders of the city, meticulously expanded over centuries into a labyrinthine underworld. The main passages are vast, with arched ceilings that reach up into darkness. Smaller side tunnels branch off into dense warrens, some leading to secret chambers and long-forgotten catacombs. The air is perpetually cool and dank, heavy with the mineral scent of bedrock and underground rivers.
+
+The Deep serves many purposes for the city dwellers. It is here that the precious water reservoirs are maintained, fed by cunningly designed condensation traps and cisterns. Teams of engineers and dowsers constantly monitor water levels, ensuring the city above never goes thirsty. The damp tunnels also provide vital cooling in the hot season, with giant stone fans directing airflow upwards into streets and dwellings.
+
+But the Deep is more than mere utilities. In many ways, it is the hidden heart of the city's culture and spirituality. Ancestral shrines and sacred wells are scattered throughout, some natural caverns, others carved into elaborate temple chambers. It is believed that the barriers between worlds are thinnest in the deep places of the earth. Here, shamans and seers commune with spirits, make offerings, and retrieve holy water for rituals above.
+
+The Deep also has its permanent residents. Entire clans live in cave-neighborhoods, adapted over generations to the unique rhythms of life below ground. These tunnel dwellers are paler of skin, with large, luminous eyes accustomed to scant light. They are experts in navigating the underworld, serving as guides, water diviners, and caretakers of the sacred sites.
+
+The ecology of the Deep is sparse but highly adapted. Blind fish navigate underground streams by sensing subtle currents. Translucent cave crickets feast on fungi and detritus. Eyeless salamanders slither through crevices. Strange bioluminescent mosses emit an eerie blueish glow in the dampest recesses. Occasionally, creatures from above venture or fall into the upper tunnels - bats, snakes, centipedes - becoming part of the subterranean food web.
+
+According to legend, the very deepest tunnels, far below any human habitation, connect to the root of the world - the primordial place from which all life emerges and eventually returns. It is said that a vast underground sea, blacker than night, lies there, home to monstrous serpents and fish large enough to swallow a man whole. At times, strange currents ripple through the Deep, and the tunnel dwellers whisper of disturbances in the lightless abyss below. 
+
+Thus, the Deep is revered, but also feared. It is the yin to the city's yang - dark, cool, hidden, feminine, a place of secrets and ancient memory. The city above may bustle with surface concerns, but it is the Deep that anchors it, that provides its essential lifeblood and spiritual sustenance. The two are bound, upper and lower, light and shadow, in an eternal symbiosis. The people say that to truly know their city, one must first delve into the Deep and confront all that lies beneath.

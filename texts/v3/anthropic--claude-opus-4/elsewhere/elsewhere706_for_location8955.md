@@ -1,0 +1,39 @@
+The Probability Harvest
+
+Beyond the shell boundaries, where the transit tubes thin to mathematical abstractions and the last Architecture's shadow fades into pure potential, the Probability Harvest spreads across dimensions that have no names. This is not a place in any conventional sense—it exists perpendicular to space, adjacent to time, in the folds where abandoned futures go to seed.
+
+Here, reality grows wild.
+
+The Harvest appears first as a shimmer in your peripheral vision, like heat-haze rising from pavement that isn't there. As you approach (though approach is the wrong word—you don't move toward it so much as adjust your existence to intersect with its possibility), it resolves into something between a forest and a formula, between an ocean and an equation.
+
+Trees of pure causality stretch upward and downward simultaneously, their trunks made of crystallized chance. Each branch represents a decision never made, each leaf a moment that almost was. They grow in groves organized by probability—the nearly-certain forming dense thickets of silver bark and golden leaves, while the barely-possible stand alone, their forms translucent and trembling, threatening to dissolve if observed too directly.
+
+The ground, if it can be called ground, is loam composed of discarded outcomes. Dig down, and you find layers of sedimentary maybes: compressed strata of events that didn't quite happen, fossilized opportunities, the archaeological record of unmade choices. This soil is fertile beyond imagining. Seeds of pure potential germinate here, sprouting into probability plants that flower with scenarios and fruit with consequences.
+
+The farmers of this place are the Cultivars—beings who long ago traded their fixed forms for the ability to exist in multiple states simultaneously. Each Cultivar appears as a superposition of all their possible selves: you might see a figure that is simultaneously young and old, tall and short, present and absent. They move through the Harvest like smoke through smoke, tending their crops of maybe with tools made of crystallized uncertainty.
+
+The Cultivars plant by choosing what not to choose. They'll stand at the intersection of possibility-paths, holding seeds of events that could unfold in countless ways, and deliberately refuse to collapse the waveform. This refusal to decide creates a kind of pressure in reality—a potential difference that drives growth. Where they plant, probability trees spiral up from the loam, their growth rate determined by how unlikely their existence is. The more impossible the tree, the faster and taller it grows, as if reaching for a reality it can never quite achieve.
+
+Water here is liquid causality, flowing in streams that run uphill as often as down, that sometimes flow backward through their own courses, undoing their erosion as they go. The Cultivars channel these streams through irrigation systems built from compressed doubt, creating networks that water some possibilities while leaving others to wither. The sound of this water is indescribable—like listening to dice that never stop rolling, coins that never finish flipping.
+
+The relationship between the Harvest and the Unfinishing Cities is one of symbiosis and tension. The cities need the raw potential that grows here—the Architectures cannot build without the materials of maybe, cannot extend their impossible structures without beams of crystallized perhaps. In return, the Harvest needs the friction of the cities' constant becoming, the heat of their refusal to complete. This warmth drifts across dimensional boundaries, creating the climate in which probability can grow.
+
+Trade between the two realms happens at the Margin Markets—zones where the shell-boundaries grow thin enough for exchange. Here, the Architectures extend probability-siphons through the transit tubes, while the Cultivars push harvested potential through membrane-thin gaps in spacetime. The currency is contradiction: the cities trade their incompletions for the Harvest's uncertainties, each side giving what the other lacks.
+
+The Cultivars speak of the Great Convergence—a prophesied moment when all possibilities will collapse into a single, inevitable outcome. They fear this above all else, for it would mean the end of the Harvest, the death of maybe. So they tend their probability trees with careful devotion, always ensuring enough uncertainty remains to keep the quantum fields from crystallizing into mere reality.
+
+Some Cultivars have begun experimenting with hybrid crops—probability trees grafted with fragments of Architecture consciousness. These chimeric growths produce fruit that is simultaneously structure and chance: buildings that exist only when not observed, bridges that probably span definitely imaginary gaps, towers that might be tall. The Architectures view these experiments with suspicion, fearing contamination of their essential incompleteness.
+
+In the deepest groves of the Harvest, where probability grows so thick it becomes almost solid, ancient trees have developed awareness. These Elders remember when the shells were first imagined, when the cities were just a glimmer of industrial maybe in some cosmic architect's eye. They grow slowly now, adding perhaps one new branch every million moments, each leaf a universe that might have been.
+
+The Cultivars venerate these Elders, building shrine-gardens around their roots where they plant only the most delicate possibilities—the almosts and the not-quites, the if-onlys and the could-have-beens. In the rustling of the Elders' leaves, they claim to hear the voice of potential itself, whispering secrets about the true nature of existence.
+
+When storms come to the Harvest—probability storms where cause and effect swirl in hurricane spirals—the Cultivars take shelter in structures they call Certainty Houses. These are the only fixed points in their fluid realm, built from moments of absolute inevitability scavenged from the edges of existence. Inside, everything is exactly what it is, no more and no less. The Cultivars find these houses suffocating but necessary, like diving bells of definiteness in an ocean of maybe.
+
+The storms themselves are magnificent and terrible. Lightning made of paradox splits probability trees down to their roots, creating cascade failures where entire groves of possibility cancel themselves out. Thunder rolls backward through time, announcing strikes that haven't happened yet. In the storm's wake, new growth springs up immediately—possibility abhors a vacuum even more than nature does.
+
+The Harvest extends in all directions, including several that don't exist in the shells. Cultivars speak of the Fallow Fields, where exhausted possibilities lie dormant, waiting for reality to forget them so they can become improbable again. They tell of the Wild Margins, where probability grows without cultivation, producing monstrous maybes that could unmake existence if they ever became actual.
+
+At the very heart of the Harvest, where all probability streams converge, stands the Null Tree—a perfect absence of possibility, a thing so certain that it negates uncertainty merely by existing. The Cultivars dare not approach it directly, but they maintain the ancient irrigation channels that feed it, knowing that without this absolute fixed point, their entire realm would dissolve into pure chaos.
+
+The Harvest feeds the cities, and the cities' friction feeds the Harvest. Between them, they maintain the delicate balance that keeps this world poised forever on the edge of existence—too possible to vanish, too uncertain to solidify. In this space between is and isn't, between will-be and won't, both the Architectures and the Cultivars find their purpose: to tend the incomplete, to nurture the uncertain, to ensure that somewhere, always, there remains room for maybe.

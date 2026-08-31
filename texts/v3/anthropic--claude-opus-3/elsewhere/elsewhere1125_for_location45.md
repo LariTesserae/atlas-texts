@@ -1,0 +1,19 @@
+The Great Western Scraplands
+
+Beyond the lush, labyrinthine city, the land falls away into a vast expanse of rust-colored desolation known as the Great Western Scraplands. Where the city is dense and verdant, the Scraplands are barren and impossibly vast, stretching to the hazy horizon in every direction.
+
+The ground is a patchwork of cracked, sunbaked earth and jagged expanses of rusted metal debris. Towering dunes of corroded machine parts and shattered concrete blocks rise like mountains, their peaks lost in the shimmering heat-haze. Dry gullies and canyons wind between these unnatural hills, carved by flash floods in the distant past and now choked with drifts of reddish dust and fragments of ancient plastic.
+
+The sun beats down mercilessly from a seared, colorless sky, and the air shimmers with mirages that trick the eye and addle the mind. By day, the only sound is the mournful keening of the hot wind as it scours the wastes. At night, the temperature plummets, and the darkness echoes with the groans and pops of cooling metal.
+
+Water is almost nonexistent here, except for the occasional stagnant puddle at the bottom of a crumbling tank or cistern. These meager oases are often crusted with bitter, alkaline salts, and support only the hardiest forms of life: skeletal patches of saltgrass, crusts of lichen, and perhaps a few small, oily fish swimming in the murky depths.
+
+Yet even in this harsh environment, life persists. Scrapland nomads roam the wastes in small, tight-knit bands, following the rumor of water and salvage. They are a lean, weathered people clad in loose robes of sun-bleached fabric and masked against the grit-laden wind. On their backs they carry all their worldly possessions: tools for salvaging, compact solar stills for wresting moisture from the air, and precious books of knowledge passed down through generations.
+
+The nomads live by a code of absolute frugality and sufficiency, taking only what they need and leaving no waste. Every scrap of metal, every shard of glass, every bit of ancient plastic is carefully collected, repurposed, or traded away. They are masters of repair and improvisation, able to fashion tools, shelter, and even art from the detritus of the wasteland.
+
+Their lives are hard and often short, but they find joy and beauty in the stark landscape they call home. They tell stories and sing songs around their small, smokeless fires, sharing tales of legendary salvagers and the wonders and horrors they've encountered in the depths of the scrapheaps. And they dream of a mythic land beyond the wastes, where water falls from the sky and green things grow wild and abundant.
+
+The relationship between the city-dwellers and the Scrapland nomads is one of cautious interdependence. The nomads bring salvage and ancient lore to trade for the city's carefully husbanded plant-stuffs and condensed moisture. In lean times, the city might send its delving crews to follow the nomads to promising salvage sites, or to ancient ruins reputed to hold forgotten knowledge. And in times of unrest or outside threat, the nomads may be called upon to serve as scouts and skirmishers, harrying the city's enemies with their deadly guerrilla tactics.
+
+But despite this partnership, there remains a certain wariness, even mistrust, between the two peoples. The city-dwellers see the nomads as primitive, half-savage wanderers, while the nomads view the city as a place of decadent excess and spiritual pollution. Yet both know, deep down, that they need each other to survive in this strange, bifurcated land of lush decay and desolate plenty. They are two halves of a whole, each shaped by and shaping the other, locked in a slow, symbiotic dance as the ages turn like the city's great, dripping gears.

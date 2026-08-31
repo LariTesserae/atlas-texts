@@ -1,0 +1,25 @@
+In this gorge dwells something that moves between mineral and flesh—the Grinding Monks, as the few who have glimpsed them whisper. They are not quite human anymore, if they ever were. Their skin has taken on the texture of the friable walls themselves, rime-crusted and flaking in sheets that reveal new layers beneath, each stratum recording some year of their peculiar devotion.
+
+They emerge only when the water runs at night, their bodies bending impossibly to follow the condensation's path down the sheer faces. Their fingers have elongated into tools for one purpose: to grind. Always grinding. The rubicelle and spinels that form in the crevasses—these are their work, their worship. They take the coarse stone and reduce it grain by grain, their movements so slow they seem frozen until you look away and back again to find them in a new position entirely.
+
+The Grinding Monks speak only in the scrape of stone on stone, a language of friction that echoes in the narrow valley. They tend the Lewis ferns with the same patient grinding motion, crushing nutrients from rock to feed the green things. The pine seedpods wire themselves in response to their presence, twisting into geometric patterns that mirror the crystalline structures emerging from their endless work.
+
+---
+
+Beyond this gorge, where the mountain face steps up to its more drastic expression, lies the Plateau of Frozen Thunder.
+
+Here, the world inverts itself. Where the gorge is narrow and water-worn, the plateau spreads impossibly wide, a tableland of white stone that hums with trapped sound. Lightning struck here once—or perhaps strikes here always, in some sense—and never left. The air itself has crystallized into sheets that hang like curtains, each one containing the ghost of a thunderclap that plays out in extreme slow motion.
+
+The being who inhabits this place is known as the Echo Shepherd. Unlike the Grinding Monks with their patient, downward focus, the Echo Shepherd exists in constant motion, racing between the frozen sound-sheets with a staff made from fused lightning glass. They are tall and impossibly thin, their body stretching and compressing as they move, as if they exist in a different relationship with distance than other beings.
+
+The Echo Shepherd's work is to tend the frozen thunder, to ensure that each crystallized sound completes its journey across the plateau. With their staff, they tap the sheets, and for a moment, the thunder unfreezes, rolling across the white stone in waves that make the ground itself ripple like water. They must guide each sound to its proper destination—some to the east where they will become wind, others to the west where they will sink into the mountain and emerge as the trickling water in the gorge below.
+
+The Shepherd wears robes woven from the same material as the sound-sheets, so they appear to be dressed in solid noise. Their face is never quite visible, always turned toward the next thunder that needs guiding. But their voice, when they speak to the storms that still gather above the plateau, is like whispered lightning—bright and branching and gone before you can properly hear it.
+
+The plateau connects to the gorge through more than just water. The minerals the Grinding Monks produce, grain by patient grain, eventually rise. The finest particles of rubicelle and spinel dust catch the mountain winds and spiral upward, seeding the clouds above the plateau. When lightning strikes these mineral-rich clouds, the thunder it produces carries traces of the gorge's essence—each sound-sheet that forms contains microscopic inclusions of ground stone, tiny windows into the patient work happening far below.
+
+And sometimes, very rarely, one of the Grinding Monks will complete their work. They will have ground themselves down along with the stone until they are nothing but the finest dust, inseparable from their creation. This dust rises, all at once, a pillared cloud ascending the mountain face. When it reaches the plateau, the Echo Shepherd gathers it into a new sound-sheet, and the thunder that forms there carries something different—not just sound, but memory. The memory of patience, of transformation, of the slow wedding between flesh and stone.
+
+The Echo Shepherd preserves these special thunders the longest, tending them with particular care, knowing that when they finally release, they will rain down on the gorge below as something more than water—as understanding, as recognition, as the beginning of another monk's final work.
+
+In this way, the two places exist in an endless cycle: grinding rising to sound, sound falling to water, water enabling the grinding. The mountain knows this rhythm in its bones, in the very structure of its stone, and continues to offer itself up, grain by precious grain, to those patient enough to receive it.

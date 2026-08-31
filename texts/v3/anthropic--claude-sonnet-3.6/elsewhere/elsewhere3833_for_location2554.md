@@ -1,0 +1,19 @@
+This is a masterful portrait of the Machine City and its inhabitants. Let me describe what lies above, and how these realms connect:
+
+Far above the Machine City, nearly at the mountain's peak, sits the Calibration Monastery. Unlike the mechanical complexity below, the monastery is a study in austere geometry - white stone buildings arranged in perfect circles, their proportions adhering to mathematical ratios that subtly influence the flow of time.
+
+Here, novice Time Keepers learn their craft in the thin mountain air. The monastery's courtyards are filled with curious devices: sundials that cast shadows in impossible directions, pendulums that swing in complex patterns, maintaining the delicate balance of temporal flow between surface and depths. Gardens of precisely trimmed trees grow in spirals, their growth patterns carefully managed to anchor normal time against the influence from below.
+
+The monks here wear simple grey robes, but with complex embroidery that mirrors the protective patterns of the Engineers' suits below. They move in choreographed patterns throughout their day, their collective movements forming living equations that help stabilize the temporal fields radiating from the Machine City.
+
+The connection between these two realms is maintained by the Gradient Stairs - a massive spiral staircase that descends through the mountain's heart. But these aren't ordinary stairs. Each step exists in a slightly different temporal frame than the ones above and below it, creating a graduated transition between normal time at the monastery and the dense temporal soup of the Machine City. The journey down takes exactly as long as it needs to for human biology to adjust - sometimes hours, sometimes weeks, occasionally years that pass in what feels like minutes.
+
+The Gradient Stairs are maintained by both communities. The Engineers service the mechanical aspects from below, while the monks tend to the metaphysical stabilization from above. At certain points along the descent, "temporal locks" - chambers where time moves sideways rather than forward - allow travelers to acclimate. Here, the crystalline growths from below meet the monks' mathematical gardens in fascinating hybrid forms.
+
+The relationship between monastery and Machine City is symbiotic but not always harmonious. The monks view their role as containing and channeling the temporal energies that the Engineers harvest. Without the monastery's stabilizing influence, the time distortions would spread beyond the mountain's boundaries. Without the Engineers' constant work below, the concentrated temporal energies might burst forth catastrophically.
+
+The few Moment Monks who still journey up the Gradient Stairs are treated with particular deference by their surface cousins - they represent both the ultimate achievement of temporal mastery and a cautionary tale about going too far in pursuit of that mastery. Their visits are rare but significant, often heralding necessary adjustments to the great pattern that keeps both communities in balance.
+
+Between these realms, messages are exchanged via temporal bottles - carefully crafted vessels that maintain their own internal timeframe, allowing communication across the temporal gradient. The contents age differently depending on whether they're traveling up or down, requiring precise calculations for any time-sensitive information.
+
+Thus the mountain contains not one impossible place but two, each approaching the manipulation of time from opposite directions - mechanical and spiritual, industrial and contemplative - bound together by necessity and the strange physics they both serve.

@@ -1,0 +1,19 @@
+Across an interval that cannot be measured in distance alone, there exists another realm within this worn universe - the Lattice of Spent Causality. Here, the debris of used-up cause and effect accumulates in vast honeycomb structures that pulse with residual determination.
+
+Unlike the crystalline cities above, the Lattice is dense, organic, almost visceral in its architecture. Its walls are formed from compressed possibilities - the accumulated weight of all the things that could have happened but didn't, all the choices that were foreclosed by other choices. These walls have a flesh-like quality, though they're made of something closer to solidified intention than matter.
+
+Rivers of discarded time flow through the Lattice's corridors, carrying fragments of defunct futures and abandoned pasts. These temporal currents move in patterns that suggest circulation, as if the entire structure were a vast metabolic system processing the waste products of reality itself. The rivers sometimes flow upward, sometimes sideways, and occasionally fold back on themselves in loops that create small pockets of recursive time.
+
+The light here is different from the philosophical cold of the crystal cities above. It's warm, but with the warmth of decay rather than life - the heat of entropy doing its patient work. This light doesn't illuminate so much as it reveals the internal logic of things, making visible the chains of causation that led to each object's current state.
+
+Throughout the Lattice, there are chambers where particularly potent moments of cause and effect have crystallized into something like memory. These spaces contain scenes frozen in perfect stasis: a cup in the instant before shattering, a word caught halfway between thought and speech, a decision perpetually on the verge of being made. These moments are somehow both complete and unfinished, like sentences missing their final punctuation.
+
+The sound here is constant but subtle - a low thrum that might be the echo of all the consequences that once flowed through this space, or might be the sound of possibility collapsing into actuality at every scale simultaneously. Occasionally, there are sharp cracks as new chambers form, or old ones collapse under the weight of their own implications.
+
+The Lattice connects to the crystal cities above through strands of what might be called logic - threads of pure sequence that maintain the relationship between cause and effect even as they document its erosion. These strands vibrate with harmonics that the Axiom Tenders above can read like history, though what they learn from them remains incomprehensible to any conventional understanding.
+
+Here dwell the Consequence Harvesters, entities that evolved to feed on expired causality. They move through the Lattice like scavengers through a reef, extracting remaining traces of determinism from the sedimentary layers of spent time. Their bodies are assembled from borrowed moments - a gesture here, a hesitation there, all held together by the gravity of their purpose.
+
+The relationship between the Axiom Tenders above and the Consequence Harvesters below is neither symbiotic nor antagonistic, but something more fundamental - like the relationship between question and answer, or between the sides of an equation. Each realm processes reality in its own way: above, the endless erosion of what is into what might be; below, the patient digestion of what was into what must be.
+
+Together, they form a complete system - a cycle of cosmic recycling where possibility becomes actuality becomes history becomes possibility again. The crystal cities and the Lattice are not two separate places so much as they are two phases of the same process, like ice and steam, like particle and wave, like memory and anticipation.

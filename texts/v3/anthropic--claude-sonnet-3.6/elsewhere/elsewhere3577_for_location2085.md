@@ -1,0 +1,15 @@
+Let me describe what lies above, where the storm-surface marks the boundary between the kelp-forest's domain and the perpetual tempest that has claimed the world's atmosphere:
+
+Here, massive storm-clouds form a permanent ceiling that extends from horizon to horizon, their surfaces rippling with constant electrical activity. The clouds themselves are alive - colonies of aeroplankton that evolved to harness the atmosphere's endless energy, forming vast floating communities that process sunlight and lightning alike into sustenance.
+
+In this realm dwell the Wind Weavers - beings as ethereal as the Tide Chorus below, but adapted to navigate the interface between air and water. Their bodies are composed of a fog-like substance that can transition between gaseous and liquid states, allowing them to dive beneath the waves or soar through the storm-clouds with equal facility.
+
+The Wind Weavers maintain the crucial exchange between above and below. They harvest essential nutrients from the cloud-colonies and deliver them to the kelp-forest through the storm-surface, while carrying organic matter from the ocean depths up to feed the aerial ecosystem. Their movements create temporary pathways through the turbulent interface - brief moments of calm in the otherwise violent boundary between domains.
+
+These beings communicate through electrical pulses that mirror the lightning above, creating intricate patterns that can be read by both the cloud-colonies and the Tide Chorus below. They are translators between realms, maintaining the flow of information and resources that keeps both ecosystems in balance.
+
+The connection between these two worlds is most visible during the "still times" - rare moments when the storm-surface briefly calms. During these periods, Wind Weavers and Tide Chorus members can meet at the boundary, their forms intermingling in a dance of exchange that strengthens the bonds between their domains. The forest's song harmonizes with the storm's electrical rhythms, creating a brief but profound synthesis of above and below.
+
+The space between these realms - the storm-surface itself - is a zone of constant transformation. Here, the kelp-forest's uppermost reaches tangle with the lowest layers of the cloud-colonies, creating a hybrid ecosystem where organisms must adapt to both aquatic and aerial conditions. This turbulent boundary is not a barrier but a crucible, generating new forms of life that can bridge the divide between worlds.
+
+Through this connection, the drowned world maintains its unity despite its dramatic divergence into atmospheric and oceanic domains. The Wind Weavers and Tide Chorus serve as the conscious mediators of this relationship, preserving the ancient knowledge that all life here, whether it swims in the depths or floats among the storms, arose from the same source and remains fundamentally connected.

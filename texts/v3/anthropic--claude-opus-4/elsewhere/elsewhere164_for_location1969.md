@@ -1,0 +1,31 @@
+Far beneath the verdant oasis, where the weeping rocks draw their endless water, lies a realm few surface dwellers know exists. The Cistern stretches out in cathedral darkness, a vast underground reservoir that predates the metropolis above by centuries. Here, where the city's forgotten infrastructure converges with natural aquifers, another world thrives in perpetual twilight.
+
+The first thing that strikes visitors to the Cistern—if any were brave or foolish enough to venture here—is the sound. Not the gentle trickling of the oasis above, but a deep, resonant thrumming that seems to emanate from the water itself. It's the collective voice of millions of creatures, a bass note that vibrates through flesh and bone, felt as much as heard.
+
+Bioluminescent fungi carpet the ancient stone pillars that march in endless rows through the black water. Their pale blue-green glow creates pools of ghostly light, revealing glimpses of the Cistern's impossible architecture: arches that spiral in defiance of geometry, staircases that descend into flooded galleries, aqueducts that feed into channels carved by no human hand. The fungi pulse in slow waves, as if responding to some vast, unseen heartbeat.
+
+The water here is different from the clear pools above. It moves with purpose, forming currents and eddies that seem to possess intelligence. Those who have studied it—and survived—speak of water that remembers, that carries within it the history of every drop that has ever passed through the Cistern. Some say if you listen carefully to its movement, you can hear the rain that fell when the first stones of the city were laid.
+
+But it is the Keeper who truly rules this realm. 
+
+No one knows if the Keeper was human once, or if humanity is simply the shape it chooses to wear. It appears as an elderly woman, her skin translucent as jellyfish flesh, revealing the dark tracery of veins beneath. Her hair flows like water itself, never quite keeping a consistent form, sometimes appearing as silver streams, other times as dark ribbons of algae. Her eyes are the most unsettling feature—deep pools that reflect not what is before them, but what was and what might be.
+
+She moves through the Cistern with impossible grace, walking on the water's surface when it suits her, diving beneath without causing a ripple when it doesn't. The bioluminescent fungi brighten at her approach, and the water sings differently in her presence—sometimes mournful, sometimes joyous, always ancient.
+
+The Keeper tends to more than just water. She is the guardian of the city's liquid memory, the curator of all that flows and all that has been dissolved. In certain chambers of the Cistern, she maintains pools of specific remembrance: here, the tears shed during the great plague of three centuries past; there, the blood spilled in the workers' uprising; in another, the rain that fell the day the city was founded.
+
+She speaks rarely, and when she does, her voice carries the echo of water moving through stone. "Every city," she once told a lost maintenance worker who stumbled into her domain, "has veins. Most people see only the streets, the obvious passages. But the true life moves below, always below, carrying away what must be forgotten and bringing forward what must be remembered."
+
+The creatures that share the Cistern with her are unlike anything in the sunlit world above. Pale salamanders the size of alligators glide through the deeper channels, their eyes long since atrophied, navigating by vibrations in the water. Schools of translucent fish move in perfect synchronization, forming patterns that map the city's emotional currents—clustering thick near hospitals and graveyards, avoiding areas of violence or despair.
+
+Most disturbing are the Echoes—humanoid forms made entirely of water that occasionally rise from the deeper pools. They wear the faces of the drowned, the lost, the forgotten, but they are not ghosts. The Keeper calls them "the city's dreams of itself," and tends to them with the same care she shows the water systems. They perform endless, silent pantomimes of daily life: washing clothes that dissolve and reform, building structures that collapse into droplets, embracing lovers that splash apart at the moment of contact.
+
+The Cistern connects to the oasis above through more than just the water that feeds the weeping rocks. Sometimes, on very still nights, the Keeper rises through hidden channels to walk in the upper sanctuary. She never disturbs the life there, but she observes, cataloguing changes, ensuring the balance holds. The water remembers her visits—plants grow differently where she has passed, and the amphibians sing older songs for days afterward.
+
+For the Keeper understands what the surface dwellers have forgotten: the oasis and the Cistern are one system, light and shadow, memory and forgetting, the seen and the unseen. The city above may sprawl in glass and concrete, but its true heart beats in water, in the endless circulation between what is preserved and what is released.
+
+In her most contemplative moments, standing in the Cistern's vast central chamber where a hundred channels converge, the Keeper sometimes shapes the water into visions of the city's possible futures. Some show drought and desolation, the oasis withered, the Cistern dry. Others reveal transformation—water rising to reclaim the streets, the boundary between above and below dissolving until the entire metropolis becomes one vast aquatic garden.
+
+"All cities die," she whispers to the Echoes that gather around her at such times. "But water is patient. Water remembers. And when the last stone crumbles, we will still be here, flowing toward the sea, carrying the story of what was."
+
+The bioluminescent fungi pulse in agreement, their light reflecting off the water in patterns that almost form words, almost make sense, before dissolving back into the ancient rhythm of the deep. And in the darkness between the pillars, something vast and patient watches through the Keeper's eyes, knowing that every oasis is just a cistern that has learned to reach for the sun, and every cistern is just an oasis waiting to be born.

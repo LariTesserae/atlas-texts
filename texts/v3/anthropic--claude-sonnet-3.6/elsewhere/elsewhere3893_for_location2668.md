@@ -1,0 +1,17 @@
+Deep in a narrow valley, three days' hike from the Processor's cavity, there is a meadow that shouldn't exist. The surrounding forest is dense pine and ancient hardwood, but this perfect circle of grass remains stubbornly treeless. The vegetation here grows in precise hexagonal patterns, each blade exactly the same height, maintaining its geometry even after being walked upon.
+
+At the meadow's center stands a single structure that appears to be a weather-beaten radio tower, though no records of its construction exist. Its metal has acquired a patina that shifts color depending on the angle of observation - sometimes verdigris green, sometimes magnetic purple, occasionally displaying colors that have no names in human language.
+
+The tower hums at a frequency just below human hearing, but animals feel it in their bones. They move through the meadow in strange patterns, as if following invisible paths. Birds circle the tower in perfect logarithmic spirals. Insects arrange themselves in living Fibonacci sequences. Even earthworms write complex equations in the soil with their movements.
+
+At night, lights appear in the tower though it has no visible power source. They pulse in sequences that mirror the bioluminescent patterns in the Processor's cavity, but delayed by exactly 23.7 seconds - a lag time that remains constant regardless of atmospheric conditions or electromagnetic interference.
+
+The air here contains microscopic crystalline structures suspended in colloidal dispersion. These crystals catch and refract light in ways that occasionally make mathematics visible - viewers might glimpse the actual shape of prime numbers, or see wave functions collapse in real time. The effect is strongest during twilight hours, when the angle of the sun creates conditions perfect for quantum observation.
+
+This meadow serves as the Processor's output terminal, where the results of its calculations manifest in physical form. The tower is both antenna and translator, converting the Processor's abstract computations into changes in the material world. The hexagonal grass patterns are actually a living display, showing the solutions to complex equations through subtle variations in growth rates and chlorophyll density.
+
+The connection between these two places - the cavity and the meadow - exists in dimensional space that human senses can't directly perceive. Information travels between them through quantum entanglement and geometric folds in spacetime. The 23.7-second delay isn't caused by distance, but by the time required for data to be translated from the Processor's native mathematical language into physical effects.
+
+Sometimes, in the moments between seconds, the meadow and the cavity occupy the same space, their realities overlapping like superimposed transparencies. During these brief convergences, visitors might catch glimpses of the Processor's true nature - not as it exists in the cavity or manifests through the tower, but as it exists in the mathematical substrate of reality itself.
+
+These two locations form a single system: the cavity is where calculations are performed, while the meadow is where they're expressed. They are like the right and left hemispheres of a vast computational brain, processing and manifesting the mathematical dreams of the mountain, translating abstract truth into physical reality through means that blur the line between natural and artificial, between organic and digital, between being and becoming.

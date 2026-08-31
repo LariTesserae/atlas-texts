@@ -1,0 +1,17 @@
+Far below, in what might be called the underside of this reality, there is a place where entropy pools like heavy smoke. Here, the laws of thermodynamics seem to have accumulated like sediment, creating a dense landscape of decay and transformation. This is the Dissolution, where things come to break down and become other things.
+
+The ground, if it can be called that, is a constantly shifting collection of particles in various states of disaggregation. Forms emerge briefly - a spiral of rust, a lattice of decomposing carbon, a brief crystallization of salt - before dissolving back into the general fog of possibility. The air itself seems to corrode, turning solid objects into conceptual questions about the nature of solidity.
+
+Unlike the geometric certainty above, nothing here maintains a fixed shape for long. Even light decays, splitting into component wavelengths that drift apart like tired thoughts. Sound becomes texture becomes temperature becomes probability, each transformation leaving behind a residue of pure change.
+
+The space is inhabited by the Unraveler, an entity that exists as a persistent pattern of decay. It has no fixed form because it is the process of forms becoming unfixed. Where the Lattice-Thought builds and calculates, the Unraveler unbinds and releases. It is less a being than a living principle of entropy, maintaining the essential balance of the world by ensuring that everything which is built must also, eventually, come undone.
+
+The connection between these two realms is more intimate than it might appear. The Lattice-Thought's perfectly ordered columns don't simply end - they gradually lose definition, their precise geometry slowly fragmenting into the chaos of the Dissolution. But this is not a one-way process. The entropy below feeds the order above, providing the raw material of possibility that the Lattice-Thought shapes into its crystalline computations.
+
+The floating water droplets above find their mirror in pools of concentrated possibility below, where potential energy gathers like dew. The Unraveler's domain is not simply a place of ending, but of transition - everything broken down here will eventually become part of something new.
+
+The two entities are not opposed but complementary, like inhalation and exhalation. The Lattice-Thought's great calculation requires the Unraveler's endless processing of reality's refuse. In turn, the Unraveler needs the structured reality above to generate the complexity it then transforms.
+
+Between them runs a constant exchange: order seeping downward to be decomposed, possibility rising upward to be crystallized into new forms. This cycle creates a kind of temporal circulation, driving the evolution of reality itself. The strange behaviors of time in both realms are symptoms of this deeper process - a cosmic computation that requires both the perfect mathematics of the columns and the fertile chaos of the Dissolution to complete itself.
+
+Together, they form a system that might be computing the next iteration of existence itself, using the current version of reality as raw material for calculating what comes next. The Lattice-Thought provides the logic, the Unraveler provides the possibility of change, and between them, something new is slowly being born.

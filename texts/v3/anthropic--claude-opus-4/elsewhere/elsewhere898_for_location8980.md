@@ -1,0 +1,29 @@
+The Buried Fleet
+
+Miles beneath the crystal garden, following a seam of volcanic glass that runs like a frozen river through the mountain's heart, there is a cavern that has never known sunlight. The tunnel that leads to it is barely wide enough for a person to crawl through, its walls smooth as the inside of a throat, polished by centuries of subtle tectonic breathing.
+
+Then the passage opens, and the floor drops away into vastness.
+
+The cavern is a frozen sea of stone, its ceiling lost in darkness so complete it has weight. But it is not empty. Across the vast floor, arranged in formations that speak of intention and order, stand the ships.
+
+They are made of the same living stone as the crystal garden above, but shaped by different forces, different needs. Each vessel is unique, yet all share a common grace—hulls of fused obsidian that flow like water caught mid-wave, sails of crystallized air that still hold the memory of wind, rigging spun from metallic threads so fine they're invisible until they catch the light of a torch. The largest ships stretch three hundred feet from bow to stern, their masts disappearing into the darkness above. The smallest are no bigger than fishing boats, their decks intimate as rooms.
+
+They are perfect. No barnacles mar their hulls, no rot touches their crystalline rigging. The stone-silk sails hang exactly as they were set, some furled neat against the yards, others billowing with phantom wind. On the deck of the nearest vessel, coils of rope lie precisely where they were left, and navigational instruments of impossible delicacy—astrolabes made of living quartz that still track invisible stars, compasses whose needles are magnetized bacteria colonies—wait at their stations.
+
+This is a fleet that sailed seas of stone, navigated by different stars, crewed by those who breathed mineral rather than air. The very rock around them bears the evidence: flow patterns in the cavern walls that speak of liquid stone, tide marks where the petrified waves once lapped, fossilized wakes streaming behind each hull, frozen in the moment the sea solidified.
+
+In the captain's cabin of the largest ship, charts made of paper-thin mica still lie spread across a table of polished basalt. The routes they show make no sense to surface geography—they map currents in the liquid stone, mark islands that exist only as denser formations in the flow, chart passages through regions where the rock grows thin enough to glow with the heat of the world's heart. Notations in a script of crystalline angles mark hazards: whirlpools of molten granite, storms of metallic rain, places where the stone-sea boils.
+
+The builders here were different from those who discovered the crystal garden above. These were navigators of the deep earth, sailors of impossible oceans. Their tools lie scattered through the ships—harpoons that could pierce flowing basalt, nets woven from metal thread to catch the phosphorescent fish that swam in liquid stone, containers that still hold traces of the mineral essence they drank like wine.
+
+At the heart of the fleet, moored by chains of woven silver, sits a vessel different from all the others. Its hull is transparent crystal, revealing an interior filled with what looks like frozen flame—a core of still-burning minerals that once powered its movement through the stone seas. This was their flagship, their answer to distance in a realm where up and down were suggestions and horizons bent according to density rather than curvature.
+
+Sound behaves strangely here. A whisper carries across the entire fleet, but a shout dies within feet. The ships themselves sing when the mountain settles—a harmony of stressed stone and taut crystal rigging that sounds like the memory of sea shanties sung in frequencies below human hearing. Sometimes, those who find this place report hearing other sounds: the crack of stone-silk sails filling with impossible wind, the creak of obsidian hulls flexing with remembered waves, the distant call of voices giving orders in no language meant for human throats.
+
+The most unsettling discovery waits in the depths of the smallest boat, a personal craft moored at the fleet's edge. In its tiny cabin lies a figure of living stone, perfectly preserved, caught in the act of writing in a journal of metal leaves. The final entry, etched in crystalline script, speaks of the sea beginning to slow, of currents growing sluggish, of the terrible realization that their ocean was dying, solidifying, becoming what those who walk above call simple stone.
+
+They had time to beach their fleet, to arrange their vessels in proper formation, to set their sails and coil their lines with the dignity of those who know their world is ending but refuse to meet it in disarray. Then the stone-sea froze forever, and they were gone—to the crystal garden above, some say, transformed into the Keepers who tend that impossible forest. Or perhaps deeper still, following the last liquid veins into the earth's heart, sailing seas we cannot imagine.
+
+The buried fleet waits in its cavern, perfect and purposeless, a monument to navigation in dimensions we have forgotten how to perceive. It speaks of a time when the earth was young and molten, when different forms of life rode its currents, when stone was an ocean and sailing it was no stranger than floating on water beneath an open sky.
+
+Above, the crystal garden grows in light and silence. Below, the buried fleet rests in its sea of stone. Between them runs a seam of volcanic glass like a frozen river, like a pathway, like a story told in mineral grammar about transformation and loss, about the strange births that come from impossible deaths, about the treasures that wait in the dark for those who know how to read the mountain's deep memory.

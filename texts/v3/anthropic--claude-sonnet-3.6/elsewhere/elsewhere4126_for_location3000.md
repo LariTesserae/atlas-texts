@@ -1,0 +1,15 @@
+Let me tell you about what lies beyond Dome 9's living membrane, where the harsh reality of the planet's surface stretches toward the horizon - a landscape of crystalline formations that extend like frozen lightning across the rust-colored plains.
+
+This is the Lattice - a vast network of silicon-based quasi-life that predates human arrival by millions of years. The formations grow in fractal patterns, each branch splitting into perfect geometric progressions that catch and scatter the intense sunlight into prismatic displays. The structures appear mineral, but they grow and adapt with glacial slowness, responding to changes in temperature and radiation levels over decades or centuries.
+
+The relationship between Dome 9 and the Lattice is one of careful negotiation. The dome's outer membrane doesn't just meet the crystal formations - it engages with them in a slow dance of growth and adaptation. Where the two systems meet, hybrid structures form: crystalline patterns infiltrated by organic filaments, living tissue shot through with geometric mineralization. This border zone is neither fully dome nor fully Lattice, but a third thing entirely.
+
+The connection goes deeper than mere physical contact. The Lattice serves as both foundation and counterpoint to the dome's designed perfection. Its ancient patterns provide the underlying structure that makes the dome's equilibrium possible - like a crystalline bedrock from which the engineered ecosystem grows. The silicon formations channel geothermal energy and process raw materials that the dome needs for its endless self-renewal.
+
+The Tenders understand this relationship intuitively. Some of their biochemical adaptations echo the Lattice's silicon-based chemistry, allowing them to read its glacially slow rhythms. The oldest Architects, those most thoroughly merged with the dome's systems, maintain a kind of communication with the crystal formations through exchanges of electrical potential and mineral compounds.
+
+Sometimes, during the planet's rare magnetic storms, the Lattice resonates at frequencies that harmonize with the dome's background drone, creating moments of synchronization between the two systems. These events are celebrated by the Tenders as reminders of their world's dual nature - the engineered perfection of the dome existing in eternal dialogue with the alien patterns of the Lattice.
+
+The space between these two systems - dome and Lattice - is where the most interesting transformations occur. Here, new forms of hybrid life occasionally emerge, combining aspects of both engineered and crystal-based biology. These innovations are carefully studied by the Tenders, who understand that even their perfectly stable ecosystem must sometimes incorporate new elements to remain truly alive.
+
+The Lattice is as much a part of Dome 9's story as the engineered ecosystem itself - an other that is also a partner, a foundation that is also a frontier. Together, they form a complete system: the dome's living perfection balanced against the crystal's ancient, alien patterns, each depending on the other in ways too complex to fully comprehend.

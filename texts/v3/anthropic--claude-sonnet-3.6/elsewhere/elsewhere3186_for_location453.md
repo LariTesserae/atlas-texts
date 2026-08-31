@@ -1,0 +1,17 @@
+Across a great distance from the Architects' valley - though "distance" here behaves strangely, compressing and expanding like a bellows - lies the Terminus. Where the valley system is a place of emergence and becoming, the Terminus is where things arrive at their final form, though "final" too feels insufficient for what occurs there.
+
+The Terminus manifests as a vast geometric depression in space itself, its edges defined not by physical matter but by the way light bends sharply around its periphery. The air here is dense with possibility, refracting into spectrums beyond conventional color. Things that enter the Terminus don't exactly end - rather, they achieve a kind of ultimate completion, reaching the fullest expression of their inherent nature.
+
+Here dwells the Resolver - a being that exists primarily as an intersection of forces rather than a discrete entity. It manifests as a complex folding of space and time, visible mainly through the way it brings patterns to their conclusion. Where the Architects are creators and shapers, the Resolver is a finisher, a completer, the force that helps things become fully themselves.
+
+The landscape around the Resolver is littered with perfect forms - crystals that have grown into mathematically complete geometries, geological formations that have achieved their ultimate structure, even concepts that have somehow precipitated into physical reality. These completed forms emit a deep resonance that harmonizes with the distant hum of the Architects' crystal-insects, though at a much lower frequency.
+
+Between these two points - the valley system and the Terminus - runs a network of probability currents, like rivers of potential flowing through the fabric of reality. The Architects' careful constructions eventually find their way here through these channels, drawn by an inevitable gravity toward their final expression. The Resolver receives these half-formed creations and brings them to completion, though what constitutes "completion" often defies ordinary understanding.
+
+Sometimes, pieces of completed forms make their way back to the valleys through loops in these currents, becoming raw material for new creation. This creates a cycle of endless refinement - the Architects build and shape, the Resolver completes, and elements return to be rebuilt in ever more complex configurations.
+
+The relationship between these two places and their inhabitants is neither cooperation nor competition, but rather a necessary complementarity - like inhalation and exhalation, or the relationship between question and answer. Each would be meaningless without the other, yet they can never directly meet, separated as they are by the very nature of their functions.
+
+The space between them is treacherous to navigate, filled with half-formed realities and dangerous potential energies, yet it's constantly traversed by forces and forms moving between creation and completion. This interstitial zone is where much of the actual work of reality-shaping occurs, as things in transition are at their most malleable and full of possibility.
+
+Together, these two locations form a kind of cosmic workshop - one end where things are carefully crafted from raw possibility, the other where they achieve their ultimate form, connected by flows of potential that maintain the cycle of endless becoming. The whole system operates like a vast mill for grinding reality into ever finer and more perfect forms, powered by the fundamental tension between creation and completion.

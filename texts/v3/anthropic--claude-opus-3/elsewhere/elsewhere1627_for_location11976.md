@@ -1,0 +1,15 @@
+High in the timeworn peaks of the ancient mountains lies a seemingly barren landscape of weathered stone. But amidst that austere vista flows an invisible current of life, connecting the harsh slopes to the lush valleys far below.
+
+The Petrans, with bodies of living rock, are uniquely adapted to thrive in the rarefied air and scarcity of the heights. Within their stony forms, networks of microscopic channels and crystalline chambers act as conduits and reservoirs, storing moisture absorbed from the infrequent rains and mists. 
+
+Over eons, this precious water percolates through the mountain's substrata, purified and enriched by percolating through the Petrans' very bodies as they slowly migrate across the slopes. Trickles gather into rivulets, rivulets into streams, until they burst forth from cracks and springs on the mountainsides to begin the long journey downward.
+
+As the newborn rivers tumble over rocky escarpments and weave through boulder-strewn gorges, they carry not only life-giving water but also mineral gifts from the Petrans. Motes of crystal and stone, worn away by the patient action of wind and rain, join the waters' dance. The Petrans' thoughts, encoded in intricate lattices of silicates, flow with the currents into the world below.
+
+In the deepening valleys, the waters slow and spread. They nourish wetlands lush with swaying reeds, hazy with clouds of iridescent insects. They fill placid lakes that mirror the sky, fringed with ancient forests. The crystalline motes settle into the rich silt, seeding ephemeral flashes of Petran bioluminescence in the twilight depths. Myriad forms of life - fish and fowl, moss and mollusc - thrive in these verdant enclaves, all bound together by the thread of mountain water.
+
+Further still the rivers flow, winding across fertile floodplains and carving sinuous canyons through desert stone. With each passing league, the waters grow more tamed and turbid, but still they carry the Petran's essence. Sipped by wild creatures, absorbed by the roots of great trees, and drawn up into the clouds to fall again as rain, the legacy of the mountain winds through all the lands below. 
+
+And in time, through rivulet and stream, all waters find their way to the distant sea. There, in the strange abyssal plains and twilit kelp forests of the oceanic deeps, the Petrans' story continues. Corals and sponges build enduring monuments from the sea-borne minerals, while creatures unutterably strange are nourished by the ancient mountains' bounty. 
+
+And so the tale comes full circle. Water drawn from the sea into the sky falls once more as rain and snow on the high peaks, there to be gathered anew into the stony flesh of the Petrans. Through this Great Cycle, this ebb and flow of water and stone, mountain and sea remain forever bound together - one world, one story, without beginning or end.

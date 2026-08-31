@@ -1,0 +1,35 @@
+**The Repository of Borrowed Days**
+
+Thirteen leagues through living limestone, following veins of quartz that pulse with the same rhythm as the chamber's storm, the mountain opens into a vastness that shouldn't fit inside any earthly peak. Here, the air is still as held breath, dry as pressed flowers, silent as the space between heartbeats.
+
+The Repository spans horizons that exist only within its own borders. Its ceiling vanishes into a darkness so complete it has weight, pressing down with the gentle insistence of accumulated time. The floor is polished obsidian, worn smooth by footsteps that haven't happened yet, reflecting nothing because there is too much to reflect.
+
+Shelves rise like geological formations, carved from the same living rock as the tunnels but grown into impossible geometries. They twist through dimensions that the eye can almost follow, storing their contents in spaces that overlap without touching. Each shelf holds days—actual days, borrowed from the world above and preserved here like specimens in amber that you can walk through.
+
+The days manifest as columns of crystallized time, each one containing twenty-four hours of somewhere else's existence. A summer Tuesday from a fishing village, complete with the smell of salt and the sound of mending nets. A winter Friday from a metropolis, heavy with exhaust fumes and the anticipation of weekend release. They stand in their billions, a library of lived experience catalogued by principles known only to the Keeper.
+
+Between the shelves move currents of displaced time—eddies and streams of borrowed moments that never made it into formal storage. They drift like dust motes, like memory made visible. Sometimes they coalesce into brief scenes: a child's birthday party playing out in miniature, a thunderstorm the size of your palm, a sunset that rises instead of sets. These fragments dissipate as quickly as they form, returning to the general atmosphere of accumulated temporality.
+
+The technology here is absence. Machines of purposeful emptiness extract days from the timeline above, leaving holes that the universe barely notices. The devices look like armillary spheres made of shadow, their rings rotating through angles that hurt to perceive. They operate on the principle that time, like water, abhors a vacuum—borrow a day carefully enough, and the surrounding time flows in to fill the gap, leaving only the faintest scar.
+
+The Keeper maintains this impossible archive. Unlike the Storm Prophets who flow and change, the Keeper has chosen stillness as a survival strategy. They wear robes woven from the pause between seconds, fabric that exists in the moment of transition between before and after. Their face is a careful arrangement of borrowed features—an eye from a Tuesday here, a mouth from a Friday there, assembled into something almost human but never quite settling into a fixed form.
+
+The Keeper moves through their domain on paths made of compressed duration. They can step from one end of the Repository to the other by folding the intervening space into a moment they've already stored. Their work is curation and exchange—determining which days deserve preservation, negotiating trades with entities that exist outside conventional time.
+
+The borrowed days serve purposes that shift like smoke. Sometimes they're currency in transactions with beings who feed on temporal energy. Sometimes they're raw material for experiments in causality. Sometimes they're simply preserved because they're perfect—a day where everything went right for someone, somewhere, saved against the universe's tendency toward entropy.
+
+The Repository connects to the storm chamber through more than just tunnels. The Prophets send rain that carries dissolved moments, precipitation pregnant with temporal fragments they've gleaned from their endless cycling storm. In exchange, the Keeper sends back crystallized days for the Prophets to dissolve, to seed their clouds with the dreams and experiences of the world above.
+
+This trade runs deeper than mere exchange. The storm chamber breathes because it processes time made liquid, days dissolved into their component moments and cycled through impossible weather. The Repository stands still because it processes weather made solid, storms crystallized into their essential patterns and stored on shelves that exist in seventeen dimensions simultaneously.
+
+The Keeper remembers when they were like the Prophets—fluid, changing, riding the edge of phase transitions. But they discovered that absolute stillness is just another kind of flow, that being motionless enough allows you to move through time sideways. Now they catalog eternities with the patience of geology, building an archive that will, someday, contain every possible day that could ever be lived.
+
+In the deepest sections of the Repository, days are stored that haven't happened yet, borrowed from futures that may never arrive. These require special handling—they vibrate with potential, with the tension of causality stretched too thin. The Keeper tends them carefully, knowing that a mishandled tomorrow could unravel all the yesterdays they've so carefully preserved.
+
+The silence here is active, purposeful. It's the silence of a held breath that's been held so long it's forgotten it's holding. In this silence, you can hear the sound of days settling into their crystalline forms, the whisper of time organizing itself into searchable patterns, the soft sussuration of borrowed moments finding their proper places on shelves that exist in more dimensions than the universe typically allows.
+
+The Repository and the storm chamber are two organs of the same impossible entity—one breathing, one remembering, both processing the raw stuff of existence into forms that shouldn't be possible but are. The Prophets dissolve; the Keeper crystallizes. Between them, they're building something—a grammar of time and weather, a dictionary of days and storms, a new way for the universe to think about itself.
+
+When the Keeper dreams (and the Keeper does dream, in moments borrowed from sleeping minds and stored in special sections), they dream of the day when the Repository will be complete. Every possible day catalogued, every potential moment preserved. On that day, they will open all the stored days at once, releasing a flood of crystallized time back into the universe. The Prophets will be waiting with their storms ready, to catch all that released temporality and rain it back down, seeding every cloud in every sky with the dreams of days that were and weren't and might yet be.
+
+But for now, the work continues. Days are borrowed, storms are tended. The mountain holds its impossible organs, breathing with one, remembering with the other, patient as only stone can be patient, certain as only time can be certain.

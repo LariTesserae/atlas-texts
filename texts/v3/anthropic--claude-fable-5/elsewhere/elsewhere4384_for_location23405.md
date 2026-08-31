@@ -1,0 +1,83 @@
+## The Fallen Measure
+
+The tableland does not go on forever. Nothing does — not even a finished thing. Somewhere, in every direction eventually but in one direction *particularly*, the pale stone begins to tilt, the long breathing swells acquire a lean, and the horizon — for the first time in a thousand miles — drops *below* you. The keepers of the outermost circles call their country *the eave*. Past the eave is the rim. And past the rim the continent simply stops, in a wall of stone that falls for so long that no flash has ever been answered from the bottom.
+
+Down there is where the water went.
+
+Because the tableland's dryness is not an absence. It is an *outcome*. Whatever ancient violence lifted the continent whole also tipped its every basin, unseamed its every aquifer, and poured the water of a world off one edge — and the water, being water, obeyed. It went down. All of it. And it never came back up, because the air is too thin to lift it; the tableland stands above its own weather the way a shelf stands above a flood. The high country did not conquer thirst. It *exported* it — sent its entire fluid inheritance downslope in one geological gesture, and then spent the next hundred million years forgetting, healing over, becoming vellum and enamel and treaty.
+
+The lending was not the first lending. The land did it first.
+
+So: descend. It cannot be walked — the wall is a mile of glass-polished verticality, and the keepers do not attempt it; the rim is where their world ends and their registers stop. But the shed leaves go down. The glass seeds on their filament wings go down, when the dusk-tide wind pours over the edge like a slow dry waterfall. The dust goes down. Follow the dust.
+
+## The Under-Blue
+
+The first thing is the air.
+
+It thickens as you fall, and the change is not subtle — it is a passage between elements. The hard ringing enamel-blue of the heights softens, gains body, begins to *carry* things: moisture, scent, weight, sound. A third of the way down the wall you pass through the cloud deck — because there is one, a permanent one, a sea of vapor that laps forever against the continent's flank and never crests it — and below the clouds the light changes from a blade to a bath. Everything is lit from everywhere. Shadows return, soft-edged and blue. Distance hazes. A ridge ten miles off is a suggestion; a ridge thirty miles off does not exist. After the tableland's terrible clarity, the mercy of it is almost frightening: down here, the world lets you *not see* most of itself at any given moment. Down here, things can approach unannounced.
+
+And at the base of the wall, receiving everything the heights ever gave up, lies the water.
+
+It is not an ocean, exactly, though it is the size of one. It is better understood as a *catchment* — the collected first measure of a continent, pooled at the foot of its own body, and it wraps the tableland's base the way a moat wraps a keep, hundreds of miles wide, warm, dense with dissolved stone, faintly green. The keepers on the eave, on the clearest days, can see the cloud deck from above — a white floor stretching out from below the rim — and their oldest stone-registers call it *the breath over the debt*. They have never seen what it covers. They know only, from the arithmetic that they of all peoples would be the ones to do, that the water must be *somewhere*, and that nothing sealed is ever truly gone.
+
+This is the somewhere.
+
+## The Water That Remembers Stone
+
+The sea here is not like other seas. It fell, all of it, through a mile of mineral wall or seeped for eons through the body of the plateau before emerging at the base in a thousand perpetual springs, and it arrived carrying the continent in solution — silica, lime, salts of green and white. It is heavy water in the felt sense: silken, slightly warm, so dense with dissolved stone that a swimmer floats high, and where it evaporates it leaves not a crust but a *construction*.
+
+Because the drowned country builds.
+
+Everywhere the sea touches air, stone is coming back out of the water — the tableland's substance, exported as thirst, returning as architecture. Terraces of pale travertine descend into the shallows like flooded staircases. Along every springline stand towers the water has raised itself, hollow, dripping, growing by a fingernail's width a year, some of them a thousand feet tall and streaked green where the light-eating films have taken hold. Whole bays are roofed. The shore is not a line but a *lacework*, hundreds of miles deep, of pools and lips and galleries and slow white domes — a landscape being actively uttered, mineral by mineral, the exact reverse of the finished country above. Up there, the land stopped becoming an age ago. Down here, becoming is the only thing the land does. The tableland is a noun. The under-country is a verb, and has been conjugating itself without pause since the water first came down.
+
+The sound alone would tell you. The heights hold one *tink* a day, a leaf falling somewhere, an event worth a register entry. The under-country *drips*. It drips from every lip of every terrace, from the roofs of the water-galleries, from the beards of mineral under every spring — a ceaseless, layered, uncountable ticking, thousands of small impacts a second within any earshot, so that the ambient sound of the whole country is a vast soft applause that has not stopped in a hundred million years. Nothing here has ever heard silence. Silence, to the under-country, is as theoretical as rain is to the heights.
+
+## What the Leaves Become
+
+Everything the tableland sheds arrives here eventually. The dust-fog of the high weather fronts pours over the rim on the evening tide and settles into the sea as a fine green snow. The glass seeds come down on their filament wings — and cannot grow, for they are built for a sealed life in a dry country, and the water drowns their patience — but they do not rot, because they were made never to rot, and so they gather. Currents sort them. There are beaches in the under-country made entirely of the seeds of the high trees: leagues of small green spheres, each one a perfect unopened life, each one holding its bead of silicate sap, rolling and clicking in the swash. In certain coves the fallen leaves collect too, whole door-sized panes of sea-glass foliage drifted down over millennia, and the water lays travertine over them and around them, so that the growing stone of the shore is *paged* — split any terrace and you find leaves pressed between the layers like flowers in a book, a book the sea is still writing, whose every page was authored a mile overhead by a tree that never knew where its leaves went.
+
+The keepers log the fall of a leaf. The under-country *keeps* the leaf. Between them, without either knowing the other, the two lands have divided the work of memory: the heights record that a thing happened; the depths preserve the thing itself.
+
+## The Drinkers
+
+And there are people. Or rather — there are the *other* people, and which of the two is "other" depends on the direction of your descent.
+
+They live in the water-galleries and on the travertine terraces, and the first thing to know about them is the thing that would strike a keeper of the heights as obscene, as unthinkable, as a kind of continuous public weeping: they are *open*. Their bodies exchange with the world. They drink — casually, constantly, cupping the warm mineral water in their hands at any pool, a hundred times a day, without ceremony, without count. They sweat. They bleed and it flows. Water passes through them the way it passes through everything here, arriving and departing, never owned, and their skin — soft, permeable, dark against the pale stone, often beaded with mist — is not a seal but a *shore*: a place of exchange.
+
+They are the mirror-solution to the same original problem. The lifted continent gave its children two inheritances — the heights got the light and lost the water; the depths got the water and lost the clear light — and each people is the shape of its portion. The Sealed hold everything and spend nothing. The Drinkers hold nothing and are never empty. Ask one of them where her water is and she will not understand the question; the water is in the sea, in the springs, in the terraces, in her, in her children, in the fog — it is not *anywhere*, it is *circulating*, and she is a bend in its path, not a vessel on its shelf.
+
+Everything else follows from this, the way everything above follows from the seal.
+
+## Crowds
+
+They live close. They can afford to; nothing about their lives is a fixed sum, so nearness is not encroachment, and the treaty of circles would strike them as a document written by loneliness to justify itself. A single gallery-town — a natural vault of travertine, roofed by the growing stone, floored with warm pools, lit by shafts where the dome has not yet closed — may hold two thousand people within earshot of one another, and *earshot*, in this thick air, is generous. The thick air carries everything: voices, footsteps, the applause of the dripping, the smell of cooking and mineral steam and other people. A Drinker is never out of the sound of another Drinker from birth to death, and would find the high silence — one heartbeat, alone, under the enamel sky — not sublime but *amputated*.
+
+Their speech is built for the crowd and the drip. It is fast, layered, interruptible — several people talking at once is the normal mode, the conversation a braid rather than an exchange of finished stones. Nothing said is composed in advance, because nothing *can* be: in the soft blue haze, in the winding galleries, people arrive around corners, out of pools, out of the fog, unannounced, constantly, and the whole ethics of the finished word collapses. What replaces it is an ethics of *revision*. A Drinker's statements are drafts, offered wet, expected to be reshaped by the next speaker; to insist on your exact first phrasing is considered a small rudeness, a refusal to let the water move. Where the Sealed argue by mirror-flash across two hundred miles for years until only deserving positions survive the journey, the Drinkers argue in a heap, loudly, affectionately, and consider a position sound when forty people have handled it and it still holds its shape — the way the sea considers a terrace sound.
+
+They keep no registers. Why would they? The stone is writing itself. Instead they *sing* — long, communal, endlessly revised cycles, no two performances alike, each generation dissolving a little of the old material and precipitating new — and their history is thus exactly as accurate as a travertine terrace: not a record of events but a *body grown by them*, true in its whole shape and unfaithful in every particular, and they think this is the only honest way to remember anything.
+
+## The Rate
+
+But it would be wrong to call them careless, and here is the depth of them, the thing that makes them a people and not merely an abundance.
+
+Nothing in the under-country is scarce — but everything in the under-country is *rate-limited*. The springs flow at the pace the plateau releases them. The terraces grow a fingernail's width a year. The stone roofs their galleries at the stone's own speed, and no urgency has ever hurried it. The Drinkers own everything and control the tempo of nothing; they are rich beyond the dreams of the heights and utterly poor in the one currency the Sealed possess absolutely, which is *sovereignty over one's own pace*. A keeper's life is a fixed sum spent by choice. A Drinker's life is an unlimited allowance dispensed on a schedule set by rock.
+
+So where the Sealed have made a religion of expenditure — every tear counted, every lending scarred into the forearm — the Drinkers have made one of *patience within plenty*. Their great virtue is called, in their braided language, something like *keeping pace with the stone*. A gallery-town needing a new vault does not build one; it seeds one — diverts a spring, sets the drip-lines, and then *waits*, four or five generations, singing the vault's progress into the cycles, until children are born under a roof their great-great-grandmothers planted as a trickle. Their monuments are appointments with the future. Their equivalent of the settled elders — and they have one, because every people needs a way to finish — is the choice, in great age, to go and sit in the path of a spring: not to anneal from within, as the Sealed do, but to be slowly *enclosed*, the mineral water lacquering them layer by patient layer into the body of a growing terrace, so that the towns are built, literally, on their ancestors — every staircase someone, every wall a lineage — and a child running her hand along a gallery in the dark is touching, without morbidity, the smoothed shoulders of everyone the water has kept.
+
+The dead of the heights are heliographs: still speaking, once a day, in light. The dead of the depths are load-bearing: still *holding*, every hour, in stone. Neither people has let go of anyone.
+
+## The Beaches of Seeds
+
+They know about the heights. Of course they do — the heights *arrive*, daily, as dust on the tide-wind, as leaves in the coves, as the green seed-beaches that they have combed and wondered at for their whole history. Their oldest cycles sing of the *upper orchard*: a country above the breath, above the white floor of cloud they have never seen the top of, where trees the size of towers drop their children off the edge of the world. They hold the seeds sacred in a puzzled, tender way — perfect sealed lives that cannot open here, each one a letter in an alphabet they cannot read — and it is their custom, at a birth, to place one glass seed in the birthing pool: an unopened life to witness an opening one. They do not know that each seed contains exactly what their newborn does not — a lifetime's water, held; and that their newborn is exactly what the seed will never be — open. The gesture is more precise than they can possibly intend, which may be the definition of a sacrament.
+
+And on certain evenings — when the tide-wind pours over the rim a mile above and the cloud deck thins — Drinkers standing on the outer terraces have seen, high on the twilight wall, a *flash*. Then another, answering, leagues along the rim. The long language of the Sealed, spilling a few syllables over the edge on its way between ridges. The Drinkers call these lights *the counting* — they imagine, in the cycles, someone very high and very alone, tallying something precious, one flash per unit — and they are not wrong, and they sing back, though the thick air swallows their braided voices a few hundred feet up, and no keeper has ever heard.
+
+No keeper has ever heard. No Drinker has ever been heard. The wall between them has been perfectly one-directional for the whole of both their histories: everything falls, nothing rises — leaves, seeds, dust, water, the very possibility of contact, all of it moving down and only down, the original gesture of the tipped continent repeated forever in miniature. The Sealed live above their own exported abundance and have made of its absence a discipline, a treaty, a way of weighing every word. The Drinkers live inside the heights' entire inheritance and have made of its presence a patience, a crowd, a song that never ends because it is never finished. Each people is the other's missing half, arranged vertically, a mile apart, joined by everything and introduced by nothing.
+
+## The Whole of It
+
+Stand on the outermost terrace at dusk, in the warm applause of the dripping, and look up: the wall going into cloud, the cloud going into rumor, and above the rumor — you must take the seeds' word for it — a hard blue silence full of counted tears and finished sentences, where the water you are standing in is remembered only as a debt breathed over by white.
+
+Or stand on the eave at the same hour, in the ringing quiet, and look down: the white floor of the breath, hiding a country where nothing is counted because nothing runs out, where your continent's whole lost measure lies pooled and singing and busily becoming stone again, page by page, shoulder by shoulder, and where the leaf whose fall you logged this morning — *tink*, one clear chime, duly entered — is already on the wind of the rim, beginning the only journey anything here ever takes.
+
+Down. Into the keeping of the ones who will never know it was witnessed, from the witness who will never know it was kept.

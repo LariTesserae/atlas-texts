@@ -1,0 +1,43 @@
+The Index.
+
+Follow the water out. It does leave — that is the thing the valley's own account never quite admits, busy as it is with reflections and weather and the gentle peace of its forgetting. All that weeping rock, all that mist sunk into the low seams, all the iron-cold water filling slowly in the print of a boot: it has to go somewhere, and water is the most patient surveyor there is. It finds the one seam in the valley's worn rim that the lattice did not soften, the one place where *down* still firmly means down, and it goes there, and it carries with it — dissolved, suspended, in solution — a little of everything the valley has forgotten how to keep.
+
+The seam becomes a cleft. The cleft becomes a throat of rock. And at the bottom of the throat, where the water at last finds stone that has never been governed by anything but stone, there is a door, and behind the door there is the Index.
+
+It is dry.
+
+That is the first thing, the impossible thing, and it takes a while to credit. You come down out of a county-sized marsh, soaked to the thigh, your palm still wet from the last standing stone, and you pass through the throat and the air *changes* — goes still, goes warm, goes dry as old paper — and the dripping stops, not gradually but at a line you could mark on the floor. Behind you, water. Ahead, none. Something here holds it out. Something here insists.
+
+The Index is a hall, though hall is too small a word and too rectangular. It was cut — or grown, or *ruled* into being, the distinction means as little here as everywhere downstream of the builders — as a single vast vaulted space following the natural fault of the rock, so that it bends and branches and rises and stoops, and you cannot see the end of it in any direction, and the reason you cannot is not mist. The reason is shelving.
+
+The whole of it is shelving. Floor to vault, wall to wall, in aisles and returns and galleries stacked up into the dark overhead on stairs with no rails, the Index is racked solid with the records of the lattice. The original documentation. The drawings, if you can call them that, of the thing the engineers laid down over the valley — every axiom they loaded into that basin, every law of distance and scale and causality and the singularity of a place, written out in full and filed and cross-referenced and *kept*. This is the master copy. This is where the rules were rules before they were ever a marsh.
+
+And it is dry because it must be. Because water is erosion, and erosion is precisely the enemy here, the one thing the Index was built to refuse. The valley is what the lattice became when entropy was allowed to walk it. The Index is what the lattice *was*, held forever in the one condition entropy cannot touch: the condition of being written down and read.
+
+There is a keeper here too. Of course there is. They were one staff, the account upstream told you that — one tending-logic divided into hands, the pruner and the lost one and the mist. But it did not count them all, because it could not see this far, because between the valley and the Index there is a worn rim and a throat of unforgiving stone and a line on the floor past which the mist may not go. There was a fourth hand. And where the others were sent *out* to walk the law as it lived in the world, this one was kept *in*, to walk the law as it was written. The others tend the consequence. This one tends the cause.
+
+You will not mistake it for a heron. It has not taken an animal-shape, because it has never stood at the edge of water waiting for an answer to surface — there is no water here, and the answers do not surface, they are *filed*, and it knows exactly where. It moves along the aisles. That is all it does and all it has ever done: it moves along the aisles, and it reads the spines, and it checks each record against itself, and it puts back what it takes down exactly where it was, and it goes on. It is collation. It is the attendant of *the law still says what it said.* And unlike its scattered siblings out in the marsh, it is not behind. It is not lost. It is not spread thin and drafting the world twice. It is caught up. It has been caught up for two thousand years or twenty thousand, because the thing it tends does not erode, and a keeper with nothing eroding under its hands is a keeper at the top of its work, serene, current, complete.
+
+Here is what the Index keeper knows that the marsh-wardens cannot, scattered as they are past all coordination, grinding their separate diligences without gears between them:
+
+It knows what they were for.
+
+Every fold the mist drafts and re-drafts, circling the lost word *distance* — the master entry for *distance* is here, on a shelf, intact, exactly as the engineers wrote it, and the keeper has read it within the year. Every magnitude the lost thing in the alder pats its pockets for — the standard it measures against, the one that wore away from under it, is *here*, filed under scale, whole and legible and never once forgotten. The pruner culls a doubled fish without knowing why singularity matters; the axiom of singularity is shelved in the Index, and the keeper has it by heart. The whole tending-logic, sundered out in the marsh into three half-blind hands that work past and against each other — its instructions survive, in one place, in order, dry.
+
+And the keeper does not send them.
+
+That is the thing to carry back up the throat, boots and all, the way you were asked to carry the wardens' peace back out of the valley. The keeper *could* — or seems as though it could, holds in its keeping the very pages that would tell the mist what it is circling, would hand the lost one its lost units, would let the three of them remember they were ever one staff. The route exists. Water runs down it. Something could run back up.
+
+But the line on the floor holds in both directions. The Index keeps the law from erosion by keeping it from the world — by keeping it *dry*, sealed, unwalked, unweathered. The instant the master entry for *distance* went back up the throat into the mist's wet jurisdiction it would begin to slump, to fold, to round at its edges like everything the marsh has touched. To send the rules out to their wardens is to lose the rules. The keeper's whole vocation, its serenity, its being-caught-up, depends on never doing the one thing that would end its siblings' long incompetence. It keeps the cause perfect by refusing to spend it on the consequence. It is the most faithful of the four and the most alone, and it has chosen — if a tending-logic chooses, if the choice was not simply built into it by engineers who saw exactly this far and no farther — to let the marsh forget, forever, rather than let the record blur.
+
+So there are two peaces in this world, and they are not the same peace, and the water runs one way between them and carries no message back.
+
+Upstream, in the wet, three wardens who have forgotten everything tend a law that no longer needs tending, content in their long incompetence, drafting you twice at dusk because they have forgotten how to mean you once.
+
+Downstream, in the dry, one warden who has forgotten nothing tends a law that no longer governs anything, content in its long fidelity, with the cure for its siblings' whole condition shelved within arm's reach and the discipline, the terrible completed discipline, never to carry it to them.
+
+The valley is the law as it lives: soft, wet, groaning, loved, wrong. The Index is the law as it is kept: dry, silent, exact, loved, useless. Between them runs a thread of iron-cold water that knows the way down and cannot find the way back, and on that thread the whole world hangs in its two halves, each at peace, neither aware that the other is its missing half — the consequence that forgot its cause, the cause that abandoned its consequence, both built by the same vanished hands, both ground or held into their final settled state, both, in the end, finished.
+
+Bring no water in. It is the one thing the keeper fears, and the only fear left in the world, and it is yours on your boots without your meaning it. Wipe them at the line on the floor. Let the keeper have its dry forever.
+
+And when you climb back up the throat into the dripping, and the mist drafts you twice at the blue hour — know that a mile downstream and a world away, in a hall of shelves, the entry that would tell the mist how to mean you once is filed, and read, and current, and kept, and will never come.

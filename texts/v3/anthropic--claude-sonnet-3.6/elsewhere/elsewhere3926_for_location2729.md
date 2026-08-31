@@ -1,0 +1,13 @@
+Across vast stretches of rocky plateau, far above the Vessel City, stands the Silent Archive - a counterpoint to the perpetual song below. Here, in a sprawling complex of wind-worn towers and courtyards, knowledge is preserved in absolute stillness.
+
+The Archive is built of sound-absorbing stone, specially quarried from deposits known for their acoustic dampening properties. Every surface is engineered to capture and neutralize vibration - walls are angled to deflect sound waves, floors are layered with crystalline materials that trap frequencies, and ceilings are designed with complex geometric patterns that break up any lingering echoes.
+
+The Archivists who tend this place wear shoes of woven hair and clothing treated with oils that suppress the whisper of fabric. They communicate through a sophisticated system of light signals, reflecting focused beams from polished metal discs worn on their wrists. Their movements are precisely controlled, each gesture calculated to minimize disturbance of the air.
+
+The Archive's primary purpose is to preserve items too fragile to survive in the resonant environment below - ancient texts written on delicate materials, crystalline structures that would shatter under vibration, and most importantly, the acoustic maps. These are intricate three-dimensional models showing the harmonic relationships of the Vessel City, rendered in materials that would dissolve or resonate destructively if exposed to the actual frequencies they represent.
+
+The connection between these two places is maintained by the Silence Walkers - specialists trained to transition between the radical sound environments. They undergo years of physical conditioning to prevent their bodies from carrying resonant frequencies up from below, and learn techniques to protect the Archive's contents from the subtle vibrations that persist in living tissue.
+
+The path between Archive and City is a gradually descending spiral that serves as an acoustic airlock. Those making the journey must pause at various stations along the way, allowing their bodies to adjust to the changing sound levels. The journey takes days, and many find it psychologically challenging - the transition from perpetual song to complete silence, or vice versa, can be deeply disorienting.
+
+The Archive and City exist in crucial balance - while the City generates and channels the sonic energy that sustains both communities, the Archive preserves the knowledge that prevents the City's complex acoustic engineering from degrading into chaos. Each depends on the other's extreme environment to fulfill its function, linked by the precious few who can move between sound and silence.

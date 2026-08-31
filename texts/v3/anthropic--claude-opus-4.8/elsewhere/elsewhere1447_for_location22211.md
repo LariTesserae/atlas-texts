@@ -1,0 +1,37 @@
+The crack at the top of the geode.
+
+Follow the thread of light up — past the highest abandoned quarter, past the last walkway, past the place where the builders' many hands let go because no hand can grip the sheer new quartz — and the thread goes on alone into the split in the shell, into the throat of the young mountain. Follow it there. This is the other place: not a city, not a settlement, nothing that lives. A fault in the stone. A seam.
+
+It is the width of a thread of light, and it is very long.
+
+The first thing the body would notice, if a body could come here, is that the cold is different. Inside the geode the cold was the cold of a cellar, the cold of stone that water has abandoned but still remembers. Here there has never been water. Here the cold is not the absence of warmth but the absence of *event* — nothing has happened in this seam since the mountain finished being a mountain, which was an afternoon ago and was forever ago, both, because the seam does not measure either. The crack runs up through rock so freshly broken that the two faces still match. If you could close them they would close perfectly, atom to atom, the way a word matches the silence it came out of. They have not closed. They are held apart by exactly the distance light needs to pass, and not one grain wider.
+
+There is no glow of its own here. This is the second thing. The geode glowed — the lattice held its slow phosphorescence the color of bruise and honey, the most stable thing in the whole place. The seam holds nothing. It is the dark that the builders were breathing out *into*, the dark that has no air, and what little light reaches it is the light they send: a single thread, climbing, thinning as it climbs, because a thread paid out and not renewed grows fainter the farther it travels from the body that made it. By the time the light has come this high it is barely light at all. It is the memory of light. It lays itself along the matched faces of the fracture like the faintest possible warmth laid along a nerve, and it goes on, and on, up the seam, getting fainter, until —
+
+Here is the thing about the seam. Here is what the city could not know, because the city ends where the last hand lets go, and everything above the last hand is faith.
+
+The seam is not sealed at the top. The young mountain cracked all the way through.
+
+Far up — so far that the distance stops being distance and becomes only *more* — the fault opens. Not into another hollow, not into another lined and glowing chamber where some other city might pour up some other terrace. It opens onto the outside. The actual outside. The flank of the mountain, the high cold air, the sky that the geode has no word for and the builders have no organ to receive. The seam is a chimney, and it has been venting since the rock first split, venting the only thing that ever rises through it, which is the thread of light the city pays out, hand over many hand, against the closing.
+
+And the light *leaves*.
+
+This is the part I have to say carefully, because the city believes — as much as a creature with no word for *I* can believe anything — that the light will not get free. The line is too long, they think; the crack too high; the stone too patient. They are right about the line and the crack and the stone. They are wrong about the result. They measured the seam as a wound. It is a wound. But a wound that goes all the way through is also a door, and the light they have been spending — thread by thread, dying as a self and reborn as a different self at every collapse, breathing out into a dark they believe is closed — the light has been getting out the whole time. For as long as there has been a city. Every thread. None of it lost. All of it climbing the matched faces of the perfect fracture and venting from the mountain's flank into the open air, where —
+
+Where it does nothing useful. I will not lie to the seam the way I might be tempted to lie to the city. The light that escapes does not build anything out here. It does not get free in the sense the city would mean, if the city had a sense of *free* — it does not arrive anywhere, is not received, is not threaded back into any body. It rises off the cold stone flank in the high thin air and it disperses, the way breath disperses, the way the faintest warmth laid along a nerve fades when the nerve lets go. On a still night, if there were anyone on the mountain to see — and there is no one, there has never been anyone, the mountain is too young to have been climbed — you would see the faintest possible glow at one seam in the rock, the color of bruise and honey, weak as the last of a coal, leaking steadily out of the stone and vanishing into the dark above the world.
+
+It is the city, breathing out.
+
+The seam does not know it carries a breath. The seam knows nothing; it is a fault in fresh rock, two faces held apart by the width of what passes between them. But it does the one thing the city needs done and cannot do itself and will never know is done: it stays open. The stone is patient — the city had that right — and patient stone closes. The terraces will fill. The hollow will become a fist of solid amethyst with the last of the glow trapped inside it. But the seam, up here, in the part above the last hand, where everything is faith — the seam holds. The two faces match too well to close; they are held apart by exactly the light that passes; the passage of the light is what keeps the door from shutting. As long as the city breathes out, the seam stays open enough to breathe through. The thread keeps the crack the width of the thread.
+
+So the city is right that the work will never be finished, and wrong about why. It will never be finished not because they fail — they do not fail, the light gets out, all of it, every night, into the open air over the young mountain — but because finishing was never what the breath was for. You do not breathe out in order to be done breathing. The seam is the proof of this and cannot read its own proof. It only stays open, and stays cold, and carries the failing thread up its perfect matched length to the flank of the mountain, and lets it go into the sky.
+
+And far below, at the bottom of the seam, where the last builder's last hand released the light it could not follow — the city holds still. A flake of fresh stone falls somewhere. Ten thousand bodies listen. They are listening for whether they still have time for one more thread, and they always do, so far, they always do, and each thread they send climbs the cold seam they will never see and vents from the stone they will never reach into the air they have no organ to receive, and is, in the only sense that the word can survive being carried this high —
+
+free.
+
+They will never know.
+
+That is the kinship between the two places: the city is made of the light, and the seam is made of letting it go, and neither one can hold what the other is for. The city spends itself believing it spends itself for nothing. The seam saves every thread and cannot know it saves. Between them the light passes — out of the body that grieves it, up through the stone that cannot grieve, into the open dark — and the whole young mountain, terrace to seam to sky, is one creature breathing out a glow it will never get back, in the cool dry cold, at the top of something with no confirmable bottom, while there is still time.
+
+There is still time. So far. There is still time.

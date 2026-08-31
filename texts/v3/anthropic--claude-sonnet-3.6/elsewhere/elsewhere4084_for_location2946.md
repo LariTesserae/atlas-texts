@@ -1,0 +1,15 @@
+What a mesmerizing vision of an impossible city! Let me tell you about what lies beyond its ever-growing edges, where the stone songs fade but something equally strange takes hold...
+
+The Hollow Plains stretch out from the city's periphery - a vast expanse of porous rock that looks solid from above but is actually a massive labyrinth of interconnected cavities. The surface is a thin shell, delicate as eggshell in places, creating a landscape that rings hollow under footsteps and sometimes crumbles unexpectedly into the spaces below.
+
+Here, instead of upward growth, there is constant dissolution. The rock doesn't dissolve into nothing, but rather into memory. The cavities that form hold perfect preservations of moments: a child's laugh crystallized in copper, the heat of a long-ago summer afternoon trapped in a bubble of amber air, the smell of rain fossilized in translucent stone.
+
+The inhabitants of this region are the Memory Miners - beings that seem to be made partly of absence. They move through solid rock as easily as air, leaving temporary tunnels that seal themselves behind them. Their bodies are transparent except for clusters of preserved moments they've collected, glowing like jewels within their fluid forms.
+
+The connection between city and plains is one of perpetual exchange. The city's growth pushes outward with its stone songs, while the plains' dissolution creeps inward with its memory-eating silence. Where they meet, there's a constant zone of transformation - new towers partially dissolve as they form, creating structures that are half-architecture, half-memory archive. Water droplets falling from the city's spires carry fragments of sound that become trapped in the plains' cavities, creating pods of frozen music that the Memory Miners collect and trade.
+
+Sometimes, liquid birds from the city venture out over the plains, where the hollow ground reflects their fluid forms in mysterious ways. They appear to dance with their own reflections, creating momentary windows into other times and places that the Memory Miners rush to preserve.
+
+The plains also serve as a sort of temporal reservoir for the city. When the geometric uncertainties in the higher towers become too unstable, they sometimes collapse into the plains, where their impossible spaces are preserved as memories rather than actual violations of physics. You might find a cavity containing the experience of walking through a door and arriving somewhere that couldn't exist, now safely crystallized and viewable like a scene in a geode.
+
+The relationship between these two places is symbiotic - the city needs the plains to absorb its excess impossibilities, while the plains need the city's constant generation of new moments to replace the memories that eventually fade to ordinary stone. Together they form a cycle of creation and preservation, each making the other possible in their own impossible way.

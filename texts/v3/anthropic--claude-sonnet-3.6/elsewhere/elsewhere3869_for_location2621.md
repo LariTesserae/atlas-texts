@@ -1,0 +1,15 @@
+Far above the Deep Palace, almost but not quite beyond the reach of its impossible physics, lies the Inverse Cathedral. Where the Palace holds water in defiance of gravity, the Cathedral captures air in perfect spheres that sink upward through the sea. Its spires descend toward the surface rather than rise from it, each one a chain of silvery bubbles that refuses to break.
+
+The primary residents here are the Mirror Monks - beings that seem to be made of living reflection. Their bodies capture and twist light that has passed through miles of ocean, bending it into forms that serve as both language and sustenance. They maintain ancient protocols of observation, their very existence acting as a complement to the Glass Whales below - where the Whales refract, the Monks reflect; where the Whales accumulate complexity, the Monks distill it.
+
+The architecture of the Inverse Cathedral is built from solidified silence. In the spaces between whale songs, in the pauses between waves, the Monks have learned to harvest the absence of sound and shape it into ethereal structures that float downward into the depths. These silence-structures create zones where sound from the Deep Palace can be properly translated into the language of the surface world.
+
+Schools of Axiom Fish patrol the boundaries of the Cathedral's influence, their bodies geometric proofs swimming in search of mathematical errors. They maintain the gradient between normal physics and the Deep Palace's impossibilities, ensuring that reality transitions smoothly between states rather than fracturing at the boundary.
+
+The connection between these two realms is maintained by the Gradient Current - a circular flow of possibility that runs from the Cathedral to the Palace and back again. This current carries messages encoded in quantum states, transforming the Deep Palace's impossible information into forms that can exist in normal space-time, and vice versa. The Mirror Monks read these messages in the patterns of light that reach them from below, while the Glass Whales decode them from the pressure waves that descend from above.
+
+In the space between Palace and Cathedral swim the Translation Eels - sinuous creatures of pure metamathematics that ensure the coherence of both realms by maintaining their difference. These beings are living algorithms of reconciliation, their bodies containing the precise formulas needed to convert between the physics of the depths and the physics of the surface.
+
+The Inverse Cathedral serves as both embassy and boundary guard - a zone where the impossible geometries of the Deep Palace can safely interface with the more rigid mathematics of the world above. It is a place of necessary contradiction, where paradox is not resolved but rather properly contained and channeled into useful forms.
+
+Without the Cathedral, the Deep Palace's impossible physics might leak upward to contaminate the surface world. Without the Palace, the Cathedral would have no purpose. They exist in perfect tension, each defining the other's limits, together creating a gradient of possibility that allows both realms to persist.

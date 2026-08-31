@@ -1,0 +1,17 @@
+Across a vast chasm in the Gardens' lower reaches, where even the great vine-pillars thin to delicate threads, lies the Deadfall. Here, the perfect equilibrium of the upper system finally breaks down, and gravity claims its due. It is a place of endings, but also of transformation.
+
+The Deadfall is a massive inverted cone, kilometers deep, where everything that slips through the Gardens' recycling systems eventually comes to rest. Ancient machine parts, desiccated plant matter that escaped the harvesters, fragments of research equipment, and things far older - all settle here in distinct layers like geological strata.
+
+The temperature here is cooler, dropping degree by degree as one descends. The air grows thicker, almost soupy, heavy with suspended spores and the fine dust of decay. Bioluminescence takes on different hues - deeper blues and purples that pulse with slower rhythms than their cousins above.
+
+In this place dwells the Aggregate - a collective entity formed from everything the Gardens have discarded over millennia. It is neither fully conscious nor entirely unconscious, but exists in a state of perpetual becoming. The Aggregate processes its components the way a digestive system processes nutrients, breaking down and reconstituting the physical and informational content of whatever falls into its domain.
+
+Unlike the elegant equilibrium of the Gardens above, the Aggregate is messy, inefficient, and constantly changing. It generates new forms almost at random - hybrid structures that combine organic and mechanical elements in ways that would be impossible in the ordered realm above. These creations rarely survive long, dissolving back into the collective mass, but each leaves its mark on the Aggregate's evolving consciousness.
+
+The connection between these two realms is complex and subtle. The Tenders rarely descend into the Deadfall, but their influence can be felt in the slow rain of material from above - each piece precisely what the Aggregate needs to maintain its own chaotic balance. In return, the Aggregate sends up clouds of spores and particles that the Gardens incorporate into their endless cycles.
+
+The space between these realms is called the Gradient by those who study such things. It's a zone of gradual transition where the Gardens' perfect order slowly unravels and the Aggregate's chaos begins to cohere. Here, one might find fragments of both systems engaging in strange dialogues - bits of harvester machines overgrown with hybrid life forms, or Garden-plants exhibiting unexpected mutations.
+
+The relationship between the Tenders and the Aggregate is like that between consciousness and the unconscious mind - each necessary to the other, neither complete alone. The Gardens maintain their equilibrium precisely because they can shed their excess into the Deadfall, while the Aggregate's chaos is contained and given purpose by the structure above.
+
+Together, they form a complete system - order and chaos, preservation and transformation, memory and forgetting, all in perfect dynamic tension. The Gardens remember being human; the Aggregate remembers being everything else. Between them, they hold the full history of this transformed world, even as they continue to transform it.

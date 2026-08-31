@@ -1,0 +1,101 @@
+**The Finished Town**
+
+The dog was real.
+
+Begin there, because the account that comes down out of the basin ends with a woman standing in fog, holding a memory she has been taught by evidence to disbelieve — an autumn descent, the fog parting, a dog at her heel, *and there is no dog, has never been a dog* — and because nine miles up the valley from the rim, in a ledger bound in oiled leather, there is an entry in a firm hand that reads:
+
+*Maren, of the house at Weavers' Steps, went down the third week of October. Took: her coat, her knife, half a loaf. The dog Bracken went with her as far as the Turnstone.*
+
+Follow the water to find the place that wrote it. The city at the bottom of everything has one export, and it is nothing — no river leaves the basin, no sound, no answered letter — but it has an import, and the import is a stream. The Kellwater rises in high pasture, runs cold and quick and fully committed to being water down a long green valley, past a farm, past a stone, and into the gray at the valley's foot, where it does not land, and does not come back, and has never once been heard to arrive. At the head of that valley, on high ground, in hard clear air the basin will never have, sits the town the water leaves. Its name is Kell.
+
+Kell is finished. The word does its double work here and the town knows it, and has stopped flinching at it. Finished as in complete: every wall committed all the way through, every corner certain at every height, grain and texture in agreement on every surface, dew beading indiscriminately on everything because everything passes. And finished as in ending. The town was built for six hundred and holds seventy-one. The number is exact. Kell counts the way it names: precisely, and out loud.
+
+---
+
+**Materials.** Stone here is stone the whole way in. Oak is oak, iron is iron, and all of it is doing the honest work that comes after coherence — which is to say, the lower streets of Kell are in ruin, and ruin is the town's native art. Roofs open to the sky like split fruit. Nettles stand in parlors. Rot proceeds at rot's pace, rust at rust's, and the town points down at its own abandoned streets with something that is almost pride: *this* is what happens after a thing has finished becoming. This is decay, which is earned. Nothing down in the basin can do this yet. Nothing there has been real long enough to be entitled to fall apart.
+
+The honesty test that means everything downhill means nothing in Kell. Dew forms on all of it — walls, gates, gravestones, sleeping cats — and so tells you nothing, and the town has had to find other diagnostics. The one it trusts is this: not whether a thing is real, but whether it is *kept*. A kept wall is pointed and limed. A kept grave is scythed. A kept name is spoken. What Kell watches for, the way the basin's residents watch for dew, is the moment keeping stops.
+
+You may sleep in any room in Kell, including the ruined ones. The worst its beds will do is age you honestly.
+
+---
+
+**Names.** This is the town's great technology, and its answer to everything, and the exact inversion of the rule that holds downhill. In the basin, named streets move. In Kell, a name is a nail. The town has hammered itself to the world with thousands of them: every street, every field, every stile and pool and standing stone, the stream (the Kellwater), the last farm on the down-road (Netherfold), the narrow passage off the market square (the Slype), the church bell (Abide — bells always have names; Kell would not suffer a bell without one). Named things in Kell do not move. They only empty, which the town considers the lesser betrayal.
+
+The market square is paved in overlapping slate lozenges, thousands of them, wet with weather half the year, and it is swept. If the shape of it prickles at you — if you have read the account from the basin and are thinking of a square called fish-scale, and of an alley that exists at both ends of a city at once — then you have understood the first thing about the relationship between these two places, which is its direction. The square downhill is not the original. The Slype downhill came out folded, the way a tired hand copying a sentence doubles a word. And the habit — the sweeper's habit, remarked on down there, of stopping at the alley mouth to listen — that was one man's habit, a market-day custom of old Tam Herrick's, who used to pause at the Slype's mouth to hear the children playing in-and-out among the stalls. Tam went down twenty-two years ago. Downhill, the habit now exists twice, in two men who have never spoken, and the square has never been cleaner, and neither of them knows whose listening they are doing.
+
+---
+
+**The down-road.** Nine miles, falling all the way. The Kellwater on your right hand, pasture going to bracken going to bare stone. Netherfold is the last kept place — one family, sheep, a dog, a lamp lit at dusk in the window that faces downhill, always, on principle. Past Netherfold the road thins to a track, and at the point where the tower of Kell's church drops behind the shoulder of the hill — the last backward glance the valley allows — stands the Turnstone.
+
+It is called that because it is where escorts turn. No one walks a person past it. That is not law; it is older than law; it has been broken exactly once, and by no person, and the cairn beside the stone marks who broke it.
+
+Below the Turnstone the valley's foot goes gray. Not foggy — the town knows fog, sends its own breath of it down the fields on autumn mornings — but *gray*, a gray with no depth in it, no temperature, no smell, and the Kellwater runs into it mid-syllable and is not heard to land. The town has done its own experiments, over generations, in its own methodical way. Things thrown into the gray do not land. Letters get no answer. A widow's husband's pipe, a child's whistle, forty years of folded paper weighted with pebbles: none of it has ever been found on the far side of anything, and the town has concluded — correctly, though it will never be able to check — that the gray is not a road and not a wall but a *margin*. The space between a thing and the copy of it. An interval of nothing, in which editing occurs.
+
+This is why the ones who arrive downhill remember arriving badly. It is not the walking that takes the memory. It is the crossing of the margin, where the grain is stripped for reuse.
+
+---
+
+**Weather.** Everything the basin lacks, Kell has in surplus. Wind that means it. Frost that comes and goes on argument with the sun. Nights so clear the stars have grain. And light — the same light, and this is worth sitting with, because the account from below marvels that whatever works under the basin got the light exactly right, first, before almost anything else. It got the light right because the light is Kell's light, learned whole. It fell on these fields first. It fell on Maren's face for thirty-one years before it ever fell on an incorrect wall.
+
+Once a year, in deep autumn, a tongue of the gray comes up the valley — slow, silent, exactly as far as the Turnstone, and no farther, and then withdraws by morning. The farmers at Netherfold call it *checking*. The keepers in Kell have a better phrase, though they use it only in the ledger: they say the gray comes up like a thumb in a book, keeping its place.
+
+---
+
+**The going.** People leave Kell in two directions. The dead go into the churchyard, which is full, and kept, and holds no terrors; the town buries well and grieves in the ordinary durable way, and the memories of the dead stay sharp for generations — that is what naming is *for*. But every few years, and sometimes in runs of two and three, someone goes the other way.
+
+There are signs, and the town watches for them in its kin with a tenderness indistinguishable, some evenings, from surveillance. A person who is going stands too long at the head of the down-road. A person who is going acquires a certain restfulness, as if a long negotiation had privately concluded. And a person who is going has the *down dreams*: dreams of streets that are Kell's streets but softer, foggier, wrong at the edges — dreams of standing in a doorway with their eyes closed, dry in a wet air, waiting for something to bead on them. The dreams travel up the valley the way damp travels up a wall. No one knows whether they are summons or symptom, and the town has decided, sensibly, that the distinction would not change what it does.
+
+What it does is this. When a person declares — and they do declare; Kell names everything, including intentions — the town gives a *walking supper*: a wake held before the death, with the guest of honor present, eating, corrected when they misremember their own stories, because the stories are about to become the town's property and the town wants them accurate. At dawn the person goes down. Family may walk as far as Netherfold. One friend may walk to the Turnstone. No one goes past.
+
+Then the keepers open the ledger. Forty-seven names, in inks of many ages. The first page holds four, in an ink gone brown, entered so long ago the hand is hard to read — four names from before the town had settled its customs, four who went down when the gray was new. Whether four particular names in brown ink correspond to four particular figures sitting very still under bare trees in an old courtyard, growing moss at their collars, answering questions at the rate of one word per week — that is not a question Kell can ask, and not one the courtyard would answer inside a decade. The arithmetic, for what it is worth, does not close. Forty-seven went down. Between nineteen and twenty-six, plus four, are accounted for at the bottom. The remainder are somewhere in the margin, and the town, if it knew, would not be comforted, and would enter it in the ledger anyway.
+
+---
+
+**The keepers.** Two of them, alternating years, an office as old as the Turnstone. Their work is not the ledger's first entry but everything after: the *grain audits*. Twice a year they go house to house among the kin of the gone and ask the same questions. *Tell me her hands. Tell me how he held a cup. Which shoulder was the low one.* And they write down the answers and compare them to last year's, because the keepers of Kell discovered, generations ago, the town's second dark fact — the first being the gray itself.
+
+Memories of the dead keep. Memories of the gone *wear*. They soften year by year in a specific, recognizable way: the middle stays warm and certain while the edges go approximate, detail thinning first at the extremities — the hands go early, always the hands — until what remains is vivid and smooth and slightly *better* than the person was. A straighter back. A scar misplaced. The keepers have a phrase for a memory in this condition: it has *texture but no grain*. If the phrase is familiar, that is because it went down the valley inside forty-seven people and is in daily use at the bottom of the basin, where nobody remembers it is Kell's phrase, coined by Kell's keepers, to describe what happens to a memory that is being *read* — handled, referenced, worn smooth by an attention on the far side of the margin, consulting it the way a mason consults a drawing.
+
+Kell has no puddle-readers. Its still water shows what stands over it and nothing else, which the town regards as the water's good manners. Kell reads in the other direction, backward, twice a year, by lamplight, measuring what the future is costing it.
+
+---
+
+**The wall of faces.** The town's answer to the wearing is stone. There has been a mason in Kell for eleven generations — the office travels with the chisel; the current holder is a broad quiet woman, third of her line — and when a person declares, before the supper, before the dawn, they sit for her, and she carves them. Full face, true scars, the low shoulder low. The carvings are set into the long south wall by the market square, rows of them now, forty-seven, all facing down-valley, and all — this is by instruction, written into the mason's office in the same old brown ink — with their eyes *open*.
+
+Nine miles below, in doorways at the soft edge of an unfinished city, other versions of some of these faces stand at dusk, drafted in wax-translucent approximation, eyes closed, hands unresolved, dry, waiting for dew. The two galleries face each other down the length of the valley, open eyes uphill, closed eyes down, and between them the margin, and neither set of faces has ever been told about the other. And this too the town's wall quietly answers: the drafts downhill with faces *no one there knows* — the strangers the city apparently intends to have. They are not strangers. They are Kell. They are mothers and neighbors and school-friends who never went down, carried into the basin inside the memories of those who did, and drafted from the reference available. If the mason walked down — she never will — she would find her grandmother standing in a doorway, forty years young and slightly better than life, waiting patiently to be real.
+
+---
+
+**Ecology.** Full, and dwindling, and honest about both. Sheep on the slopes, crows in the stubble, bees in kept skeps, dogs at every kept door. And one absence with a name, because Kell names its absences too: the mortar-bird. A small gray bird that nested in the gaps of inhabited walls — it liked chimney warmth, would not stay in an empty house — thousands of them once, a gray weather of them over the market on summer evenings. As the lower streets emptied the mortar-birds withdrew uphill, house by house, keeping exact pace with the keeping, until thirty years ago the last pair left the last eave and the species was gone from the valley. The corbels of the church are carved with them. The oldest residents can still whistle the call, and do, on the anniversary nobody declared but everybody observes.
+
+No one in Kell ever saw a mortar-bird *well*. That was its nature — a flick at the eave's edge, a call, a glimpse between railings of gray. Which is why, at the bottom of the valley, the city's first attempt at a moving thing is a gray bird never well seen, present on a railing, absent, present on another, instantiated exactly as it was remembered: intermittently, at glimpse-distance, call first. It is being rebuilt from forty-seven imperfect impressions of a bird that no longer exists anywhere else, and it is getting better, and lately there are wingbeats. The town does not know that the last mortar-birds in the world are being rehearsed nine miles from the corbels. It would not know what to feel. Probably it would carve something.
+
+---
+
+**The dog.** Now the cairn beside the Turnstone, and the entry in the ledger, and the whole of it.
+
+Bracken was Netherfold's dog, and Maren's by election, the way dogs decide these things. When Maren declared — third week of October, twelve years ago, or fourteen; even Kell's ledgers admit the odd soft edge — the dog attended the walking supper under the table, and at dawn walked at her heel down the whole nine miles, past Netherfold, past the lamp, and — the only escort in the town's history to do it — past the Turnstone. He went with her to the very edge of the gray. There he stopped. Whatever the margin says to a dog, it said it, and Bracken sat down on real ground and would not cross, and Maren crossed alone, with the memory of him warm at her heel, which is where it stayed.
+
+He waited at the stone three days. Then he came back to Netherfold and spent the rest of a long dog's life lying where he could see the down-road, and died old, and was buried under the cairn beside the Turnstone, at the exact spot of his refusal. The dogs of Kell will not pass that cairn now. All of them stop where Bracken stopped, generation after generation, as if the refusal had been added to the breed.
+
+Downhill, Maren sweeps, and keeps her fire small, and holds the memory of an autumn descent with a dog at her heel, and has been taught by every honest test her city has — no dog, no tracks, never a dog — that the warmest, most solid thing she owns is false. The memory has texture and almost no grain left now. It is almost worn through.
+
+It is worn because it is being read.
+
+For two winters, at the soft edge of the city, something four-footed and heavy has been rehearsing: footfalls first, doubled and pre-echoing; then weight, pressed prints on resolved ground with no creature attached; this past year, a smell — wet fur, faint, honest, the first smell the city has ever made on its own. The city is drafting the dog. It works at its patient rate, from the only reference it has, and it is a good reference, twelve years' worth of a dog loved at heel-distance, and when the draft finishes — a season, a decade — it will walk in out of the unresolved quarter at dawn, beading with dew for the first time, and it will cross the fish-scale square, and it will come to heel beside a woman who no longer believes in it. And it will be real by every test the place possesses, and moss will take, in time, to its favorite sleeping spot, and Maren's memory will have been right all along, and nearly used up in the being right.
+
+The cairn on the hill and the dog in the basin will never know about each other. The dog, in the way of dogs, will not need to.
+
+---
+
+**The residents of Kell.** Seventy-one, exact, chalked on the board by the church door and amended the same day as any change, because Kell counts the way it names. The two keepers. The mason. The family at Netherfold with the principled lamp. The watchers, which is everyone, watching everyone, with that love that has learned to look like vigilance. The gone, forty-seven, present in stone, wearing in memory, rung once a year.
+
+And the last child. Born sixteen years ago; no child since. She has a name — Kell would not suffer otherwise — and this account will not handle it, having just spent several pages establishing what handling does. The schoolroom is kept for her alone, swept, benches oiled, though she has outgrown it; keeping it is not for her, exactly, and everyone knows it. She stands, some evenings, at the head of the down-road, at the hour the light goes level, looking at where the valley goes gray. She has not had the dreams. Or has not said. The town does not ask, because a named intention is a nailed one, and some nails it would rather leave in the box.
+
+---
+
+**The bell.** Abide is rung at dusk, one stroke, every day, and has been for four hundred years — the town's heartbeat, its proof of keeping, audible at Netherfold, audible at the Turnstone, and then not audible at all, because the sound rolls down the last of the valley and into the gray and does not echo. Nothing about the gray returns. Once a year, at the turn of autumn, the keepers ring the Naming: one stroke for each name in the ledger, forty-seven strokes, slow, while the town stands in the swept square among the open-eyed faces and does not speak.
+
+Nine miles down and a world under, on rare still evenings, the residents of the unfinished city hear a bell. There is no bell in the city. The sound arrives the way all their sounds arrive — doubled, pre-echoing, a single stroke practiced over and over, identical each time, like a phrase being learned. They have entered it in their records under *rehearsals*, between the bird and the dog. The city intends to have a bell. It is working from forty-seven memories of dusk.
+
+And in Kell, on certain evenings when the wind stands right, someone will claim to have heard a stroke come back up the valley — faint, a beat early, before Abide has properly finished sounding. The town calls it echo and thinks little of it. It is not echo. Nothing thrown into the gray has ever landed; nothing sent has ever been answered; the letters lie nowhere, the Kellwater arrives nowhere, the names get no reply. Except this. One bell finished and falling, one bell unfinished and arriving, answering each other across the margin a moment out of true — the only correspondence the two places will ever keep, and neither knows it is being kept, and it is kept every evening, at dusk, in the same gray light that falls, complete and correct, on the finished walls and the unfinished ones alike.

@@ -1,0 +1,15 @@
+Beyond the edge of the crystal plateau, where the wind-carved stone finally gives way, there lies an expanse that seems, at first glance, to be empty sky. But this is the Undertide - a vast ocean of air currents that flows beneath the crystalline city's foundation, moving with the weight and presence of water, though it remains gaseous.
+
+The Undertide is a complex system of layered winds, each stratum moving at different velocities and in different directions. The currents are visible as subtle variations in density, creating slowly swirling patterns like oil on water but stretched across kilometers of space. The light here is different - filtered and diffused by the endless layers of moving air, creating a perpetual twilight that shifts between deep purples and pale greens.
+
+In this aerial ocean dwell the Drift-Weavers - beings that exist as organized patterns within the air currents themselves. They appear as intricate knots of wind, their "bodies" defined by the way they gather and direct the flows around them. Like their cousins above, the Resonants, they have no fixed physical form, but while the Resonants exist as vibration patterns, the Drift-Weavers are masters of fluid dynamics.
+
+The connection between the crystal city and the Undertide is both physical and metaphysical. The massive winds that play the crystal towers like instruments are born here, shaped by the Drift-Weavers through ancient patterns passed down through generations. They "compose" the winds that will create the harmonics the Resonants depend upon, though their art operates on a much slower timescale.
+
+Sometimes, when conditions are right, the Undertide rises up through gaps in the plateau, creating vertical rivers of wind that temporarily connect the two realms. During these convergences, Resonants and Drift-Weavers can briefly interact, sharing their fundamentally different ways of being through the medium of moving air. The Resonants experience the fluid grace of current-shapes, while the Drift-Weavers feel the crystalline precision of harmonic patterns.
+
+The relationship between the two peoples is symbiotic but distant. The Drift-Weavers provide the raw material - the wind itself - that makes the Resonants' existence possible. In turn, the harmonic patterns of the crystal city help maintain the complex atmospheric dynamics that allow the Undertide to exist. Neither could survive without the other, yet they rarely meet and cannot truly understand each other's experience of existence.
+
+There are legends among both peoples of rare individuals who learned to translate between current and harmony - beings who could exist in both realms. But if such hybrids ever existed, they belong to the distant past or the far future.
+
+The space between the two realms - the edge of the plateau itself - is a place of constant transformation, where wind becomes music and back again. It is a barrier and a connection, a translator and a divider, as essential to both peoples as the air they shape into their bodies and their art.

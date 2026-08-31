@@ -1,0 +1,17 @@
+The Plains of Ash
+
+Far below the mist-wreathed peaks where the Amalgam's feverish machinations seethe and sprawl, a barren expanse stretches to the hazy horizon. This is the Plains of Ash, a bleak and desolate realm that stands in stark contrast to the pulsing techno-organic growth above.
+
+Here, the earth is blasted and scorched, a lifeless sea of gray ash and jagged obsidian. The air is choked with acrid fumes that sting the eyes and sear the lungs, while a constant rain of fine, gritty particles sifts down from the leaden sky. Clouds of choking dust billow up at the slightest disturbance, shrouding the land in a haze of bitter twilight.
+
+Skeletal remains of once-mighty trees thrust up from the ashen waste like grasping hands, their blackened limbs twisted in silent agony. The crumbling husks of long-dead cities loom on the horizon, their cracked and crumbling spires standing as mute testament to the folly of those who once dwelt there.
+
+For this blighted expanse is the Amalgam's handiwork, the fruit of its endless war against the natural order. The seething technomass of its domain waged a relentless campaign of annihilation against the verdant life that once flourished here, choking the soil with noxious runoff, seeding the skies with clouds of nanite devourers, unleashing swarms of ravenous bioconstructs to ravage and consume.
+
+And yet, even in this desolation, life clings on with desperate tenacity. Hardy weeds and stunted shrubs eke out a meager existence in sheltered crevices, their leaves stained a sickly yellow by the ceaseless fall of ash. Nightmare things prowl the dust-shrouded ruins, fusions of scavenged tech and mutated flesh spawned by the Amalgam's errant creations.
+
+Most unsettling are the Ashwalkers, the dwindling remnants of humanity eking out a fragile existence in this shattered wasteland. Clad in tattered rags and jury-rigged breathing apparatus, they scurry from one temporary shelter to the next, scavenging what meager sustenance they can from the poisoned earth. Their bodies are twisted by the mutagens saturating their environment, their minds warped by generations of hardship and the insidious influence of the Amalgam's deranged emissions.
+
+Yet in a perverse irony, it is through these wretched beings that the Plains of Ash and the Amalgam's mountain realm remain connected. The Ashwalkers scrape together offerings of scavenged tech and the distilled essence of their own tainted bodies, making harrowing pilgrimages up the treacherous slopes to leave these grim tributes at the boundary of the Amalgam's domain. Whether they see the Amalgam as a vengeful god to be placated or a potential savior to be courted is impossible to say.
+
+The Amalgam, for its part, accepts these offerings with a sort of distracted indulgence, its shattered consciousness only dimly aware of the suffering it has wrought. The tribute is absorbed into its being, the fresh material fueling its ceaseless growth and mutation. And so the cycle of ruin and twisted symbiosis continues, the Plains of Ash standing as a bleak mirror to the fecund horror above, two realms locked in a dance of desolation and demented creation, a fractured yin and yang spinning out a spiral of unraveling even as they feed each other's fevered existence.

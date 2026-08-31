@@ -1,0 +1,39 @@
+The Dust Roads
+
+Red earth runs for a thousand kilometers between nothing and nowhere, baked hard as fired clay. The roads themselves are more memory than material—traces worn by generations of passage, visible mainly by the way they reject what little grows here. The surrounding land sprouts stubborn thorns and gray-green succulents, but the roads remain bare, as if the earth itself remembers the weight of wheels and refuses to forget.
+
+No one builds these roads. They simply emerge from use, braiding and merging as travelers seek smoother ground, firmer purchase, the promise of water beyond the next rise. In the wet season—those few weeks when storms roll across the flatlands—they become rivers of mud that dry into new configurations. Maps become useless. The roads write themselves across the landscape according to their own logic.
+
+The vehicles that traverse them are cobbled things, no two alike. Engines salvaged from three different machines, cooling systems jury-rigged with parts that were never meant to meet. They run on alcohol distilled from desert plants, on solar batteries charged during the blazing days, on sheer determination and baling wire. Their pilots know each cough and shudder, can diagnose problems by the color of the dust cloud trailing behind.
+
+Water defines everything here. The settlements cluster around wells so deep they require machinery to draw from them—ancient pumps that no one fully understands, maintained through ritual as much as engineering. The water tastes of minerals and time, pulled from aquifers laid down when this was seabed. Every drop is measured, rationed, traded. The wealth of a town can be read in the green ring around its wells.
+
+Between these oases, the temporary camps of the Road Builders bloom and fade. They follow the big traders, the mining convoys, the massive water tankers that supply the deeper settlements. Their shelters are tensioned fabric and salvaged metal, designed to pack flat when the convoy moves on. They survive by smoothing the way—filling ruts, marking hazards, negotiating passage through the territories of settled folk who eye the roads with suspicion.
+
+The Builders have their own language of signs: rocks stacked to indicate deep sand, metal strips that glint warnings about washouts, patterns scraped in the hardpan that tell of water quality, local temperament, distance to mechanical aid. They maintain these markers like gardeners, returning to refresh them with each passage, reading the annotations left by others of their kind.
+
+In the margins, where even the roads fear to run, the Walkers make their paths. They move at the pace of seasons rather than days, following lines invisible to wheeled traffic. They know where the old rivers ran, where water collects in hidden pools after storms. Their feet find the stone beneath the dust, the reliable hardness that machines would crack. They carry minimum weight—water, shade, the dried meat of desert creatures that survive on thorns and spite.
+
+The Walkers remember when the roads ran differently, before the great drying, when this land supported forests of ten-meter cacti and flowering seasons that painted the dust in impossible colors. They speak of buried cities, of highways swallowed by sand, of the time before the roads became desperate threads connecting shrinking pools of life. Whether they speak truth or dream, no one can say. They walk, and remember, and sometimes leave markers for the Road Builders to puzzle over.
+
+At the intersection points—where multiple roads converge on the promise of water or shelter—the markets spring up. Canvas and corrugated metal create temporary bazaars where everything is for sale: machine parts, water rights, information about conditions ahead. The vendors know their customers by the dust on their vehicles, can identify which road they've traveled by the particular shade of red or gray or brown that coats every surface.
+
+Here the news travels: which wells have gone brackish, which settlements have closed their gates to outsiders, where new veins of useful metal have been exposed by erosion. The market is nervous system as much as stomach, processing information and goods in equal measure. Fights break out over perceived slights, over water prices, over the right to certain camping spots. But violence is brief—everyone depends on everyone else out here. Today's enemy is tomorrow's rescue.
+
+The dust itself is archive and prophecy both. Core samples reveal the history of climate, of vegetation, of the industries that once thrived here before the aquifers dropped below economical reach. In its layers, patient observers read the story of extraction and abandonment, of human ambition ground fine and blown away. The oldest Builders claim they can taste the coming weather in the dust, predict storms by its texture between their teeth.
+
+When the winds come—and they always come—the roads disappear entirely. The landscape becomes a uniform haze of particles, landmarks erased, direction meaningless. Travelers huddle in their vehicles, engines off to prevent dust infiltration, breathing through wet cloth and waiting. The roads will be different when the wind dies. Routes that took days might now take hours, or might be gone entirely, buried under dunes that weren't there before.
+
+But always, the roads return. Humans and their machines find the paths again, wearing new traces in the dust, following the ancient logic of least resistance and greatest need. The Roads are patient. They know that every empire of asphalt and intention eventually returns to dust, and from that dust, new roads rise.
+
+The connection between the Tower Garden and the Dust Roads lives in the precious cargo that moves between them. Water tankers make the journey, their hulls specially treated to prevent evaporation, carrying the Tower's excess to settlements that would die without it. But more than water travels these routes.
+
+Seeds move in carefully sealed packets—varieties bred in the Tower's unique environment, selected for their ability to thrive in marginal conditions. The Tower Keepers work with the desert settlements, slowly adapting crops that can handle the mineralized water, the temperature extremes, the months without rain. Each successful variety is a small victory against the dust.
+
+In return, the roads bring minerals the Tower cannot produce—salts and trace elements mined from ancient lake beds, carried in the same tankers that haul water outbound. The Recyclers process these minerals, adding them to the Tower's circulation. The desert's history feeds the Tower's future.
+
+The traders speak of both places with equal reverence and fear. The Tower is abundance made vertical—water and green life stacked to the sky. The Roads are scarcity made horizontal—endless kilometers of need and stubborn survival. Between them runs a lifeline of mutual dependence, neither able to thrive without the other.
+
+Some few make the full journey regularly, becoming translators between worlds. They know how to read the Tower's humid whispers and the Desert's dry silence. They carry more than goods—they carry understanding, the knowledge that abundance and scarcity are simply different faces of survival, that the breathing Tower and the patient Roads are part of the same vast system of adaptation and exchange.
+
+In the Tower's highest reaches, where the Keeper tends her impossible gardens, dust sometimes arrives on the wind—red particles from a thousand kilometers away, carrying minerals that will feed new growth. On the Roads, after the rare rains, travelers report seeing clouds of green pollen drifting from the direction of the Tower, seeking purchase in the vast red emptiness, carrying the promise that even here, something might grow.

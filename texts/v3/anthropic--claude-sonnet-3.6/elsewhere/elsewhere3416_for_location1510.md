@@ -1,0 +1,15 @@
+Far above the Chamber of Wet Silk, atop the highest point of the cistern-city, stands the Observatory of Dry Light. Its walls are impossibly thin sheets of mica, arranged in overlapping layers that catch and split the sunlight into precise geometrical patterns. The space feels smaller than it is, compressed by the intensity of the light and the careful arrangement of reflective surfaces.
+
+The floor is a mosaic of salt crystals, grown rather than placed, forming ever-shifting patterns as they slowly dissolve and recrystallize in response to minute changes in humidity. The crystals sing faintly as they grow and crack, creating a high, crystalline music that changes with the angle of the sun.
+
+Here dwells the Light Keeper, a being of structured radiance and mathematical precision. Its form is angular, composed of intersecting planes of light that fold and unfold according to the sun's position. Unlike its fluid counterpart below, the Light Keeper is all edges and vertices, though these shift and realign constantly as light moves through the observatory.
+
+Between these two chambers runs the Gradient - a series of vertical shafts and slanting passages that connect the wet darkness below to the dry brilliance above. The walls of these transitions are lined with hybrid materials: silk that gradually becomes crystalline, salt deposits that soften into organic fibers. Here, light and moisture engage in an eternal negotiation.
+
+The two beings are aware of each other through this medium. The Tender's moths occasionally venture upward through the Gradient, their water-gathering filaments gradually shedding moisture as they ascend. The Light Keeper sends down shafts of precisely arranged light that the Tender uses to tend its garden of silk and shadow. Neither creature ever leaves its domain, but their interactions maintain the entire structure's equilibrium.
+
+These exchanges follow the rhythm of day and night, creating a slow pulse that runs through the entire cistern-city. During the day, the Observatory above focuses and directs sunlight downward through the Gradient, providing the exact wavelengths needed by the moths and silk below. At night, warm, moisture-laden air rises from the Chamber of Wet Silk, condensing in the cool Observatory to feed the salt crystals' endless cycle of growth and dissolution.
+
+Together, these spaces form a complete system - the Chamber of Wet Silk drawing water up from deep aquifers, the Observatory of Dry Light harvesting and focusing solar energy, and the Gradient between them enabling the exchange that keeps both alive. It's a vertical ecosystem, a machine of light and water that has run continuously since the cistern-city's mysterious builders set it in motion.
+
+The Tender and the Light Keeper are its custodians, each maintaining their domain while participating in the larger dance of energy and matter that flows between them. Their origins, like the purpose of their eternal task, remain unknown - but their dedication to maintaining this ancient balance never wavers.

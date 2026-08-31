@@ -1,0 +1,15 @@
+Across a stretch of forest canopy, far enough that the temple's chimes fade to a distant hum, there is a vast network of platforms and walkways built not inside but around the trees - the Whisper Market. Where the temple turns inward, this place spreads outward, a horizontal city suspended among the branches.
+
+The structures here are lighter, more ephemeral - sheets of woven fiber stretched between trees, platforms that shift and sway with the wind, bridges made of knotted vines that require constant re-weaving. Everything is designed to move with the forest rather than resist it. The ambient sound here is softer - the rustle of leaves, the creak of wood, the soft padding of feet on flexible surfaces.
+
+This is where the silent traders gather - merchants who deal in goods too delicate or valuable for the temple's perpetual vibrations. Their stalls display collections of impossibly thin glass vessels, crystalline growths cultivated in absolute stillness, instruments so sensitive they can detect a butterfly's landing. The traders themselves move with exaggerated care, their footsteps deliberately placed to minimize disturbance.
+
+The connection between these two places is both economic and ecological. The Resonant Order's constant sound drives away certain species that find homes here instead - moths that spin silk of extraordinary delicacy, birds that build nests of unprecedented complexity. The Whisper Market's traders have learned to work with these creatures, developing techniques for harvesting their products without disruption.
+
+The space between the temple and market is a gradient of sound - a zone where the temple's acoustic intensity gradually diminishes and the forest's natural rhythms reassert themselves. This transition zone has become a kind of acoustic ecology all its own, home to species that thrive in this unique sound environment. Some animals move back and forth between the two regions, adapted to both the temple's roar and the market's whispers.
+
+Traders from the market make regular pilgrimages to the temple, bringing offerings of silence-crafted goods. They've developed special carrying cases lined with sound-dampening materials to protect their wares from the temple's vibrations. In return, the Order provides plants that only thrive in constant sound, their growth patterns shaped by centuries of ceramic harmonics.
+
+Most fascinating is how the two communities have developed complementary but distinct forms of non-verbal communication - the Order's vibration-based language contrasting with the Market's elaborate system of gesture and expression. When members of both groups meet in the transition zone, they create a hybrid form of communication that combines elements of both systems, a unique dialect that exists nowhere else.
+
+The relationship between temple and market represents a delicate balance - each place maintaining conditions that would destroy the other's work, yet both necessary for the larger ecosystem they've created together. Their very incompatibility has driven innovations in trade, communication, and ecological understanding that neither community could have developed alone.

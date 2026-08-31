@@ -1,0 +1,15 @@
+The Amber Shoreline
+
+At the edge of the forest where the trees thin out to a blinding white emptiness, there lies a strange phenomenon known to the Sap-Weavers as the Amber Shoreline. It is a place of transition, where the relatively solid reality of the arboreal city gives way to an undefinable otherness.
+
+The Amber Shoreline is not a literal beach, but it shares qualities with one. The ground underfoot becomes a soft, yielding surface, neither soil nor sand. Glassy, translucent shapes jut up like frozen waves or surf-smoothed stones, catching the omnipresent glow in hypnotic refractions. There is a sense of a lapping tide, though no water is seen - instead, invisible currents of thought and dream wash in and out, leaving psychic residues behind.
+
+It is here that the Amber Ones are most numerous. The ghost-tree trunks reach down to the Shoreline, and the sap-entombed ancients dot the glassy landscape like lonely sentinels. Some seem to have been caught in the act of reaching towards or recoiling from the whiteness beyond. Others sit in poses of contemplation, or stand tall in attitudes of defiant challenge.
+
+The Sap-Weavers approach the Amber Shoreline as a place of pilgrimage and ritual. To confer with an Amber One is to touch a direct link to their lost history, to hear whispered secrets from before the calamity. The Amber Ones do not speak, but the sensitive Sap-Weavers catch flickering images and wisps of memory leaking from the frozen figures. It is a sacred and unsettling communion.
+
+Even more than the Amber Ones themselves, it is the Shoreline that draws the Sap-Weavers. At the border of blankness, where identity frays, there is a kind of morbid promise. In dreams and visions, some Sap-Weavers have seen a distant, shimmering city across the white expanse, a place of towering crystalline structures and luminous avenues. They believe it to be their salvation, a homeland resurrected from the ashes of calamity.
+
+But the way is shut. The Amber Ones seem to have been caught in the act of crossing over, but none have returned. The Sap-Weavers keep to their side, tending the tenuous membrane where substance meets void. The Amber Shoreline remains a site of vigil, of prophecy, of yearning for an unreachable beyond. The Whisper-Mice tell eerie tales of Sap-Weavers lured into the whiteness, their footsteps fading into the pale. Whether damnation or liberation, the Shoreline offers a stark choice.
+
+And yet, life persists. The Sap-Weavers raise each generation in the shadow of that glaring boundary, finding meaning in their duties and their dreaming. On certain confluences of celestial alignment, the entire community gathers at the Shoreline to sing their history, a low, rumbling chant that echoes out to fade against the waiting white. It is a lament, a hymn of remembrance, and a promise to endure, there on the trembling lip of forever.

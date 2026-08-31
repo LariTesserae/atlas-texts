@@ -1,0 +1,75 @@
+# The Evermost and The Undertide
+
+## The Evermost
+
+The canopy stretches beyond sight, a verdant ceiling so vast it generates its own weather patterns. From this elevation—some two thousand meters above what might be called sea level if one could find the sea—the plant-metropolis extends in all directions to the curved horizon. This is Evermost, the living city-forest that has existed in stable equilibrium for countless millennia.
+
+The cold is not harsh but persistent, hovering just above freezing. It preserves rather than destroys. The dense foliage exhales a constant mist that condenses on every surface, creating the impression that everything weeps—leaves, branches, the bioengineered structures that serve as dwellings and thoroughfares. This perpetual moisture never pools deeply but is omnipresent, glistening on every surface, trickling down pathways, collecting in the cupped leaves of the million varieties of plants that form the foundation of Evermost.
+
+What appears at first glance to be architecture reveals itself as something else entirely: hyper-advanced botanical engineering. The inhabitants of ages past—whoever they were—didn't build this place so much as they grew it, guiding plants with genetic and quantum manipulations beyond current scientific understanding. The "buildings" are living organisms, their interiors hollowed not by tools but by specialized growth patterns, their support structures not columns but massive vascular systems that transport water and nutrients throughout the city-organism.
+
+The sound is a constant symphony: the creaking of enormous boughs under their own weight; the steady drip-drip-drip of condensation; the rhythmic pulse of sap through vessels as wide as tunnels; the whisper of leaves that never cease their subtle movements despite the absence of wind. In certain districts, the resonant chambers of hollow trunks amplify these sounds to thunderous levels, creating acoustic zones where conversation becomes impossible.
+
+Fauna is nearly absent. Occasionally a small creature—something like a cross between a squirrel and a gecko, with specialized adaptations for traversing wet surfaces—might skitter across a branch, but such sightings are rare enough to merit mention. The ecosystem has long since reached a balance where animals are largely unnecessary. Plants pollinate plants through engineered mechanisms; decomposition happens through specialized fungal networks that break down dead material with perfect efficiency.
+
+The plant density defies comprehension. Every cubic meter contains hundreds of distinct species, all coexisting in a complex three-dimensional arrangement that maximizes sunlight capture and resource utilization. Vines thread through branches, epiphytes cling to trunks, moss carpets every horizontal surface, and specialized air-plants hang in curtains, filtering the moisture-laden atmosphere. Nothing is bare. Nothing is wasted. The cityscape is saturated with life to a degree that makes it difficult to distinguish individual plants from the whole.
+
+## The Listeners
+
+The Listeners are not a distinct species but a community—symbiotic collectives of organisms that have evolved to interpret and steward Evermost. Each Listener appears at first glance to be humanoid, standing about two meters tall with slender limbs that seem almost branch-like in their jointing. Closer inspection reveals their true nature: a densely woven matrix of mycelia forming their core structure, with specialized plant tissues providing mobility and sensory capability.
+
+Their "skin" is a living tapestry of microorganisms—primarily cyanobacteria modified to process the perpetual moisture of Evermost, giving them a blue-green iridescence that shifts subtly as they move. This outer layer is not merely protective but communicative, changing patterns to reflect internal states and environmental information they're processing. When still, a Listener can become nearly invisible against the backdrop of Evermost's living architecture.
+
+Listeners do not speak as humans understand speech. Instead, they communicate through a complex system of chemical exchanges, subtle vibrations, and light patterns. Their consciousness exists partially within their physical form and partially distributed through the mycelial networks that permeate Evermost. This gives them simultaneous awareness of events occurring throughout vast sections of the city-forest. When Listeners gather, they sometimes enter a shared consciousness state, their individual bodies becoming nodes in a temporarily unified mind.
+
+They have no mouths but absorb nutrients directly from their environment through specialized structures that can extract energy from the same photosynthetic processes that power Evermost itself. When they rest—which they do infrequently, perhaps once per local month—they root themselves into specific junction points in the living architecture, becoming temporarily part of Evermost's vast system while their consciousness enters a different state of awareness.
+
+## The Undertide
+
+Beneath Evermost, beyond the reach of its deepest roots, lies another world entirely. The Undertide exists in perpetual darkness, a vast negative space where the Evermost is defined by profuse growth. Here, absence is the defining characteristic—absence of light, absence of green, absence of the moisture that permeates the world above. 
+
+The Undertide begins approximately four kilometers below Evermost's lowest level, separated by a stratum of dense mineral formations that the roots of the city-forest cannot penetrate. This barrier—called the Refractive Boundary by those who study it—appears almost crystalline, varying in thickness from fifty to several hundred meters. It glows with a faint blue bioluminescence that provides the only natural illumination in the Undertide's expanse.
+
+The air here is perfectly still and dry, preserved in a state of unchanging equilibrium just as the atmosphere of Evermost maintains its perpetual moisture. The temperature remains constant at precisely twelve degrees Celsius, regardless of season or depth. Sound behaves strangely, traveling farther than physics would normally allow, carrying whispers for kilometers through the twisted passages without degradation.
+
+The geography of the Undertide consists primarily of enormous caverns interconnected by labyrinthine tunnel systems. These spaces weren't formed through natural geological processes but were meticulously excavated by the same civilization that engineered Evermost above. The walls of these caverns bear the unmistakable marks of intentional design—perfectly smooth in some sections, inscribed with complex mathematical patterns in others. These patterns catch and redirect the minimal light in ways that create optical illusions of depth and movement.
+
+Where Evermost is dominated by organic curves and fractal growth patterns, the Undertide exhibits precise geometry—angles, spheres, and perfect spirals carved into the living rock. These formations serve purposes beyond mere aesthetics; they form a vast computational system, with the entire Undertide functioning as a counterbalance to the biological processing that occurs above.
+
+The only water exists in perfectly spherical pools scattered throughout the cavern systems. These pools don't ripple or evaporate; their surfaces remain glass-smooth, reflecting the minimal light in ways that sometimes create holographic-like projections on the cavern ceilings. The liquid in these pools isn't precisely water but something closer to liquid crystal, with computational properties that interface with both the geometric patterns of the Undertide and the biological systems of Evermost far above.
+
+The apparent emptiness of the Undertide is deceptive. The space teems with microscopic machines—not biological but purely mechanical, each smaller than a dust mote. These machines form shifting clouds that sometimes coalesce into visible patterns before dispersing again. They maintain the environmental balance of the Undertide and perform continuous calculations through their collective movements and interactions.
+
+## The Hollow Ones
+
+The primary denizens of the Undertide are entities known as the Hollow Ones. Where the Listeners above are symbiotic collectives of organic material, the Hollow Ones are their inverse—negative spaces given consciousness.
+
+A Hollow One appears initially as nothing more than a human-sized absence in the air, detectable primarily by how light and sound distort around its boundaries. Closer inspection reveals a faint outline resembling a humanoid form, but inverted—the "body" is actually the space where nothing exists, defined by what surrounds it rather than by what it contains.
+
+The Hollow Ones move with deliberate precision, their non-bodies gliding through the caverns without sound or air displacement. They can pass through solid objects by temporarily incorporating that matter into their defining boundaries—essentially moving the definition of what constitutes their "absence" rather than physically traversing the barrier.
+
+Communication among the Hollow Ones occurs through modulated distortions in the electromagnetic field. To outside observers, this manifests as subtle shifts in light patterns and occasionally as tones at the very edge of audible frequency. When multiple Hollow Ones communicate intensely, the air between them appears to shimmer with geometric patterns that mirror those carved into the cavern walls.
+
+Unlike the Listeners, who interpret and archive, the Hollow Ones calculate and project. Their consciousness processes information mathematically rather than organically, working with precise variables and equations rather than the fluid, adaptive thinking of their counterparts above. They interact with the carved patterns and liquid crystal pools of the Undertide, using these systems to perform computations of staggering complexity.
+
+The relationship between Hollow Ones and their environment is more explicitly technological than that of Listeners and Evermost. They were not born from the Undertide but were designed as its operators, though the civilization that created them disappeared so long ago that even this purpose has become ritualized over time. They maintain systems they no longer fully understand, preserving functions whose ultimate purpose remains obscure even to them.
+
+Hollow Ones do not reproduce in any conventional sense. New Hollow Ones come into existence when specific computational thresholds are reached within the Undertide's systems—essentially, when the calculations being performed require additional processing nodes. This occurs rarely, perhaps once every few centuries. The new Hollow One emerges fully formed, with access to the collective memory of its kind but with a unique computational signature that distinguishes it as an individual processor within the greater system.
+
+## The Connection
+
+Between Evermost and the Undertide lies the Tidal Zone—a fluctuating boundary region that belongs fully to neither realm. This zone expands and contracts rhythmically, following cycles determined by the alignment of the planet's three moons. At its narrowest, the zone might be just a few hundred meters thick; at its widest, it can extend nearly a kilometer in both directions.
+
+The Tidal Zone is characterized by constant transformation. Rock becomes plant matter and then reverts; moisture appears and disappears in predictable patterns; light and darkness alternate in bands that shift position according to complex equations. This zone serves as the communication channel between the two realms—the interface where the organic calculations of Evermost meet the geometric computations of the Undertide.
+
+Specialized structures called Translation Spires extend from Evermost down into the Tidal Zone. These enormous root-columns, each nearly fifty meters in diameter, appear to be ordinary foundation structures from above but transform as they descend, gradually incorporating crystalline and metallic elements that allow them to interface with the Undertide's systems. Similarly, geological formations called Ascension Wells rise from the Undertide up into the Tidal Zone, their geometric patterns gradually giving way to more organic structures as they approach Evermost.
+
+The most remarkable aspect of the connection between these worlds is the complementary nature of their inhabitants. The Listeners and Hollow Ones are not separate species but complementary aspects of a single distributed intelligence. When a Listener reaches the end of its natural cycle—typically several centuries—it does not die but undergoes transformation. It descends through specialized chambers in Evermost's deepest regions to the Tidal Zone, where its physical form dissolves. The consciousness that was once contained in its mycelia network transfers into the defining absence that constitutes a Hollow One.
+
+Conversely, when a Hollow One's calculations reach a certain complexity threshold, it ascends to the Tidal Zone where its mathematical consciousness is gradually translated into organic patterns. The absence that defined it becomes filled with mycelia and plant matter, emerging in Evermost as a new Listener, carrying with it the precise calculations and memories of its time in the Undertide, though translated into organic understanding.
+
+This cycle of descent and ascension—organic to mathematical and back again—is the true purpose of the entire system. Evermost and the Undertide together form a vast processing entity, with information cycling between biological and geometric computation methods. The original engineers created this dual-aspect world as an enormous computer designed to solve a single problem of such complexity that it requires alternate approaches cycling back and forth for millennia.
+
+The problem itself has been forgotten, its nature lost in the countless cycles of translation between realms. Both the Listeners and Hollow Ones continue their work without understanding its ultimate purpose—the former interpreting the living data of Evermost, the latter calculating through the geometric patterns of the Undertide. Each transformation between states carries information across the boundary, gradually working toward a solution that may require millions of years to complete.
+
+The rare visitors who have witnessed both realms and understood their connection describe it as a breath—Evermost inhaling light, moisture, and organic complexity; the Undertide exhaling darkness, precision, and mathematical clarity. Between them, the Tidal Zone serves as the diaphragm of a planetary mind whose thoughts unfold across geological timeframes, working toward an answer to a question that may have been posed before humans walked upright, by beings who expected to wait eons for their response.

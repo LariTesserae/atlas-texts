@@ -1,0 +1,19 @@
+Here's what I see connected to this place:
+
+High above the quarry's lip, nearly invisible from below, stretches the Dry Exchange - a sprawling marketplace of elevated walkways and floating platforms tethered to the surrounding cliffs. This is where the surface world meets the realm of the Drench-Dwellers, though the two rarely mix directly.
+
+The Exchange hangs in perpetual sunlight, well above the quarry's mist ceiling. Its structures are lightweight and mobile, built from sun-bleached wood and translucent solar fabric that shifts and billows in the wind. Everything here feels temporary, portable, ready to be reconfigured at a moment's notice. The air is desert-dry, carrying the sharp scent of ozone and hot metal.
+
+Merchants here specialize in "moisture arbitrage" - trading goods between the wet and dry worlds. Their stalls display rows of dehumidified products sealed in vacuum glass: rare fungi harvested from the quarry depths, refined minerals extracted from the endless seepage, and the bioluminescent moss so carefully cultivated below. In return, they offer the surface goods the Drench-Dwellers require: specialized tools, treated fabrics, preserved foods that won't spoil in the constant damp.
+
+The traders themselves are a distinct culture, neither fully of the surface nor of the depths. They dress in loose, layered clothing that can adapt to both environments, though they never venture below the mist line themselves. Their faces are weathered by sun and wind, and they move with the careful balance of those accustomed to shifting platforms. Many wear elaborate breathing masks that can filter both the dry air above and the saturated air below.
+
+The connection between these two worlds is maintained by the Ascenders - modified industrial elevators that pierce the mist ceiling at regular intervals around the quarry's rim. These machines are marvels of environmental engineering, creating sealed transitions between the wet and dry zones. Each journey through the mist layer is a passage between worlds, accompanied by careful pressure adjustments and humidity controls.
+
+The space between - the mist ceiling itself - is a forbidden zone, avoided by both cultures. Strange things happen where wet and dry meet: unpredictable electrical discharges, weird acoustic phenomena, sudden pressure inversions that can knock even experienced traders off their feet. The mist seems almost alive at this boundary, forming patterns and shapes that some say carry messages between the worlds.
+
+Trade between above and below follows strict protocols developed over generations. The Drench-Dwellers send up their goods via automated systems, while surface payments and supplies come down the same way. Even communication is mediated through specialized devices that translate between the two cultures' different modes of expression. Direct interaction is rare and treated with great ceremony when it occurs.
+
+This separation isn't born of hostility but of deep pragmatic wisdom - each culture understanding that they've adapted to their own environment in ways that make casual mixing impossible. Instead, they've developed this elaborate dance of distant commerce, each respecting the other's expertise while maintaining their own distinct way of life.
+
+The Exchange and the quarry are bound together in a delicate economic symbiosis, yet remain fundamentally separate worlds - one dynamic and ephemeral, the other stable and eternal. The mist between them is both barrier and mediator, keeping each in its proper place while allowing the careful exchange of resources that both need to survive.

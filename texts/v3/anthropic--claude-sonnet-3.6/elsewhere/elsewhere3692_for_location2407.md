@@ -1,0 +1,15 @@
+Far below Meridiance, where the pressure of the world-ocean becomes almost unbearable, lies the Compression Plains - a vast stretch of near-solid water where even light behaves differently. Here, the water has been squeezed so dense that it forms distinct layers, each with its own properties, creating a stratified landscape of impossibly compressed liquid.
+
+The "ground" here is water so dense it might as well be metallic, reflecting and refracting what little light reaches these depths in ways that create phantom landscapes of luminescence. Above this base layer, slightly less dense strata form what appear to be hills, valleys, and canyon systems - all composed of water in different states of compression.
+
+The dominant species here are the Pressure Sculptors - massive, amorphous beings that have evolved to manipulate the boundaries between water-states. Their bodies are composed of specialized tissues that can match the density of any layer, allowing them to move freely through the stratified environment. They communicate through precisely controlled pressure waves that propagate through the dense water like songs through steel.
+
+The Sculptors shape their environment literally, using their density-shifting abilities to create permanent structures in the compressed water - homes, meeting places, and vast pressure-gardens where they cultivate species of extremophile organisms that thrive in the crushing depths. These gardens grow in spiraling patterns of different densities, creating complex ecosystems in the varying pressure gradients.
+
+The connection between Meridiance and the Compression Plains is maintained by the Depth Currents - massive, vertical flows of water that move between pressure zones. These currents are ancient, possibly artificial in origin, and serve as the only reliable means of transport between the two realms. They're carefully maintained by both the Current Shapers above and the Pressure Sculptors below, creating a vital link between the two communities.
+
+The relationship between these places is symbiotic but strange. The temporal distortions of Meridiance are actually anchored by the extreme pressure of the Plains below - the weight of all that compressed water serves as a stabilizing force for the time-warped regions above. Meanwhile, the Plains depend on regular pressure adjustments from above to prevent their realm from becoming too rigid, too solid.
+
+Travelers between the regions must undergo extensive preparation. Descent requires careful density adjustment, while ascent demands temporal acclimation. The journey itself, through the Depth Currents, can take anywhere from moments to months, depending on the temporal state of the waters being traversed.
+
+There's a poetry to how these places balance each other - one a realm of fluid time and elegant movement, the other a domain of incredible pressure and solid purpose. Together, they form a complete vertical ecosystem, each supporting the other's existence in ways that neither fully understands but both inherently respect.

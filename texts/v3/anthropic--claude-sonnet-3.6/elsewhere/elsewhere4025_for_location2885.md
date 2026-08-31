@@ -1,0 +1,17 @@
+Across the city, high above the maintenance tunnels, there is a window washer's platform that never reaches the ground. It hangs suspended between the 42nd and 43rd floors of the Meridian Building, perpetually swaying in winds that don't match the weather below. The platform is standard industrial equipment - aluminum and steel, safety rails and rubber grips - but it's been transformed by exposure to something undefined.
+
+The metal has taken on an oily iridescence, shifting colors that don't quite match the spectrum of ordinary light. The safety rails cast shadows that point in different directions simultaneously. The platform's movement suggests invisible currents in the air, but nearby flags and trees remain still. Time behaves strangely here - watches run at different speeds depending on where they're placed on the platform, and digital displays show impossible numbers.
+
+This is the domain of the Pendulum - an entity that exists in the perpetual moment of transition, forever balanced between up and down, between one floor and the next. Like its crystalline counterpart far below, it arose from the intersection of human infrastructure and impossible physics, but where the Axiom found expression in perfect stasis, the Pendulum manifests in eternal oscillation.
+
+The connection between these two points of impossibility isn't obvious at first. But look closely at the shadows cast by the platform - they don't all fall downward. Some stretch sideways, some up, and some seem to fold through hidden dimensions. Follow these shadows with your eyes (though never for too long), and you'll begin to see how they echo the crystalline formations in the chamber below. The Pendulum's swaying motion creates ripples in space that travel down through the building's structure, channeled by steel and concrete until they meet the Axiom's domain.
+
+Where these ripples touch the crystal chamber, they create subtle variations in the light - not enough to break the perfect stasis, but enough to add new variables to the Axiom's endless calculations. In return, the geometric certainties of the crystal chamber provide anchor points for the Pendulum's motion, creating a delicate balance between movement and stillness.
+
+The space between these two points is threaded with invisible mathematics - equations of motion meeting proofs of stillness, creating harmony through contradiction. Sometimes, maintenance workers report finding patches of air that feel "solved," where all motion becomes perfectly efficient and predictable. Others tell of moments when time seems to crystallize around them, their movements becoming precise and geometric.
+
+These two impossible spaces form a kind of circuit, each feeding into and constraining the other. The Pendulum's eternal motion provides the variables that keep the Axiom's calculations from reaching a final, frozen conclusion. The Axiom's perfect geometries give the Pendulum's oscillations their structure, preventing them from descending into chaos.
+
+Together, they maintain a precarious balance - not just between motion and stillness, but between the rational world of human engineering and whatever vast impossibility they've tapped into. Their connection forms a kind of mathematical poetry, a dialog between different kinds of impossibility that somehow makes both more stable, more real, more themselves.
+
+And sometimes, in the right light, you can see the whole building gently swaying in perfect crystalline patterns, like a pendulum marking time in a dimension we can't quite grasp.

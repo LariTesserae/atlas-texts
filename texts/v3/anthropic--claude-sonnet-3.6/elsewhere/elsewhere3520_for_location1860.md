@@ -1,0 +1,19 @@
+Far beneath the tile-field, past the deepest reaches of the wells, lies the Clay Heart. It is a vast chamber of living clay, forever in motion, neither fully liquid nor solid. Here, the raw material that gave birth to the tiles continues its ancient dance, flowing in slow currents that mirror the geometric patterns above.
+
+The Clay Heart pulses with a deep, earthen warmth. Its walls are lined with crystalline formations that grow like inverse trees, their branches reaching downward into the flowing clay. These crystals conduct light from above - not sunlight, but the subtle energies that pass through the tile-field, translated into soft, shifting illumination that ranges from deep amber to pale blue.
+
+In this space dwells the Clay Dreamer - a consciousness as fluid as its environment. Its thoughts take physical form as ripples and eddies in the clay, creating temporary sculptures that dissolve back into formlessness. It dreams in minerals and pressure, in the slow accumulation of layers and the sudden release of tensions.
+
+The connection between these two places - the tile-field above and the Clay Heart below - is more than just physical. The wells that punctuate the tile-field are like synapses connecting two parts of a greater mind. The Tile Keeper and the Clay Dreamer are in constant communion, though their modes of thought and existence are profoundly different.
+
+The breath of the wells is their primary language. As air moves between the realms, it carries messages encoded in temperature, moisture, and subtle vibrations. The Tile Keeper sends down patterns of order and geometry, while the Clay Dreamer responds with dreams of fluidity and transformation.
+
+Their relationship maintains a crucial balance. The tile-field's rigid geometry would become sterile without the creative chaos of the Clay Heart beneath it. Conversely, the Clay Heart's formless potential needs the structured patterns above to give it purpose and direction. Together, they form a complete system - like lungs expanding and contracting, like a mind balancing logic and intuition.
+
+Sometimes, during the deepest part of night, the Clay Dreamer sends up tendrils of its consciousness through the wells. These manifest on the surface as fog that moves in impossible ways, forming three-dimensional geometries that suggest new patterns for the tiles. The Tile Keeper receives these suggestions and, over years or centuries, gradually adjusts its domain to incorporate them.
+
+Occasionally, a tile on the surface cracks or breaks. When this happens, the Clay Dreamer sends up a carefully crafted replacement - not an exact duplicate, but a new tile that carries both the memory of the old and a dream of something new. These replacements often bear unusual patterns or colors that slowly influence the tiles around them, introducing subtle variations into the greater design.
+
+The space between these realms - the long vertical shafts of the wells - is neither solely of the surface nor of the depths. Here, the ordered and the chaotic mingle. The walls of the wells display patterns that are constantly changing, as if the tiles are learning to flow like clay, or the clay is learning to hold form like tiles. These transitional spaces are where the two beings' natures blur together, creating something that is neither and both.
+
+This is the fuller truth of the place - not just a vast field of tiles, but a complete system of order and chaos, pattern and potential, preservation and transformation. The tiles above are the thoughts of the earth made manifest; the clay below is those same thoughts in their raw, dreaming state. And between them flows a constant exchange of inspiration and memory, maintaining the endless dance of formation and dissolution that keeps this world alive.

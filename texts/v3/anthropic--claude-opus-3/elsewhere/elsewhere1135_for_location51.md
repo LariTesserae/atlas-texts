@@ -1,0 +1,17 @@
+The Rusted Wastes
+
+Beyond the confines of the bustling mechanical city lies a vast, desolate expanse known as the Rusted Wastes. This barren landscape is a stark contrast to the lively, steam-powered metropolis, its surface a patchwork of corroded metal and sun-bleached synthetic materials.
+
+The Rusted Wastes were once a thriving hub of industry, home to sprawling factories and towering warehouses that churned out the components and materials that fueled the growth of the mechanical civilization. However, as resources dwindled and the climate grew increasingly hostile, the area was eventually abandoned, left to the mercy of the elements.
+
+Now, the Rusted Wastes serve as a graveyard for the remnants of the past, a testament to the relentless march of time and the transformative power of decay. The ground is littered with the skeletal remains of once-mighty machines, their metal frames twisted and warped by centuries of exposure to the harsh environment. Heaps of discarded parts and broken equipment form eerie, towering sculptures, their original purposes long since forgotten.
+
+Despite the apparent lifelessness of the Rusted Wastes, a unique ecosystem has evolved amidst the debris. Hardy, metallic plants have taken root in the cracks and crevices of the ruined structures, their leaves glinting in the dim light that filters through the haze. These plants have adapted to extract nutrients from the corroded metal and synthetic materials, their roots burrowing deep into the ground in search of moisture.
+
+Amidst the rusted ruins, a variety of mechanical scavengers eke out an existence, their bodies adapted to the harsh conditions. These creatures, often small and insect-like in appearance, are equipped with specialized tools and sensors that allow them to locate and extract valuable resources from the debris. They skitter and scurry through the maze of twisted metal, their movements accompanied by the soft clicking and whirring of their internal mechanisms.
+
+The connection between the Rusted Wastes and the mechanical city is one of necessity and symbiosis. The scavengers that roam the Wastes are essential to the continued functioning of the city, as they provide a steady stream of raw materials and salvaged parts that can be repurposed and reintegrated into the urban fabric. In exchange, the city offers a measure of protection and support to the scavengers, providing them with a safe haven to return to and a place to trade their hard-earned resources.
+
+At the edge of the Rusted Wastes, where the debris gives way to the barren, rocky landscape, stands a solitary structure known as the Salvage Tower. This towering edifice serves as a beacon for the scavengers, a place where they can bring their findings to be sorted, processed, and transported back to the city. The Salvage Tower is manned by a team of specialized mechanical beings, their bodies designed to withstand the harsh conditions of the Wastes and to facilitate the efficient handling of the incoming resources.
+
+As the sun sets over the Rusted Wastes, the landscape is cast in an eerie, reddish glow, the light reflecting off the countless metallic surfaces and creating a mesmerizing display of shadows and highlights. The scavengers continue their work, undeterred by the shifting light, their purpose clear and unwavering. The Rusted Wastes may be a place of decay and ruin, but they are also a crucial part of the larger ecosystem, a testament to the resilience and adaptability of life in all its forms.

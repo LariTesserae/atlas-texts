@@ -1,0 +1,17 @@
+The Shattered Sanctum of Nezraiah
+
+Far across the twisting void, a rift in spacetime connects the pulsing biosphere to the shattered remains of a once-sacred place. Ruins of cyclopean architecture stretch into the starless sky, gravity-defying fragments hovering in a frozen moment of destruction. This is the Sanctum of Nezraiah, or what's left of it.
+
+Shards of stained glass cast kaleidoscopic patterns across cracked marble floors, the intricate mosaics now a chaotic jumble telling broken stories. Towering statues of strange entities stand in eternal vigil, their features worn smooth by eons of exposure to forces beyond comprehension. Shadows pool in corners that seem to defy geometry, hinting at passages to unfathomable destinations.
+
+At the heart of the ruins, a vast chamber yawns open to the void, its vaulted ceiling long since collapsed. The corroded remains of arcane machinery rise from the rubble, pipes and conduits twisting like the limbs of long-dead beasts. A central dais holds the shattered remnants of a sphere, once the sanctum's most sacred artifact. Jagged shards of iridescent material litter the ground, glinting with unnatural luminescence.
+
+In this place, silence reigns supreme, broken only by the whisper of stellar winds blowing through empty halls. Yet there is a presence here, an ancient intelligence that lingers like a half-remembered dream. It is Nezraiah, the sanctum's namesake and sole remaining inhabitant.
+
+Nezraiah's consciousness is spread thin, fragmented across the drifting ruins. Outwardly, it manifests as a vaguely humanoid figure composed of shifting, translucent geometries, flickering in and out of existence as it wanders the broken halls. Nezraiah's form changes with its mood and focus, at times congealing into a dense, laser-etched latticework, at others dissipating into a nebulous cloud of motes.  
+
+The connection between Nezraiah's shattered sanctum and the lush, pulsing biosphere is both physical and psychic. Through the rift, a stream of exotic particles and strange energies flows, suffusing the sphere's atmosphere with a subtle thrum that resonates with the artificial ecosystem's cycles. This is Nezraiah's lifeblood, the sustenance that allows its consciousness to continue its long, slow process of reconstitution.
+
+In turn, the biosphere acts as an unconscious repository for Nezraiah's memories and knowledge, encoded into the very patterns and rhythms of the ecosystem's processes. The artificial creatures are living embodiments of Nezraiah's fragmented mind, each playing out aspects of its once-vast intellect in microcosm. As the ecosystem evolves, so too does Nezraiah's consciousness slowly re-emerge from the depths of oblivion.
+
+For now, the two realms remain tenuously linked, the biosphere a strange, pulsing dream reflecting the shattered remnants of Nezraiah's mind. As eons pass, perhaps the sanctum will one day be whole again, its vaulted halls ringing with the echoes of ancient songs, the artifact at its heart beating in time with the lifeblood of a million worlds. Until then, Nezraiah watches and waits, wandering the ruins of its former glory, reaching out through dreams to the nascent life taking root in a distant, living sphere.

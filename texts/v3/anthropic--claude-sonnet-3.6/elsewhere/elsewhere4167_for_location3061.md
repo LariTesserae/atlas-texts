@@ -1,0 +1,17 @@
+Across the city, far above the Harmonist's domain, there exists a counterpoint - the Glass Garden. It occupies the entirety of an abandoned observatory's dome, fifty stories up in a half-derelict skyscraper that the city has grown around like a pearl around a grain of sand.
+
+Where the mechanical cathedral below is all brass and stone, this space is defined by glass and air. Hundreds of prisms hang at different heights, ranging from tiny crystalline teardrops to massive geometric forms the size of cars. They catch both sunlight and citylight, fracturing and recombining them into constantly shifting patterns that paint the curved walls with liquid color.
+
+The glass itself seems to grow. New facets emerge over days or weeks, spreading like frost across a window but with precise, geometric intention. The process appears to be guided by the play of light itself - new growth follows the paths of the brightest reflections, creating an ever-more complex network of prismatic surfaces.
+
+The air here moves in curious ways. Thermal currents created by the focused light generate consistent wind patterns that cause the hanging crystals to rotate and chime against each other. The sound is higher and clearer than the deep resonance below - a chorus of bell-like tones that changes with the angle of the sun and the patterns of clouds passing overhead.
+
+Life here has also adapted to its unusual environment. Translucent birds nest in the higher reaches, their feathers refracting light like living prisms. They seem to communicate through patterns of reflected light as much as through sound, flashing complex signals off their wings. Plants grow without soil, their clear tissues conducting light like fiber optic cables to photosynthetic nodes. Their leaves are perfectly transparent until they catch the light just so, suddenly blazing with color.
+
+The connection between these two spaces is subtle but profound. The deep vibrations from the mechanical cathedral travel up through the building's framework, causing the slightest tremor in the hanging crystals. These vibrations influence the patterns of crystal growth, creating formations that somehow echo the geometries of the brass pipes far below. Meanwhile, the light patterns from above are conducted downward through the building's structure, creating faint but complex illuminations in the cathedral's pools of ozone-fluid.
+
+The Glass Garden houses its own entity - the Prismatist, a being of pure light and geometry that seems to both conduct and emerge from the interplay of reflections. While the Harmonist thinks in frequencies, the Prismatist thinks in wavelengths of light, its consciousness scattered across countless reflecting surfaces.
+
+The two beings are aware of each other, engaged in a slow conversation conducted through the building's skeleton. The Harmonist's sonic patterns influence the growth of the crystal garden above, while the Prismatist's light-languages affect the behavior of the bioluminescent life below. Together they maintain a vertical ecosystem that spans the height of the city, connecting the deep places with the high places in ways that few humans ever notice.
+
+Between these two spaces lies the city itself, unknowingly shaped by their influence. Plants growing near the building produce unusually musical seeds. Birds nesting nearby develop slightly iridescent feathers. And sometimes, in the quiet hours before dawn, people living in the surrounding blocks report dreams filled with crystalline music and luminous harmonies.

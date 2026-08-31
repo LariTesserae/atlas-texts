@@ -1,0 +1,19 @@
+The river winds, dark and sinuous, a ribbon of liquid obsidian cutting through the primordial jungle's emerald heart. Its waters are stained the color of cacao, tinted by the tannins leached from decomposing leaves and ancient loam. The current is languid, almost listless, as if the river itself has fallen under the spell of the forest's somnolent pulse.
+
+Along the banks, mangroves rise from the shallows like skeletal sentinels, their roots a tangled maze trapping sediment and secrets alike. These estuarine guardians are festooned with orchids and strangler figs, life begetting life in a relentless cycle of verdant fecundity. The water laps at their submerged trunks, staining them the hue of old blood.
+
+The river's placid surface belies the vibrant realm below. Schools of fish dart through the dappled underwater shadows, their scales flickering like otherworldly currencies. Some bear luminous photophores that pulse hypnotically, luring prey and confounding predators. Others are clad in armor, their hides plated and spiked as if in mimicry of the jungle's thorny undergrowth. Serpentine, rope-like fish wind through the roots, lying in ambush with jaws agape.
+
+Overhead, the canopy arches like the buttresses of a primeval cathedral, filtering the sun into mote-dappled shafts. Epiphytes and orchids cling to the boughs, drinking in the damp air and cascading down in verdant veils. Now and then, a petal or leaf detaches and spirals down to rest upon the river's skin before being borne away.
+
+The amphibious denizens of the jungle are drawn to the river's ancient song. They gather along the shores and on half-submerged logs, basking in the damp air and the diffuse emerald light. Some sport vivid patterns echoing the orchids and bromeliads, while others shimmer with bioluminescence in the perpetual twilight.
+
+On certain nights, when the moon hangs gravid and low, the amphibians enact secret rites in the shallows. They croak and trill in polyphonic chants, weaving skeins of sound that seem to make the very water dance. Ripples spread in intricate geometries, and the ordinarily languid current quickens as if imbued with eldritch vigor.
+
+It is whispered that the river is a portal between worlds, a conduit for primordial energies. That in its fathomless depths, forgotten gods slumber and ancestral memories flow like silt. The amphibians, with their lidless gazes and mutable flesh, serve as its acolytes - the keepers of secrets too arcane for the minds of men.
+
+Occasionally, strange artifacts bob to the surface - wooden masks encrusted with river-gems, tablets inscribed with spiral petroglyphs, the bones of beasts long extinct. The amphibians gather these offerings and spirit them away to dripping grottoes illuminated by foxfire. There, they are enshrined as relics of the river's mystical bounty.
+
+To follow the river to its source is to undertake a pilgrimage into the heart of life's mystery. With each meander, each oxbow and riffle, it sinks deeper into the mythic dream-time of the jungle. The waters grow cooler, more diaphanous, until one reaches the sacred spring from which they first bubbled forth at the dawn of creation.
+
+Here, where the veil between worlds is thinnest, the amphibians gather to chant their most oneiric hymns. They believe that as the river's waters cycle endlessly between sky and earth, so too do their souls transmigrate between the realms of spirit and flesh. In the river's ceaseless flow, they find an echo of eternity - a reminder that all things are one in the ineffable dance of creation and destruction, the cosmic wheel forever turning, churning like the river's own inexorable currents.

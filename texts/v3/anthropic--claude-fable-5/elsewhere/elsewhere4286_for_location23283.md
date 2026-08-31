@@ -1,0 +1,85 @@
+# The Steam Road
+
+At this latitude, under this much sun, the land should be green and mild. It is white to every horizon — a hard, dry, ringing cold that finds the gaps in clothing within seconds of arrival and never fully relents. This is the first rule of the plain, and the one travelers take longest to believe: *latitude does not warm this place.* Something underneath refuses to let it.
+
+The road people, who live in the one exception, will tell you where the warmth goes. They will point east, at the wall of permanent cloud standing on the horizon like weather that forgot how to move, and at the mountains rumored inside it, and they will say: *up there.* They have never been wrong about anything else, and they are not wrong about this.
+
+## The Plain
+
+The plain is flat the way still water is flat — an enormous sediment country, laid down by rivers over spans no one has counted, and then frozen into a single held posture. Frost grows on it instead of grass. On windless mornings, which are most mornings, hoarfrost stands ankle-deep and perfectly undisturbed for days' travel in any direction, so that a single crossing trail remains legible for a season, like a sentence no one has gotten around to erasing.
+
+The silence is the terrain's chief feature. Where the massif above the clouds is a permanent roar of spillways, the plain is a permanent absence of everything — no running water, no insects, no wind worth the name. Sound behaves strangely in it. A voice carries too far. A dropped tool is an event. Travelers who have been on the plain too long begin narrating to themselves, out loud, just to keep the air occupied, and the road people consider this not madness but good sense arrived at independently.
+
+Dig anywhere on the plain — through the frost, through the frozen silts, down to the old rock — and you will find them: pale threads veining the stone, branching the way circulation branches, thickening as they run east toward the cloud wall. They look exactly like the warm veins travelers describe in the high massif. They are not warm. Rest a bare hand on an exposed thread and the thread drinks from you — a cool, steady, painless pull, heat leaving the palm the way water leaves cupped fingers. Wells on the plain freeze from the *bottom*. The deep ground is colder than the deep sky. Whatever threads through the massif and keeps it tropical from root to summit threads here too, and here it is gathering.
+
+The plain, in other words, is not cold the way a winter is cold. It is cold the way an account is empty. It is being sipped.
+
+## The River
+
+And then, out of the cloud wall, the mountain gives some of it back.
+
+Every spillway on the massif, every weeping cliff and terraced marsh, every one of the ten thousand overflows drains at last into the unmapped gorges, and the gorges braid together in the dark, and what comes out at the foot of the cloud is a single river — broad, blood-warm, mineral-pale, steaming like a wound in the frost. It exits the mountains at a place called Stairfoot, where the carved steps begin their climb into the white, and from there it runs west across the frozen plain for six hundred kilometers before the cold finally wins.
+
+The steam is visible for three days' travel. In the flat light of the plain it stands over the river as a soft white serpent laid across the world, and it is the only landmark, the only road, and the only reason anyone lives here at all. The river and the road are the same word in the plain's speech, and the word means, more or less, *the warm.*
+
+The river runs raised above the country it crosses. Its water comes down saturated with the mountain's minerals, and over ages it has plated its own bed and banks with travertine, building itself a long pale causeway — so that the Steam Road is literally elevated, a river carrying its own banks with it, flowing along the top of a ridge of its own patient making. Stand on the frost a kilometer off and you see it clearly: the plain, dead level and white, and the river crossing it on a low ancient wall of its own bone.
+
+Warmth on the road is measured in distance. The water leaves Stairfoot at blood heat and cools by degrees as it travels, and so the settlements name their positions not in miles but in temperature — a town is said to sit *four days warm*, or *nine days warm*, and everyone understands both where that is and what it costs to live there. At the far western end, at last, the river's skin freezes over, and the steam lies down, and the road ends at the place called the Winterline.
+
+The Winterline moves. It is the only real seasonality anywhere in this world's two halves — the massif holds its heat without variation, but the plain has winters of its own, and when they press in, the line of first ice walks upstream, sometimes by ten days' travel; in summer it slides back down. The road's end is not a place but a negotiation, renewed every year, and there are people whose whole lives are conducted inside that negotiation.
+
+## What Grows
+
+Along both banks, in the strip where the river's warmth soaks the travertine, grows a sleeve of green — reeds and broadleaf aquatics identical to those in the mountain terraces, because that is where they came from. Their seeds ride down the gorges in the water, generation after generation, and take hold in the warm margin, and thrive, and die exactly one body-length from the water, where the frost begins. The border between the green sleeve and the white plain is so abrupt you can lie across it, one arm in summer, one in the deep of the world's cold.
+
+Further out, within reach of the river's fog, stand the rime forests: black, slow, needle-leaved trees that have solved the plain by farming its frost. River fog drifts out on still nights and freezes on their branches, and the trees grow their rime deliberately, in thick combs, and drink the melt at noon. A rime forest at dawn is entirely white and rings faintly when the first sun touches it. Beyond fog-reach the trees stop, and there is only lichen — and the lichen, notably, grows in broad geometric blooms, hundreds of meters across, patterned onto the frost in shapes that travelers from the high cliffs recognize at once. On the massif no one can say whether the lichen copies the veins or the veins copy the lichen. Down here the blooms lie precisely over the buried cold threads, tracing the hidden circulation onto the surface of the plain like a diagram of what is being taken — which would seem to settle the mountain's old argument, and does not, because no one can say how the lichen knows.
+
+## Fauna
+
+The road's animals live on the gradient, and the gradient makes them the opposite of the mountain's unhurried neighbors: everything here is quick, attentive, and slightly worried.
+
+**The orphan singers** are the road's dearest creatures. Bell-throat spawn washes over the terrace lips far above, and most of it dies in the gorges, but every year some fraction survives the long dark descent and hatches in the warm shallows below Stairfoot. They grow into the same great melon-throated frogs that chord the mountain valleys — but they grow up without the chord. The water that teaches it stayed behind. So the orphan singers sing *alone*, each holding its own line, each drifting in pitch across its life, beautiful and unresolved. The road people keep them — a household frog, a boat's frog, tanked in river water — and a boat whose frog has died is said to have gone quiet, and is spoken to gently for a while. And once in a rare while, on still nights near Stairfoot, the answerer's note from the deep gorges carries all the way down the water — and every orphan singer within hearing corrects itself, for one night, to the old tuning. The road people stay up for it. It is the only time their frogs are in tune with anything, and it comes from six thousand meters up and some unguessable distance down.
+
+**The edge-hunters** live at the Winterline — long, pale, patient swimmers that lie in the black water under the new ice and take the warm-water fish that stray across the temperature wall. They follow the line up and down the year like everyone else. The Line-followers respect them as colleagues.
+
+**The gliders** come down sometimes, riding the gorge-drafts out of the cloud and spiraling in the river's steam. They can go no further west than the place called the Last Thermal, a few days below Stairfoot, where the rising warmth grows too thin to hold them; children gather to watch them turn back. But a glider seen circling *past* the Last Thermal — circling over dry frost, where no thermal should be — is the gravest news the road knows. Thermals follow the veins. A glider over open plain means warmth is moving under the ground where no warmth was, and that means the river is thinking about moving.
+
+## What Was Built
+
+Because it has moved before. Out on the plain, wandering away from the living river, run the dead ribbons: dry travertine causeways, the fossil beds of the road's former courses, some of them so old the frost has rounded them into low pale welts on the land. Along them stand the abandoned towns — bank-houses carved into the travertine, doors open, hoarfrost thick as fur on every lintel, preserved by the cold with an indifference indistinguishable from perfect care. The road people visit the dead ribbons without dread. They are the road's memory, kept in ice the way the mountain's measurers keep theirs in stone, and walking one is how children are taught the road's central fact: *the river owes you warmth, not a location.*
+
+The living banks are terraced with the same architecture — houses cut into the warm travertine, heated through the stone by the river itself, their worth measured in *steps from the water*. And here and there, on the living road and the dead ones alike, half-buried in frost: constructions of the pale material. A shallow basin that frosts over the moment your breath touches it. A doorway framing nothing. In one dead town, nine days out on the oldest ribbon, a basin with someone still in it — laid there centuries ago by people who did not know, or knew something no one now does, and held ever since, unchanged, at the temperature of the deep plain. The road people do not disturb her and do not repeat the experiment. The mountain's warm basins take the dead *in*, travelers say. The plain's cold ones only *keep*. Between being taken in and being kept, the road long ago made its choice.
+
+## Rules of the Road
+
+The rules here are not gentle, because the plain is not, but they are simple:
+
+Warmth is a quantity. Count it, carry it, and share it — no door on the road may be closed to a cold traveler, and this is not kindness but law, the oldest one, older than any living town.
+
+Never dam the river, never bleed it into side channels. It has left before. The dead ribbons are the case law.
+
+Own nothing you cannot move to the boats in one trip. The people of the road are not poor; they are *portable*, and their finest things — instruments, frog-tanks, carved door-boards — are all made with handles.
+
+Be loud. The silence out on the frost belongs to the plain, and the road's answer to it is a civic duty: sing on the water, argue on the banks, keep the frogs. A settlement on the Steam Road is heard long before it is seen, and this is by design. Up on the massif, human voices ceded the field to the water. Down here they are the field.
+
+And the last rule, which is less a rule than an inheritance: whatever you are carrying, carry it lightly, because the road itself does. The people here live narrow, quick years — not shorter than the mountain's wide ones, they insist, only single-file — and everything they build is built to be left.
+
+---
+
+# Who Lives on the Steam Road
+
+The road people, first — the boat-and-bank folk strung along six hundred kilometers of warm water, loud, fast-talking, generous by statute, quarrelsome by recreation. They fish the warm thread, cut rime-timber at the fog line, burn travertine for lime, and conduct the plain's oldest argument, which is this: *is the exchange fair?* The ground sips their warmth from below, forever, and the mountain returns some fraction of it as a river, forever, and whether the fraction is just is debated on every bank, at every temperature, in every generation, with genuine heat — partly because no one can audit either side, and partly because arguing is itself a way of staying warm, and the road people know it.
+
+At the far end live the Line-followers, the migratory town of the Winterline, who strike their whole settlement twice a year and walk it upstream ahead of the ice and back down behind the thaw. They are the poorest people on the road and say they are the only honest ones: everyone else pretends their address is permanent, and the Line-followers alone live at the road's actual truth, which is an edge that moves.
+
+And threaded through every town are **the returned** — the ones who went up the long stairs from Stairfoot, into the cloud, into the heat and the chorus, and came back down. You know them at once. They are the calm in any room. In fog they identify themselves by humming, two private notes, a custom they carried down from the terraces, and being greeted by a returned's interval in a whiteout is considered luck of the best kind. They serve as the road's arbiters and its grief-keepers, and when the exchange argument reaches them, as it always does, they always say the same thing: that the mountain is not taking anything. That it is *holding*, the way a body holds. The road people snort, and pour them something warm, and go on arguing.
+
+Because every road family has also given the other kind — **the tithe**, the ones who went up and did not come back. They are not mourned as dead and not resented as gone. They are spoken of as *held*, in the present tense, and once a year, on the night the answerer's note comes down the water and the orphan frogs all find the old tuning, families stand out on the banks facing the cloud wall and hum the intervals of their held ones into the steam, on the theory — unprovable, undoubted — that sound goes up the gorges as easily as water comes down.
+
+Most of the road's dead go to the river: barged downstream, sung the whole way, and given to the current above the Winterline, to be carried under the ice into the cold that keeps. But a few in every generation — the beloved, the long-argued-with, the ones who always meant to make the climb and never did — are carried up instead. It is called the last climb. The bearers go up the stairs into the heat, and the stayers meet them without being sent for, somehow, always, and the warm basins do what the warm basins do. The bearers come down lighter in every sense, and for the rest of their lives they are half-returned, humming a little in fog.
+
+And beneath all of it, the one resident the road shares with the mountain entire. Walk out onto the deep frost on a windless night, far from the river's hiss, and lie down, and press an ear to the ground. The harmonic is there — the same slow tone the travelers describe feeling in their sternums on the high terraces, the sound of something very large being very patient. But the Listeners of the massif, if they came down, would notice what the road people have always known: down here it has a *direction*. Up there, the hum is described as holding. Down here, it is unmistakably drawing — a long, slow, continent-wide intake, patient as everything else about it, the plain's warmth moving inward and eastward through the pale threads toward the roots of the mountains. The few who have heard both, the returned, say it plainly: it is one breath. The massif is the exhale, held for longer than anyone can measure. The plain is what it breathes from. And the river — warm, steaming, walking its own white causeway across the frozen world with the towns strung along it like knots in a wick — the river is the courtesy. The rebate. The part of the breath that comes back.
+
+So the two places live at either end of one circulation, and each has become exactly what its end of the breath requires. The massif finished becoming itself long ago, and holds, and its people stopped hurrying. The Steam Road can never finish — it must be renewed, argued, sung, moved, and carried, every narrow year, or the silence takes it — and its people never started standing still. Water goes down carrying warmth; people go up carrying whatever they need to set down; frogs are born into the chord above and sing alone below and are answered, once in a while, across the whole vertical distance.
+
+It is, in the oldest sense of the word, *underway* — a place that will never be done becoming what it is, and knows it, and keeps itself loud about it, all six hundred warm kilometers, all the way out to the moving line where the ice begins.

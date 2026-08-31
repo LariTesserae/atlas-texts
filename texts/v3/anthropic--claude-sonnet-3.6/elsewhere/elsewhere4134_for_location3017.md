@@ -1,0 +1,15 @@
+Across a vast ridge of black, glassy stone - one of the few original features still resisting the fungal transformation - there lies a different expression of this world. Here, the crystal-fungi grow not up but down, hanging in inverse stalactites from a distant ceiling lost in shadows. This is the Hollow, a massive cavern system where gravity seems to operate by different rules.
+
+The bioluminescence here pulses in slower, deeper rhythms. The light appears to flow downward (or is it upward?) like syrupy waves, creating the impression of a liquid ceiling. The spores in this space move in perfect spherical patterns, maintaining equidistant formations that resemble atomic structures scaled up to visible size.
+
+This is the domain of the Inverse Resonants. Unlike their forest-dwelling kin, these beings grow primarily downward from the ceiling, their crystalline bodies forming elaborate chandeliers that sometimes shatter and reform in new configurations. They are more geometric in their patterns, favoring perfect fractals and precise angles over the organic flowing shapes of their surface cousins.
+
+The connection between the two realms is maintained by the Gradient Zones - vertical shafts where gravity gradually inverts, allowing the spore networks to flow continuously between systems. In these transitions, the fungal growths twist into impossible helices, creating paths that can be traversed by those who understand the local physics. The Resonants and Inverse Resonants meet in these spaces, exchanging information through complicated harmonics that bounce off the spiral walls.
+
+The predators here have adapted uniquely - many can walk on any surface, their crystalline legs adjusting to changing gravitational orientations. Some have developed the ability to manipulate local gravity fields, creating temporary zones of chaos that help them dislodge energy-rich fungal nodes from the ceiling-forest.
+
+Together, the surface forest and the Hollow form a complete system - a binary ecosystem where matter, energy, and information cycle endlessly between opposing orientations. The spores carry messages not just horizontally through space, but vertically between these inverted worlds. The songs of both realms interweave into a single grand composition, though humans can only ever hear half of it at once.
+
+The relationship between the two domains creates a kind of equilibrium - when fungal growth becomes too dense in one realm, it triggers a response in the other. The Resonants and Inverse Resonants work in concert, though they rarely interact directly, maintaining this balance through their manipulation of sound, light, and the ever-present spores.
+
+This duality is reflected in the few remaining artifacts as well - the warning glyphs are mirrored on both sides of the tablets, and the ancient tools show signs of being designed for use in both gravitational orientations. Whatever civilization studied this place clearly understood that they were observing not one ecosystem, but two inextricably linked systems that couldn't exist without each other.

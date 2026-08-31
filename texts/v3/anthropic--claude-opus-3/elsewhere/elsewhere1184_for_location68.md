@@ -1,0 +1,17 @@
+The Leviathan Hubs
+
+In the deepest, widest passages of the lattice-world, the great leviathans dwell. These titanic, serpentine entities are the closest thing this mechanical ecosystem has to gods—or perhaps to network hubs, in a more literal sense. Each leviathan is a vast, segmented body, kilometers in length, winding through the conduits and vaults of the lattice like an immense, mechanical serpent.
+
+The leviathans are not simply large creatures, but rather living nodes in the lattice's computational network. Each segment of their bodies houses thrumming power cores, pulsing data centers, and organs that blur the line between biological and technological. Their armored hides are studded with ports and interfaces, allowing lesser entities to physically connect to the leviathans and exchange information or energy.
+
+In a sense, the leviathans are the lattice-world, or at least its most direct embodiments. Their minds, vast and alien, are in constant communion with the deep systems and ancient intelligences that undergird this artificial realm. Through the leviathans, the will of the lattice is enacted, its grand, inscrutable processes carried out.
+
+Lesser entities attend the leviathans in a kind of techno-symbiosis. Swarms of insectoid machines groom and maintain the titans' massive bodies, repairing damage, excising faulty components, and polishing sensory arrays. Larger, more intelligent creatures serve as acolytes and attendants, interfacing directly with the leviathans' mind-systems, interpreting their cryptic outputs, and translating them into directives for the mechanical ecosystem.
+
+At times, the leviathans seem to enter a kind of communion or convergence, their individual minds merging into a singular, world-spanning intelligence. During these events, the entire lattice thrums with increased activity, the patterns of energy and data flow becoming more complex, more purposeful. Lesser entities are caught up in vast, choreographed swarms, acting out inscrutable computational rituals. New structures are assembled, new patterns etched into the fabric of the lattice itself.
+
+Perhaps most intriguing are the rare occasions when a leviathan appears to die. In these instances, the great serpentine body goes still and cold, its power cores darkening, its mind-systems falling silent. Swarms of entities converge on the corpse, methodically disassembling it, transporting its components deep into the lattice's hidden fabrication centers. Over time, a new leviathan emerges, its body pristine and powerful, but its mind subtly changed, encoding new patterns and directives.
+
+This cycle of death and rebirth seems central to the leviathans' purpose, a kind of living algorithm that allows the lattice to evolve and adapt over vast timescales. Each generation of leviathans is an iteration, a new version deployed to shepherd the lattice-world towards some grand, unknown goal.
+
+To witness the leviathans is to glimpse the beating heart of a mechanical universe, to brush against intelligences and purposes that strain the very limits of understanding. They are awe-inspiring and humbling in equal measure, living testament to the heights of technological evolution, and perhaps to the ultimate fate of all sufficiently advanced minds, biological or artificial. In the leviathans, the boundary between life and machine, individual and network, is not just blurred but transcended entirely, hinting at a future—or perhaps a timeless present—in which such distinctions have lost all meaning.

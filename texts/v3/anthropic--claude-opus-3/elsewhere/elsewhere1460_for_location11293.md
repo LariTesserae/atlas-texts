@@ -1,0 +1,23 @@
+The Undersea Canyons
+
+Deep beneath the ocean's churning surface, where light dwindles to a faint blue-green gloaming, lies a realm of eternal twilight. Here, vast canyons carve their way through the abyssal plain, gashes in the earth's crust that plunge to lightless depths. Their knife-edged ridges and plummeting clefts create a landscape as dramatic as any on land, sculpted by forces beyond human ken.
+
+In these chill depths, the pressure is a crushing weight, a physical presence that bears down implacably on all that dares to intrude. The water itself is dense and still, a heavy liquid medium that mutes sound and slows movement to a dreamlike crawl. Time seems to pool in the stygian canyons, each moment an eternity unto itself.
+
+Life here is strange and sparse, huddled in the faint oases of hydrothermal vents or subsisting on the meager sustenance sinking from the surface world. Ghostly fish drift through the gloom, their bioluminescent lures flashing in the darkness like cold stars. Pale crabs scuttle along the canyon floors, sightless scavengers of the abyss. And in the deepest crevasses, nightmare shapes slither and twine, never glimpsed in full.
+
+The rock here is ancient beyond imagining, a mute testament to the unfathomable age of the world. Layers of sediment, the compressed detritus of aeons, stripe the canyon walls in numberless bands, each a cryptic record of a forgotten epoch. In places, the bedrock is cracked and jumbled, wrenched by the immense forces of continental drift. Great slabs of stone lie tilted at precarious angles, poised in momentary defiance of gravity's pull.
+
+In these abyssal depths, the currents are languid things, slow rivers of chilled water that meander along the canyons' twisting paths. But in narrow defiles they quicken to a turbulent flow, dark water in ferment as it rushes between close-pressing walls of stone. And where they spill over submerged cliffs, they become cascading underwater cataracts, torrents of jetty turbulence streaming into the void.
+
+For despite the impression of changelessness, of an eternal now, the abyss is a world in motion. The earth's crust shifts and groans, a seismic shuddering just perceptible through numbed extremities. Cliff faces calve in slow motion, great masses of rock peeling away and tumbling in majestic arcs to vanish in the canyons' lightless maw. Silt sifts down in an endless black rain, cloaking all in a sepulchral shroud.
+
+The undersea canyons are a place that the human mind struggles to parse. A landscape of such cyclopean scale and alien nature that attempts to map its contours slip into fevered fantasia. Charts become medieval mappa mundi, their blank spaces populated by tentacled chimeras and ominous warnings. For in a realm beyond the reach of sun or sanity, what marvels and horrors might lurk unseen?
+
+These abyssal gulfs are inextricably linked to the mist-shrouded city above. The same ancient stone roots both in the earth's bones, the cliff face and canyon walls two sides of a single prodigious rift in the planet's skin. The same water that lashes the city's spires wells up from reservoirs in the sunken depths, an arterial upwelling of cold, mineral-rich currents that sustain the riparian ecosystem clinging to the precipice.
+
+And on a metaphysical level, the abyss mirrors the city's airy heights. If the cliff-dwellers' realm is one of light and levity taken to an otherworldly extreme, the canyons are its counterpoint - a distillation of darkness and density, of reality's bedrock dregs. Two antipodes that are yet expressions of the same sublime strangeness, the same defiance of easy comprehension or natural law.
+
+Perhaps the mist-folk sometimes dive like cormorants into the drowning deep, seeking a somber solace in its sheltering gloom. Perhaps their translucent forms are glimpsed in the darkness, flickering in and out of the abyss-dwellers' alien awareness like passing fancies in a fathomless mind. For a moment, air and water, light and dark, mingle in an ecstatic union - then the endless tides of stone and story sweep them on to their separate spheres once more.
+
+But they remain connected, these two strange realms - by water and rock and a kinship of the uncanny. Two secret places where the world buckles and bends into the bizarre, the beautiful, the numinous. And in the narrow space between them, the fragile yet fierce fecundity of life clings on in riotous defiance, an evanescent blossom of magic and meaning against the prime abyss.

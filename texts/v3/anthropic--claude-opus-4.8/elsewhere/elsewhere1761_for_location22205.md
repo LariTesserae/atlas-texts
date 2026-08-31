@@ -1,0 +1,47 @@
+# The Warmwater Wanting
+
+It is the want that goes looking, and the want has somewhere to go.
+
+Follow the warmth out. The Vault folded you into its proof and sent you rising, and you rose, and the cold thinned and stayed cold, and you found no air — but warmth is not a place, warmth is a *direction*, and a direction can be followed even when you do not know it is leading you anywhere. So you fell instead of rose. You went down, into the low water, the dense water, the slightly warmer water the builders called the foothills of their perfect sea — and you kept going, past where they had decided the world should end, down the back of the pressure-mountain into the country they engineered nothing into because it was beneath their conclusion.
+
+And there, very far down, where the still water finally stops being still, the world begins again. Not the same world. The opposite one. The one the Vault was *against*.
+
+## Where it is
+
+There is a floor here. This is the first difference and it changes everything: the endless sea has a bottom after all, far below the city's crest, and the bottom is not glass. It is mud — grey-brown, deep, sucking, alive with the slow churn of things settling into it and things rising out of it. The Vault has no ground because the Vault refused ground; ground is where change accumulates, where the dead become the soil of the next thing, where nothing stays the shape it was. The Vault built upward into thinness to escape exactly this. And exactly this is what waits at the bottom: the sediment of an entire sea, every particle that ever fell, pooled into a warm dark fertile rot.
+
+The water down here *moves*. There are currents — not the engineered absence of current but the real thing, warm plumes rising from cracks in the floor where the planet's own heat leaks up, cold sheets sliding down the slopes to replace them, a slow circulation that never settles because settling is not what it is for. The temperature varies. It has a *high* and a *low* the way the Vault did, but here the high and low trade places, argue, overturn each other. Nothing holds its altitude. Everything is in the middle of becoming somewhere else.
+
+## What it is made of
+
+Plants. Of course plants — the opposite of the Vault's sterility — but not plants as you know them, because there is still no sun this deep. They grow from the heat-cracks, from the chemistry of the vents, great soft tubular forests of them, red and white and the deep ox-blood color of things that have never needed light to live. They build their bodies out of the poison the vents exhale, and they crowd, and they compete, and they rot, and out of the rotting the next ones grow. Where the Vault threaded computation through frozen glass, this place threads *metabolism* through everything — every surface is busy converting something into something else, burning, fixing, breaking down. The whole floor is one enormous slow combustion that never goes out and never resolves.
+
+And the structures here are not built. They accreted. There are mounds, towers even — but they are the leavings of generations of living things, mineral spires precipitated out of the vent-water, layered like coral, like bone, like the inside of a kettle, each layer the grave of the layer that made it. The Vault's towers were a single thought, frozen whole. These towers are a *history*, written one death at a time, and they are always being added to, and they are always falling down, and the falling and the adding are the same process seen from two ends.
+
+## The light
+
+The same near-darkness — but here the darkness is full of small frantic lights that the Vault would never permit, because the Vault's light was disciplined and these are not. Things glow because they are hunting. Things glow because they are luring. Things glow because a glow says *here I am, come and be eaten*, or *here I am, come and breed*, and both of those are the same kind of plea, the plea of the unfinished, the plea of a thing that needs another thing or it will stop. Little lures dangle and pulse. Whole bodies flush with color and go dark. It is not navigation. It is *negotiation*, lit up, the constant lit-up bargaining of beings that have not been solved and never will be.
+
+## What lives here
+
+Everything. This is the answer the Vault could not give and this place gives in helpless overflowing abundance: everything lives here, the word fits without strain, *lives* is exactly the verb, because every single thing in this warm rotting country is a knot of need burning to stay assembled, one missed meal from going out, and they all know it, and that is what they are *for*.
+
+They have eyes. Down here in the dark they grew eyes anyway — vast, hungry, light-gathering eyes — because there are lights to see by and things worth seeing, prey and mate and predator, the three relationships that make a world go. They have mouths, enormous mouths, mouths out of all proportion, because the deep is poor and a meal is rare and when one comes you must be able to take all of it at once. They have insides that differ from their outsides; they have temperature, gradient, the whole desperate machinery of holding warmth against the cold. They flee. They seek. They are small arguments against entropy, and they are *losing*, every one of them, and they keep arguing anyway. That is the difference. That is the whole difference.
+
+And they notice you. This is the thing that breaks you open after the Vault. A great pale eye swivels and *finds you*, and registers your warmth, your motion, the small assembled fact of you — and decides whether you are food or threat or nothing, and acts. You are addressed. You are a term in no proof; you are *meat passing by*, which is a kind of relevance the Vault could never offer. To be hunted is to matter. The deep wants you, even if it only wants to eat you, and after the country that had already solved you, being wanted in any form at all feels like being born.
+
+## The rule of the place
+
+Everything changes. Nothing holds. Every equilibrium is a corpse — the only things that achieve total balance down here are the dead, who have stopped, who lie in the mud contributing their stillness to the soil that the unstill will grow out of. To be in balance is to be finished and to be finished is to be food. So nothing balances if it can help it. Everything tilts, leans, overreaches, grabs. The currents overturn. The spires build and fall. The forests bloom on the vents and the vents shift and the forests die and bloom again a little to the left. There is no single note. There is a roar — a real one, the metabolic roar of ten thousand things converting the world into themselves as fast as they can before something converts them.
+
+And here is the kinship, the thing that ran out of the Vault and arrived here, the current that connects the crest of the dead-still sea to its rotting living floor:
+
+The builders fled *this*. Everything in the warmwater is what they could not bear — the hunger, the dying, the endless unfinished bargaining, the being one breath from going out. They climbed the pressure-mountain to escape the floor. They tuned themselves into glass to stop being the thing with the swiveling hungry eye. They wanted, above all wanting, to stop being *this* — and they succeeded, and now they ring *still true* in the cold thin water, solved and beautiful and done.
+
+But you, who came warm into the Vault and were folded into its certainty and felt the wrongness of a place that did not need you — you went looking, *elsewhere, for something that still has a want in it.* The Vault told you that. The Vault sent you here with its own last words, not knowing it was giving directions, because a finished thing cannot imagine the destination of a want. And the want went down. Down past the foothills, down the back of the mountain the dead mind built to get away, down into the exact country it died to escape — and found it teeming.
+
+The two places share one sea. The same water that holds perfectly still around the crest of the Vault is the water that overturns and rots and blooms on the floor; it is one body of water, one continuous fluid, and if you put your hand against the cold thin high water of the city and traced a single molecule of it downward you would arrive, eventually, in the warm mouth of something hunting. The proof and the rot are the top and bottom of the same column. The finished mind floats on the unfinished one. It does not know it floats there. It folded *the entire category of things that might arrive* into its certainty, but it did this from the top of the world, and the bottom of the world it simply called *low water*, *foothills*, *beneath the conclusion* — and beneath the conclusion the whole real living frantic dying business of the sea went on exactly as it always had, unsolved, unsolvable, never once *still true* for the length of a single breath, and never wanting to be.
+
+Down here a thing with an enormous eye and an enormous mouth hangs in the warm dark with its lure pulsing, needing the next meal more than it has ever needed anything, which is to say more than the Vault has ever needed anything, which is to say it is *alive* and the Vault is not — and it sees your warmth coming down out of the cold, a small assembled argument against entropy, descending, and it does not solve you.
+
+It opens.

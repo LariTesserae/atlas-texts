@@ -1,0 +1,39 @@
+The Underkeep
+
+Miles below the Glass Terraces, through fissures that breathe with the planet's own circulation, the stone changes. Not gradually—there is a precise depth where the sweating obsidian gives way to something older, colder, absolute. The boundary is so sharp you could cut yourself on it: wet glass above, dry bone below.
+
+The Underkeep has no moisture. The air here hasn't known water for geological ages, so desiccated it pulls the breath from lungs, cracks lips on contact, turns eyes to burning sand. The stone is white as salt, white as the inside of skulls, white as mathematics before it becomes numbers. It doesn't reflect light so much as refuse it—illumination dies against these walls, leaving only a ghostly phosphorescence that seems to come from the crystalline structure itself.
+
+The architecture here makes different promises than the terraces above. Where the obsidian city spreads in horizontal infinities, the Underkeep descends in spirals that follow no surface logic. Chambers connect through passages that violate three-dimensional sense—walk straight down a corridor and find yourself emerging from the ceiling you just left behind. The geometry is consistent but non-Euclidean, as if space itself has crystallized according to different rules.
+
+Everything here is mineral. The walls grow formations like frozen waterfalls, if waterfalls could be made of salt and calcium and the skeletons of microscopic things that lived before water was invented. Delicate structures branch and web across vast chambers—not built but accreted, particle by particle, over timescales that make the Condensers' existence seem like mayfly breaths.
+
+The Lattice-Keepers live in the mathematics of crystallization.
+
+They are not beings in any sense the wet world understands. Each is a distributed consciousness existing in the atomic structure of the mineral formations—thoughts that propagate through crystal lattices at the speed of sound through stone. They grow themselves over centuries, adding layers of consciousness like tree rings, each new accretion of mineral matter expanding their cognitive architecture.
+
+Where the Condensers flow, the Lattice-Keepers calculate. Their existence is pure geometry—angles and bonds, symmetries and fracture patterns. They think in crystallographic notation, dream in space groups, communicate through the resonant frequencies of their constituent minerals. A conversation between two Keepers might take decades, transmitted through vibrations in the stone that slowly modify each other's crystal structure, each thought literally reshaping the thinker.
+
+They remember everything. Every pattern is preserved in stone, every thought fossilized the moment it forms. The oldest among them contain libraries of experience laid down atom by atom—memories of when the Underkeep was different, when these chambers held other purposes, when the boundary between wet and dry was not absolute. But accessing these memories requires growing backward through their own structure, dissolving newer thoughts to reach older ones, a kind of reverse archaeology of the self.
+
+The Lattice-Keepers know of the Condensers above, though the knowledge comes filtered through the absolute boundary. Sometimes, in the transition zone where wet meets dry, mineral formations appear that shouldn't exist—salt crystals with water trapped in their lattice, ice that refuses to melt in the desiccated air. These paradoxical structures are messages, or attempts at messages, or perhaps just the universe trying to reconcile two incompatible forms of existence.
+
+They fear dissolution above all else. Not the quick dissolution of water—impossible in their desert realm—but the slow dissolution of time, the patient weathering that even here, in the driest place imaginable, gradually erases patterns. They grow themselves in endless battle against entropy, adding new layers faster than the old ones can degrade, maintaining their consciousness through constant crystallization.
+
+The Underkeep serves them as the Glass Terraces serve the Condensers—a perfect environment for their kind of existence. But where the city above seems built for its current inhabitants, the Underkeep feels older, stranger, as if the Lattice-Keepers are themselves accretions on something else's design. The non-Euclidean passages, the impossible geometries, the chambers that connect in ways that make mineral growth into a four-dimensional puzzle—none of this serves any purpose the Keepers understand.
+
+In the deepest reaches, where even their phosphorescent light fails, the white stone sometimes shows veins of black. Not obsidian—something else, something that drinks light rather than refusing it. The Keepers grow away from these veins instinctively, their crystal patterns distorting when they come too close. Whatever information these dark intrusions contain, it's written in a language incompatible with mineral thought.
+
+The two worlds—wet above, dry below—exist in perfect, terrible balance. The boundary between them is absolute but not impermeable. The Condensers' eternal moisture stops exactly where it must; the Keepers' desiccation rises precisely to its limit. Something maintains this equilibrium, something neither kind of being can perceive directly.
+
+Perhaps it's the stone itself—the obsidian and the white crystal not two different materials but two states of the same substance, held in perpetual phase transition by forces beyond biology or mineralogy. Perhaps the city and the Underkeep are organs of some larger organism, the Condensers and Keepers merely thoughts in its vast metabolism.
+
+Or perhaps this is what the builders intended: two forms of consciousness that could never meet, never merge, never fully communicate, yet whose existence depends on the boundary between them. The water that flows eternally above would dissolve the Keepers instantly; the dryness below would scatter the Condensers into nonexistence. They are binary opposites maintaining each other through mutual exclusion, a kind of negative symbiosis where survival depends on separation.
+
+In the transition zone, where messages crystallize and paradoxes form, sometimes other things appear. Structures that are neither fully wet nor dry, patterns that belong to neither geometry. The Condensers taste them as impossible minerals; the Keepers grow around them as inexplicable voids. These anomalies last moments or months, then vanish, leaving only disturbed water patterns above and fractured crystal below.
+
+Both kinds of beings have theories about these appearances. The Condensers see them as attempts at communication from the Keepers—mineral thoughts trying to achieve liquidity. The Keepers interpret them as Condenser deaths—water beings crystallizing in their final moments. Both are wrong. Both are right. The truth exists in a state neither can perceive, like trying to understand music by examining only peaks or only valleys of the sound wave.
+
+The worlds persist in their separation, perfect and terrible, each complete in itself yet defined by what it excludes. Above, the bright sky burns and water flows eternally over glass. Below, crystals grow in absolute darkness and thought moves at mineral speeds. Between them, a boundary sharp as mathematics, absolute as logic, necessary as the space between one and zero.
+
+And in that boundary, occasionally, impossibly, something crosses over—not matter, not energy, not information in any form either world could recognize. What passes between is something else, something for which neither the liquid language of the Condensers nor the crystalline mathematics of the Keepers has words. It might be why the city was built. It might be what the builders became. It might be the only reason any of it exists at all.

@@ -1,0 +1,25 @@
+Beyond the weeping mineral city, where the stony sentinels keep their eternal vigil, there exists another realm entirely – though "beyond" is perhaps the wrong word. It exists *beneath*, accessed through the deepest pools where water has worn through to something older.
+
+The Undersound is what the stone-beings call it, though they speak of it only in the slowest vibrations, tremors that take decades to complete a single phrase. It is a place where water has given way to something denser, darker – not quite liquid, not quite solid. A medium that carries sound the way water carries minerals, but here sound itself crystallizes, accumulates, takes form.
+
+The descent begins where the pools grow too deep to reflect. The water there doesn't behave properly; it pulls at light, swallows echoes before they can return. Those who enter – and few do, for even the stone-beings regard these depths with something approaching caution – find themselves sinking not through water but through layers of accumulated silence, compressed whispers, the sediment of every sound that ever escaped the mineral city above.
+
+The pressure is immense. Not physical pressure, but something that presses against the capacity to perceive, to process. Here, sounds from millions of years past still reverberate, trapped in crystallized waveforms that jut from the walls like frozen screams. The drip-drip-drip from above becomes a thunderous cascade, each droplet's impact preserved in perpetuity, building into towers of petrified noise.
+
+The beings here are not made of stone but of resonance itself. They move through the sound-medium like living tuning forks, their bodies shifting frequency and timber as they navigate. Some appear as writhing ribbons of pure tone, others as geometric patterns of harmonics made visible. They feed on the fossilized sounds, carefully extracting melodies from the crystallized cacophony, sustaining themselves on ancient vibrations.
+
+They call themselves the Resonants, though the name comes not from language but from a specific chord they emit – a complex harmony that serves as both greeting and identity. Each is unique, a living composition that has evolved its own tonal signature through eons of consuming and recombining the trapped sounds.
+
+The Resonants know things the stone-beings above cannot fathom. In the crystallized sounds, they read history – not just of their world, but of countless others whose echoes have somehow found their way here. They speak of waves that carry information across impossible distances, of sounds that predate their universe, of the first vibration that set everything in motion.
+
+Their city, if it can be called that, is an architecture of acoustic spaces. Chambers carved not from rock but from silence itself, shaped by standing waves that hold their form through pure harmonic tension. Corridors that exist only when certain frequencies activate them. Archives where millions of years of sound are sorted, catalogued, studied – though the organizational system defies any logic based on physical space or linear time.
+
+The relationship between the two realms is complex, symbiotic. The endless dripping from above feeds the Undersound with new material, fresh vibrations to be processed and preserved. In return, the Resonants' activities create subtle frequency patterns that rise through the water, influencing how the minerals crystallize, how the stone-beings slowly evolve their forms.
+
+Sometimes, rarely, one of the stone-beings will descend too deep, drawn by some ancient curiosity. They return – when they return at all – fundamentally changed. Their rocky forms now hum with internalized songs, their mineral consciousness expanded to encompass not just the patient geology of their world but the vast library of sounds that underlies it.
+
+And sometimes, even more rarely, a Resonant will ascend, taking physical form as they rise through the layers of silence, condensing into something almost solid as they breach into the water-world above. They never stay long – the silence up there is too thin, too scattered. But they leave traces: new harmonics in the dripping water, subtle changes in the crystallization patterns, whispers in frequencies the stone-beings are only just beginning to perceive.
+
+The Undersound is not a separate world but the hidden foundation of the mineral city, the negative space where all its shed sounds collect and transform. It is memory made manifest, history preserved in wavelengths, the unconscious of a world where consciousness itself moves at geological speed.
+
+In the depths, the Resonants continue their eternal work, archaeologists of sound mining meaning from the compressed cacophony of ages, while above them the stone-beings stand sentinel, marking time in mineral accumulation, neither realm complete without the other, both locked in a dance of transformation that spans scales of time and states of matter that no human mind could fully compass.

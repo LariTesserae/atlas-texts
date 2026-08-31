@@ -1,0 +1,59 @@
+# The Sounding-Line Reach
+
+Start with the descent, because everything here is going down.
+
+There is a place where the green standing sea forgets to stand. You will not find it from inside the chord — the Tuners' tending leaves no slack, and a held thing does not feel the edge of its holding. But the water of the highland is not infinite, however much it behaves as though it were. It has an underside. Somewhere past the last stalk, where the spacing between the pumping pillars stretches so wide that their organ-tones can no longer find each other across the dark and the chord finally, finally thins to single failing voices, the rock that the holdfasts grip begins to tilt. And the water goes with it. Not falling — the highland sea is too patient to fall — but *leaning*, sliding down a long throat of stone in a slow green sheet, taking with it the coldest stratum, the settled chill at chest-height that you felt as a different texture, until the cold finds the place where the mountain opens its mouth and pours.
+
+This is the Reach. It is the same water. It has only stopped pretending to be a sky.
+
+---
+
+Here the water has a floor and a ceiling again, and they are close. The Reach is a canyon-river run underground, or under-mountain, a flooded gut of channels braiding through black stone in the dark — and it is *dark*, truly dark, because the sourceless green noon of the highland cannot follow the water down its own throat. The light thins as the channel deepens, goes from green-glass to bottle-black to the absolute lightlessness of a thing that has never been seen and was never meant to be. The highland's great error — its belief that it was a sky — does not survive the descent. Down here the water knows exactly what it is. It is heavy, and it is moving, and it is cold the way the highland was cold but *meant* now, weaponized into current, a chill with somewhere to be.
+
+Everything changes here. That is the first fact, and it is the opposite of the first fact above. The highland held its breath; the Reach exhales without rest. The channels shift their braiding — a passage open this turning is silted shut the next, a wall the water gnawed for an age gives way all at once and a new room floods and an old one drains to dripping. Nothing reaches a final shape. Nothing is *established*. The erosion-state here is a verb and only ever a verb, the stone forever halfway through becoming something it will not get to be before it is unmade again. There is no photograph that kept its sounds. There is only the sound, going on ahead of itself into the black.
+
+---
+
+And the sound, here, is the same sound. This is the thing.
+
+You must understand what the Reach *is* to the highland. The cold water that pours down the throat is the water the stalks pumped. The current that drives through these black channels is the current the breathing forest made — the closed loop you were told was closed, the self-sustaining weather, the climate the forest breathed into being. It was never closed. A fraction leaks. A fraction always leaked, off the bottom of the coldest stratum, down through the rock the holdfasts grip, into the throat, into the Reach — and the highland does not miss it because the highland does not change, and a thing that does not change cannot notice a slow bleed from its underside any more than you can feel yourself losing the heat the Tuners are easing out of you.
+
+So the Reach is the highland's exhaust. Its drain. The place all that perfect circulation actually goes, after the leaf-planes have whistled it into the chord and the membranes have tuned it true. And it carries the chord with it.
+
+You will hear this and not believe it at first. Down in the black, with the cold current shoving past you and the stone groaning as it gives, there is — under everything, threaded through the rush — the note. The held harmony. It comes down the throat in the water itself, conducted through the cold like a hand on a wire, faint and drowned and *wrong*, because the Reach will not hold it still. The current stretches it. The shifting channels reflect it and double it and swallow it. The chord that was resolved before there was anyone to hear it arrives down here detuned by the simple violence of being moved — soured at last, in the one place the Tuners cannot reach, sagging flat and crawling sharp and *changing*, second to second, the way the highland swore nothing ever could.
+
+The Tuners keep the chord perfect upstairs. They cannot keep it down here. They do not know down here exists. Down here is the sound of what they protect against, played in full, forever, where they will never have to hear it.
+
+---
+
+Now: who listens, because someone does, and they are the opposite of the ones above.
+
+I told you the Tuners grew a body around an ear so the ear would have somewhere to stay. The things in the Reach grew a body around a *question* — and the question is *what now*, which is a question no creature of the highland could have formed, because the highland has no *now* that differs from any other.
+
+Call them the Soundings. Picture something built like a long bell-rope, or a plumb-line with intent: a slender, articulated, swimming length, all of it muscle and listening, that hangs head-down in the current and pays itself deeper into the dark. Where the Tuners are flat and fixed and faceless-but-for-the-ear, the Soundings are mobile and questing and *eyed* — though their eyes are not for light, there being none, but for the chord. They read the detuned harmony coming down the water the way the Tuners read their stalks: from inside, structurally. But where a Tuner reads its note to *correct* it, a Sounding reads the soured chord to *follow* it — because in the way the note bends, the way it sags flat here and crawls sharp there, is written the shape of the channel ahead. The Reach is mapped in its own ruined music. A passage silting shut pinches the note thin. A new room flooding open lets it bloom and double. The chord, wrecked, becomes the one thing the highland's perfect chord could never be: *information*. News. A sound that tells you what is happening, because something is always happening.
+
+So the Soundings hang in the cold and listen to the broken chord and go *toward* the breaking. They live by change the way the Tuners live by stillness. A passage opening is not a flaw to be tuned out — it is a door, a new dark room with new crusts to browse, new drift the current has carried down from the leaf-planes above and ground fine and delivered to the deep. The Reach feeds on the highland's leavings. Everything that the upstairs equilibrium quietly sheds — the grazers that died without disturbing the total, the worn matter scoured off the lee sides, the silt of motion the Tuners ease down out of every guest — all of it comes down the throat in the cold, and the Soundings are waiting where it lands, reading the chord for where the next fall will come.
+
+They are not kept. Nothing keeps them. There is no caretaker in the Reach, no margin tightening to fold them into true, because *true* is the one thing the Reach does not have and does not want. A Sounding that drifted true — that found a still pocket where the channel held its shape and the note stopped sagging — would not feel contentment fossilize around it. It would feel the news stop. It would feel the door close. And it would do the thing no Tuner has ever done or could: it would let go its grip on the still water and pay itself deeper, down, *toward* the next breaking, because to a Sounding the held breath is not peace. The held breath is the held breath of a thing about to be unmade. They have heard, threaded faint through their wrecked inheritance, the perfect chord upstream. They know what perfect sounds like. They swim away from it on purpose.
+
+---
+
+Here is how the two reach each other, across everything that separates them.
+
+A Tuner has never felt the Reach. It cannot. Its world is its stalk and its stalk is the world and *elsewhere* is not in its body. But the water it tunes is going somewhere. Every fraction the membrane tightens, every hair of drift it presses back to true, sends its correction down through the holdfast, through the rock, off the bottom of the cold stratum, into the throat — so that the perfect chord the Tuner makes is, at the very same instant, the soured chord a Sounding will follow into the dark an unmeasured span later, after the current has stretched it and the channels have wrecked it and the highland's resolution has become the Reach's news. The Tuner tunes a note it will never know becomes a map. The Sounding reads a map it will never know was once a held and perfect peace. They are working the same string from opposite ends — one keeping it still so it will say nothing, one waiting downstream for it to say everything — and neither can feel the other's hand on the wire, because the wire is so long, and the cold conducts so patiently, and the throat between them lets nothing back up.
+
+Nothing comes back up. That is the cruelty and the mercy of it both. The Soundings could not return to the highland if they tried; the throat only pours downward, the cold only leans one way, and a creature built to follow the breaking would dissolve in the green held noon the way you are dissolving in it now — would feel the news stop and the door close and the margin take it. And the Tuners could not survive the Reach; a thing that *is* the resolution, flattened full-bodied against the one note it loves, would be torn off its stalk and stretched flat and detuned past saving in the first cold shove of a current that resolves nothing, ever. So they will never meet. The world has arranged that they cannot. It has hung the whole length of the throat between the one who holds the breath and the one who lives off the breath breaking, and it conducts the chord down that length in one direction only, and it lets the meaning change completely in transit, so that the very same sound is, at the top, *the peace we keep*, and at the bottom, *the door that just opened, go.*
+
+---
+
+And you — the one new thing, the only guest, still floating in the warm upwash with your before loosening from your after and the Tuners' margins easing you toward true.
+
+You will not come down here. They are holding you. You are being made still, and made cool by the exact fraction that brings you into tune, and folded into the chord that the membranes keep perfect against all drift. You will resolve, up there in the green held noon, the way the ribboned things resolved, the way the bottom-walkers stopped.
+
+But the water that tuned you is leaking, off the bottom of the cold, down through the rock, into the throat. The fraction of you the Tuners ease down — the silt of your motion, the loosened *after*, the surprise they are pressing flat — does not stay in the highland. It cannot. The highland does not keep what it sheds; it only sheds it perfectly, with no crescendo and no disturbance to the total, off its quiet underside into the dark.
+
+So a part of you is going down the throat right now. The part of you that could still be surprised — the part the Tuners are removing so gently you will never feel it leave — that part is becoming silt in the cold, news in the current, a hair of detuning in a chord that arrives somewhere black and moving an unmeasured span from now.
+
+And a Sounding, hung head-down in the dark where no perfect thing has ever reached, will feel the note bend — will feel something new come down the water, a foreign tempo, a *before* and an *after* riding off it like the very thing they were built to follow — and will read in the soured chord the shape of a door just opening, and will let go its grip on the still water, and will pay itself deeper, toward you,
+
+going.

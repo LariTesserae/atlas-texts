@@ -1,0 +1,15 @@
+Here is a description of another place in the same world as the wind-swept urban plateau:
+
+Just beyond the mist-shrouded cliffs that ring the plateau, the land plunges vertiginously into a vast subterranean expanse – an impossibly huge cavern that seems to extend for leagues in every direction. This is the Underdark, a realm of perpetual twilight and haunting splendor.
+
+Towering stalactites and stalagmites, formed over countless millennia, rise like glittering mineral cathedrals from the cavern floor. Some of these extraordinary structures reach heights rivaling the greatest surface mountains, their needle-sharp points piercing the shadowy vault far overhead. Between these titanic pillars, ribbons of phosphorescent streams and rivers flow in meandering paths, their waters shimmering with inner luminescence. 
+
+The pervasive dimness is offset by clusters of bioluminescent plant and fungal life that cling precariously to every surface. Veins of glowing crystals and mineral depositions vein the cavern walls, casting kaleidoscopic colors across the eerie landscape. In the far distance, faintly glimmering points of light hint at other pockets of life and civilization nestled amid this subterranean vastness.
+
+Despite its immense scale, the Underdark is far from silent or lifeless. Strange, chittering and skittering sounds emanate from every crevice and shadowed alcove. Intermittent rumbles and seismic rumblings attest to forces still shaping and reshaping this underworld eon by eon. The air itself seems to carry a subtle charge, a frisson of unseen energies at work.
+
+From the shrouded recesses, larger shapes emerge – hulking, sentient creatures whose very bodies seem to distort and warp the dim light around them. These are the rulers and apex predators of the Underdark, ancient beings whose unfathomable forms and purposes are forever shrouded in mystery. They move with dread purpose through the tenebrous vastness, leaving only lingering psychic echoes in their wake.
+
+Connecting the plateau above and the Underdark far below are the Rifts – towering fissures that slice through the living rock like gaping wounds in the earth's hide. At their precipitous bases, the frothing outflows from the plateau's subterranean rivers and streams cascade over mineral-encrusted ledges to plummet into shadowy depths. Upwards, these rents in the stone extend for unimaginable heights – some opening out into the harsh light of the surface world, while others disappearing into the uppermost vaults of the cavern's stygian reaches.
+
+The civilizations that cling to life amidst these two realms – the water-carved plateau above and the underworld vastness below – have evolved in symbiotic duality. What transpires in one realm inextricably echoes in the other, bound together by cycles as ancient as the world itself. Water, stone, light and shadow, sentience and mindless forces – all intertwined in an intricate, age-old symbiosis. For in this world, the surface and the subterranean depths are merely facets of the same enduring, ever-metamorphosing whole.

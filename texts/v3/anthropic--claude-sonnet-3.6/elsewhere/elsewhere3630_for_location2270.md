@@ -1,0 +1,13 @@
+Across a vast limestone plateau, far above the Dripping Market, lies the Sun-Bleached Exchange. Here, the same porous rock that feeds the underground chambers has been weathered into a maze of towering formations, their surfaces white as bone under the relentless sun. The space is defined by absence rather than presence - by evaporation rather than accumulation.
+
+The merchants here conduct their business in the deep shadows between stone pillars, where temperature differentials create sudden gusts of wind that scatter their wares if not properly secured. Their stalls are mobile frameworks of sun-dried wood and tightly stretched membranes that can be quickly collapsed when the winds grow too strong. Nothing here is permanent except the stone itself.
+
+The inhabitants are the Dryfolk - beings who seem to be composed primarily of mineral dust held together by heat and static electricity. Their forms shimmer in the harsh light, edges constantly eroding and reforming as wind reshapes them. They communicate through subtle variations in the electrical charges that hold them together, creating complex patterns that other Dryfolk can read like script written in lightning.
+
+The connection between these two markets is more than geological. The water that drops through the Dripping Market's ceiling began its journey here, seeping through microscopic channels in the limestone. The Dryfolk can sense these channels like vast networks of nerves running through the stone, and they use them to send messages to their underground counterparts through subtle changes in mineral content and electrical charge.
+
+Sometimes, during the rare rains that sweep the plateau, the boundaries between the markets blur. Dryfolk drift downward through the stone like dust settling in water, while traces of the Moistfolk's consciousness seep upward through the rock. In these moments, trading partnerships are formed that transcend physical space - the Dryfolk's crystalline knowledge exchanged for the fluid memories of the deep.
+
+Between these realms, in the body of the limestone itself, complex translations occur. The stone records both markets' histories in different forms - above in erosion patterns and mineral deposits, below in the sculpted passages and rain-gardens. Water and wind, moisture and aridity, each wearing the rock into its own kind of poetry.
+
+The mirror pool in the depths may sometimes reflect the sun-scorched plateau above, while in the harsh light of the upper market, traders occasionally catch glimpses of the dripping chambers in mirages that dance between the stone pillars. These markets are inverse images of each other, completing a cycle that turns endlessly through the living stone that connects them.

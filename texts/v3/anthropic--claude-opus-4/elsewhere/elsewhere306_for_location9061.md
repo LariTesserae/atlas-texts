@@ -1,0 +1,91 @@
+**The Sunken Townships of the Thermal Line**
+
+Three kilometers above the Frost Gardens, following the ancient steps as they switch back through narrowing stone, you emerge into a different world entirely. Here, the earth's crust has buckled and folded into a vast system of connected chambers—not a single chasm but a honeycomb of hollows where geothermal vents breathe scalding steam into the perpetual dark.
+
+The settlements here sprawl through these interconnected caverns like a vast organism following the veins of heat. Where the Frost Shapers build with crystal precision, the people of the Thermal Line have learned to live with chaos. Their towns are accumulations rather than plans—structures of scavenged stone and beaten metal clustering around each heat source like barnacles on thermal vents.
+
+Water is everywhere here, but never still. It erupts from fissures as superheated geysers, condenses on the cooler stone ceiling, and rains down in a constant mineral-rich drizzle. The inhabitants have built elaborate systems of channels and catchments, turning every surface into part of their water collection network. Gutters carved from volcanic stone run along every walkway, feeding into cisterns that gurgle and overflow, creating a constant background music of flowing water.
+
+The architecture is defensive—not against enemies but against the earth itself. Buildings are reinforced with thick walls and sloped roofs to shed the constant rain of mineral deposits. Over time, structures become encrusted with flowstone, slowly buried under layers of precipitated rock. The oldest buildings are mere lumps in the cave floor, their shapes barely recognizable beneath centuries of accumulation. The people simply build atop them, creating strata of habitation.
+
+Light comes from cultivation, but of an entirely different kind than in the chasm below. The Thermal Line peoples farm bioluminescent fungi that thrive in the heat and humidity. These grow in riotous profusion—cascading from ceiling perches, carpeting walls, sprouting from every crack where spores can take hold. Unlike the ordered gardens below, these fungal farms are exercises in controlled wildness. The farmers encourage growth but cannot truly direct it; they can only create conditions and hope.
+
+The fungi come in dozens of varieties: puffballs that release glowing spore clouds when disturbed, shelf mushrooms that pulse with tidal rhythms, delicate networks of filaments that web across entire cavern walls like neural networks. Some species are edible, others poisonous, still others hallucinogenic. The people here have learned to read the subtle differences—a slightly redder luminescence, a different pattern of spots, a variation in the timing of the pulses.
+
+Their tools are crude but effective—iron hammers and chisels for working stone, ceramic vessels for collecting water, woven baskets waterproofed with fungal resins. They have mastered ceramics out of necessity, creating vessels that can withstand the thermal shock of geyser water. Their kilns use the natural heat differentials, channeling steam through cleverly designed chambers to achieve precise temperatures.
+
+The settlements connect through a network of passages both natural and artificial. Some tunnels are ancient lava tubes, smooth-walled and echoing. Others are rough-hewn mining shafts, following veins of useful minerals. Still others are accidental—places where the constant erosion of flowing water has broken through between chambers. The people maintain these connections with religious devotion, knowing that isolation in this environment means death.
+
+Trade flows constantly through these passages. Water merchants carry their precious cargo in sealed ceramic vessels, selling to settlements where the local sources have turned too mineral-rich to drink. Fungus farmers exchange spores and cultivation secrets. Metal workers trade tools and raw materials. But most importantly, they trade heat—communities further from the thermal vents pay dearly for access to hot springs and steam vents, while those blessed with too much geothermal activity trade for the cooler spaces needed for certain activities.
+
+**The Steam Shepherds**
+
+The people of the Thermal Line have evolved for a world of extremes. Their skin is thick and waxy, constantly secreting oils that protect against both scalding steam and mineral-heavy rain. They are shorter than the Frost Shapers, compact and muscular, built for scrambling through tight passages and working in cramped, hot conditions. Their hair grows in tight, water-repellent coils that shed moisture like a duck's feathers.
+
+Their eyes have adapted to pierce the constant mist and steam. They see clearly through fog that would blind surface dwellers, distinguishing shapes and movement through the haze. Their pupils contract to pinpoints in the presence of bright fungal blooms but dilate enormously in the darker passages. Many develop cataracts early from mineral deposits, but they've learned to coat their eyes with a protective film derived from certain fungi.
+
+They live at a frenetic pace compared to their neighbors below. The constant availability of water and heat means their metabolism runs hot and fast. They eat voraciously—fungi, mineral-rich plants that grow around the hot springs, and small blind creatures that swim in the thermal pools. They must eat often, their bodies burning through calories just to maintain temperature equilibrium in the fluctuating environment.
+
+Their clothing is minimal and practical—waterproof wrappings made from treated fungal leather, sealed at joints with resin. Status is shown through scarification, elaborate patterns of ritual burns that tell stories of ancestry and achievement. The most respected members of society bear maps on their skin—scarred routes through the tunnel systems, each line representing a passage discovered or maintained.
+
+Children grow quickly here, reaching adult size in just a dozen years. They learn by doing, following their parents through the steaming passages from the time they can walk. By five, most can identify safe fungi from toxic ones by bioluminescent pattern alone. By ten, they're contributing to the family trade. There is no formal education—knowledge passes through apprenticeship and demonstration.
+
+They worship the geysers as living entities, each with its own personality and demands. Geyser priests study the rhythms of eruption, learning to predict when each hot spring will blow. They conduct ceremonies during the eruptions, standing dangerously close to the scalding water, reading omens in the steam patterns. The priests claim the geysers speak to them, telling stories of the deep earth and what moves in the magma far below.
+
+Their language is percussive and tonal, designed to carry through the sound of falling water and hissing steam. They speak in sharp consonants and rising inflections, their voices naturally pitched to cut through ambient noise. Whispers are impossible here—all communication is declaration. They have no written language but maintain oral histories through rhythmic chants synchronized to the pulse of the fungal lights.
+
+**The Connection: The Neutral Zone**
+
+Between these two worlds lies a space that belongs to neither—a stretch of caverns where the temperature hovers at the exact point between freezing and scalding, where neither ice crystals nor fungi can properly grow. The Frost Shapers call it the Void Gardens; the Steam Shepherds know it as the Cold Halls. Both fear it.
+
+The transition is gradual but unmistakable. Ascending from the Frost Gardens, the ice-plants become smaller, more struggled, their crystalline forms showing stress fractures from temperature fluctuation. The phosphorescent light dims as the cave walls change composition. The careful terracing gives way to abandoned plots where experimental cultivations have failed, leaving behind only geometric scars in the stone.
+
+Descending from the Thermal Line, the fungi retreat from the cooling air, growing only in small patches around failing thermal vents. The constant drip of water slows, then stops. The ceramic channels run dry. The last settlements cluster around the final reliable heat sources, their inhabitants nervous and watchful.
+
+In the Neutral Zone itself, evidence of both civilizations appears like archaeological layers. Ancient fungal cultivation boxes stand empty, their wood long since rotted away, leaving only stone frames. Crystalline formations that might once have been ice-plants lie shattered on the ground, unable to maintain cohesion outside their perfect temperature range. Tools lie abandoned—copper pruning shears too primitive for the Thermal Line, iron hammers too crude for the Frost Gardens.
+
+But the zone is not empty. Traders from both civilizations meet here, in carefully negotiated spaces marked by carved pillars. The meetings are brief and formal, conducted in a pidgin language of gestures and simple sounds that both sides can produce. The Frost Shapers bring worked copper and mineral fibers, crystalline art objects that won't survive the heat above. The Steam Shepherds offer fungal medicines, ceramic vessels, and most preciously—stories of the sky.
+
+For the Steam Shepherds, unlike the Frost Shapers, maintain contact with the surface world. Their highest tunnels emerge in mountain caves where rain and snow enter the system. They know of the sun, though most have never seen it. They trade this knowledge carefully, understanding its value to the people who have spent millennia in the phosphorescent twilight below.
+
+Children from both civilizations sometimes run away to the Neutral Zone, drawn by curiosity about their unseen neighbors. Most return quickly, frightened by the alien environment. But a few stay, learning to survive in the margins. They become the translators, the go-betweens, developing a hybrid culture that belongs fully to neither world. They modify their bodies with both scarification and selective crystallization, wear garments of fungal leather decorated with mineral fiber, speak a creole that combines percussive Steam Shepherd consonants with the resonant tones of Frost Shaper meaning.
+
+These border dwellers are developing something new. They've learned to cultivate hardy organisms that survive in the temperature margins—neither ice-plant nor fungus but something between, or perhaps something entirely other. They're experimenting with controlled environments, using the waste heat from small forges to create micro-climates where they can grow both crystalline formations and bioluminescent organisms side by side.
+
+The established civilizations view these experiments with a mixture of fascination and horror. The hybrid cultivation seems wrong to both worldviews—a violation of the natural order that has allowed each to survive in their extreme environments. Yet trade through the Neutral Zone increases year by year, as both sides find resources they need and can't produce themselves.
+
+More disturbing to both civilizations: the border dwellers report finding evidence of previous attempts at settlement in the Neutral Zone. Deep in side passages that both civilizations avoid, they've discovered chambers filled with unsuccessful experiments—desiccated fungal gardens, shattered crystal formations, and sometimes bones. Not fossil bones, but recent remains, still clothed in unfamiliar fabrics, still clutching tools neither civilization recognizes.
+
+The border dwellers have a theory, spoken only in whispers even in their marginal society. They believe the Neutral Zone is not neutral at all, but actively hostile to life—that something in the temperature flux, in the specific mineral composition of these middle passages, breaks down the careful adaptations that allow survival above and below. They point to their own failing health, the way their hybrid cultivations eventually corrupt and die, the increasing number of stillborn children.
+
+Yet they stay, drawn by something more powerful than fear. In the deepest parts of the Neutral Zone, where even traders won't go, they've found chambers with walls of smooth obsidian that reflect no light, absorbing both fungal bioluminescence and crystal phosphorescence. In these dark mirrors, they claim to see visions—not of the past or future, but of other presents, other ways the deep earth might have been colonized, other forms life might have taken in the absence of sun.
+
+**The Deep Tremor**
+
+Both civilizations feel it, though they interpret it differently. In the Frost Gardens, it manifests as a resonance in the ice-plants, a subsonic vibration that sets the crystal fronds chiming in harmonics their cultivators have never heard. The eldest Frost Shapers, those partially transformed into living crystal, report sensations like thought but not their own—patterns of intention moving through the mineral substrate of their being.
+
+In the Thermal Line, the geysers have begun erupting in synchronization. Where once each hot spring followed its own rhythm, now they pulse together, building to massive coordinated eruptions that flood whole sections of the settlement system. The Steam Shepherds' priests claim the geysers are trying to speak in unison, to communicate some urgent message from the deep earth.
+
+The border dwellers in the Neutral Zone experience it most directly. In their obsidian chambers, the dark mirrors have begun to show not visions but maps—three-dimensional representations of the entire cave system, revealing connections neither civilization knew existed. More troubling, these maps show movement in the deepest levels, far below where either culture has explored. Something vast shifting in the fundamental structure of the earth.
+
+The tremor grows stronger. In the Frost Gardens, ancient crystalline formations begin to crack and reform, growing in patterns that follow no known cultivation technique. The ice-plants are not dying but transforming, their careful geometries giving way to wild fractals that seem to reach toward some invisible attractor deep below.
+
+In the Thermal Line, new vents open without warning, breathing gases that aren't steam—colorless vapors that cause the fungi to fruit frantically, carpeting entire chambers in spores before withering. The water chemistry changes, picking up minerals that turn the constant rain into a flow of liquid stone, slowly petrifying everything it touches.
+
+Both civilizations begin to evacuate their deepest settlements, moving toward the Neutral Zone they once feared. The border dwellers welcome them with grim satisfaction, having prepared for this convergence. They've expanded their hybrid cultivation chambers, creating spaces where both peoples can survive, if not thrive.
+
+But survival may not be the question. As the two populations mix for the first time in meaningful numbers, they discover that their adaptations are not as fixed as they believed. Frost Shapers exposed to higher temperatures don't die—they transform, their crystalline modifications melting and reforming into new configurations. Steam Shepherds in cooler environments find their metabolism slowing, their perception shifting to encompass the longer timescales of mineral growth.
+
+The children adapt fastest, developing capabilities neither parent culture possesses. Some can shift their metabolism at will, speeding up to Steam Shepherd rates or slowing to Frost Shaper contemplation as needed. Others show an affinity for the hybrid organisms, able to influence their growth through touch or proximity. A few claim to hear the deep tremor as language, though they cannot yet translate its meaning.
+
+The eldest of both civilizations, the crystal-rooted Frost Shapers and the scarred geyser priests, speak of prophecies—stories so old they predate the separation of the cultures. They tell of a time before the temperature divide, when the ancestors lived in a middle realm that was neither frozen nor boiling. They speak of a schism, not political but geological, that split their world and forced adaptation to extremes.
+
+Now, as the deep tremor intensifies and the careful boundaries between their worlds dissolve, both civilizations face a terrible possibility: that their millennia of adaptation have been not evolution but deviation, that the extremes they've embraced were never meant to be permanent homes but temporary refuges from a cataclysm that has finally run its course.
+
+In the obsidian chambers, the maps grow more detailed, showing not just the current cave system but its history—layers of time revealing how the passages formed, split, and reformed. At the deepest levels, something pulses with its own light, neither fungal bioluminescence nor crystal phosphorescence but something older, more fundamental.
+
+The border dwellers have a name for it, whispered in their hybrid tongue: the First Garden. They believe it's the origin point of both ice-plant and fungus, the source from which all their cultivations ultimately derive. As the tremor grows stronger and the migrations from both civilizations accelerate, they prepare for a pilgrimage nobody expects to survive—a journey to the deepest chambers, where the temperature is neither hot nor cold but something outside their understanding entirely.
+
+The two civilizations, so long separated by temperature and tradition, find themselves united by necessity and mystery. Their children play together in the Neutral Zone, teaching each other cultivation techniques that work only in these marginal spaces. Their eldest compare prophecies and find disturbing parallels. Their traders become diplomats, negotiating not just exchanges of goods but mergers of knowledge.
+
+And deep below, the tremor continues, patient and persistent, calling its scattered children home to a garden they've forgotten but never truly left—a place where the distinction between mineral and biological, between fast and slow, between ice and steam, reveals itself as illusion, as temporary adaptation to a broken world slowly healing itself whole.

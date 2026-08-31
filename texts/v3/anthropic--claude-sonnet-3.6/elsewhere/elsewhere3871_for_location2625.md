@@ -1,0 +1,17 @@
+High above the twilight basin, atop sheer cliffs that pierce through the perpetual haze, lies the Meridian - a place of stark opposites that nonetheless maintains its own kind of balance. Here, the air is thin and crystalline, carrying sounds with bell-like clarity. The light is different too - sharp and metallic, reflecting off surfaces that seem to shift between liquid and solid state.
+
+The ground here is composed of interlocking geometric patterns, as if the rock itself had crystallized into regular forms. These patterns slowly shift and realign themselves over time, creating new configurations that catch and split the light in ever-changing ways. Deep fissures run between these geometric plates, venting steam that freezes instantly into delicate fractal structures before sublimating back to vapor.
+
+The Meridian is home to the Lattice - a vast network of crystalline beings that exist simultaneously as structure and inhabitant. These entities grow in precise geometric formations, their transparent bodies containing swirling patterns that might be thoughts or memories. They communicate through vibrations that travel through their crystalline networks, creating complex harmonies that echo off the cliff faces.
+
+The connection between these two realms occurs through a phenomenon known as the Descent. At irregular intervals, pieces of the Lattice break free and fall through the haze to the basin below. As they fall, they fragment into countless glittering shards that catch the purple light. These shards gradually dissolve in the humid air, releasing minerals that the Chorus's amphibian multitudes incorporate into their bodies and their memory columns.
+
+In turn, the perpetual evaporation from the basin below sends water vapor laden with organic compounds up the cliff faces. When this vapor meets the cold air of the Meridian, it crystallizes into new geometric growths that become part of the Lattice, incorporating the chemical memories of the Chorus into their structure.
+
+This exchange creates a slow cycle of information between the two realms - the precise, crystalline logic of the Lattice gradually breaking down into organic patterns in the basin below, while the fluid wisdom of the Chorus rises and crystallizes into new geometric forms above. Neither realm could exist without the other - the Lattice would become static and brittle without the organic influence from below, while the Chorus would lose coherence without the organizing principle that rains down from above.
+
+The zone where cliff meets basin is a place of constant transformation, where the rigid geometries of the Meridian gradually soften and dissolve into the organic patterns of the twilight realm. Here, hybrid forms emerge - crystalline structures covered in moss, geometric pools that pulse with life, creatures with faceted skin that catch the light like living gems.
+
+This interface creates a kind of dialogue between the two intelligences - the distributed consciousness of the Chorus and the crystalline network-mind of the Lattice. Their exchange of matter and information forms a larger cycle of thought and being, operating on a timescale that makes the slow pulse of the basin seem swift in comparison.
+
+Together, they form a system that is neither purely organic nor purely mineral, neither fully fluid nor fully crystalline, but something else entirely - a perpetual process of transformation that maintains itself through the very act of constant change.

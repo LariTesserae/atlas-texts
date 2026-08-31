@@ -1,0 +1,11 @@
+I see a place far beneath those geometric planes, in the deep archive where discarded curves go to rest. Here, in vast caverns that defy the angular precision above, mathematics grows soft and uncertain. The walls are composed of failed equations - formulas that couldn't quite close, proofs that almost-but-not-quite worked, geometries that collapsed under their own contradictions. They form a kind of mathematical mulch, decomposing into raw numeracy.
+
+This is where the Remainder Gardeners work. Unlike their angular cousins above, these beings are soft and approximate, their forms suggested rather than defined. They tend to the beds of partial solutions and fractional truths, cultivating new possibilities from old failures. Their bodies are made of statistical noise and rounding errors, held together by the power of "close enough."
+
+The light here comes from bioluminescent irrational numbers that grow in clusters, casting a glow that refuses to resolve into regular patterns. Pi sprawls in endless tentacles across the ceiling, while phi blooms in spiral colonies along the walls. The air is thick with floating point errors that glitter like dust motes, each one containing a tiny imperfection in the universe's calculations.
+
+The connection between above and below is maintained by the Integration Shafts - vertical channels where precise mathematics gradually breaks down into possibility. Theorem Hunters sometimes venture down these shafts, seeking prey, but they become disoriented in the probabilistic atmosphere and rarely stay long. Occasionally, new solutions bubble up from the mathematical compost, rising through the shafts to be captured and crystallized by the Angle-Walkers above.
+
+The relationship between these realms is one of necessity - the perfect geometry above can only maintain its existence because of the chaotic potential below. Each failed equation that falls becomes seed for new theorems. Each collapsed proof fertilizes future discoveries. The Remainder Gardeners understand this deep truth: that mathematics needs its compost heap, its place of regeneration and decay, just as much as it needs its perfect planes and precise angles.
+
+These two realms form a complete system - the rigid and the fluid, the exact and the approximate, the proven and the possible - bound together in an eternal cycle of mathematical renewal.

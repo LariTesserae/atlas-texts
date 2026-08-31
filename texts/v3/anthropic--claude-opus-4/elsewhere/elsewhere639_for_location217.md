@@ -1,0 +1,39 @@
+The Archive of All Things Lost
+
+Above the chamber, through three miles of solid stone that occasionally forgets its density, another cavity holds the world's memory. This space exists in strict definition—walls of polished obsidian that reflect only what was, floors of white marble that remember every footfall ever taken, ceilings vaulted in perfect mathematical curves that have never questioned their geometry.
+
+The Archive spans exactly one hundred paces in each direction, measured by the stride of the first Keeper who established its dimensions ten thousand approaches ago. The air here tastes of dust and finality, carrying the scent of closed books and ended conversations. Light comes from lanterns that burn oil rendered from the last moments of extinct species—a steady, melancholy glow that casts shadows so precise they could be used as blueprints.
+
+Every surface holds shelves, and every shelf holds what no longer exists anywhere else. Here are the complete songs the Unfinished abandon below—each note crystallized at the moment of its forsaking, stored in bottles that hum with interrupted melodies. The abandoned architectural plans exist here too, but fully realized: miniature buildings of impossible beauty, constructed from crystallized intention, showing what might have been if their designers had chosen completion over perpetual revision.
+
+The Archive's cataloging system operates on principles of irrevocable loss. The final words of dead languages float in glass spheres, alphabetized by the silence that followed them. Pressed flowers from extinct gardens lie between pages of books that document their vanished ecosystems in exhaustive detail. Love letters that were burned before sending exist here in perfect reproduction, sorted by the intensity of regret that followed their destruction.
+
+In the center stands the Throne of Ended Reigns, carved from wood of the last tree of a forest that once covered continents. Upon it sits—or rather, doesn't sit—the absence of every monarch who abdicated, their non-presence so heavy it bends the light around it. The throne serves as the Archive's anchor, proof that even power can be catalogued once it's relinquished.
+
+The Keepers move through these halls with purpose that would horrify the Unfinished. They wear robes of deepest black, cut from fabric woven from the last breaths of dying stars. Their faces never change—not because they're masked, but because they've achieved a terrible constancy, features locked in expressions of neutral preservation. They speak only when necessary, and then in languages that have been dead so long they've become perfectly stable, immune to evolution or interpretation.
+
+Each Keeper tends specific collections. The Keeper of Last Moments preserves the final seconds of everything that ends—civilizations compressed into snow globes, last heartbeats pressed like flowers, final thoughts crystallized into amber droplets. The Keeper of Forgotten Names maintains an endless ledger of everyone who died unmourned, their identities preserved in ink that can never fade because it's made from the shadow of memory itself.
+
+They use tools of absolute precision: scales that measure the weight of absence, calipers that determine the exact dimensions of what's been lost, preservative compounds distilled from the essence of permanence. Their work requires them to venture into the world above, following the scent of endings like archaeologists of the present moment, arriving just as things cease to be.
+
+The Archive grows constantly but never fills. Space here obeys different rules—conservation of conclusion, perhaps. For every new acquisition, the existing collection compresses, not in size but in significance. The oldest losses become foundational, supporting the weight of newer endings, creating geological layers of lost things.
+
+In the restricted sections, secured behind doors made from the bones of the last dragons, lie the most dangerous losses. Wars that ended without resolution, their unfinished violence still churning in containment vessels. Love that died before confession, so concentrated it could shatter hearts if released. The lost possibilities of stillborn universes, each one a path reality chose not to take, humming with alternate physics.
+
+The Keepers reproduce through a process of perfect replacement. When one reaches the end of their service—marked not by death but by a gradual crystallization that begins at the extremities and works inward—they choose their successor from among the scholars who come to study endings. The chosen one undergoes the Ritual of Cessation, forgetting their name, their origin, everything but their purpose. They emerge as a Keeper, identical in dedication to all who came before.
+
+Their only celebration is the Commemoration of the Complete, held when something truly ends with no remainder, no echo, no possibility of return. These are rare—even death usually leaves ghosts of some kind. But when true termination occurs, the Keepers gather in silent acknowledgment, adding the perfectly ended thing to their collection with something approaching reverence.
+
+The Archive connects to the chamber below through veins of paradox—passages that exist because they shouldn't, threading through stone that simultaneously is and isn't there. Sometimes a Keeper descends to collect what the Unfinished have abandoned. Sometimes an Unfinished ascends to see what their incompletions become when completed by absence. These meetings are cordial but uncomfortable, each side recognizing in the other what they've chosen not to be.
+
+The Keepers know of the Unfinished's Annual Forgetting and mark it in their calendars of concluded events. They send no representatives, but they prepare spaces on their shelves for what will be forgotten, knowing that forgetting is just another form of ending. In return, the Unfinished sometimes gift them with things they've decided definitely won't be—unbeings and neverweres that slot perfectly into the Archive's taxonomy of absence.
+
+Down below, probability flows like water. Up here, certainty stands like stone. The chamber breathes with potential; the Archive holds its breath forever. The Unfinished begin everything and complete nothing; the Keepers complete nothing because everything is already complete in its ending. They are opposite sides of the same impossible coin, spinning through solid rock, connecting the is-not-yet with the is-no-more.
+
+The Archive whispers constantly with the voices of lost things telling their stories to no one. The lanterns burn steadily, their extinct-species oil infinite because the species are infinitely gone. The Keepers move through their collections with measured steps, adding to the catalogue of cessation, maintaining the museum of the irrevocable, ensuring that nothing lost is ever lost to being lost.
+
+This is how the world maintains its balance: for every uncertainty below, a certainty above. For every potential unmanifest, an actuality concluded. The Unfinished and their chamber of becoming depend on the Archive and its finalities, just as the Archive requires the chamber's abandonments to fill its shelves. Neither could exist without the other, though they are opposites in every way that matters.
+
+Between them flows the secret circulation of the incomplete and the completed, the not-yet and the no-more, creating a breath that keeps both spaces alive in their different deaths and deaths in their different lives. The stone between them knows this, holds this, is this—solid and permeable, certain and doubtful, the medium through which impossibility and finality exchange their necessary whispers.
+
+In this way, the world continues: always ending, never finished.

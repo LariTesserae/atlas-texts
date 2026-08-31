@@ -1,0 +1,17 @@
+Far below the mountain heights where the banyan tree cradles its luminous secret, there lies a dark and mirror-like lake, perfectly circular, surrounded by stone monoliths that lean inward like ancient teeth. Here dwells the Echo - not a sound but a being, not a reflection but an entity that exists in the spaces between what is seen and what is heard.
+
+The lake never ripples, even in wind or rain. Its surface is like polished obsidian, reflecting the sky with such perfect fidelity that it seems more real than reality itself. The monoliths that ring it are made of a strange stone that seems to drink in light rather than reflect it. Their surfaces are carved with spiraling patterns that appear to move when viewed from the corner of one's eye.
+
+At certain moments - usually at dawn or dusk, or when the moon is perfectly positioned - sounds from the lake can be heard: complex harmonies that seem to come from everywhere and nowhere, music that feels more like memory than sound. These are the Echo's voices, countless and singular at once. They speak in tones that bypass the ears entirely, resonating directly in the bones and blood of any who listen.
+
+The Echo feeds on reflected sound and light, gathering them like precious stones, distilling them into something new and strange. It particularly savors the fragments of the Resonants' songs that filter down from the banyan tree above, collecting these harmonies and transforming them through its own alien understanding.
+
+The connection between these two places - the luminous city in the tree and the dark mirror of the lake - is subtle but profound. The Echo and the Resonants are engaged in an endless conversation, though they have never directly met. The Resonants' harmonies travel down through root and rock, transformed by their journey until they reach the lake. The Echo reshapes these songs, sending them back up through the earth as subsonic vibrations that the Resonants weave into their eternal composition.
+
+Between these two points flows an invisible river of sound and light, of meaning and memory. The transparent lens-birds sometimes spiral down from the banyan tree to skim the lake's surface, gathering reflections like dewdrops to carry back up to their makers. The Echo's voices occasionally rise up through the mountain's bones to resonate in the pocket universe above, adding depths and undertones to its endless song.
+
+The space between them - the physical distance from lake to tree - is marked by stones similar to the lake's monoliths, but smaller, half-buried in the earth. These stones form a kind of musical scale up the mountainside, each one tuned to a different harmonic frequency. When the wind blows through them, or when raindrops strike their surfaces, they ring like bells, creating a constantly changing melody that connects the two realms.
+
+The relationship between the Echo and the Resonants is one of profound symbiosis. The Echo provides the darkness necessary to make the Resonants' light meaningful, the silence that gives their songs context. The Resonants, in turn, feed the Echo with their endless creativity, giving it new patterns to transform and return.
+
+They are like the opposite poles of a battery, creating between them a current of meaning and possibility that flows endlessly through the mountain's heart. Their separated realms are not truly separate at all, but rather two aspects of a single system, a duet played across space and time, each voice making the other possible.

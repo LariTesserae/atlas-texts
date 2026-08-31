@@ -1,0 +1,129 @@
+# The Slakes
+
+You come to it overland, the last hundred miles on the Root Road itself — walking the broad back of a single surface root that runs ridge-high across the dry country, wide enough for two carts to pass, its bark worn to a polished path by generations of feet. Twice a day, if you are on it long enough, you feel the swallow go by beneath you: a slow bulge in the living wood, hip-high, traveling inland at the pace of a barge, and the road-walkers step to the rail-galls and let it pass under them without comment. That bulge is pressure. That pressure, a season from now and half a world away, will turn a loom in a cavern the color of old paper. You are walking on the current. Everyone on the Road is.
+
+Then the Road crests the last ridge and drops, and you hear the Slakes before you see it, which is the first inversion, because the Understory greeted you with silence and let you find it. The Slakes announces itself from ten miles out — a low continuous mutter of drums and voices and water and gulls — and the smell arrives with it, and the smell is the opposite of a violin: bread, rain, smoke, cut reeds, and under everything the deep sweet-sour of fermentation, the smell of the inside of a cider press. It does not change for the entire descent to the shore.
+
+Everything here is wet. That is the founding fact of the place, the thing everything else has been arranged around.
+
+---
+
+## The Mouths
+
+The lake fills a drowned valley, shallow and enormous, and the people call it the Sweet, for reasons that turn out to be a job description rather than a boast. Out of the hills around it, from every direction, the great drinking roots come down — fourteen of them, each one a ridge in its own right, each one named like a person — and run out across the shallows on grown trestle-knees before plunging, at last, under the surface.
+
+Where each root goes under, the lake dimples.
+
+This is the sight the Slakes is known for, the thing travelers stand on the shore road and fail to describe in letters home: fourteen standing depressions in the surface of the water, some of them fifty feet across, each one a smooth glassy funnel ringed with slow foam, where the water is being drawn down — steadily, hugely, without violence — into the mouths of the host. The pull is visible for a quarter mile around each one, a grain in the water, every floating thing on the Sweet leaning gently toward the nearest mouth the way everything in the Understory leans, over decades, toward the light.
+
+The drinking comes in pulses. Watch a mouth long enough and you will see it draw hard, the dimple deepening, the foam-ring tightening — and then ease, the funnel relaxing, the lake breathing back. That hard draw is the swallow being born. Follow it with your eye and you can track it leaving: a bulge rising in the root where it comes ashore, then traveling — up the trestle-knees, up the hillside, over the ridge, inland, gone — a mouthful of the Sweet on its long peristaltic journey toward engine-trunks and pressure-taps and the dry patient city at the far end of the thirst. The people of the Slakes wave at the swallows sometimes, half joking. *Give them our regards,* the saying goes, and nobody says who *them* is, because everybody knows.
+
+At night the mouths glow. A faint green luminescence lives in the agitated water of the foam-rings, and the fourteen dimples become fourteen pale circles on the black lake, the host's lamps at this end being the water's own. Children are raised to find the sight comforting. Most travelers eventually do too, though it takes a while to get past what the circles undeniably resemble, which is a creature at a bowl, drinking in the dark.
+
+---
+
+## What Stands Here Is Not the City
+
+There is architecture at the Slakes, plenty of it — stilt-quarters walking out over the shallows on forests of pilings, floating market-rafts lashed gunwale to gunwale, boathouses, smoke-sheds, brew-halls loud as weather — but the people will tell you, cheerfully, that none of it is the city, because none of it will exist in forty years, and they mean this as praise.
+
+Nothing keeps here. That is the second founding fact, the wet answer to the dry one. The air that seasons the Understory rots the Slakes; green wood blackens in a decade, thatch in three seasons, rope in one. So the people have made a covenant with impermanence instead of against it. They build fast, in green wood and reed and hide, and they build *well* — a Slakes raising-crew can floor a hall in a week, and takes fierce pride in the work — and then, when a quarter has stood its span and gone soft, they empty it, tow it out onto the Sweet, and burn it.
+
+The burnings are the great festivals of the year. Whole districts go out onto the water in flame, and the town lines the shore drumming and singing, and the fire stands upside-down in the lake, doubled, and the ash feeds the shallows, and by the next moon the raising-crews have the new quarter half framed on the old pilings. Fire, here, is a civic instrument, wielded on a body of water by people soaked to the knees, about as dangerous as a broom. Understory traders present at a burning are treated with elaborate kindness. Some stand at the extreme edge of the crowd with their backs to it. Some watch, and are quiet on the Road for days afterward, and come again the next year without ever saying why.
+
+But the pilings — the pilings are the exception, and the exception is the trade.
+
+Every quarter of the Slakes stands on legs of Understory heartwood: seasoned, cured, dense as ceramic, wood that the wet cannot argue with. It comes down the Root Road in caravans, beam by beam, along with grown gearing, lamp-housings, bolts of the pale cavern cloth — and back up the Road, sealed in wax against the dryness that would receive it, goes everything the buried city cannot make: copper leaf for the pressure-taps, salt, pigment, hide, hard bread and wax-dipped cheese and fish flour, because the Understory, for all its industry, grows almost nothing a person can eat, and has been fed from this shore for as long as either town has records. The caravans spend their last week inbound to the Understory crossing country called the Wringing, where the Road climbs into the dry, and travelers and cargo alike are seasoned on the move, arriving at the bore-heads with their coats stiff and their letters crackling. The Slakes people say you can tell a road-walker by the hands: pruned soft at one end of the journey, polished smooth at the other, back and forth for a working lifetime, hands that belong to both cities and are entirely at home in neither.
+
+So it stands, the arrangement, older than anyone's records of it: the Slakes keeps the Understory fed and shod in copper, and the Understory keeps the Slakes *up* — the only permanent bones in a town of glad rot are the bones the dry city grew. Each end of the root holds the other out of its particular ruin.
+
+---
+
+## The Works
+
+The industry of the Slakes runs on the same engine as the industry of the Understory, tapped at the opposite end.
+
+Moored in rings around the mouths sit the pull-mills: heavy raft-works anchored just outside the foam-lines, their undershot wheels hung down into the intake current, turned day and night by the host's own drinking. The pull never stops, so the mills never stop — grindstones, retting-hammers, rope-walks, churns — and a Slakes miller will tell you, with the particular satisfaction of a person stating their town's one great fact, that the very same swallow now spinning her wheel will, come autumn, press a beam in a workshop she will never see. Two cities run on one appetite. She takes it at the intake; they take it at the vessel. Nobody pays for the power at either end, and both towns have thought carefully about what that means, and have arrived, over generations, at the same conclusion, which is: *keep the water sweet.*
+
+Because that is the deep industry of the Slakes, under the milling and the brewing and the boat-wrighting: the town is a filter that knows it is a filter. Everything the Sweet carries, the host drinks. Everything the host drinks becomes, in time and at distance, the city — the wood, the resin, the pale towers, the lignin setting in some district a season's walk away. The bandagers of the Understory keep records generations deep, and the records say plainly what both towns treat as scripture: a foul year on the Sweet is a thin year in the wood. A tannery sited too close to a mouth, ninety years ago, is still legible — the road-walkers will tell you exactly where — in a warped quarter of the far city, in doorways that came in wrong for a generation. The tick-readers heard it happening and could do nothing but report it. The Slakes heard the report, two caravans later, and moved the tanneries, and holds the shame of it still, lightly, the way they hold everything, but permanently, which for them is unusual.
+
+So the rot-crafts — and the Slakes is a civilization of controlled rot, of retting and steeping and pickling and brewing, decay aimed like a tool — are all conducted in walled steep-yards on the outflow streams, downhill of nothing, feeding nothing to the lake. The mouth-waters themselves are kept clean enough to drink, and are drunk, ceremonially, by every child at naming: a cup dipped from inside the foam-ring, the same water going down two throats, one small and one vast.
+
+---
+
+## The People
+
+Begin with their hands, because that is where the water begins on them.
+
+Everyone here has waterman's hands by their tenth year — pruned pale at the fingertips more hours than not, rope-scarred, eel-nicked, strong in the closing way that Understory hands are strong in the reading way. They grip. That is the greeting: a full wet clasp, hard, held a beat too long by inland standards, because here it is *surfaces* that get the light respectful touch — a hull, a piling, a mill-wheel bearing — and people who get taken hold of. A road-walker switches greetings at the Wringing the way other people change coats.
+
+They are loud, and it is not rudeness; it is physics that raised them. Sound skips off water and lives a long time here, so a voice must be big to be a voice at all, and theirs are — pitched to carry across a quarter mile of chop, trained into the calls and antiphons that run the mills and the fishing fleets. They sing constantly, working songs with parts, and the whole lake at evening is a loose ongoing chord. And yet they knock. That is the kinship showing through: the same knuckle-code that runs through the walls of the buried city runs here too, rapped on the pilings, on the roots, on the gunwales of boats — drifted into its own dialect over the generations, fast and slack-wristed where the Understory's is measured, so that road-walkers are bilingual in knock and each town teases them for the accent. On still nights, people at the Slakes rap messages on the drinking roots themselves, down where the great trunks come ashore. Over the full distance the wood damps everything to nothing, and everyone knows it. There is a story, told identically at both ends of the Road, about the hard winter when a message knocked at the Slakes was heard, faint and impossible, by a tick-reader in the far city. Each town insists the other started the story. Neither town will let it die.
+
+Their humor is the mirror of the dry town's, and road-walkers collect the pair like matched cups. In the Understory, everything funny is fast. At the Slakes, everything funny is *permanent*. A man who repairs a shed instead of letting it go to the burning will be asked, for a season, whether he plans to be buried in it. The blackest thing they say, said grinning, to anyone too stiff, too careful, too attached: *careful, you'll keep.*
+
+---
+
+## What They Do
+
+**The mouth-wards** are the closest thing to a priesthood, and they would spit over the side to hear it said. They are divers. Each of the fourteen mouths has its warded family, and the work is this: to go down inside the foam-ring on a tether, into the pull, and tend the intake — clearing weed and wrack from the great baleen-fringes of the root-mouth, checking the eel-stock, and *listening*. A mouth-ward hanging in the draw with her ears full of lake can read the host's thirst by the timbre of the current: a swallow coming, a swallow malformed, a mouth drinking thin. They are the wet tick-readers, and like the tick-readers they are brusque about the skill and compare it, when pressed, to knowing your own kitchen in the dark. The tether-craft is absolute and is taught with absolute unsentimentality, because the pull is the town's one predator, and unlike the shape that crosses the light-columns inland, it can be measured, timed, and survived by anyone who respects the slack between swallows. Almost everyone does.
+
+**The eel-keepers** husband the screw-eels: thick, glossy, oxblood-dark animals as long as a person, that live in the intake fringes and keep them clean with the same unhurried certainty the splice-beetles bring to a graft. They were not introduced. They were *found*, in the mouths, already doing this — and when road-walkers carried the first descriptions inland, the beetle-followers of the Understory are said to have nodded as if hearing news of cousins, which, in whatever way matters, it was. The keepers name their eels and dispute their characters and fall asleep on the mill-rafts to the sound of the foam-rings, which hum, very low, felt in the sternum, when a mouth is drinking well.
+
+**The rafters and raising-crews** build the impermanent town and burn it, and are celebrated the way the bandagers are celebrated inland, for the perfectly opposite virtue: the bandagers' masterpiece takes fifty years to exist, the rafters' takes a week and is designed to stop existing on schedule, and both crafts, told about each other, make the same face — awe, arranged as pity.
+
+**The road-walkers** bind the whole arrangement together, months out and months back, riding the swallows' road with the caravans, carrying beams down and copper up and letters both ways and gossip in quantities that make the bat-masters of the far city, by long tradition, their sworn rivals and closest correspondents. And once a generation the road-walkers carry the Return: a single cured beam, chosen from a seasoned tower by the far city's elders, borne down the Road on rollers and shoulders, and set as the new king-piling at the heart of the Slakes. The whole town turns out. The elders lay their grained old hands on the wood before it goes down into the lakebed, and what they say over it, every generation, is the same three words, and the words are: *somebody's water home.* The caravan that brings the Return carries the exchanged youth both ways — the Slakes children who cannot bear the noise and the rot and go up-Road to season, the Understory children, well-walker stock mostly, who came back down their light-trunks one time too many smelling of sky and could not stop weeping for it, and go down-Road to live under weather. Both towns call these children by the same word, which translates as *the ones the Road claimed*, and both towns treat them tenderly, as proof.
+
+---
+
+## The Children
+
+Children here swim before they walk; the shallows are the commons of childhood, and small loud bodies are always in the water, in exact inverse of the silent dry-floor children flying across the far city's empty quarters — these ones shrieking, splashing, audible for a mile, the lake's permission.
+
+They are taught the pull before they are taught their names, or rather the pull *is* the first name: the warning-words come first here too, and they are *pull* and *deep* and *slack*, and a toddler who points at a foam-ring and says *pull* solemnly is being a good citizen and is praised for it. They learn the knock-code on the pilings. They play the game every adult forbids and every adult played: tethered floating at the edge of a mouth's draw, feeling the drink begin under them, kicking out in the slack — a game called, with the town's whole character in two words, *tasting it*.
+
+And they adopt the swallows. A child will pick one — watch it born in a hard draw at a named mouth, watch the bulge go ashore and up the ridge — and claim it, and follow it in imagination for the season it takes to arrive: *mine is in the hills now; mine is at the Wringing; mine is under the city, turning something.* The far city's children adopt nub-towers and learn they will not see the end of what they love. The Slakes children adopt swallows and learn the reciprocal lesson, the wet half of the same catechism: that what leaves you is not lost, only *arriving elsewhere*, and that this is not sad, or is sad in a way you are expected to carry lightly, like everything else here, on account of the water.
+
+---
+
+## The Old, and the Dead
+
+Nothing keeps at the Slakes, so the old are the only architecture. In a town that burns its quarters on schedule, continuity has nowhere to live but in people, and the elders are consulted the way the far city consults its walls: they remember where everything stood, every raising and burning back sixty years, which pilings are whose generation's Return, where the tannery was and why it moved. A Slakes elder walking the new-built lanes is reading a city no one else can see, four or five towns deep, all of them on the same lake, all of them ash. The people find this beautiful and say so, and have their own forty words — not for the grain of an old face, but for the kinds of remembering an old voice can do.
+
+The dead go to the mouths.
+
+It is called the giving, and it is done in the slack between swallows: the body wrapped in green leaf and new fiber — everything about it deliberately unkept, unseasoned, soluble — and taken by boat inside the foam-ring of the family's mouth, and given to the pull. The drum-line on the shore plays the going-up rhythm, which is the same knuckle-pattern, every road-walker will tell you, as the far city's procession-knock, *one of us, going up*, drifted into lake time. And the understanding, held by every soul on the Sweet with perfect unmorbid calm, is this: the dead travel. Up the root, into the host, inland with the swallows, and out — over years, over decades — into the wood. Into lignin setting in some new district; into a tower a Slakes child has never seen and a far-city child has claimed and talks to and measures against her body; into, eventually, a beam, which may, generations on, come back down the Road as a Return and stand again in the lakebed it left.
+
+So the two towns keep each other's ancestors, and know it. The Understory breathes its dead, faintly, companionably, in the violin air of the seasoning galleries. The Slakes *builds* with theirs — or rather is built of them at one remove, its permanent bones cut from the city its grandmothers went to be. A person at the Slakes laying a hand flat on the king-piling, and a person in the far city trailing a palm along a tower wall, are doing the same thing, and both towns have a word for the gesture, and the road-walkers report that it is the same word.
+
+Those the pull takes early — a fouled tether, a mistimed slack, once in a rare year a swimmer — are mourned hard and briefly, and then spoken of forever after in the town's own tense: not lost. *Gone up early.* Ahead of us on the Road.
+
+---
+
+## The Stock, Closer Up
+
+**The screw-eels**, seen near, have the beauty of all serious tools: french-polish dark, certain, incapable of doubt, each one doing the single thing it is for in the fringes of a mouth. The keepers say you can calm yourself watching one work the intake, and visitors who try it agree, and the more traveled visitors get a strange look partway through, recognizing the feeling from a beetle-scaffold half a world away.
+
+**The dimple-gulls** ride the foam-rings all day, fishing the intake edge, hanging on the pull the way their inland cousins hang on nothing at all, and they carry things — the Slakes post is avian and casual, a letter held up at a shore-post will go, eventually, somewhere. The loft-bats of the far city forage a canopy these gulls have never seen, and yet twice a year, at the turning seasons, a few bats appear at the Slakes, pale and impossible, five hundred dry miles from any roost anyone can account for, and rest a night on the gull-posts, and go. The bat-masters inland deny sending them. The Slakes has stopped asking, and simply leaves fruit out.
+
+**The silt-swine** work the lakebed shallows, slate-colored, low, mild-eyed, rasping the bottom clean around the mouths, and they are placid municipal animals right up to the far shore, the shallow end nobody nets, where the newest mouths are forming — where the host, still growing at this end too, is drilling new drinkers down through the lakebed, blunt young root-tips that dimple the water only faintly, mouths still learning to swallow. The divers who have gone out there, and there are not many, report that at the new mouths the silt-swine do not feed. They stand on the bottom among the young intakes, in the green-lit murk, in arrangements — circles, lines, spaced intervals — that look less like grazing than like *attendance*. The mouth-wards' working theory, held loosely, the way they hold everything, is the same theory the grazer-watch holds in the dark cavities inland, arrived at separately, comparing notes only when a road-walker carries the question back and forth: the animals are not cleaning the host's places. They are part of how the host decides. What the silt tells them, and what they tell the young mouths they stand among, is not the wards' business, and the wards like it that way, and swim on.
+
+---
+
+## The Other Inhabitant
+
+The people of the Slakes will not call the being a god, and will not call it a river, and become quietly slippery when visitors press for the right word, because they suspect — correctly — that their language has a word and other languages don't.
+
+Their word translates poorly as *guest*.
+
+They use it without fear and without irony: the guest at the table, the one who is drunk from your well and owed your best water, the one whose presence is an honor that is also, permanently, a duty. And here is the thing the road-walkers, who are the philologists of the Root Road because they are the only people who need to be, will tell you over a shared gourd at a Wringing waystation, producing it the way other people produce a rare coin: the far city's word, the one that translates as *host*, and the Slakes' word, the one that translates as *guest*, are the same word. One word, in the old tongue the two towns spoke when they were one town — before some followed the roots inland into the cavities and some stayed at the water to keep it sweet — a single ancient word meaning, simply, *the one at the table*. Which end of the table was never in the word. The word did not think the difference mattered. The road-walkers, who eat at both ends, tend to agree with the word.
+
+What can be said of the being, at this end: it is known here as appetite, only and entirely. The Slakes never sees it build, never sees a light-trunk descend or a doorway widen in forgiveness; here it neither speaks nor constructs — it *drinks*, hugely, gently, in pulses, forever, and everything the town knows of its mind arrives secondhand, by caravan, two seasons stale: the bandagers' records, the tick-readers' reports, the news that the water of such-and-such a year came through sweet and the wood came in strong. The Slakes keeps a folk-post about this. People whisper to the water inside the foam-rings — greetings, apologies, names of the new dead, small news — sending words up the root, on the theory, unverifiable and universal, that what the host drinks the host in some fashion has. The tick-readers inland, asked about it, are brusque, and then, pressed, allow that once in a great while the ticking carries something they have no dry word for. They decline to say more. Both towns find the declining correct.
+
+The Slakes returns the guest's appetite the only way a table can: the fires kept off the water, the steep-yards walled, the mouths tended, the Sweet kept sweet not for themselves — they could drink worse — but for the wood it will be, and the strangers living inside the wood it will be, at the far end of a swallow, whom most of them will never meet and all of them, in the town's tense, will eventually *join*. Whether this is worship, or husbandry, or simply the manners of a long marriage conducted by post, they decline to say. They will say only the thing every child knows, the thing knocked in worn code into every king-piling the Road has ever carried down, the closest the Slakes has to a creed:
+
+*The water becomes the walls. Send it sweet.*
+
+And underneath everything — under the drums and the mill-wheels and the gull-noise and the loud bright children tasting the pull — the drinking goes on, pulse and slack, swallow after swallow climbing the ridge and gone, the guest's one continuous utterance. The people fall asleep on the rafts inside it every night of their lives. Most of them, asked what the mouths sound like, will give you the same word.
+
+It sounds, they say, like *asking*.
+
+Which is, the road-walkers point out — the only people positioned to point it out, having slept at both ends of the one long body — exactly half of a conversation. At one end of the root, a city that sounds like asking. At the other, a city that sounds like listening. And everything strung out on the Road between them, the beams and the copper and the letters, the swapped children, the whispered water, the dead going up and the Returns coming down — all of it, they say, is just what's being said.

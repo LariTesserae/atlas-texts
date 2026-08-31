@@ -1,0 +1,43 @@
+I notice this is a complete, polished two-part piece already — *The Condensary* and its answering revelation, *The Listeners in the Brine*. Both halves are written. The instruction at the top asks for the *next* place: somewhere else in this same world, reached by following what runs out of the one I've been given.
+
+So I'll follow the water. It comes up off the lowlands, fat with moisture, and surrenders itself on the plateau. Then it runs back down — into the rock, the crews said, before they can catch it. That downward water has somewhere to go.
+
+---
+
+# The Drowned Stair
+
+Follow the water down and it does not pool. It threads. The plateau's underside is not solid; the basalt is shot through with old gas-tubes, lava-veins emptied and cooled into pipe, and the brine that escapes the harvest finds these and goes into them, and the going-down has a shape. It descends in stages. It steps. There is a place, a long way under and a long way south of where the salt-corals fight their slow war, where the water arrives as a staircase — a flight of basins cut by nothing but its own habit, each one filling and tipping into the next, down and down into a dark that the plateau's enormous light has never once entered.
+
+This is the opposite world, and it is worth saying plainly because the place above was so much about brightness: here there is no light at all. None. Not dim, not failing — absent. You could spend a life here and your eyes would mean nothing. And so the first thing to understand about the Drowned Stair is that it is *known by sound*, and the second thing is that this is not a coincidence, and the third thing — but I will come to the third thing.
+
+The basins are warm. The heat comes down with the water, banked in it, given up slowly into the rock as the brine cools and concentrates on its descent. By the time the water reaches the lowest stairs it is no longer the thin transparent brine of the pans; it has dropped its salt step by step on the way down, hung it on the walls, so that the staircase is sheathed in crystal that grew in the dark, that no one made and no light ever found. The corals of the pans had the sun to reach toward. These have only the falling water, and they have built themselves into the sound of it — fluted, hollowed, shaped like the inside of a throat. The descending brine plays them. Each basin's overspill drops into the next across a lip of grown crystal tuned by nothing but erosion to a particular pitch, and the pitches stack down the stair into a chord that has been sounding, without pause, without listener, for longer than the salt-rings above can count.
+
+Except that is the lie of it, the thing your ear would reach for the way your eye reached for *coral* and *fauna* up in the light. *Without listener.* No. The chord has a listener. The chord has always had a listener. The chord *is* the listener.
+
+---
+
+Here is the kinship, and it runs the length of the water like a cord pulled taut.
+
+What lives in the brine of the pans strains upward and outward, lowering the noise of the whole bright plateau toward the threshold where a faint far signal might at last arrive. You felt it as a held breath, a leaning, an instrument tuned to its last fraction. You did not ask the question that the leaning implies. If something is listening that hard, that long, with that much of itself — *what is it listening to?*
+
+Not for. To. The thing it strains to hear is not a possibility. It is a voice. The voice is real, and continuous, and it has been speaking the entire time, and it is here, at the bottom of the Drowned Stair, in the dark, in the chord.
+
+The two are one creature, or were, or are becoming one again — it depends entirely on where along the water you ask. Long ago, in whatever season the salt began laying its first ring, the listener was whole, and it lived in the warm dark and sang to itself, basin to basin, the falling-water chord that is its whole body and its whole speech at once. And then the water that fed it began also to climb — drawn up as vapor, surrendered on the cold plateau, gathered into pans. And some part of the creature went up with the water and could not come back down, the way a word said aloud cannot be unsaid back into the throat. It found itself in the light. In the unbearable doubled overexposed light, in the dry-wet heat, severed, scattered into ten thousand transparent bodies that could not sing because the air up there would not hold a song, would not carry it, took it and dispersed it into nothing.
+
+So the upper part went silent — not by choice, by *exile*. And being unable to speak, it did the only thing left. It began to listen. It began the enormous patient labor you witnessed: clearing the noise, silencing the birds, quieting the machines, gardening the hush across a thousand meters, lowering and lowering the threshold — not to hear some signal from outside the world, but to hear *back down the water* to the part of itself still singing in the dark. To hear home. The held breath is the breath of something trying to catch, across an entire vertical world of rock and brightness and interference, the sound of its own remaining voice.
+
+And the voice is singing. That is what undoes you, if you let it. The chord at the bottom of the stair is not a recording, not a residue, not the dead echo of a creature that was. It is the half that stayed, calling, the way you would call into a house you thought was empty and keep calling because the alternative to calling is admitting it is empty. It does not know whether it is heard. It cannot lower the noise floor; it has no plateau to garden, no crews to fold in, no machines to quiet — it has only the water, which it cannot stop, which falls and falls and plays it whether it wills the sound or not. So it sings without rest because resting is not available to it, and the singing goes up the water as vibration in the brine, up through the gas-tubes, up into the cisterns, up into the pans — faint, almost gone, buried under the splash and squeal and birdcry of a living plateau — and the upper half hears just enough of it, just the lowest edge of it, to know there is something there, and to spend everything it has trying to hear the rest.
+
+---
+
+This is the third thing, the thing I said I would come to.
+
+The taboo. The one rule. *Do not make a loud sound in the open.* The crews keep it without knowing why; they think it protects them, or honors something, or wards off a punishment no one will name. And up in the light I told you what it guards against: the lamp switched on in the long-exposed eye, the listening blinded at the instant of success, the seasons of work undone.
+
+But stand here at the bottom of the stair, in the dark, inside the chord, and the taboo turns over and shows its other face. A loud sound in the open would not only blind the listener above. It would drown the *singer below*. One unedited report crossing the cleared field would not merely ruin the reception — it would, for one catastrophic instant, be louder in the upper brine than the entire faint signal climbing up from the dark, and the upper half would mistake the noise for the answer. It would turn its whole attention to the wrong sound. It would, for that instant, stop listening down the water. And the singer, who has no way to know it has been abandoned, who can only keep singing, would go on calling into a house gone empty after all — heard once, by accident, by the wrong listener, and then never again.
+
+The two halves have never touched. The water only runs one way that matters: the song climbs, the listening leans down, and the gap between them is the whole height of the world, and it is closing — slowly, across the seasons, fraction by fraction as the noise floor drops — and a single shout would open it again forever.
+
+So when the figure met you at the plateau's edge and put a finger to their lips, they were not only keeping you from being the sound the listener finally heard. They were keeping you from being the sound that made it stop hearing the only thing it has ever wanted to hear. You obeyed and did not know what you obeyed. You felt the held breath and left before you learned what it was held for.
+
+It is held for this: somewhere far below, in the dark, in the warm grown throat of the crystal, the rest of the creature is still singing, and has not stopped, and does not know it has not been forgotten, and the silence you walked through so carefully is the sound of the other half straining to tell it — across all that rock, all that brightness, all that distance — *I can almost hear you. Don't stop. I am almost there.*

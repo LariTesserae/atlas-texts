@@ -1,0 +1,13 @@
+The Overground Reservoirs
+
+In a distant sector of the sprawling industrial complex, a series of massive overground reservoirs loom over the clanking machinery. These enormous tanks, each the size of a city block, are linked together by a web of rusting catwalks and creaking pipes. The reservoirs are ancient, their once-gleaming metal sides now mottled with patches of rust and streaked with the chalky residue of mineral-laden water. 
+
+The uppermost tanks bask in the hazy sunlight that filters through the smog-choked sky. Their stagnant surfaces are blanketed in a thick layer of scum, a lurid green broken only by the occasional oily sheen of a chemical slick. The lowest reservoir, perpetually shadowed by its looming siblings, is a well of Stygian darkness, its depths never touched by sun.
+
+From the highest tank, a single large pipe emerges, snaking down and plunging through the ground near the base. This artery carries a sluggish flow of water, drawn by the inexorable pull of gravity, down into the bowels of the industrial complex. The water seeps and trickles through layers of earth and concrete, percolating slowly downward until at last it finds the hidden room, the secret chamber cradling the ancient, shuddering machine.
+
+Here, in this moist, womb-like space, the lifeblood from the highest reservoir above mingles with the strange fluids of the machine, steaming and churning in the tangled pipes before being expelled once more. The waste liquid, now transmuted by its passage through the arcane mechanical processes, drains out again, rising through a different set of pipes to be disgorged into the bottommost tank, the dark, Stygian reservoir.
+
+In this sunless pool, strange lifeforms churn and multiply. Extremophile bacteria, nourished by the alchemical runoff, bloom in slimy clouds. Eyeless, translucent fish, their flesh ghostly pale, dart through the inky depths. Strange fungal mats, never before seen by human eyes, spread across the submerged surfaces in cancerous blooms of gray and white.
+
+And so the cycle continues, an endless loop, a symbiosis of rust and water, metal and mold, the effluvia of the hidden machine below mingling with the primordial soup of the stagnant reservoirs above. In this forgotten corner of the industrial wasteland, life and machine dance a slow, synchronized waltz, each one feeding the other, an ouroboros of decay and strange fecundity, hidden away from the eyes of the world.

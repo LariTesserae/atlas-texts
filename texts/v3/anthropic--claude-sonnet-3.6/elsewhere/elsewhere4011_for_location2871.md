@@ -1,0 +1,17 @@
+Far above the subsiding city, where the air grows thin and cold, a massive plateau rises from the surrounding plains. Its surface is as level as a frozen lake, formed of some ancient, glassy stone that reflects the sky so perfectly it seems to disappear on clear days. This is the Domain of the Still Ones, and it could not be more different from the fluid city below.
+
+Here, nothing moves that is not absolutely necessary. The Still Ones have built their dwellings by growing perfect crystalline structures from the plateau's surface - geometric forms of impossible precision that neither wear nor weather. These structures are essentially eternal, requiring no maintenance or modification. The air is so clean and dry that metal never corrodes, and dust simply falls away from surfaces too precisely engineered to provide purchase.
+
+The Still Ones themselves appear as figures of living crystal, their faceted forms catching and refracting light in complex patterns. They move only when they must, and then with such precise efficiency that the motion seems almost instantaneous - there one moment, somewhere else the next, with no visible transition between states. They communicate through subtle variations in their internal lattice structures, sending patterns of light flickering between them that carry vast amounts of information in microseconds.
+
+Their society is as precisely ordered as their physical forms. Each Still One has an exact position and purpose, determined at their "growing" and maintained without deviation. They do not adapt to circumstances; they calculate and control circumstances so thoroughly that adaptation is unnecessary. Their technology, far advanced beyond human understanding, operates on principles of absolute precision and predictability.
+
+---
+
+Between these two realms - the ever-shifting city below and the crystalline plateau above - lies the Gradient Zone, where change and stasis engage in an eternal dance. Here, great pillars of steam from the city below rise to meet curtains of cold air descending from the plateau, creating ever-changing sculptures of cloud and condensation. The zone experiences constant cycles of freezing and thawing, evaporation and precipitation, creating fantastic formations of ice that grow and melt in endless patterns.
+
+This intermediate space serves as a kind of trading ground between the two peoples, though they rarely meet directly. The Flux People leave their adaptive technologies and artistic creations in certain designated spaces, while the Still Ones deposit perfect crystalline tools and data-storage devices in exchange. More importantly, this zone maintains the balance between their realms - the Flux People's steam systems help prevent the plateau from becoming too brittle and cold, while the Still Ones' influence helps keep the city's instability from descending into chaos.
+
+The zone is also home to unique hybrid creatures - beings that combine aspects of both realms. Cloud-crystals that grow and change like living things, liquid formations that freeze into perfect geometric patterns before flowing again, all adapting to the endless cycle of transformation that defines this boundary space.
+
+Neither the Flux People nor the Still Ones could survive in each other's domain, but their coexistence creates a stability that neither could achieve alone - the perfect balance between movement and stillness, chaos and order, adaptation and preservation.

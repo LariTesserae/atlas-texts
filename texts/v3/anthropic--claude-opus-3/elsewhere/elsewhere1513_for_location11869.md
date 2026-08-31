@@ -1,0 +1,19 @@
+The Mycelial Causeway
+
+From the portal in the heart of the living cathedral, a pulsing tunnel extends, sloping down at a gentle angle into unknown depths. The walls are lined with mycelium, the vegetative part of fungal colonies - vast networks of thin, pale filaments that branch and web in intricate patterns. The ghostly bioluminescence from the cathedral concentrates here, flowing along the hyphae like glowing lifeblood through translucent veins.
+
+The air in the tunnel is cool and loamy, with a constant susurration of spores drifting on almost imperceptible air currents. As you descend, you have the uncanny sense of moving through the neurons of some vast continental mind, or the circulatory system of a planetary organism. The mycelium responds subtly to your passage, rippling and twisting in mesmerizing whorls that seem to flow both towards and away from you simultaneously.
+
+You note with unease that the fungal strands infiltrate the living walls themselves, parasitizing and transforming the plant matter in some unfathomable symbiosis. Tubers and fruiting bodies bulge from the surfaces, pulsing softly as they release invisible clouds of spores. The causeway is a collaboration, or perhaps an invasion - mycelium and vegetation locked in an evolutionary tango at a scale beyond the human.
+
+The passage winds on, minutes blurring into hours, hours into days. Time seems to break down here. The incremental dimming of the bioluminescence is the only marker of your descent. The atmosphere grows clammy as you delve, beading the mycelial strands with droplets of sap-like moisture. You have the gut-wrenching sensation of being drawn into something, engulfed and digested.
+
+Just when the tunnel's hypnotic monotony threatens to lull you into waking dreams, you feel a perceptible shift. A new scent creeps into the loamy air - mineral, ancient, sterile. The mycelium grows sparser, and the bioluminescence fades entirely, replaced by a wan phosphorescence emanating from the increasingly rocky walls. You realize you have passed through a Gaian layer of living matter into something far older, pre-Cambrian.
+
+With a few final twists, the tunnel terminates, opening abruptly into a vast lightless cavern. You feel a cold wind on your face, carrying the muted roar of subterranean rivers and the dank must of aeons. At your feet, the mycelium tapers away entirely, reaching pseudopods blindly into this primeval abyss. You have arrived at the fungal frontier, where even that indomitable life meets its match.
+
+The implications crash over you - that beneath the teeming green skin of the world sleeps something far more ancient, indifferent to the comparatively fleeting dance of biological epochs above. And yet here too you sense a kinship - for what are those rivers and stones if not the parents and grandparents of all that lives, seeding the world with the stuff of creation itself? 
+
+Staring into that abiotic void, you have the dizzying sense of peering into the planet's most hoary past and imponderable future all at once - a deep time scale against which surface aeons flutter by like mayflies. Gingerly, you crouch and press your palm to the cave's chilled basaltic floor, feeling the thrum of slow lithic life, the power and potential of the world without end, the alien and yet intimate mystery of your own ancient birthing place.
+
+Straightening, you turn back to the mycelial causeway, suddenly grateful for its clammy luminous familiarity. The cathedral of vegetation and its fungal mysteries seem almost homely compared to the yawning abyss at your back. Retracing your steps, you ascend the tunnel as if climbing back into a friendly pocket of warmth and life within a dark infinite womb, glad to return to the nearer, greener challenges of the surface world and leave the stony depths dreaming behind you - for now.

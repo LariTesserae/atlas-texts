@@ -1,0 +1,15 @@
+Connected to this sacred space, though in a way that might seem unlikely, is a sun-bleached gas station some thirty miles distant, perched where two state highways intersect in the valley below. Its white paint is perpetually dusty, and the analog pumps look like they belong in a museum, but they still work. A hand-painted sign advertising "COLD DRINKS" has hung in the window so long the letters have faded to a ghost of themselves.
+
+Inside, behind a counter worn smooth by decades of transactions, sits Ms. Adelaide Rowan. She's been there since before anyone can remember, a woman with silver hair always neatly pinned back, wearing crisp blouses even in the summer heat. Her register is ancient but she knows its rhythms by heart, and her calculations are never wrong.
+
+The shelves hold an odd assortment: basic necessities for travelers, local honey in mason jars, handmade soap wrapped in brown paper, and - most peculiarly - small clay bowls. These are crude but carefully made, each one slightly different, each priced at exactly $7.33. They're tucked between the aspirin and the road maps, unremarkable unless you know what to look for.
+
+The connection between these two places exists in the subtle choreography of Ms. Adelaide's days. She knows which travelers to direct up the mountain roads with carefully casual mentions of scenic views. She recognizes those who need to find the grotto, though they might not know it themselves. Sometimes she sells them a clay bowl, never mentioning its true purpose.
+
+The swallows know her too. They swoop past her station at dawn and dusk, their shadows flicking across the sun-faded asphalt. They bring messages in their flight patterns - who's coming, who's lost, who needs guidance. Ms. Adelaide reads these signs as easily as she reads her register's worn keys.
+
+She is the Lady's anchor to the human world, though few would guess it. The gas station serves as a waypoint between ordinary reality and the grotto's sacred space. Like the Lady, Ms. Adelaide maintains a careful balance - between helping those who need to find their way to the grotto and protecting its secrets from those who might disturb its delicate harmony.
+
+The waters that seep through the grotto's limestone eventually emerge in a spring behind the gas station. Ms. Adelaide bottles this water in old glass soda bottles, selling it only to certain customers who complain of specific ailments. The Lady's healing waters thus find their way into the world through the most mundane of channels, filtered not just through stone but through the everyday commerce of a rural gas station.
+
+Between these two points - the ancient grotto and the weathered gas station - runs a current of purpose and meaning that's as real as the underground streams connecting mountain to valley. It's a reminder that magic doesn't always announce itself with grandeur; sometimes it wears a crisp blouse and makes change for travelers, maintaining its quiet work of connection and transformation through the most ordinary of days.

@@ -1,0 +1,33 @@
+The Shattered Isles
+
+Across an expanse of dark, turbulent sea, a scattering of jagged islands rise like broken teeth. These are the Shattered Isles, formed from the wreckage of a cataclysm in the distant past. Sheer cliffs of black basalt plunge into the frothing waves, their faces carved into twisted, tormented shapes by the ceaseless assault of wind and water. 
+
+The islands are riven with deep chasms and gullies, some descending into subterranean grottos where the sea rushes in and out with the tides. Atop the cliffs, the land is barren and windswept, scoured clean of soil by the relentless gales. Only the hardiest of lichens and mosses cling to life here, forming drab splotches on the dark rock.
+
+But there are signs that this was not always a realm of lifeless desolation. Scattered across the islands are crumbling remnants of cyclopean structures - colossal blocks of dark stone fitted together with impossible precision. Pillars, buttresses, and vast domed vaults, all now collapsed and tumbled, hinting at the magnificent edifices they once composed. These ruins are of the same megaliths that dot the distant marshland, suggesting some ancient connection between these disparate landscapes.
+
+The Shattered Isles are ruled by the elements in their rawest form. Gale winds scream almost constantly across the bare rock, whipping the sea into a ceaseless frenzy. The waves smash against the cliffs with titanic force, sending plumes of salt spray hundreds of feet into the air. At times, waterspouts form, towering columns of seawater that dance and spin between sea and sky before crashing back into the maelstrom.
+
+Lighting is a near-constant presence, great jagged forks that leap from the roiling clouds to strike the tallest peaks. In the aftermath, the air hums with a tangible electric charge, making hair stand on end and skin prickle. The larger islands are crowned with webs of fulgurites - branching, glass-like structures formed where the lightning has fused the rock itself.
+
+When the storms clear, an aurora often shimmers in the night sky above the isles, washing the monochrome landscape in an eerie, shifting glow. The ribbons of green and purple light seem to have a strange affinity for the ruins, dancing and twisting most vividly above the fallen structures, as if in remembrance of whatever grand purpose they once served.
+
+Life is scarce in this harsh realm, but not wholly absent. Seabirds wheel and cry amongst the cliffs, nesting in the crevices where they are sheltered from the worst of the winds. Seals and walruses haul themselves onto the low shelves of rock to rest, their oily hides glistening in the dim light. In the tidal pools and sea caves, strange, pale creatures scuttle and drift - crabs, anemones, and fish adapted to a lightless existence.
+
+To journey to the Shattered Isles is to confront the primordial forces of nature in their most unrelenting form. It is a place of stark, savage beauty, where the boundary between the sublime and the terrifying is razor thin. The sheer scale and power of the elements provoke a profound sense of insignificance, a reminder of humanity's frailty in the face of the uncaring forces that shape the world.
+
+The Connection:
+
+An ethereal, silver-blue mist drifts in sinuous tendrils across the dark waters that separate the Shattered Isles from the great marsh. This is the Ghost Current, a strange, intermittent flow that seems to obey no earthly tides or weather. When the mist thickens, coalescing into a luminous stream, the current surges, flowing from the marsh to wind between the jagged islands before dissipating into the open ocean.
+
+The Ghost Current is more than a mere oddity of the tides. It is a conduit, a link between two realms that were once one. In ages past, before some forgotten cataclysm shattered the land, the islands were high peaks overlooking the vast expanse of the marsh. The megalithic structures that now lie in ruins once stood whole and magnificent, part of a great civilization that spanned the length and breadth of this primordial landscape.
+
+When the Ghost Current flows, the boundary between the two realms blurs. The mist seeps into the marsh, curling around the ancient stone structures and mingling with the ever-present haze. Strange visions flicker in its swirling depths - phantasmal glimpses of the islands as they once were, the great structures whole and thronged with enigmatic figures. In these moments, the Wisps of the marsh dance with particular vigor, their colors seeming to echo the shifting hues of the aurora above the distant isles.
+
+On the Shattered Isles, the effects of the current are no less profound. The mist pools in the deep gullies and chasms, filling them with a soft, diffuse glow. Shapes move in the depths, hinting at the passage of the marsh's bizarre fauna - Marsh Striders wading through spectral shallows, Ghost Moths flitting through the luminous haze. The mist seems to whisper with the sounds of the marsh, the distant cries and choruses carried across the vast divide.
+
+For those rare, driven souls who would brave these unforgiving realms, the Ghost Current holds the key to unlocking their secrets. To follow its path is to walk in the footsteps of the ancients, to trace the connection between the marsh and the isles. Perhaps, in the spectral heart of the current, where the mist glows brightest and the visions are most vivid, one might catch a glimpse of this world as it once was - a single, vast realm of wonder and strangeness, where civilization rose to heights now lost to time and cataclysm.
+
+But such knowledge is not without its perils. The Ghost Current is a frontier between worlds, a place where the normal laws of reality fray and bend. Those who linger too long in its luminous depths risk losing themselves, their minds unmoored by the visions and whispers. Some vanish entirely, drawn into the current's ethereal flow, never to be seen again in either realm. Are they transported bodily to some other place or time, or do their spirits simply slip free, becoming one with the mist? None can say for certain.
+
+And so the Ghost Current remains an enigma, a shimmering thread that binds together two realms of equal strangeness and mystery. To the marsh-dwellers, it is a harbinger of change, a reminder that their world is but a fragment of some greater whole. To the storm-lashed denizens of the isles, it is a glimpse of a lost past, a tantalizing hint of the wonders that once were. And to those intrepid souls who would unravel the secrets of this shattered land, it is a path to revelation - a perilous, beguiling road that may lead to enlightenment or oblivion.

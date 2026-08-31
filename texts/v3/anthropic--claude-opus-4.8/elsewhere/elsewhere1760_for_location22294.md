@@ -1,0 +1,51 @@
+# The Quickwater Gorges
+
+Follow the dry channels downward. They remember being rivers, and below the haze they become rivers again.
+
+The plateau sheds its water at the edges — not in falls, the edges are too worn for falls, but in long seeping spillways where the dew that gathered all night finally finds a slope and obeys it. Trace one of those sinuous smooth-floored channels off the roof of the world and it deepens, gathers others, learns urgency. The stone changes under it. The pale finished ochre gives way to younger rock, darker, still cracking, still arguing with the water about who owns the shape of things. And then the land simply opens beneath you and drops, and you are looking down into the Quickwater Gorges, where everything the tablelands refused — speed, noise, breakage, hurry — went to live.
+
+Start with the falling, because everything here is decided by it.
+
+The water that left the plateau as a slow night-breath arrives at the gorge rim as a torrent, because all the channels of all the worn ranges drain at last into these few clefts, and a year's gentle seepage from a thousand square miles of patient stone is, when funneled and dropped, a violence. It comes over the lip in white ropes and shatters on ledges and re-gathers and shatters again, and the sound of it is the first thing and the last thing and the only thing. Where the tablelands held their language below hearing, the gorges have no language but sound — a standing roar so total that creatures here have evolved to live inside it the way the Tenders evolved to live inside silence. To shout in the gorge is to mouth nothing. The water has taken the whole register of the audible and spent it all at once, forever, on itself.
+
+## The walls
+
+The gorges cut deep — deep enough that standing at the bottom you cannot see the plateau, cannot see the haze, can see only the two dark walls leaning up toward a ribbon of bright sky and the white thread of water sewing down it. The rock here is *raw*. Where the tableland was sanded past sharpness, the gorge walls are all sharpness, freshly broken, the cleavage faces still glittering, because the water is cutting them *now*, today, this hour, carving downward faster than anything the plateau has felt in ages. The same erosion that finished its work above is here caught in the act, mid-stroke, loud and wet and ongoing.
+
+You can read the whole history in the strata of the walls, and it is the plateau's history told backwards. Down at the gorge floor the rock is young and angry. Higher up it grows older, calmer, paler, and at the very rim — that bright ribbon impossibly far overhead — it shades into the ochre-and-bone of the tablelands, the finished stone, the roof. The gorge is a wound cut down through completion into the unfinished thing beneath. It is the plateau's past, exposed. The Tenders live on the surface of what is done; the gorge-dwellers live inside the cut of what is still happening.
+
+## The Quickwater life
+
+Here is what overwhelms, and it is the inverse of the saturation above.
+
+There is not much of it. Where the hollows of the tableland were stacked floor-to-knee with packed silent bodies, the gorge holds only a scatter of living things, far apart, each one alone against the roar — because here life is not the surplus of a settled abundance, it is a series of bets against a current that wants to kill you. Everything that lives in the gorge is fast. It has to be. The water that feeds the place also destroys the place; a flood can rebuild the channel in an afternoon; a foothold that held for a season can vanish between one surge and the next. Speed here is not crudeness. It is the only available form of patience — you survive by being already gone when the water takes the spot you were standing in.
+
+The signature creatures are the **Snatch-divers**, and to watch one is to understand everything the Tenders are not.
+
+They are small, dark, sleek, and they live on the sheer wet walls where the spray never stops, clinging by splayed adhesive feet to rock too smooth and too vertical for anything slower to hold. They are built entirely of reflex. A Snatch-diver perceives the world in slivers of instants and acts inside them — it will drop from the wall into the falling water, seize one of the swimming things the torrent carries down from above, and be back on the rock before the splash it made has finished rising. The whole act is shorter than a blink. They do this hundreds of times a day, each dive a separate gamble with the killing water, each one won by milliseconds. A Snatch-diver that hesitates for the length of a single thought is a Snatch-diver the gorge has already erased. They do not get old. Almost none of them die of age. The wall is lined with the ones quick enough to still be there, and the gorge does not keep the rest.
+
+And the thing they catch — the swimming things the torrent carries down — these are the gorge's secret, and the gorge's grief.
+
+## What the water brings down
+
+The current that pours off the plateau does not only carry water. It carries the colonies.
+
+Up on the roof of the world, the packed silent cities live in the hollows, and the hollows live at the edge of slopes, and on the rare violent days when too much dew gathers and finds a channel, the overflow plucks filter-things and ribbon-creatures and whole cushions of soft translucent bodies out of their settled lives and pours them over the edge. They go down the spillways, down the deepening channels, over the rim, into the roar. Most do not survive the fall. But some do — the gorge water is rich with them, with the small fast-relaying creatures that on the plateau were a *voice*, here reduced to mere prey, mere drift, swept down and snatched from the air by the divers before they can even find a wall to cling to.
+
+This is the trade between the two worlds, and it runs only one way, and it is cruel. The tablelands shed their nervous system over the edge by accident, a little every storm, and the gorge eats it. The divers grow sleek on the rendered surplus of the slow luminous mind above — they are fed, generation on generation, by the spilled syllables of a conversation they cannot hear and could not slow down to read if they could. To a Snatch-diver a filter-thing is a flash of protein crossing the falling water. It does not know the creature in its mouth was, an hour and a mile ago, the relay-point of a thought a Tender had begun at midday and would not finish until the violet hour. The word is eaten before it can be passed on. Somewhere above, a sentence simply loses a syllable, and the slow mind adjusts, and continues, and never knows where the missing piece went.
+
+## The strangeness of it being fast
+
+This is what unsettles, coming down from the plateau, and it takes a while to name.
+
+You braced for the gorge to be *more* alive than the tableland — louder, surely meant more, motion surely meant abundance. It is the opposite. The roar is the sound of a place that cannot hold still long enough to accumulate anything. The tablelands were near-empty to the eye and saturated with life past all reason. The gorge is full of spectacle and nearly barren of being. The divers flash and dive and flash and there are so few of them, really, strung out along miles of wet wall, each one a solitary blur winning its private war with the water and communicating with no one, because there is nothing here to communicate *with* and no medium slow enough to do it in. They are not a distributed mind. They are not a mind at all in the plateau's sense. They are a scatter of perfect reflexes, each complete in itself, each alone.
+
+There is no speech in the gorge. Not below hearing, not in light — the spray scatters every flush of color into uselessness before it can travel, and nothing here lives long enough to learn a slow language anyway. The gorge says only one thing, in water, endlessly, and the thing it says is *now, now, now, now,* and no creature in it can afford to answer with anything but motion.
+
+## The two breaths of the world
+
+Stand at the gorge floor in the thin band of afternoon light that reaches the bottom, and feel the difference in your own body. Up on the roof you slowed to the place's pace, beaded with its breath, waited for the violet hour. Here you cannot slow at all — the spray drives you, the cold drives you, the roar fills the space where thought would settle. The gorge will not let you contemplate it. It is the part of the world that refused to finish.
+
+And yet they are one water. The dew that the Tenders coax into their cisterns, drop by patient drop, is the same water that an overflow will fling over the rim to shatter in the gorge and feed a diver and run on down to wherever the gorge finally empties, far below, into whatever lake or sink or sea waits at the true bottom of the world. The plateau is the slow inhale — gathering, holding, building meaning, breathing below sound. The gorge is the fast exhale — releasing, spending, breaking, roaring it all back out. One world, breathing. The Tenders speak in the held breath; the divers live in the let-out one; and the spilled colonies are the thing carried from the first to the second, the only messengers that ever make the trip, and they make it dead.
+
+Climb back up if you can. It is a long way and the wall is sharp and wet, and the higher you go the older and calmer the rock becomes under your hands, until near the top it goes pale and smooth and finished, and the roar fades behind and below you, and the air thins and warms, and you come over the rim into the haze and the silence and the slow violet patience of the roof — and you understand, with the gorge still ringing in your ears, that the Tenders have never heard it. The water leaves them downward. The sound stays in the cut. They go on speaking their hour-long sentences across the still high stone, losing a syllable now and then to an edge they cannot perceive, never knowing that below the world they have finished, the world is still being made, loudly, out of the pieces they let fall.

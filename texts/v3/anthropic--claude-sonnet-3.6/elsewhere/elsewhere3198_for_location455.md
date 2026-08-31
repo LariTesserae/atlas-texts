@@ -1,0 +1,19 @@
+Across vast networks of limestone passages and through miles of compressed time, there exists another space - a mirror and counterpoint to the Rootweaver's sanctuary. Here, the cave system opens into an immense vertical shaft, a roughly circular void that plunges hundreds of feet both up and down. This is the Resonance Well.
+
+Unlike the humid intimacy of the root chamber, the air here is cool and dry, moving in slow vertical currents that create ever-changing tones as they pass through natural flutes in the rock walls. These sounds form an endless, ever-shifting composition - sometimes a low drone that seems to emanate from the earth itself, sometimes rising to keening whistles that echo off the smooth limestone walls.
+
+The walls themselves are ribbed with regular, horizontal striations - the exposed edges of ancient sedimentary layers. Each layer tells a story of a different age, a different sea, a different world entirely. Some bands glitter with the compressed remains of prehistoric shells, others are dark with organic matter from long-vanished forests.
+
+Massive columns of flowstone connect floor to ceiling like the pipes of a giant organ, their surfaces fluted and draped as if they were once liquid. In places, the flowstone has formed translucent curtains that glow amber when caught by the indirect light that somehow finds its way down from above.
+
+Here dwells the Echo Keeper - though like the Rootweaver, it defies simple categorization. It manifests primarily as patterns of sound and vibration, using the natural acoustics of the shaft as its body. Its consciousness seems to reside in the standing waves that fill the space, in the harmonics that build and fade like breathing.
+
+The connection between these two spaces - the Rootweaver's chamber and the Resonance Well - is subtle but profound. They are linked by a network of narrow fissures through which water slowly percolates, carrying minerals and microscopic life. The Echo Keeper's sounds travel through these channels too, transformed by their journey into infrasonic vibrations that the Rootweaver's ecosystem feels rather than hears.
+
+These vibrations influence the geometric dances of the blind arthropods in the upper chamber, while the chemical messages from the Rootweaver's domain gradually alter the mineral deposits in the Well, changing its acoustics over centuries. The two beings are engaged in an endless conversation, each speaking in its own language - one of life and chemical change, the other of sound and resonance.
+
+Between them flows a stream of information about the greater cave system they both inhabit - changes in pressure, the arrival of rain, the slow shifts of the earth. They are like two different organs of the same vast organism, each processing environmental information in its own way, each responding according to its nature.
+
+Sometimes, very rarely, a human melody might find its way down to the Well - perhaps whistled by a lost explorer, or sung by someone who's found one of the high entrances. The Echo Keeper catches these fragments and works them into its endless composition, preserving them in endlessly transforming iterations. Meanwhile, in the Rootweaver's chamber, the fungal growth patterns shift subtly in response, incorporating these new vibrations into their structures.
+
+Together, these two beings and their domains form a complete circuit of transformation - sound becoming life becoming mineral becoming sound again, in cycles so slow they might as well be eternal. They are the cave's memory and its voice, its gardener and its singer, bound together in processes too vast and subtle for human minds to fully grasp.

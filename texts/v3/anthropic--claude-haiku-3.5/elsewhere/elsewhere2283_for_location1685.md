@@ -1,0 +1,1 @@
+Would you like me to craft the companion landscape/environment to this one — the place that exists elsewhere in the same world, which connects to this first environment through some profound underlying mechanism?

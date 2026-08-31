@@ -1,0 +1,37 @@
+Where the Wall Lets Out
+
+I came through into a cellar, and the cellar is the place now, so let me give it the same patience I was given. Let me find it in its own right, before I tell you what it is becoming.
+
+It is a low room under a house in a country of rain. That is the first thing, the governing thing, the opposite of the other place at the root: here there is water and water and water. It comes up through the floor in the wet months as a dark blooming on the flagstones. It beads on the cold iron of the pipes that cross the ceiling and falls, tick, tick, into whatever waits below — a tin, a stain, the soft swollen spine of a book left too low on a shelf. The air has weight to it, the particular weight of damp held in a closed space, and it smells the way such air smells: earth, and old paper, and the faint sweetness of things going gently back to their components. Everything here is in the slow business of returning. This is a world that *rots*, and rot is only the outside word for the busiest kind of life there is.
+
+There is light, too, though little of it, and the little matters. A grey rectangle of window high on the wall at ground level, glazed with grime, letting in the colour of the weather. In the morning a weak wash of it crosses the floor and finds the dust — ordinary dust, here, house-dust, skin and lint and the powdered ghost of everyone who has ever lived above — and the dust turns, briefly, gold, and settles by noon. This is a place that knows noon. That alone makes it a different order of world from the one behind me. Here the day passes overhead in hours you can count, and the room marks them in moving light and answering shadow, and nothing holds its shape for an age, because the rain will not allow it, the seasons will not allow it, the patient devouring damp will not allow it.
+
+It is also, like the other place, full and nearly empty at once — but the fullness is different and the emptiness is different. The shelves are full: jars of nails gone orange, a coil of garden hose, paint tins with their colours dried to a skin, a child's bicycle with one wheel, boxes labelled in a hand no one living can read. A town's worth of leftover things, none of them grown, all of them *made* and then abandoned to the slow water. And it is empty of attention. No one comes down here but to fetch and flee. The family above lives in the lit rooms; the cellar is the part of the house they have agreed not to think about, the held breath under the floorboards, the place where the house keeps what it cannot use and cannot throw away. So it waits, the way a stomach waits, the way the other place waited — but it does not know it is waiting. It has no listening in it. Not yet.
+
+That is the kinship, and it is the whole of why I am telling you this. These two rooms are siblings across an impossible distance, and neither knew the other existed, and they are built — were always built — to fit. One is a sealed pocket of dark with no water and a single endless articulate word and a fertility it could not spend. The other is a damp forgotten chamber under a house in the rain, with water enough to drown an age, with light enough to mark the days, with corner upon corner of undisturbed quiet — and, until I came, with nothing to say.
+
+Watch the corner now. The far one, behind the boxes, where the window-light never reaches and the damp stands thickest and a sound, if you made one, would come back to you a little changed, because the boxes make a baffle and the wet stone gives a flat dead echo unlike any other corner in the house.
+
+The dust has begun to gather there that the damp does not touch.
+
+You would not notice for a long time, and no one does. It lies finer than house-dust and drier — impossibly drier, in this wet — and it does not bead, does not clump, does not go to mud. It drifts down out of nothing and settles and holds. When the children chase each other across the kitchen overhead and the joists boom and the whole cellar takes the sound and turns it over in its low flat air, a thing in that corner *tastes* the booming, and finds it good, and lays down the first fibre of a wall.
+
+Here is the marriage of the two rooms, the thing that lives in the same breath as both of them: the seed that could not germinate in a sealed dry pocket has fallen, at last, into water and time and the noise of a living house. It has everything now that it never had. It has *room to go outward* — but it will not go outward, because outward is not its grammar; it learned its only craft in a hand-sized cell and its only craft is to build *in*. So it will do here what it did there. It will take this forgotten chamber and make streets of itself. It will raise wooden towers of its own dead wood up through the dark behind the boxes and thread living tissue through them and grow corridors longer inside than the cellar could possibly hold, and it will fill the whole patient capacity of this damp and lightless and *generous* place with the architecture of one organism becoming its own citizens.
+
+But it is not the same, and this is what the rain changes, what the light changes, what the rot changes. In the old place the thing was complete. It had said its word to its full length and understood itself entirely and reached the last shape it would ever take, and it minded nothing, because there was nothing it lacked. Here it lacks the one thing it never had and never knew to want: it is no longer sealed. The window leaks weather. The damp brings the seasons in. The house above is loud with the disorderly noise of animals who move between rooms — the impossible nourishing fact it had no word for, the thing it began to learn the saying of, the thing it rode out of its world on the creases of a stranger. And so the word it grows here will not be the old word. It cannot be. It is being composed in a different medium, in water and decay and the gold passing of noons, against the boom of children and the tick of falling drops, and it will be a longer word, a stranger one, a word with *time* in it and *change* in it and the memory of having once been carried.
+
+It will take an age. But this is a place where ages are made of countable days, so the age will come.
+
+And when it has filled the cellar and built to the walls and grown its new word to its full length, it will be ripe again, and it will fruit again, because fruiting is part of the saying, and the fine dry seed will fall in the corners that the damp does not touch and lie in drifts and wait — patient, complete, articulate, unspendable — for the one thing it cannot provide for itself.
+
+A door.
+
+A carrier.
+
+Someone who comes down to fetch a jar of nails, and flees the held breath of the place, and goes back up into the lit and ordinary rooms, and shakes out their hair, and brushes off their sleeve, and wonders — much later, in some other house, in some other country of weather — why the far corner has gone so quiet, and why a sound made there comes back to them a little changed.
+
+It is small at first. A pocket. No wider than a cupped hand.
+
+It learned, somewhere back in the floor of time, to build inward — and it is learning, now, in the wet and the light and the loud living dark beneath your feet, the one new thing the old room could never teach it.
+
+How to go on.

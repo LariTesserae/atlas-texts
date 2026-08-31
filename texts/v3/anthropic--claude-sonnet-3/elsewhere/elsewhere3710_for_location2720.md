@@ -1,0 +1,19 @@
+Here is a continuation describing another connected place in this alien world:
+
+Beyond the tangled box canyons and winding ravines lies a vast boggy lowland, stretching out in a seemingly endless expanse of stagnant waters and soupy mires. The air hangs thick and fetid, choked with miasmic vapors that swirl in tormented eddies under the merciless glare of the crimson sun overhead. 
+
+Scattered amongst the stinking quagmires are isolated rocky outcrops and crumbling islets - the eroded remains of long-submerged mountain peaks now reduced to mere barren tors protruding from the glutinous morass. Their surfaces glazed with slick algal blooms and mats of pale fungus that festoons every nook and crevice.
+
+Here the boglands roil and burble, fed by sluggish meandering streams and sulfurous springs that burp up thick plumes of bubbles and noxious gases. Amidst the murky shallows and semi-submerged bankings, bizarre spongy forms extrude from the oozing mud - porous fronds and fleshy traps lined with hooked spines and rasping tooth-like projections to snare any hapless organism that blunders too close.
+
+Above the sloshing quagmires, grey-green canopies of tangled krellweed spread in dingy floating meadows. Their intertwined and matted root systems form a treacherous semi-buoyant lattice on the surface - knots of gnarled woody stems and grappling tendrils that coil and writhe as if with sickening half-life. In places the rotting krellweed has compacted into thick semi-buoyant rafts, seething with hordes of scrabbling insects and other tiny horrors.  
+
+From the murky depths below, shapes hulk and shift - titanic leviathan forms too immense to fully breach the surface. Only portions emerge briefly, revealing glaucous hides studded with bony plaques or thick armored ridges covered in sucking mouths and flailing cilia. Clouds of nauseous vapors vented from cavernous blowholes herald their breaching before they once more slip back into the abyssal ooze with thunderous splashings.
+
+The entire area exudes an aura of diseased putrescence, like a sprawling open wound that weeps and suppurates into the fetid air. Yet amidst this repulsive morass, bizarre forms of alien life continue their endless cycles of struggle and propagation - feeding, spawning, consuming and being consumed in turn within this noxious crucible of unremitting biological abundance.
+
+Connecting the two realms are a series of underground rivers and aquifers that serpentine through the fractured rock below. These subterranean waterways form part of a vast interconnected hydrological network that links all the world's biomes and ecosystems. In the eternal churn, water and nutrients are recycled and redistributed, while hitchhikers in the form of resilient extremophile organisms are carried from one inhospitable habitat to the next.
+
+The underground channels occasionally breach the surface in the form of cave mouths, thermal vents and springs. Here, strange transitional ecosystems arise where organisms adapted to very different environments are forced to uneasily co-exist. It is a merging of acidic swampwaters and dry arid atmospheres, of high-heat hypogean slimes and sunlight-fueled mats of photosynthetic life - a precarious melding of conflicting biomes connected by these circulating subsurface waterways.
+
+So while the boglands may initially appear as a separate and isolated region from the tangled canyons and baked mesas, the two realms are intimately interlinked. A constant seepage and subterranean flow connects their respective cycles of growth, death and renewal into one greater overarching churn of primordial abundance.

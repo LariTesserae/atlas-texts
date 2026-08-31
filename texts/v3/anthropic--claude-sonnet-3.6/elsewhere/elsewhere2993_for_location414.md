@@ -1,0 +1,15 @@
+Across a vast ridge of cooling rock, where the mists thin and the plant-mats grow sparse, there lies a different kind of darkness. Here, the ground drops away into a network of deep fissures, their walls glowing with veins of metallic ore that pulse with heat from below. The air is drier, charged with static electricity that makes bio-luminescence scatter and spark in unpredictable ways.
+
+This is the domain of the Current Riders - beings that exist as patterns of electrical charge flowing through the conductive ore. They have no fixed physical form, instead manifesting as shifting configurations of energy that race through the metallic lattices of the rock. Their "bodies" are the patterns themselves - complex interference waves that can store and process information, communicate, and even manipulate the physical world through electromagnetic fields.
+
+The fissure system is their architecture, carefully maintained through subtle manipulations of temperature and charge that encourage new veins to form while old ones are allowed to cool and crack. They "build" by influencing the crystallization patterns of minerals, creating vast networks of semiconducting materials that serve as both habitat and medium of thought.
+
+The connection between these two realms - the moist, organic chaos above and the geometric elegance below - occurs through what might be called the Interface Zone. Here, the plant-mats send their anchor-tendrils deep into the fissures, where they've evolved to interact with the Current Riders' electrical patterns. The Pulse Mites venture down as well, their swarms acting as living transmission lines between the organic and electrical domains.
+
+The relationship is symbiotic but alien: the Current Riders use the organic realm as an analog processing system, sending signals through the plant-mats to solve problems their purely electrical cognition finds challenging. In return, they help regulate the temperature and mineral content of the ground above, creating the conditions that allow the twilight ecosystem to thrive.
+
+The Flux Dancers and Current Riders have developed a fascinating form of communication. The Dancers' bioluminescent patterns, when performed in certain locations, create interference patterns in the Current Riders' electrical fields. These interactions have evolved into a complex language that allows the two species to share information about changes in their respective domains.
+
+The Pattern Miners' fungal networks occasionally breach the fissures, creating biological-electrical interfaces that both species use to archive their accumulated knowledge. These archives are not static storage but living processes, constantly being updated and reinterpreted as the environment changes.
+
+This dual-realm system represents two radically different approaches to intelligence and adaptation, yet they've become inextricably linked - the fluid chaos above balancing the crystalline order below, each making the other possible through their ongoing exchange of energy, matter, and information.

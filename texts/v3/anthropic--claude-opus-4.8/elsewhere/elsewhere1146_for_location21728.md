@@ -1,0 +1,51 @@
+# The Header Tank
+
+Follow the warmth backward. Everything in the Sump Works runs on heat that leaks and minerals that are spent — an inheritance, you said, an account opened by dead machines that no one tends. But an account has a *source*. The seeps did not invent their own richness. The water that arrives warm and loaded in the low country arrived from somewhere higher, and water that runs downhill ran first from up, and the up of this world has a name, though the name is older than anyone who could read it.
+
+Go up the dead culverts. Go up against the patient downhill logic of the whole drowned basin, up the brick arteries that still carry, faintly, a current the wrong way — not much, a breath of motion, the last of a pressure made somewhere above. It is a long climb. The channels narrow and steepen and lose their crabs. The Reds thin out where the brick goes dry, because up here the brick *is* dry — you have left the standing water behind, and that is the first sign you are nearing the thing the Sump Works is downstream of.
+
+## The Dry
+
+The Header Tank sits at the top of the world, and the top of the world is parched.
+
+This is the reversal that organizes everything, the way the absence of plants organized the basin: down there, all water and no green. Up here, all stone and no water — or almost none. A single great open reservoir, a cylinder of riveted iron and stone the size of a cathedral floor, set on the high ground above the basin to feed it by gravity in the working age. It was built to be *full*. It was the standing weight that pushed water through every sluice and culvert and catch-basin in the works below; it was the pressure that the whole industrial purpose leaned on. Now it is nearly empty, and what little it holds is the hottest water in the world.
+
+Because up here the sun reaches. The haze that grays the basin is a thing that pools in low places, and the Header Tank stands above it — so the light arrives raw, full, brassy, and falls all day onto a half-acre of dark iron and the shallow remnant water trapped in its bottom. The water cannot run out fast enough to cool; the tank's old outlets are nearly silted, and so the reservoir broils. By afternoon it is near scalding, a flat black mirror throwing the whole sky back up at itself, and the heat that the basin inherits as a gentle leaked warmth is *born* here as violence, as a daily near-boiling that nothing soft could survive.
+
+So nothing soft lives here. Where the basin is overwhelmed with cold-blooded wet life, the Header Tank is almost sterile — and that near-sterility is not death but *concentration*. Everything the tank holds, it holds hot and undiluted. The minerals that feed the films two centuries downhill are dissolved up here at full strength, in water too hot to graze. The richness the Sump Works lives on is the richness this tank cannot use. The basin eats what the Header Tank cannot stomach.
+
+## The Crust
+
+But say *almost* sterile, because the one law that holds everywhere holds here too: a richness this total will be read by *something*.
+
+Around the tank's high waterline, where the scalding shallows meet the dry hot iron, there is a crust. It is the only life at the top of the world and it is barely alive in the way the word is usually meant — a banded mineral rind, white and ochre and a deep oxblood red, building itself ring by ring as the hot water evaporates and leaves its load behind. Most of it is pure deposition, stone laying down stone. But laced through it, threaded into the wet edge where the heat is merely terrible and not absolute, there are the builders: a film of something that lives in boiling, that takes the dissolved richness directly and makes more of itself and dies and deposits and is built over by the next film's living.
+
+This is the source-film, the parent of the pale mats the crabs graze a town's-length downhill. The same lineage — or near enough, washed down and cooled and gentled over generations into the iridescent sheets the Reds can finally eat. Here at the top it is too hot to be eaten by anything. It is fed by everything and grazed by nothing, and so it does the one thing the basin's life never can: it *accumulates without being spent*. The crust grows. Year over year, ring over ring, it has been growing since the working age ended, and it grows still, the only thing in this whole world that is getting *larger* instead of carefully smaller.
+
+That is the deep relation, and I want to say it plainly the way you said the basin's plainly: the Sump Works spends an inheritance, and the Header Tank *is the inheritance*, still being deposited. Down there, a handed-down quiet eating itself to last. Up here, the hand that does the handing — a hot bright crust laying down the mineral wealth that, dissolved and washed and cooled by the long fall through the dead culverts, becomes the leaked warmth and loaded seeps the whole drowned town runs on. The basin is the Header Tank's estate. The crust is the will being read aloud, one ring a year, in a language of deposited stone.
+
+## The Pulse
+
+And there is a current still. This matters, because it closes the circle and explains the breath of wrong-way motion you climbed against.
+
+The tank does not simply sit. Each afternoon the scalding drives a slow convection — the surface broils and evaporates, the crust thickens, and the displaced water, the little that escapes, is pushed down through the silted outlets in a faint warm pulse. One pulse a day, near-boiling, mineral-drunk, sent down the long brick arteries to cool across miles of culvert and arrive in the basin at last as the gentle warmth the Droppers perch in and the Reds graze and the Braid thickens on. The Wake crosses its channel; far above, unseen, unfelt by anything down there, the Header Tank has its single daily beat, and the two are the same pulse — one heart, its chambers a town apart. The tank pushes; ages later and a town lower, the basin receives. You felt the systole at the bottom of the world. This is the diastole, the long hot in-breath, drawing the day's sun into water and pushing the night's warm dose downhill.
+
+## The Drying
+
+Here is the thing the basin cannot know, and the reason the climb was worth making.
+
+You said the Sump Works is finite — spending down, ages yet, but finite. You located its ending vaguely, far down its own timeline: the seeps will cool, the films will thin. But the ending does not begin in the basin. It begins *here*, and it is already legible, written in the crust the way the Braid's lean years are written in nothing — except this is written in something, in the one ledger this world keeps.
+
+The Header Tank is going dry. Not draining — *evaporating*, faster each generation, because every ring of crust the builders lay narrows the outlets a little more and raises the waterline's exposure a little more and silts the convection a little slower, so the tank holds less water, hotter, throwing off more steam to the dry sky and sending less and less down the pipe. The crust is killing the source by succeeding at being the source. It accumulates the very wealth whose passage downhill it strangles. Every ring is a withdrawal disguised as a deposit. The will is being read aloud, yes — and the reading is using up the estate.
+
+There will come a turning, far off but certain, when the last shallow remnant broils away entirely on some brassy afternoon and the crust, with no wet edge to live in, stops. No more deposition. No more pulse. The convection's heart will stop beating at the top of the world, and the dry tank will stand full of nothing but its own banded stone, a cathedral of accumulated inheritance with no water left to spend it. And then — ages later, the long fall's worth of delay — the basin will feel the pulse fail. The seeps will cool. The films will thin. Exactly as you foresaw, but the cause was never down there. The Sump Works will die of a drought it never sees, in a place above the haze it cannot climb to, on a height that has no crabs to send a red tide up to read it.
+
+## The Inhabitant
+
+You named the basin's inhabitant the *running* — a single slow process wearing a million wet bodies, spending down. Let me name this one to match, because the two names are halves of one sentence.
+
+The inhabitant of the Header Tank is the *laying-down*. Not a process wearing many bodies — there are almost no bodies here, only the thin boiling film and the stone it becomes — but a single slow accumulation that has stopped being able to tell its own growth from its own ending. It is alone the way the Wake is alone, but inverted: the Wake is the top of a chain that takes the top off everything below; the crust is the *bottom* of the chain that the whole world rises from, the deposited base no one grazes, holding the arithmetic up not by eating but by *being eaten miles downstream, forever, until it isn't*.
+
+It does not climb. Nothing here climbs; there is no dusk-cool column to read, no reward in any height, because this *is* the height, the brass-bright top of everything with nowhere above it to go but the steam leaving for the dry sky and not coming back. It only deposits. Ring over ring in the scalding shallows, it lays down the wealth of a dead working age, sends one hot pulse a night into the long pipe, and grows itself a little closer to the afternoon it dries — building the tomb of the whole world below it out of the same stone that is, right now, this very night, arriving warm in the basin to be grazed by something that will never know what it was eating, or that the eating was an inheritance, or that the inheritance had a top, or that the top was going quietly, brilliantly, sunstruck and waterless, dry.
+
+That is what lives at the source. A laying-down that cannot stop laying itself down, feeding a town it will never see by spending a fortune it is sealing shut, beating its single hot beat into a pipe a town long, in the only place in this world the haze never reaches and so the only place that was ever, from the beginning, in the light.

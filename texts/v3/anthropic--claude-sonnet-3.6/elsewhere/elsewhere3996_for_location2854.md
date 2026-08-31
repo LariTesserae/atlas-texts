@@ -1,0 +1,17 @@
+Let me tell you about the seas that lap at the base of the termites' mountains, for no world-spanning structure exists in isolation.
+
+These are not waters as we know them, but vast lakes of liquid silica, their surface tension high enough that small objects rest upon it like water striders on a pond. The lakes shimmer with an opalescent quality, reflecting and refracting light in complex patterns that seem to echo the bioluminescent signals above.
+
+Here dwell the Dissemblers - colonies of aquatic creatures that are, in their way, the inverse of the mountain-building termites. Where the termites construct, these beings decompose. Their bodies are long and sinuous, almost serpentine, with countless hair-like appendages that secrete powerful solvents. They move through the silica seas in undulating ribbons, breaking down complex minerals into their constituent elements.
+
+The relationship between the mountains and the seas is one of perfect equilibrium. As the termites build upward, the Dissemblers' chemical processes gradually erode the bases of the mountains, creating deep underwater caves and channels. The dissolved minerals feed an ecosystem of silicon-based life forms that float in the liquid silica like plankton, which in turn sustain the Dissemblers.
+
+The border between mountain and sea is never static. As the termites build outward, new peninsulas and islands form, only to be slowly undercut by the Dissemblers' patient work. Occasionally, massive sections of mountain collapse into the sea, creating temporary tsunamis of liquid silica. But even these catastrophic events are part of the balance - the termites immediately begin rebuilding, while the Dissemblers process the fallen material.
+
+The Architect and what might be called the Unmaker - the distributed intelligence of the Dissembler colonies - are not adversaries but complementary forces. Their interaction creates a dynamic equilibrium, a endless cycle of creation and dissolution that maintains the stability of this strange world. The termites' mountains would grow until they collapsed under their own weight without the Dissemblers' erosion; the silica seas would stagnate without the constant input of new materials from above.
+
+Chemical signals pass between the two domains - the termites' pheromone trails find their equivalent in complex molecules that diffuse through the silica seas. The bioluminescent patterns of the mountains are answered by phosphorescent blooms in the depths. It's a dialogue conducted in the language of chemistry and light, incomprehensible to human observers but vital to the continued existence of both communities.
+
+At the interface between mountain and sea, unique hybrid structures form - half-dissolved architecture that seems to hover between solid and liquid states. These zones host their own specialized organisms that mediate between the two realms, maintaining the delicate balance that has persisted for millions of years.
+
+The whole system functions like a planetary-scale metabolism - the mountains as creation, the seas as dissolution, the whole guided by ancient intelligences that think in timescales we can barely comprehend. Each depends on the other, each shapes the other, in an endless dance of construction and deconstruction that may be, in itself, the true purpose both serve.

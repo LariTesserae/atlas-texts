@@ -1,0 +1,17 @@
+Across the mountain's bulk, nearly a kilometer away and several hundred meters higher, there is another kind of chamber - not a grotto, but a shaft. It plunges straight down into the volcanic rock, its walls smooth and regular as if core-drilled by some ancient machine. No steam rises here; instead, the air flows downward in a constant cool current, drawn by some unseen force below.
+
+The walls of this shaft are lined with perfectly hexagonal columns of dark crystal, each facet reflecting what little light reaches this depth. Unlike the grotto's living walls, these surfaces are sterile, almost mathematically precise. The crystals pulse with a deep purple luminescence that follows a strict rhythm - exactly forty-seven seconds between each wave of light.
+
+At regular intervals, the shaft is crossed by horizontal tunnels, each exactly two meters in diameter. These tunnels spiral outward through the mountain like the spokes of a wheel, and each holds hundreds of identical spherical chambers, arranged like beads on a string. In these chambers, suspended in perfectly clear liquid, float crystal formations that mirror the mountain's mineral structure in miniature.
+
+Here dwells the Geometer - a being as different from the Heartkeeper as angles are from curves. Where the Heartkeeper weaves through rock in organic threads, the Geometer exists as a precise lattice of energy fields, maintaining the crystalline patterns that fill its domain. It thinks in symmetries and frequencies, in the mathematics of growth and decay.
+
+The Geometer's purpose appears to be documentation and replication. In its spherical chambers, it recreates the mountain's structure again and again, each time with slight variations, as if running countless simulations of how the volcano might have formed differently. The purple light that pulses through its crystals carries information, recording each iteration, each possibility.
+
+Between these two chambers - the living grotto and the geometric shaft - runs a network of hairline fractures in the rock, too small for any creature to traverse. Through these cracks flows a steady exchange: mineral-laden water from the Heartkeeper's domain seeps downward, while precisely measured quantities of rare elements rise up from the Geometer's realm.
+
+This exchange is their collaboration, though neither being would recognize it as such. The Heartkeeper's organic experiments depend on trace elements that only the Geometer's precise crystallization can provide. The Geometer's simulations require the chaotic variables introduced by the Heartkeeper's living systems. Together, unknowingly, they maintain a balance that allows both their studies to continue - one exploring the emergence of life from mineral, the other mapping the mathematical foundations of matter itself.
+
+Their efforts intersect in curious ways. Sometimes the Heartkeeper's bird-creatures find their way to the shaft's upper opening, and their genetics are subtly altered by exposure to the Geometer's pulsing light. Occasionally, the Geometer's perfect crystals are infected by the Heartkeeper's experimental organisms, creating strange hybrid structures that neither being fully understands.
+
+The mountain contains them both, these opposite approaches to understanding its nature. Neither being is aware of the other's existence, yet they are linked by the very substance they study - the endless dance between order and chaos, between the living and the mineral, between growth and pattern.

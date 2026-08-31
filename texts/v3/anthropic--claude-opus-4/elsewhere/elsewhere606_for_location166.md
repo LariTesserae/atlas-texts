@@ -1,0 +1,27 @@
+The Meridian Observatory
+
+Three hundred kilometers north, where the continental shelf drops away into true ocean depth, a tower rises from the water like a splinter of crystallized salt. Built in the decade before the boring accidents, it was meant to monitor deep-sea currents for the fishing fleets. Now it serves a different purpose.
+
+The structure stands on four legs that pierce down through a kilometer of water to anchor in the abyssal clay. Its observation deck sits forty meters above mean high tide, though during the worst storms, waves have been known to break across its lower windows. The tower's exterior has acquired a patina of salt crust and guano, but the internal mechanisms remain pristine—self-maintaining systems that continue their observations even as their purpose has shifted beyond their original parameters.
+
+Inside the primary observation room, banks of monitors display data that no one above asked for: minute temperature variations in deep ocean currents, the migration patterns of bioluminescent jellies, seismic tremors too faint for mainland instruments to detect. But the most sophisticated sensors point downward, toward a phenomenon the original builders never anticipated.
+
+Deep beneath the tower, where its anchor-legs meet bedrock, a new kind of thermal vent has emerged. Unlike the volcanic vents that pepper the ocean floor, this one pulses with a familiar rhythm—twelve hours of intense heat, twelve hours of cooling. The Meridian Observatory's instruments tracked its emergence three years ago, recorded the first appearance of thermosynthetic organisms in the water column, documented their spread across the benthic zone.
+
+The tower's sole occupant, who refers to themselves only as the Watcher, maintains these instruments with religious devotion. They arrived two years ago on a routine maintenance check and never left. Where others saw concerning anomalies in the data, they recognized patterns that spoke of vast connection—thermal highways running through the Earth's crust, linking distant ecosystems in ways that surface geology couldn't explain.
+
+The Watcher has transformed the observation deck into a living map of these connections. Strings of different colors web across the room, each representing a confirmed thermal conduit. They've traced the heat signatures through the planet's flesh, finding nodes and networks that suggest the boring accident didn't create an isolated phenomenon but tapped into something far older and more extensive.
+
+Their prize discovery hangs at the web's center: a bathymetric chart marked with hand-drawn corrections, showing how the thermal vent below connects to a system of submarine caves that trend southward. The water temperature in these caves cycles in perfect opposition to the Thermal Galleries—when one exhales heat, the other inhales cold. They are lungs of stone, breathing in counterpoint across hundreds of kilometers.
+
+The Watcher spends their nights at the monitors, tracking the exchange of heat and minerals through this hidden circulation. They've documented how certain species appear in both locations despite the distance—spores that survive the journey through superheated stone, genetic material that flows like information through the Earth's own vascular system.
+
+During storms, when the tower sways and the ocean roars, they climb to the highest platform and feel the building resonate with the same frequencies that pulse through the thermal network below. They've learned to read these vibrations like a language, predicting when new vents will emerge, when existing ones will shift their flow.
+
+In waterproof cases, they maintain correspondence with the Cultivator—not through any postal system, but through the network itself. They've discovered that objects placed in certain thermal flows will travel the stone highways, emerging weeks or months later at connected nodes. Small samples arrive from the Galleries: new moss variants, fragments of machinery colonized by growth, vials of condensation that carry chemical signatures of the deep heat.
+
+In return, the Watcher sends their own offerings: pressure-adapted organisms from the benthic vents, crystalline formations that only grow under specific temperature gradients, data recordings that capture the songs of stone and water moving through the Earth's depths. Sometimes they include sketches of the patterns they see—not just the physical networks, but the deeper design that seems to govern how heat and life interweave.
+
+The tower groans around them in the constant wind, its metal bones conducting vibrations from sky to sea to stone. Here, at the junction between ocean and atmosphere, between the mapped world and the hidden one, the Watcher tends their instruments and traces the breathing of the Earth itself. They know the Cultivator feels it too, in their moss-dressed caves—the same pulse, the same rhythm, the same vast circulation that makes two distant places into organs of a single, thinking system.
+
+Neither speaks of what this might mean. They simply document, tend, and wait, knowing that what emerges from such patient observation might reshape every assumption about where life ends and where the planet itself begins.

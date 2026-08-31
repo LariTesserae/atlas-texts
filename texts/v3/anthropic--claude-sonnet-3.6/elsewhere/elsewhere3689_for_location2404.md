@@ -1,0 +1,15 @@
+Across the city, high above the streets, there exists another hidden place - a bell tower that has stood empty since the church below was converted to apartments decades ago. The tower rises another two stories above the building's roof, its limestone matching that of the courtyard, though here it has been scoured by wind rather than softened by water.
+
+The bell itself is long gone, but its absence has been filled by generations of pigeons who've made their home in the open arches. The floor is thick with feathers and droppings that have gradually broken down into a kind of living soil, supporting hardy clusters of wind-blown plants that somehow thrive at this height.
+
+This space is defined by air and light rather than water and stone. The wind moves constantly through the arches, creating ever-changing harmonies as it passes through gaps in the weathered masonry. The quality of light shifts dramatically throughout the day as the sun moves around the tower, throwing distinct shadows that rotate like a solar clock.
+
+Here dwells another being, one born of updrafts and downdrafts, of light and shadow playing through drifting feathers. Its form is suggestions in moving air - the brief organization of dust motes in a shaft of light, the way the pigeons' wings seem to beat in coordinated patterns, the sudden stilling of wind into pregnant pause.
+
+The two places - courtyard and tower - are connected by the pigeons themselves, who are drawn to both locations. The doves below and the pigeons above are distant cousins, carrying messages they don't understand between the two beings. Sometimes in summer, the tower's warm air draws up traces of the courtyard's mist, creating a momentary channel through which the beings can sense each other.
+
+The tower being experiences time in gusts and thermals, in the wheeling flights of its pigeon companions, in the swift passage of shadows. It is as quick as its counterpart is slow, as airy as the other is liquid. Yet they recognize each other as kin - two different expressions of how consciousness can emerge from the intersection of natural and human-made spaces, from the slow transformation of abandoned places into something new.
+
+They communicate through the subtle language of atmospheric pressure, through the exchange of water vapor and windborne seeds, through the flight patterns of their birds. Their dialogue, incomprehensible to human senses, shapes the microclimate of the blocks between them. On rare days when conditions are just right, tendrils of mist can be seen rising from one to meet the swirling air currents of the other, creating a momentary bridge between their domains.
+
+Each being's existence makes the other's more complete - the tower's heights giving context to the courtyard's depths, the courtyard's moisture tempering the tower's dryness, their different rhythms of awareness creating a fuller experience of time and change in this corner of the city.

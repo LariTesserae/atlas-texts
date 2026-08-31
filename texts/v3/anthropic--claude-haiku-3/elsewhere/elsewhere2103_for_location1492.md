@@ -1,0 +1,9 @@
+Towering above the dark, glassy sea, a massive structure looms into view – the remnants of an ancient city, now long abandoned and reclaimed by the ocean. Its once-grand towers and spires rise up from the depths, their jagged silhouettes cutting through the murky water like the skeletal fingers of some primordial giant.
+
+Currents swirl around the sunken ruins, carrying with them the detritus of a forgotten civilization – crumbling columns, shattered masonry, and the weathered remains of once-proud monuments. Schools of bioluminescent fish dart in and out of the shadows, their ghostly lights flickering like the dying embers of a once-vibrant culture.
+
+At the base of the submerged city, a vast, yawning chasm opens up, a dark and mysterious abyss that seems to descend endlessly into the unknown. This is the domain of the Leviathans – the colossal, elder creatures that roam the abyssal depths, their massive, undulating forms occasionally glimpsed in the distance, like the passing of ancient, forgotten gods.
+
+The Leviathans are the true masters of this undersea realm, their presence a constant reminder of the fragility of the human world that once stood above the waves. They glide through the water with a grace and power that defies comprehension, their cries echoing through the depths, a haunting symphony that speaks of a primal, untamed vitality that has endured long after the works of man have crumbled to ruin.
+
+At the edge of the abyss, where the submerged city meets the yawning void, a faint glow can be seen, a beacon of light that seems to beckon the curious and the brave. It is here, in this liminal space between the known and the unknown, that the true secrets of this undersea world are said to be kept – hidden away in the depths, awaiting those bold enough to venture forth and uncover them.

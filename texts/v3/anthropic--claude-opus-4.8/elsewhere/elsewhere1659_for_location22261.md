@@ -1,0 +1,53 @@
+# The Dry Tongue
+
+Follow the penstock down. The silver pipe leaves the shelf where the cushion-moss frays into bare wet ledges, and it runs along the valley wall, and then it stops being a pipe at all — it becomes a buried thing, a swelling under the scree, a line you can only trace by the strip where nothing grows above it. Follow that line. The wall steepens, the mist thins, the roar climbs the rock behind you and falls away, and the light stops being thrown back at you from everywhere and starts, for the first time in your life if you are a Tender, to come from *one place*. There is a sun. It has an edge. It casts a shadow, and the shadow points, and by the pointing of shadows you could, if you had grown up here, tell the hour.
+
+You will not have grown up here. Nobody grows up here. This is where the water goes, and where it goes, it is *spent*.
+
+The valley does not end in another valley. It ends in a tongue of flat country that runs out from the wall's foot like something poured and left to dry — and that is nearly what it is. Here the meltwater the engines drank, having turned its turbines and surrendered its hum to the lines that stride off east, is given back. It comes out of the ground at the wall's base through a row of iron mouths, warmer than it went in, stripped of its falling, and it spreads. And the spreading is the whole place. This is the floodland the shelf makes downstream of itself, the low broad sink where all that patient extraction finally lets go.
+
+But the sun is here, and the sun is the difference. Up on the shelf the cool kept everything slow; the water hung and seeped and would not commit and the moss took a thousand years to think. Down here the light has an edge and it is *hot*, and the same water that took ten centuries to build a moss-cushion will, on this flat, raise and rot a generation of green in a single season. Where the shelf was saturated and patient, the tongue is saturated and *frantic*. It is the same water. It has only changed gods.
+
+## The Reek and the Rush
+
+The first thing your body registers is again not a sight. Up on the shelf it was pressure — the sound that filled the skull. Here it is *smell*, and it hits the same way, all at once, from everywhere: the thick sweet rot of vegetation growing faster than it can finish, the methane belch of black mud, the green stink of standing water working in the heat. A Tender, arriving, would stagger under it the way you staggered under the roar — a total medium, inescapable, the air itself made of the place. And like the roar, it does not stop, and like the roar, you would in time stop trying to smell it, and read the country some other way.
+
+And it is *loud* here too, but the noise has a source you can turn toward, and that alone marks the tongue as a different world. Insects. The hum of the shelf was the turbines, deep and even and felt in the feet; the hum of the tongue is biological, a high seething million-throated drone of things with short wet lives, and it rises and falls, and it *means* something — it thickens over the worst of the rot, thins over the running channels, and a person who lived here could read the water by the pitch of the flies the way a Tender reads the turbines by her soles. Where the shelf had two patiences grinding against each other, the tongue has only one tempo, and it is *fast*. Everything here is in a hurry, because the sun has told it that it may die soon and had better get on.
+
+## What Grows, and How It Eats
+
+There is no bare ground here either — but for the opposite reason. On the shelf the moss held the soft stone together because nothing else could survive to do it. Here the green is not structure, it is *appetite*. Reeds stand in ranks taller than a person, packed so dense you cannot see a body's length into them. Mats of floating weed seal whole ponds over into false meadows that will swallow your leg to the hip. Vines that put on a hand's length in a day rope the dead reeds of last season into the living reeds of this one. Where the shelf was total-but-sparse — every surface alive, all of it standing far apart — the tongue is total-*and*-crowded, a green so packed and competing that the plants strangle each other, and the strangling is the point, and the rot of the losers is what feeds the next crowding.
+
+This is the thing the two places share and have answered oppositely. Both are made entirely of life. But the shelf's life is spaced like furniture in an emptied hall, and the tongue's life is jammed like a crowd against a closing door, and the difference between them is exactly the difference between cool and hot, between water that hangs and water that floods, between a god that does not stop and a god that does not wait.
+
+## What Lives Here Besides Plants
+
+Everything. This is the inversion that would frighten a Tender most.
+
+The shelf was a great loud green room with almost nothing moving in it — one bird on the updraft, pale things alone in the moss, fauna so rare it read as absence. The tongue *teems*. The same warmth that hurries the reeds hurries the animals: clouds of biting insects thick enough to read as weather, frogs in numbers that make the night a wall of sound, fish that breathe air and walk between drying pools, birds in flocks that lift off the false meadows like the meadow itself has come unstuck. Long-legged waders stalk the shallows in companies. Things with teeth wait in the channels. There is more animal life in one hour's walk of the tongue than in the entire span of the shelf, and it is loud, and it is fast, and none of it is alone.
+
+A Tender, who has learned over a lifetime to be one careful patient body spaced wide from a few others in a vast still light — who reads the two-fingered touch on the forearm as the whole of company — would stand at the edge of this teeming and feel something close to vertigo. So much *answering*. So much that does not wait, does not space itself, does not hold still long enough to be read. The salamander in the moss and the frog of the tongue are cousins, wet-skinned both — but the moss-salamander is a hermit and the tongue-frog is a multitude, and that is the whole sermon of the downstream country, written in amphibians.
+
+## Who Lives Here
+
+People, and they are the opposite people, and they came for the opposite reason.
+
+The Tenders stayed behind to mind machines that drink the water. The people of the tongue gather where the water is *given back* — because the spent water, warmed and slowed and spread across the flat, makes the most ferociously fertile ground in the known reach of the world, and ground that fertile is worth crowding onto. So they crowd. Where the shelf holds forty souls spaced a season's solitude apart, the tongue holds them thick along the channel-banks, in stilt-villages knuckled together over the black mud, in boats roped gunwale to gunwale, in a closeness as total as the reeds'.
+
+They are loud. They have to be — the insect-drone forces the voice up, the way the roar forced the Tender's voice down, and so the downstream people *shout* where the Tenders murmur, and they have a fast bright overlapping speech, everyone talking at once across the boats, a sound like the frogs at night, and they would find a Tender's minute-long silence before answering not strange but *broken*, the way you would worry over someone who would not speak.
+
+And they are quick. The shelf recalibrated its people to the pace of stone; the tongue calibrates its people to the pace of rot, which is to say: take it now, eat it now, build it now, because the flood will shift the channel by next season and the false meadow will swallow the village and the green will strangle whatever you do not harvest within the week. They startle. They hurry to news. Their grief is a storm and not a season — sudden, total, loud, and *over*, because there is no room on the crowded bank to carry a grief at the shelf's glacial pace; the dead are mourned in a single shattering day and then the living turn back to the reeds, not from coldness but because the tongue does not grant the long durations in which a Tender's grief can move.
+
+## The One Thread Between Them
+
+They do not know each other. This is the truth at the bottom of it. The downstream people have never climbed to the shelf — the wall is sheer and the roar at the top is a rumor they half disbelieve — and the Tenders have never come down, because a Tender's whole body is built for the cool spaced silence and would founder in the heat and the crowd and the reek. The two peoples share a water and a wall and nothing else, and neither has a face for the other.
+
+But the water remembers, and so does the iron. Once a season, when a turbine on the shelf develops the long shudder and a Tender presses her palm to the moss and reads the trouble and cannot mend it alone, she signs it down the line — and the lines stride east, off the rim, to the lowland works the builders answer to. And once a season, in a season of bad flood, the downstream people send word *up* the same lines, the only thread that climbs the wall: *less, hold back, you are giving us too much*. The messages pass each other in the wire. Neither people writes the other's name, because neither knows it. They write to the builders, the absent campaign that riveted the shelf and crowded the bank and left them both behind to mind the opposite ends of a single falling thing.
+
+And so the deepest connection between the loud green shelf and the dry warm tongue is a sentence neither place ever speaks to the other, carried in a metal line that touches both and feels neither — the request, in two directions, in two tempos, in a held-down murmur and a shout: *the water. Not so much. Or more. The water.*
+
+The Tender presses her palms to the weeping moss and is the one who is here.
+
+The boatwoman, downstream, drives her pole into the black fertile mud and feels it take, and shoves off into the seething crowded morning, and is, just as completely, the one who is there.
+
+Same water. The shelf gave it falling and cold and would not let it commit. The tongue takes it spent and warm and lets it rot a hundred lives a year into something that will feed a hundred more. Between the two — between the god that does not stop and the god that does not wait — the water runs down the only road there is, the road that is itself, and arrives, and is given back, and is louder at both ends than anyone living at either can hear themselves think.

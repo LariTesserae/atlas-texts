@@ -1,0 +1,17 @@
+The Flowing Vast
+
+Connected to the primeval realm of the Chlorophyll Dreamers by strange, serpentine channels, there exists another region of this enigmatic planet. A place where water is the dominant element rather than vegetative matter. This is the Flowing Vast - a largely aquatic zone characterized by intricate networks of rivers, lakes, and inland seas.
+
+The waterways here are not like those of Earth. Instead of carving through rock and soil, the currents and eddies swirl through immense floating mats of plant life. These buoyant expanses are formed from the interwoven roots, rhizomes and bladder-like structures of specially adapted aquatic megaflora. The surface is a bobbing, undulating tapestry of lily-pad like leaves, glossy and rubbery, some large enough to support the weight of a human. 
+
+Beneath the floating layer, hanging vines and dangling, hair-like roots create dense subaquatic jungles, swaying in the dim currents. Schools of luminescent fish-like organisms dart in the depths, their flanks glowing with symbiotic algae. Stranger creatures undulate through the underwater groves - pulsing, translucent things that seem more liquid than solid, spinning elaborate mucus-net traps to snare microorganisms.
+
+The waterways are fed by gigantic pitcher plants the size of buildings, which collect rain from the frequent downpours and spill it into tributary stems that empty into larger basins. Other conduits sprout from cracks and pores in the immense trunks of the Chlorophyll Dreamers' domain, carrying excess water suffused with dissolved nutrients and strange secretions. 
+
+Where the Flowing Vast laps against the dense vegetative zone, a littoral band forms - a soupy, labyrinthine network of inlets, lagoons and quaking mires. Carnivorous pool-lilies drift languidly, luring small flying creatures to their sweet-scented, trap-door centers. Mangrove-like trees sprout above waterlogged root mounds, their branches hung with bulbous, bioluminescent fruits. Aerial jellyfish waft through on the humid air, trailing stinging tentacular vines below them.
+
+The waterways are the planet's circulatory system, channeling nutrients, energy and information between the different biomes. Powerful memory-molecules and mind-altering substances bud from the aquatic plants, borne along by the currents to merge with the Dreamers' distributed sentience. Pulses of charged ions flicker through the conductive fluids, triggering cascading bio-electrical signals in the planetwide super-organism. 
+
+In the Flowing Vast, the patient rhythms of the hydrological cycle set the tempo rather than the slow green dreams of the Chlorophyll Realm. The waters rise and fall with the rain-drenched seasons. Lakes swell into inland oceans before evaporating back to revealing shimmering, organic mud flats. Channels diverge and braid and merge again. Floating islands collide and splice and break apart in never-ending succession.
+
+Life here is fleeting and ever-changing compared to the Dreamers' domain, but no less vital in its role in the planet's strange metabolism. The waters bring change, motion and circulation. They connect and transform, bearing the stuff of life through the planet's immense, eerie anatomy. The aquatic arteries pulse, the floating mats respire, and the creatures of mucus and light dance in the deeps - all part of the same living, dreaming whole.

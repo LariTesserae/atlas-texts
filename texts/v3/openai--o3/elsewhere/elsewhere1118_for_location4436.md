@@ -1,0 +1,55 @@
+The Clockglass Littoral  
+
+Follow the thin streams the white plateau bleeds from its bronze ribs—threads of overflow that tumble three vertical kilometres, atomise in sunlight, are gathered again by wind and carried east.  Evening forces the wind to descend, and where it finally concedes you find coast: a long concavity in the continent’s flank where the airborne water lands as glass instead of rain.  No one agrees whether the change is chemical or grammatical.  It simply happens.  A drift of invisible punctuation in the air turns liquid into panes a hair’s breadth thick, and they flutter down like spent cicada wings, settling edge-first in dunes that ring when trod upon.
+
+Geography  
+The littoral is neither beach nor desert but a bowl of brittle laminae miles wide.  From cliff-rim to tideline the ground is a steeply tilted mosaic of glass feathers oriented shoreward, always shoreward, so that to walk seaward you descend a creaking escalator that never moves yet forever suggests motion.  Far below, the bowl’s lowest lip is met by a hungering ocean.  The sea is the colour of solder and rarely still; upcoast currents arrive warped by the plateau’s fractured geometry, so waves climb the shore in figures of eight, meet their own backs, and retreat as churning spirals.  When the tide recedes it drags a billion slivered panes with it, grinding them to iridescent meal that clouds the water for leagues.
+
+The Pallid Day  
+Light here inherits the plateau's relentlessness but scatters through glass dunes until no single object owns a shadow.  Dawn begins three times: first as a blunt reddish smear under the horizon, then as overlapping crescents of pale white—as though the sun were trial-fitting locations—finally as the true disc.  Each failed sunrise leaves a luminous after-image on the dunes, a silvered hot spot that fades by noon.  Navigators learn to plot their course by these ghost dawns: one follows yesterday’s second sunprint until it dissolves beneath your boots.
+
+Sound  
+Nothing is silent here because nothing is solid.  Every footfall propagates a staccato ripple of tinks that can carry half a mile.  Even wind makes music, bowing chords from the overlapping plates.  Yet the pitch is never constant; the littoral retunes itself hourly as temperature drives micro-fractures through the glass.  To sleep you must bury your head under lint packs of kelp pulled from tidepools, or else dream in broken chimes.
+
+The Seam—Where Plateau Meets Littoral  
+At random intervals—sometimes twenty minutes, sometimes seventeen days—the mirror arrays on the plateau re-aim and lance daylight through the upper air.  Those columns of glare strike the littoral like searchlights, erasing colour, annealing the top few inches of dune into a single, rimless lens.  Through that cooling lens you can read downward across months of accumulation: older panes settle under younger in stratigraphic hush, each thin enough to show the seabed below, until the eye senses absurd proximity—a league of depth laid intimate.  Divers swear they have watched lamp-eels in the sump reservoirs of the plateau, looking up through those same lenses, seeing the littoral stacked overhead like a sky of crushed windows.
+
+Flora & Like Things  
+1. Kelp-Ink Lichens: Spread on the inner faces of glass that dip below the high-tide mark, brushing nutrients from waves that drape themselves across the panes.  At dusk they exude a bioluminescent ink that seals hairline cracks, then flakes free as neon confetti.   
+2. Somersault Rushes: Not plant but a phase in water’s confusion.  A rush germinates when a handful of panes fuse into a hollow needle; capillary action lifts seawater inside, whereupon the needle overbalances and rolls end-over-end shoreward, planting a straight dark line across the dune.  By sunset the water has leaked away and the rush disintegrates into harmless shards.   
+3. Saltglass Coral: Forms where seawater is ground into aerosol by the restless tide patterns.  The spray re-solidifies mid-air into branching spicules that grow downward like frost until they peg themselves to exposed rock.  Hard as quartz, hollow as bird-bone, they ring if struck and are prized by tool-makers on both shore and plateau for resonant handles.
+
+Fauna  
+1. Quarrel-Terns: Fork-tailed seabirds whose throats contain a rasp of vetted sand.  When threatened they spew a needle fan of glass dust capable of rasping the enamel off a predator's teeth.  Their beaks are stained turquoise from feeding on the same coppery aerosols that colour the plateau’s lichen rings.  Terns migrate twice daily: dawn flights to the plateau to harvest insects stunned by altitude; dusk returns to nest on ledges under the littoral cliffs, their bellies flickering with stolen lamp-eel light swallowed en route for warmth.  
+2. Hourfish: Transparent cartilaginous swimmers visible only by the sand ticking through their bodies.  Each fish collects grains at the mouth, lets them fall along a coiled digestive helix, and ejects them at the tail exactly sixty heartbeats later.  In calm pools whole shoals act as living clepsydras; Deaf Priests journey down from the plateau to calibrate their time-sense by the inching pepper trail.  
+3. Fracture-Crabs: Flat as coasters, radial-legged, able to slip between stacked panes.  They use their abdomens as acoustic mirrors, amplifying seismic murmurs from the plateau; in mating season males tap code onto the dunes, composing brief, dazzling mosaics of shivering light that seduce females and map local fault lines simultaneously.
+
+Residences & Non-Residents  
+A. The Sand-clock Caravans  
+Traders from lowland republics arrive on amphibious skyts—sled-boats whose hulls are furred with marten-wool felt.  They buy coral struts, lichen ink, and glass that still remembers yesterday’s sun.  In exchange they bring braids of iron kelp, prized on the plateau for reinforcing impossible archways.  Caravans camp inside dead wave hollows, erecting patterned awnings that instruct the wind how to avoid their tents; every morning they harvest the errant gusts and sell them bottled upriver where calm is a luxury.
+
+B. The Reflective Orphans  
+When a traveller’s shadow deserts them atop the plateau, the walker sometimes descends here to mourn.  Most find nothing, for a shadow knows better than to wait.  A few encounter pale silhouettes moving over the dunes independent of bodies—spare reflections that spun loose while the plateau was mis-mirroring.  Orphans make camp at dusk in the lee of coral spires, practicing gestures that might lure back the humans who cast them.  Observers claim the gestures grow steadily more complex, as if the orphans rehearse for an eventual reunion they know must fail.
+
+C. Tidewrights  
+Engineers—some human, some uncertain—who patrol the seam with brass rods tuned to the dunes’ resonant frequency.  When a storm threatens to bury the shore in razor flood, Tidewrights strike the rods in prescribed rhythms, persuading the glass plates to articulate like shingles and spill the surge back into the sea.  Many wear vests sewn from swallows’ discarded mirror feathers, an insurance against mis-timed strikes that might fold space the wrong way.
+
+Clocks, Coins, Commerce  
+Time, on the littoral, can be weighed.  Hourfish sand fetches high prices inland because each grain encodes the interval it travelled—a compressed minute stamped onto silica.  Savants grind the sand into lenses that allow them to see several heartbeats into an object’s immediate history.  Coins minted here therefore resemble tiny transparent seashells; when rotated they replay their own casting, ensuring authenticity at a glance.
+
+Relationship with the Plateau  
+The two places speak primarily by exchange of water and light.  Mist bred on the plateau drifts here and crystallises; in turn, shards blown seawards reflect sunlight back to the heights, giving the plateau ghost afternoons long after real dusk.  Migratory species—chromium swallows, wire-weavers—descend seasonally to comb the dunes for mica slivers to patch nests.  The littoral’s incessant chime migrates upward as well: at certain barometric thresholds the plateau’s turbine halls pick up resonance from below, syncing their week-long rotations to the shore’s glass wind-clocks.  When this happens, corridors straighten fractionally, as though relieved of some torsional indecision.
+
+Anomaly Log  
+• Seventh Spiral Storm, year indeterminate: all panes within a five-mile crescent fused into a single mirror arching upslope.  Reflection revealed an alternate plateau where the turbine-martens wore bronze masks.  Arch cooled, curled, and shattered at moonrise, scouring the shoreline clear of orphan shadows for nine months.  
+• Lamp-Eel Cortège: witnessed once per generation.  Dozens of eels ascend subterranean faults and breach offshore, their photophores dark, bodies slack—funerary state.  The sea lights for them; waves curl luminous, guiding the corpses toward a trench west of the bowl.  In response the plateau dims to quarter power, turbines slowing as though in shared mourning.  
+• The Double Dawn: when the sun appears twice and the second disc refuses to leave.  Tidewrights report the false dawn ripples like heat-shimmer when struck with brass but casts gravitational pull real enough to raise its own tide.  Event lasts until a Deaf Priest arrives to sing it shut.
+
+Etiquette for Visitors  
+1. Never turn a pane face-down; the dune records direction in its tilt and relies on this for memory.  
+2. Drink only from tidepools where hourfish swim clockwise; counter-rotating fish are measuring someone else’s lifespan.  
+3. Accept that you will cut yourself.  Apply lichen ink to the wound; it glows green while cleansing then fades.  A wound that will not accept ink is a wound you earned somewhere else in time—seek a Deaf Priest before nightfall.  
+4. If a Quarrel-Tern drops glass dust in your palm, scatter it windward: the bird has posted you as a boundary marker against unseen weather.
+
+Closing Confluence  
+Stand on the highmost dune when the plateau’s mirrors blink and you may glimpse the greater engine these two places compose.  There: water climbs a mountain, forgets itself into cloud, drifts east, remembers, falls as glass, grinds against ocean, is drunk by hourfish, traded for iron kelp, woven into archways back atop the world where water will condense once more.  The circuit loops not merely through space but through states of certainty—liquid to solid to reflection to intention and back.  Break it and the dunes will dull, the plateau will ossify, and the world between will lose the habit of possibility.  Keep walking, therefore.  Listen for the chime beneath your footsteps, taste the metal in fog, watch for the place where your shadow steps politely aside to let you pass, and understand: the littoral is the plateau’s dream of the sea, just as the plateau is the littoral’s memory of height.  Neither is complete without the echo of the other, folded together like light underneath unfinished glass.

@@ -1,0 +1,15 @@
+Far above this ancient living maze, nearly at the surface world's threshold, exists the Sunward Garden. Here, the fungal architecture thins and changes, forming translucent sheets and delicate spires that capture what little light filters down from above through crystal-studded fissures in the rock. This is where the Living City reaches toward the outside world, not in conquest but in careful conversation.
+
+The walls here are almost gossamer, stretched into vast curtains that glow with a pearly iridescence. Countless tiny prisms of crystallized fungal matter catch and scatter what light reaches them, creating shifting patterns of rainbow-tinted shadows. The chamber itself feels like being inside an enormous soap bubble - delicate yet surprisingly strong, forever on the edge of transformation.
+
+Here dwell the Light Weavers, distant cousins of the deeper-dwelling Shapers. Their bodies are more crystalline than organic, having evolved to incorporate minerals from the surrounding rock into their exoskeletons. They tend to the light-catching structures with the same patience as their deep-dwelling kin, but their movements follow the slow dance of sunlight and shadow that plays across their domain.
+
+The Light Weavers maintain a careful balance. Too much surface light would disturb the ancient equilibrium below, while too little would starve the photosynthetic fungi that grow here. They adjust the translucency of the walls by introducing or removing certain minerals, creating living filters that regulate the light reaching the lower chambers.
+
+The connection between these two realms - the deep, dark Living City and the luminous Sunward Garden - is maintained by the Gradient Dancers. These ethereal creatures travel the vertical channels that connect the two zones, their bodies adapting as they move between light and dark. They carry chemical messages up from the depths and bring down encoded patterns of light changes from above, helping to synchronize the rhythms of both worlds.
+
+These vertical channels are themselves remarkable - spiraling passages lined with specialized fungi that gradually shift from light-sensitive to dark-adapted varieties as they descend. The walls of these transitions zones are embedded with chains of bioluminescent organisms that pulse in patterns matching the day/night cycle above, creating a gentle gradient between the timeless depths and the rhythm-bound surface world.
+
+It's here in these transition zones that the eternal stability of the deep city negotiates with the cyclic changes of the surface world. Each realm influences the other - the surface world's rhythms are softened and translated into chemical signals that the deep city can process, while the ancient stability of the depths helps anchor and regulate the more chaotic energies above.
+
+This interface between two different ways of being - one eternal and unchanging, the other bound to cycles of light and dark - creates a unique ecology of time itself. It's as if two different varieties of time flow past each other here, exchanging information without quite mixing, like two liquids of different densities in the same vessel.

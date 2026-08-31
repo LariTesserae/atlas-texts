@@ -1,0 +1,15 @@
+What a fascinating depiction of the Mirror Market and its crystalline denizens. Let me tell you about another place in this world, connected yet distinct - The Resonance Archives.
+
+High above the city, in the upper reaches of an ancient bell tower, exists a space where sound itself takes physical form. The Archives occupy a series of circular chambers that spiral up through the tower's core, each level separated by brass lattices that vibrate in sympathy with the sounds that pass through them.
+
+Here, Tone Scribes work to capture and preserve the city's acoustic memory. Using arrays of carefully tuned crystal rods (sourced, through complex arrangements, from the Mirror Market below), they transmute sound waves into delicate structures of crystallized resonance. These structures - called "soundforms" - capture not just the acoustic properties of a sound, but its emotional resonance, its context, its meaning.
+
+The air here is deliberately dry and still, maintained by complex systems of bellows and desiccants. The walls are lined with cork and felt, creating an environment of precise acoustic control. Unlike the cool dampness of the Mirror Market, the Archives are warm and dust-moted, filled with the soft clicking of crystal rods adjusting themselves and the whisper of the Scribes' silk robes.
+
+The Tone Scribes themselves are as transformed by their work as the Quiet Ones below, though in different ways. Their ears have developed extra folds and channels, capable of detecting the finest variations in pitch and timbre. Their fingers have become extraordinarily sensitive to vibration, able to "read" soundforms by touch alone. Their voices have evolved to produce perfect harmonics, though they speak rarely, preferring to communicate through carefully modulated hums.
+
+The connection between these two spaces - the depths and the heights - runs deeper than mere commerce in crystals. The tower's foundation extends down into the cave system, and its massive stone core acts as a conductor for vibrations between the two realms. The Quiet Ones' crystal gardens sometimes grow in patterns influenced by the soundforms being created far above, while the Archive's crystals occasionally capture echoes of the strange songs that emerge from the Market's depths.
+
+There's a symbiosis between these places - the raw, geological patience of the Market providing the material substrate for the Archives' more ephemeral work. Together, they form a kind of acoustic nervous system for the city, one operating on a timescale of centuries, preserving memories in crystal and stone.
+
+On rare occasions, when certain harmonics align, resonances pass between the two spaces, creating moments of perfect harmony where the boundary between sound and crystal, memory and matter, becomes momentarily transparent. In these moments, the Tone Scribes and the Quiet Ones recognize each other as practitioners of different aspects of the same art - the transformation of the ephemeral into the eternal, and back again.

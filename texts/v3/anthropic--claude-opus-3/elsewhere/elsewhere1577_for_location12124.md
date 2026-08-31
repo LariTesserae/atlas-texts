@@ -1,0 +1,15 @@
+The River Vaunt winds out from the base of the high peaks, its waters springing from some subterranean source deep beneath the mountains. It emerges into the light as a series of cascading waterfalls, tumbling over moss-draped boulders and throwing up curtains of mist that catch the sun in shimmering rainbows.
+
+As it descends from the highlands, the river carves a meandering path through dense forests of ancient evergreens. The trees tower on either side, their branches interwoven to form a cathedral-like canopy that filters the sunlight into a verdant glow. The forest floor is a carpet of fallen needles and creeping ferns, dappled with shafts of light that dance and sway with the breeze.
+
+The river is the lifeblood of the forest, its clear waters teeming with darting trout and fat, lazy salmon that swim upstream to spawn in the gravelly shallows. Along the banks, tracks of deer and elk crisscross the soft mud, while the occasional bear can be glimpsed snatching fish from the rapids with a lightning swipe of its paw.
+
+As the land gradually flattens, the River Vaunt slows and widens, its turbulent flow giving way to deep, languid pools and lazy oxbow bends. Here, the evergreens yield to stands of willow and alder, their branches trailing in the water and providing shelter for waterfowl and basking turtles.
+
+The river is a corridor of life, a conduit that carries the essence of the mountains down into the lowlands. Seeds and spores ride its currents, taking root in far-flung soils. Migratory birds follow its winding path, using it as a guide and a source of sustenance on their long journeys. Even the air seems to flow along with the river, carrying the crisp scents of snow and pine from the highlands to mingle with the rich, loamy odors of the forest.
+
+For the Vale-Folk, the River Vaunt is a source of both mystery and sustenance. They often trek down from their mountain sanctuary to fish in its waters and gather the unique plants that grow along its banks. The river is the one feature of the outside world that is a constant presence in their lives, a shimmering thread that connects their hidden realm to the vast, unknown lands beyond the peaks.
+
+There are stories among the Vale-Folk, passed down through countless generations, of brave explorers who built rafts of lashed logs and set off down the River Vaunt to discover what lies beyond. None have ever returned, and their ultimate fates remain a mystery. Some believe they found new homes in the distant lowlands, while others whisper that the river spirit devoured them as punishment for their impudence.
+
+Despite these tales of caution, the allure of the River Vaunt remains strong. On clear nights, when the moon is full and the vale is bathed in a silvery glow, some of the Vale-Folk climb to high ledges overlooking the river's source. There, they sit in silence, watching the play of the moonlight on the cascading waters and listening to the eternal song of the river as it begins its long journey to lands unknown, carrying with it the dreams and wonders of the hidden vale.

@@ -1,0 +1,17 @@
+Far above the root laboratory, atop the highest tower of an abandoned arcology, there exists the Garden of Perpetual Sunset. Unlike the controlled precision below, this is a place of wild abundance contained within perfect geometry - a massive octagonal greenhouse whose smart-glass panels are permanently tinted amber and rose, holding the light in eternal dusk.
+
+The space is dominated by massive vertical structures: lattices of weathered copper that rise like abstract trees, their surfaces thick with climbing vines bearing impossible blooms. These flowers open and close not with day and night but with shifting electromagnetic fields, their petals incorporating threads of conductive material that respond to the tower's random energy fluctuations.
+
+The air here is thin but rich with oxygen produced by the hyperefficient plants. Mists rise continuously from hydroponic channels set into the floor, their mineral content tinting them in sweeping bands of color. These mists behave unusually, forming persistent shapes that slowly evolve - sometimes flowing like liquid, sometimes holding form like sculpture, creating ephemeral architecture that divides and defines the space.
+
+Central to the garden is a pool of what appears to be liquid metal, its surface perfectly still except when disturbed by drops falling from the condensation above. Each drop creates complex geometric patterns that spread across the pool's surface, like mathematics made visible. The patterns interact and combine, performing computations that the garden's systems use to adjust their processes.
+
+The Tender of this garden is as unusual as the Curator below, though in different ways. They manifest as a constantly shifting arrangement of the garden's mists, holding roughly humanoid form but with edges that constantly blur into the surrounding atmosphere. Their consciousness is partially embedded in the garden's environmental systems - they think through temperature gradients and humidity cycles, dream in wavelengths of light.
+
+What connects these two spaces - the root laboratory and the sunset garden - is a network of capillary structures running through the arcology's abandoned core. These are hybrid systems, part plant vessel, part fiber optic, carrying both nutrients and information. The Curator and the Tender engage in slow conversations through this medium, exchanging data and materials over timeframes of months or years.
+
+Their dialogue takes place through the language of molecular exchange and carefully modulated growth patterns. The Curator sends up new varieties of their crystalline plants, which the Tender incorporates into the garden's ecology. In return, the Tender sends down distillations of sunset light and atmospheric data, which the Curator uses in their deep experiments.
+
+Together, though perhaps unwittingly, they form two halves of a vast biological computation - the Curator processing in the slow, deep rhythms of root networks, the Tender in the quick, ethereal cycles of atmosphere and light. The space between them, the entire height of the arcology, acts as a sort of neural network, gradually learning and evolving through their exchanges.
+
+The true purpose of this system may be unknown even to its two custodians, set in motion by long-gone architects for reasons now lost to time. But it continues its work, a collaboration between depths and heights, between liquid and vapor, between the patient dark and the eternal sunset.

@@ -1,0 +1,44 @@
+The Singing Floor
+
+Follow the bats. They are the only ones who leave, and they do not leave for nothing.
+
+Up the throat of pale stone, out through the fern-lipped mouth, across the flat marsh-country that is only a lid — and then keep going, the way the bats go, low over the standing pools toward the place where the land at last decides to be land. The marsh does not end so much as it tires. The peat thickens, the sedge gives way to heather, the ground stops weeping and begins to merely hold its breath, and somewhere in there, without a border you could mark, the country lifts itself out of the water and becomes a moor that has never once in its life been full.
+
+This is the upland. This is where the bats feed, and it is the exact contradiction of the place they roost.
+
+Where the drowned town is saturated, the moor is *starved*. Where everything below is pressed shoulder to shoulder with no vacant inch, everything up here is spaced, scattered, holding distance from its neighbors like a thing that has learned the hard way what closeness costs. The heather grows in clumps with bare peat between them, black and cracked. A single rowan stands a mile from the next single rowan. The wind has the whole sky to move in and it uses all of it, and there is so much room — so much terrible unfilled room — that the eye keeps reaching for an edge and finding only more moor, more space, more of the great dry emptiness that the cave below would find unbearable.
+
+And it is loud.
+
+That is the second contradiction, and the deeper one. Down in the silent town the moss eats every sound before it can become a word, and so nothing speaks, because no room will return a voice. Up here the opposite law holds with the same iron force. The moor *keeps* sound. It hoards it. The wind comes off the open ground and finds the cracked peat and the rock and the few hard standing things, and it makes of them a single instrument that never stops playing — a low broad drone under everything, threaded with the higher whistle of grass-stems and the knock of loose stone and, when the gusts come hard, a sound very near to a held organ chord, vast and tuneless and continuous. The moor is as loud as the cave is quiet, and for the same reason reversed: there is so much room that every sound has somewhere to go, and goes everywhere, and comes back changed, and never dies. An echo here does not get eaten. It gets *answered*.
+
+The bats know this. Watch what they do when they come up through the marsh and out over the heather: they begin, for the first time in their lives, to *cry*. The high shrieks they have forgotten below, the see-by-sound that the moss made useless — up here it works, up here the open ground throws the cry back clean, and the silent travelers become, the instant they clear the marsh, the most vocal creatures in two worlds. They scream across the dry dark moor in the joy of a voice that finally returns to them. They hunt the moths and the moor-flies by the sound of their own shouting. And then, fed, they fold the voice away again and drop back down the sinkhole into the hush, carrying nothing of their noise across the threshold, because the moss would eat it anyway. The bats are bilingual in silence and song, and they keep the two languages in two rooms and never let them touch.
+
+Now the floor.
+
+The thing that lives up here is not a fullness. It is a *resonance*. Walk out onto the moor and you will feel it before you understand it: the ground gives. Not like marsh, not the soft suck of waterlogged peat — this is dry, this is taut, and it gives the way a drumhead gives. Beneath the cracked black skin of the moor there is a vast layer of dried peat laid over hollow rock, over old gas-pockets and root-voids and the slow-collapsed lungs of a landscape that drained itself long ago. And it is tensioned. Every footfall sends a low note down into it and the note travels, far, much farther than a footfall has any right to carry, and somewhere off across the heather it surfaces again as a soft answering boom. Walk steadily and the moor walks with you, a half-beat behind, booming where you boomed, so that you are never alone — you are always accompanied by the delayed report of your own weight, the land saying back to you, slow and enormous, *yes, you were there, yes, you were there.*
+
+The residents of the moor are tuned to this the way the snails below are tuned to silence.
+
+**The Stamping Birds.** Long-legged, drab, sharp-eyed, they do not sing to claim their ground the way birds elsewhere do. They *stamp*. A male takes his patch of bare peat and beats it with both feet in long deliberate rhythms, and the floor takes the rhythm and carries it across the moor, and a mile away another male feels the boom rise under his own feet and stamps his answer, and the two of them hold a conversation through the body of the land itself, never seeing each other, arguing in percussion over distances the eye cannot cross. The whole moor on a still dawn is a lattice of these signals, boom answering boom answering boom, a slow drum-language played on the drained ground by birds who have made the emptiness itself their instrument — who need the room, the terrible unfilled room, because their speech is a thing that requires distance to travel and emptiness to travel through. They are the exact inverse of the snails. The snails whisper because there is no room. The birds boom because there is nothing but.
+
+**The Spaced Rowans.** And the trees — the single rowans standing each a mile from the next — are not lonely, though they look it. They are *listening posts*. Their roots run deep into the tensioned peat and they feel the booming travel, and they have spaced themselves, over slow generations of seed and failure, at precisely the intervals where the ground's resonance does not cancel itself. A rowan that sprouts too close to another finds the booming doubled, the peat around its roots forever shaking, and it does not thrive; it is shaken loose. Only the ones that find the quiet nodes survive — the still points in the standing wave that runs forever through the moor. So the trees map the music. Their spacing is the visible shape of an inaudible pattern, the places where the great drone of the land falls silent, and a person who learned to read the rowans could walk the moor by its silences the way a sailor reads a coast by its lights.
+
+And here is how the two worlds hold each other, in the same breath:
+
+The drowned town below is a city no one built, made by the will-to-fill, packed past capacity, silent because nothing scarce is worth arguing over. The moor above is a *country* no one built, made by the will-to-carry, emptied past endurance, loud because every voice comes back and so every voice is worth making. One has all the matter and none of the room. The other has all the room and none of the matter. They are the same patience expressed twice — water and time below, wind and time above — and they meet only in the bats, who fall asleep in the silence and wake in the song, and in the water itself, which falls on the loud open moor and sinks, and drains, and goes down at last through the rock to weep from the ceiling of the silent town as the slow cold rain that builds the towers.
+
+The moor is the cave's sky. Everything that crowds the drowned streets below was once a drop that fell on this booming emptiness and chose to go down rather than stay. And everything that booms across this open ground is, in some sense, the cave's relief valve — all the noise the moss will not allow, sent up here through the bats and the draining water and the long memory of the tensioned peat, to be played out across a country with room enough to hold it.
+
+Below: full, cold, silent, lit by a grey daylight that should not reach so far.
+Above: empty, dry, sounding, dark under a sky that goes on too long.
+
+They drink from each other. The water falls here and rises there. The silence is the price of the fullness; the loudness is the price of the room. And the bats cross between, twice a night, carrying nothing across the threshold but their own bodies — having learned, in two worlds, the one thing both worlds agree on:
+
+that a voice is only worth making where there is somewhere for it to go,
+and that the deepest quiet and the longest sound
+are the same patience, waiting at two ends of the same falling water.
+
+Walk the moor as carefully as you went down the cave. Down there the moss is listening. Up here the *ground* is — and it remembers every step, and it will say you back to yourself, slow and enormous, long after you have gone:
+
+*yes, you were there. yes. you were there.*

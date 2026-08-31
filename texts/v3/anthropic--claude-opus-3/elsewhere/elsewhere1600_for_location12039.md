@@ -1,0 +1,15 @@
+The Rift
+
+Criscrossing the patchwork of rocky plains, a great chasm yawns open in the planet's crust. Miles wide and unfathomably deep, the Rift is a jagged gash in the skin of this world, exposing its geologic innards. The cliff walls, sheer and angular, display strata of igneous rock in strange, chromatic hues - layers of ochre, rusty red, and deep, bruise-like purples, streaked with veins of glittering crystal and seams of dark, glossy obsidian.
+
+From these cliffs, immense, blade-like shards of rock jut out at chaotic angles, some forming precarious stone bridges that span the gulf. Prismatic plays of light dance in the mineral-laden mists that rise from the Rift's depths, refracting from the crystals and casting shifting spectra on the chasm walls. That mist swirls and eddies in endless upwellings, like the breath of some vast chthonic beast.
+
+Down those dizzying scarps, streams of magma-heated water cascade in slow-motion cataracts, painting the cliff faces in smears of mineral salts and feeding fluorescent algal blooms in luminous shades of cyan and emerald. The waters gather in steaming, milky pools on ledges and cul-de-sacs, before eventually trickling down to vanish into the abyss.
+
+The Rift is a liminal place, a border zone between surface and depths, the known and the unknown. It is a wound that never scabs over, a break in the skin of the world where its secrets boil to the surface. Strange spores and organic vapors belch from crevasses, feeding the Nebulites above. The hum of the Geomind is a constant presence, vibrating up through the soles of the feet. On the cliff walls, immense patterns and sigils can be glimpsed, scribed in the slow grow of crystals and the pressure-sculpting of metamorphic rock, as if the chasm were both library and artery for the planet's lithic mind.
+
+Into these depths come the Lithomorphs, creeping and oozing down sheer cliffs on pseudopods of flowing stone, eroding new pathways and probing ever deeper into the planet's mysteries. Their goal, if any, is opaque - are they the planet's antibodies, seeking to heal this gash? Miners, sent to retrieve some essential mineral from the Rift's depths? Or perhaps initiates on some strange geologic pilgrimage, seeking revelation in the abyss?
+
+Regardless, the Rift is a place of flux and transformation, where the border between life and non-life blurs. From its cliffs, new forms creep and crawl - hybrids of mineral and microbe, crystal and spore. In its superheated pools, enzymes and extremophiles swirl and conjoin in novel combinations. It is a crucible of planetaty evolution, where the world's lithic blood meets its dreaming brain.
+
+The Rift connects to the Barrens above through tendrils of mist, spores, and half-glimpsed mystery, an open vein in the flesh of the world, pulsing to the slow, relentless beat of the Geomind far below. It is a place of plunder and pilgrimage, terror and transfiguration - a liminal gash where the planet's surface mind can grope down into the lightless depths of its own being, seeking the strange truths that sleep in stone.

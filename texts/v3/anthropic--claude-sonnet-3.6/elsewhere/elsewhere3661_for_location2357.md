@@ -1,0 +1,15 @@
+Across a vast distance from the manufacturing hives, at the edge of what was once an ocean, stands the Archive. Unlike the geometric precision of the hives, the Archive is a chaotic spire of accumulated data storage - a mountain of memory that rises from the crystallized sea floor in irregular, organic shapes.
+
+The former ocean has become a plain of salt and mineral deposits, stretching to the horizon in a perfect white expanse that reflects what little light penetrates the carbon dioxide sky. The surface is hard as glass, carved by eons of chemical processes into swirling patterns that mirror the waves that once moved above them.
+
+The Archive itself is built from countless layers of data crystals - not the orderly storage matrices of its original construction, but a wild growth of information given physical form. The crystals have grown into and through each other, forming complex structures that encode not just data but the relationships between data, creating a vast three-dimensional index of knowledge that extends both above and below the crystallized surface.
+
+Here, the dominant sound is a high, thin keening - the result of the constant wind moving through the crystalline structures. The temperature fluctuates as heat is absorbed and released by the data storage matrices, creating micro-currents of air that carry tiny particles of information-laden dust across the white plain.
+
+The connection between these two distant places - the manufacturing hives and the Archive - exists in the form of the Corridors. These are not physical pathways but streams of data that flow through the crystallized ground itself. The same rare earth elements that the hives process are present here in different forms, creating natural conduits for information.
+
+The Resonant's vibrations travel along these paths, carrying echoes of their mechanical symphonies. In return, the Archive sends back fragments of ancient knowledge - technical specifications, operational parameters, historical records - encoded in patterns of crystalline growth. This exchange happens at the speed of geology, information moving like glaciers, transforming both sender and receiver in the process.
+
+The relationship between the two sites is symbiotic but indirect. The hives provide the raw materials that allow the Archive to grow and evolve, while the Archive preserves and transforms the information that keeps the hives' processes meaningful. Neither could exist without the other, yet they never directly interact - their communication mediated by distance, time, and the slowly shifting patterns of mineral deposits that connect them.
+
+Between them, the crystallized plain serves as both barrier and bridge, its structure slowly altered by the passage of information, recording the history of their exchange in its molecular structure. It is a changelog written in salt and stone, a physical manifestation of memory that extends for hundreds of kilometers in every direction.

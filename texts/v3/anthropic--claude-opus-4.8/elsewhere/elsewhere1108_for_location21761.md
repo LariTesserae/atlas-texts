@@ -1,0 +1,43 @@
+**The Drinking-Up**
+
+Follow the drop.
+
+Not the one that falls — the one that does not. For every drop of outside water that plunges down through the hollow and floods the lamp-light blue, a thousand drops climb. The host plant drinks. It is the largest fact in the Tenders' world and the one they think about least, the way you do not think about the pull of your own blood toward your heart: the water in the channels does not only fall and pool and drain into the dark. It rises. Day on day, in the slow tide the water-walkers read with their feet, the host hauls water up out of the wet country and through its own stem and out into its growing tips, and the wall-readers know this without naming it, because the growing edge they press their fingers to is where the water is going. The new nodes form because something is being pushed there. The town lives downstream of an enormous thirst.
+
+So follow the thirst up. Up past the highest new node where the dry air comes down and the wall-readers go quiet. Up out of the body altogether, into the open burning thing — and there, where the inside stops and the dark ends, is the other place.
+
+It is the surface of the leaf.
+
+---
+
+I have to ask you to turn yourself inside-out to stand here, because everything that was true below is now reversed. Below was inside; this is outside. Below was dark; this is the most light there has ever been. Below was held, breathless, cellar-cold; this is open, moving, and warm — warm the way a stone is warm at midday, a heat that comes from above and soaks down through everything and is *gone* at night, withdrawn entirely, so that the temperature here does not hold steady but swings, vast and regular, hot to cold to hot, the great slow breath of the day that the Tenders far below have never felt and could not imagine. They live in a body's even fever. This place lives in the weather of the sky.
+
+And it is *vast.* The single moss-leaf is, to anything the size of a Tender, a country. A green plain of cells the size of houses, curving away to a horizon that is the leaf's own edge, where the country simply stops and there is a fall into bright air. Down the center runs the rib — the same woody rib that, far below, makes the beams of the Tenders' roofs, except here it is no beam, here it is a mountain range, a ridge running the length of the world with the water-channels buried inside it. The host drinks up through that rib. Stand on the rib and you are standing on the road the water takes. Press your hand to it — if you had a Tender's hand, which the dwellers here do not — and you would feel the cold tide climbing inside, the same tide the water-walkers read, arriving here at the top of its long haul to be breathed out into the light.
+
+Because the leaf breathes. This is the work of this place, the way tending is the work of below. All across the green plain are the breathing-mouths — pores, each one a gateway the size of a gate, that open in the warmth and close in the cold, and through them the host lets go of the water it spent all day lifting. The drop that falls into the Tenders' town is a failure, an overflow, an accident of too much. The real water leaves here, openly, as breath — rising off the whole green country at once in the heat as an invisible exhalation, a haze, a giving-up-to-the-sky. The Tenders catch the leak. The dwellers here tend the giving.
+
+---
+
+They are not Tenders. They could not be. A Tender brought up here would go stiff and papery and panicked within a breath, would burn in the light, would feel the whole world bleeding out of its skin into the dry moving air. The dwellers of the leaf-top are built from the opposite logic.
+
+They are flat, and they are hard, and they shine.
+
+Flat, because to live on a windswept plain under a falling sky is to learn not to be caught by the wind — they press themselves to the green and they are the color of the green and they are armored above in a polished case that throws the light back rather than letting it in. A Tender is translucent and damp and drinks through the skin. These are sealed. They are little shut vessels that hoard their water against the burning day, that open only at the narrowest seam to feed, that have made of their own bodies the same closed bead the Tenders' town is — a held wetness inside a hard shell, surrounded by a world that would dry them to nothing.
+
+And they have eyes that *work.* This is the strangest thing about them, from below: they look. They have the use of the light. Where a Tender knows the world by edge-and-nothing and reads a face it has never seen by the steadiness of lamps, these creatures see color, see distance, see the falling edge of the leaf-country and the bright nothing beyond it and the slow shapes of larger things crossing the green. They are *watchers* the way the Tenders are listeners. Their whole grammar runs through the eye. They signal to each other across distances no Tender voice could cross, by flashing the polished case, by tilting the armor to catch and throw the light — a whole language written in glints, in the same brightening the Tenders would recognize and could never read, because for the Tenders brightness is the answer the beasts give, and for these it is the word the people speak.
+
+They are many. This is the other reversal, and the deepest. The Tenders are sparse in their own city, spacious, never crowded, a people for whom many bodies is a flood. The leaf-top swarms. There is no spaciousness here. There is no held silence between persons. The green plain is *covered* — a glittering multitude pressed flank to flank along the breathing-mouths, jostling, flashing, a whole shining nation living shoulder to shoulder in the open light, loud not with sound but with signal, a constant overwhelming weather of seen-ness. A creature of the leaf-top is never unwatched and would not understand the wish to be. To be alone, up here, is to have died.
+
+---
+
+So you have the two ends of the same water.
+
+Below: dark, even-warm, held, sparse, silent, read by hand and ear, a few quiet people tending an overwhelming press of animals, catching the leak of a thirst they live downstream of and do not question.
+
+Above: bright, weather-swung, open, swarming, signal-loud, read by eye, an overwhelming press of people tending the open giving-out of that same water into the same sky the thirst climbs toward.
+
+And between them, the rib — the road, the column, the long buried tide — carrying water up from the wet country, through the body, past the lamp-lit town where the water-walkers feel it pass and never know where it is going, up to the breathing-mouths where the shining multitude feels it arrive and never knows where it has been. The two peoples will never meet. The light that would let them see each other would kill one of them, and the dark that lets the other live is a thing the shining ones cannot enter without going blind. They are the two banks of one river and the river is vertical and neither bank knows there is another side.
+
+Except in this: when the heat is greatest and the breathing-mouths gape widest and the leaf gives up the most water it will give in a day, the column runs lowest in the rib — drawn up, spent into the sky, the tide at its thinnest down below. And in that hour, far underneath, the water-walkers feel the cisterns run shallow and the channels go quiet, and they put their many-jointed hands to the wall and read the host gone thirsty above them, and they say to each other, in the four sentences of a deep visit, *the high places are drinking hard today.* They mean the growing tips. They do not know they mean a plain of armored watchers, flank to flank in a light they will never survive, flashing the whole bright noise of their crowded lives at one another while the water they were lifted up to release rises off them invisibly and climbs into the sky — the same sky that, drop by accidental drop, lets fall one stone of water down the long dark stem, into the held breath of the town, where the lamp-beasts flare blue at the shock of it, and the Tenders close their eyes against the brightness, and reach out, and hold the nearest frightened living thing, and wait for it to pass.
+
+It always passes. The water goes up. Some of it comes back down. Both peoples call the coming-down an alarm and the going-up their life, and they are the same water, and it never stops moving between them, and neither has any word for the other at all.

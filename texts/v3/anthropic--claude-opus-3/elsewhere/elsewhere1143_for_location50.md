@@ -1,0 +1,19 @@
+The Bathyal Trench
+
+From the island's steep submarine slopes, the seafloor falls away into profound darkness. Soundings plummet past the limits of light and pressure into the hadal depths, a yawning abyss that could swallow mountains. This chasm is both of the island and terrifyingly alien to it—a far older, stranger realm beneath the reach of the sun.
+
+In these abyssal canyons and rifts, seawater metamorphoses under titanic pressure into something denser and more primal. Bathyal currents, slow and frigid, creep through the troughs and gullies like icy molasses. In the stygian gloom, forests of jagged basalt and obsidian crags loom, leached of color. Hydrothermal vents punctuate the depths, oases of searing heat and mineral plenty in the icy waste.
+
+Life down here moves to a slower, older rhythm, pulsing in the veins of the earth. Extremophile bacteria thrive in scalding plumes, spinning gossamer veils of organic matter that feed the larger ecosystem. Gigantic tubeworms, ghostly pale, cluster in thickets around the vents, their dimensions and lifespans dwarfing their shallow-water cousins. Blindingly white crabs scuttle across the basalt, translucent claws snapping up specks of bacterial detritus.
+
+In the valleys between the vents, fields of barophilic mussels and clams nod in the sluggish currents, shells aglint with fool's gold. Xenophyophores, agglomerations of unicellular organisms, spread across the substrate like amoebic mats, engulfing sediment and smaller prey. Swarms of krill and shrimp, pale as ghosts, ripple through the abyss in great living waves. 
+
+Strange fish, all jaws and filaments, glide in from the barren stretches, drawn to these oases of plenty. Chimaeras, polka-dotted and ancient, probe the silt with venomous spines in search of buried crustaceans. Bioluminescent anglerfish dangle glowing lures into the gloom, nightmare faces bristling with needle-teeth. Gulper eels, loose sacks of gelatinous flesh trailed by whiplike tails, cruise in languid s-shapes, mouths gaping.
+
+In the extreme pressure and cold, metabolisms slow to a crawl, lifespans stretch towards eternity, and gigantism reigns. A distant cousin of the limpet, as large as a tractor tire, clings to the canyon wall, rasping away at a garden of chemosynthetic bacteria with a radula as large as a person. Eyeless isopods the size of hounds trundle over dunes of decaying matter. An impossibly ancient cephalopod, its mantle patterned with eldritch whorls of chromatophores, drifts by on skirts of tentacles like a spectral duchess, relic of a bygone eon.  
+
+These chasms are a larder, a refuge, and a highway. When the vents bellow forth their superheated breaths, a rich mineral soup spirals up in shimmering skeins to feed the newborn island's pioneer organisms, an upwelling of primal fecundity. Larvae and lost fry of the abyss ride these plumes like elvator shafts into a higher, brighter, faster-moving world. 
+
+But the trench is also a trap, a sink. The bodies of the island's dead, plant and animal, inevitably find their way down to this cold womb in the earth to be reconstituted into ancient matter. Silt and sand pour down the island's flanks in ashy veils, choking canyons and burying the shores of the abyss, a dark mirror of the accumulating sediments above. 
+
+The abyss and the island share an origin in fire and geologic violence. But while the island races toward the light, packing its span of existence with frenetic change and exuberant complexity, the trench remains a slower, simpler, more primitive realm - a window into origins, a reminder of endings. In its bleak precincts, eons telescope down to a single murky moment.  Life above cannot escape its cold, patient pull, nor its dark promise of renewal. In the island's fleeting existence, the abyss is forever.

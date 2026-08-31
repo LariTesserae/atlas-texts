@@ -1,0 +1,85 @@
+# The Sink
+
+Follow the cold downhill.
+
+It pours off the lowest shelves each evening, the way it has poured for the whole age — soundless, ankle-deep, a river you cannot see going to fill the basins the eye could never resolve from the heights. The dry country gave it to you as an abstraction: *somewhere, far below, the densest growth waits to drink.* But the cold does not stop at the densest growth. The cold keeps going. It is heavier than the dry forest's hunger; it overruns the last terrace, spills past the lowest browser's lowest reach, and falls — still falling — into the place the staircases were always descending toward.
+
+Go down with it. Down past where the spacing closes, where the silver stands begin, for the first time, to crowd. Down to where the rock stops chalking and starts to *stain*. Down to where the air, for the first time in the whole long fall, begins to thicken — and the knife-edge clarity that let you see to the curve of the horizon goes soft, goes gold, goes finally to a grey you cannot see ten meters through.
+
+The water came here. All of it. Every measure the heights metered out in thimblefuls, every dawn-glaze the browsers licked from their own forelegs, every cubic darkness condensed in every waxen leaf — it ran downhill across the age, as water does, and it collected at the bottom of the world, and it is *all here*, and there is too much of it.
+
+---
+
+## The Standing Wet
+
+The first strangeness up top was lushness without water. The first strangeness here is its exact inversion: water without flow.
+
+Nothing pours in the Sink. The cold-tide arrives each night and simply *lies down*, because there is nowhere lower for it to go — this is lower; this is the floor the staircases were built above. So the water stands. It stands in sheets across the dark ground, in films, in a saturation so total that there is no edge between the wet and the dry because there is no dry. The ground is not soil and not stone; it is a black saturated peat, the slow-rotted bodies of a vegetation that lives the opposite of the dry forest's life — that does not hoard a single drop because it cannot conceive of thirst, that spends and spends, transpiring freely into an air already too full to take it, so that the moisture it breathes out does not rise and leave but hangs, fattening the haze, falling back, feeding the standing wet that feeds the next exhalation. A closed circuit. An economy of surplus exactly as total as the heights' economy of scarcity, and exactly as alone.
+
+The plants here are *dark.* This is the thing your eyes refuse, coming down from the silver. Where the heights hoarded the cold against pale waxen skin, the Sink throws away every defense and goes the green-black of wet leaves stacked leaf-on-leaf-on-leaf in the windless murk — broad, soft, dripping, rotting a little even as they grow, crowding so close that there is no spacing anywhere, no formality, no monk's-length of held-apart darkness. There is no darkness to hold apart. The night-cold that the heights rationed so carefully arrives here in such drowning abundance that no plant needs to ration anything, and so they crowd, leaf-on-leaf, fighting now for the one thing this place withholds the way the heights withheld water.
+
+Light. There is almost no light in the Sink.
+
+---
+
+## The Held Breath, Drowned
+
+Up top, the wind crossed the open shelves in long unhurried passes, turning ten thousand waxen leaves with a sound like slow sand. It was the same body breathing — but here, at the bottom of its own descent, the breath has nowhere left to go. The wind that took hours to cross the heights arrives in the Sink only as the faintest stir, a pressure more than a motion, because the basin is too deep and too full and the air in it too heavy with water to be moved. The sibilance is gone. In its place: *drip.* Constant, omnidirectional, uncountable. The sound the heights did not have — could not have, having no water to make it — is the only sound here, water falling from leaf to leaf to leaf to standing water, a million tiny arrivals per second, the patient sand-hiss of the heights inverted into a patient liquid percussion that never once stops.
+
+And it is *warm.* This is the final inversion, and it changes everything that lives. The heights kept their cool beneath the brightness, the temperature of stone in shade, withholding warmth. The Sink keeps its warmth beneath the murk — all that arriving cold lies down in the basin and is held, blanketed under the haze it feeds, never let go, so that the floor of the world is a slow warm soup, a heat that does not bite but never relents, the opposite withholding. Up top you felt sun and chill at once and they never resolved. Down here you feel warmth and wet at once and they never resolve either, and they never will, because there is no white absolute light to cut them apart — only the grey, the gold-gone-grey, the ten-meter murk through which nothing impossibly far is ever laid out clean.
+
+You cannot see across the Sink. You cannot see across the *room* of the Sink. The horizon the heights gave you for free — the whole architecture clean to the curve of the world — is the one thing this place can never offer. Here, all seeing is close seeing. The flat clarity of a thing seen too closely, which up top was the quality of the light, is down here the only kind of sight there is.
+
+---
+
+## The Loud Ones
+
+And so, of course, they are loud.
+
+Begin with that, because it teaches the rest the way the browsers taught the heights. Up top, sound was water spent, and water was life, and so every citizen of the dry canopy was silent — the browsers reading risen necks across kilometers of total quiet, the hunter walking only when wind could hide its single stone. Silence there was the whole grammar of survival. Here, in the drowning surplus, sound costs *nothing.* Water is the one thing no one need hoard. And seeing costs everything, because you cannot see — so the citizens of the Sink threw their whole economy into the channel the heights kept sealed, and they *call.*
+
+The Sink is deafening. Where the dry country's silence had texture, the wet basin's noise has architecture — layer on layer of calling, the way the leaves grow layer on layer, a vertical city of sound built in the murk because sound is the only thing that crosses the murk. Things boom from the standing water. Things shrill from the black canopy. Things drum on the hollow rotted wood, things stridulate, things answer, things lie about their size and lie about their distance and lie about their species, an entire dense commerce of voices conducted blind, because down here you do not read a body a kilometer off — you cannot see a body a hand's breadth off — you *hear* everything, all at once, all the time, and the whole art of living is to pull the one call you need out of the drowning chorus of all the rest.
+
+The browsers spaced themselves to hoard the night. The criers here pack themselves close — there is no spacing anywhere — and they keep their distance not in meters but in *frequency*, each kind calling in its own narrow band, the basin partitioned not by emptiness but by pitch, so that a thing booming low and a thing shrilling high can sit on the very same dripping branch and never once interfere, never once need the kilometer of silence a browser needed, because they have built their solitudes out of sound instead of space.
+
+---
+
+## The Floaters
+
+Look for them first, the way you looked for the browsers first. They are the easiest to believe in.
+
+They live in the standing water and they are built, every line of them, *against the dry forest's whole design.* The browsers grew tall to cross emptiness; the floaters went flat and wide to spread their weight across a surface that would swallow anything that pressed too hard in one place. The browsers wore pale waxen pelts to hoard the dawn-glaze; the floaters wear a dark slick skin they keep deliberately wet, that would *die* if it ever dried, that breathes the surplus straight through itself the way the leaves do. The browsers drank themselves at first light from their own forelegs, a private moment, a thimble of hoarded cold. The floaters are never not drinking. They live inside the drink. The very idea of thirst is, to them, as unthinkable as flood was to the browsers — a catastrophe from a world they will never visit, a way of dying they have no organ to fear.
+
+And they are loud past all the rest. The big ones boom from inflated throats, a sound you feel in the standing water before you hear it, that crosses the murk where no light could, that says *here, here, here I am, this large, this near* — to rivals, to mates, to the warm blind dark — and the booming answers itself off the basin walls until you cannot tell how many there are, which is exactly the point, which is the floater's whole defense: not to delete itself from sight the way the hunter deleted itself from the dry light, but to *multiply* itself in sound, to be everywhere at once in the one channel that crosses, so that nothing can find the single body inside the booming city of its voice.
+
+They move slowly when they move, because there is nowhere to go fast to — the whole basin is one continuous wet, no shelf to descend, no distance to cross, no emptiness to span. The browsers' great patient stillness at midday, folded in shade, conserving — the floaters have the same stillness, but they spend it differently. They lie at the surface of the standing water with only their eyes above it, and they wait, not to conserve water they do not need, but to conserve the dark — to let the warm murk hide the body while the booming throat does the living, the voice gone out ahead into the basin to do all the work the eyes cannot.
+
+---
+
+## The Thing That Listens
+
+Now the harder seeing. The hunter. There is always a hunter at the bottom of the engine, drinking the ones who drink, and the Sink's hunter is the dry country's hunter turned exactly inside out.
+
+The banded patience up top solved sight. It became the rock, completed the layer, deleted itself from the very system the browsers used to see — because up top, seeing was everything, and so to hunt was to defeat the eye. Down here the eye is already defeated, defeated for everyone, by the murk and the grey and the ten-meter dark. There is nothing to delete yourself from. No one is looking. Everyone is *listening* — and so the Sink's hunter solved sound the way the heights' hunter solved sight.
+
+It is silent. In the deafening basin, in the vertical city of calling, it makes no call at all. This is its whole art, and it is as total an art as the rock-banding was. Where every other citizen down here threw its life into the sound-channel, the listener withdrew from it entirely, went mute, became the one quiet thing in all the drowning noise — and quiet, here, is a kind of invisibility no floater can imagine, because the floaters defend themselves by multiplying their voices and the listener simply *has none*, casts no echo, answers nothing, is a hole in the chorus exactly the way the banded hunter was a layer in the rock.
+
+And it does not approach across hours the way the dry hunter did. It cannot. There is no contour-line to drift along, no wind to walk inside, no slow tide of temperature to ride. The Sink has no slow weather; it has only the standing wet and the unrelenting warmth and the dark. So the listener does the opposite. It does not move toward the prey at all. It *hangs* — somewhere in the black canopy, or just beneath the surface of the standing water, motionless not for hours but for days, a patience as long as the dry hunter's but spent holding still instead of drifting near — and it lets the prey's own voice walk *to it.* It listens. It pulls the one boom it needs out of the drowning chorus of all the rest, exactly the way every citizen down here must, except that what the listener hears in the call is not a rival or a mate but a *location* — the one thing the floater's whole multiplying defense was built to hide, given away anyway, because to fall silent like the listener is to stop living, and no floater can stop living, and so every floater calls and every call is a thread the silent thing follows home through the dark.
+
+Then the single strike. Not the dry hunter's one uncoiling across open stone — there is no open here, no line of sight to close. The listener strikes through the murk itself, down out of the canopy or up out of the standing water, along the thread of a sound, at a body it has *never seen and does not need to see*, having heard exactly where the throat must be. And the boom stops, mid-call, the way the neck up top never had time to rise. And the chorus does not even notice — because down here a voice falling silent is the most ordinary thing in the world, a thing that happens a thousand times a night, and the city of sound closes over the gap without a ripple, the way the dry country's silence closed over the clean bones on the high shelf.
+
+There are very few of them. There can only be very few, by the same arithmetic — a hunter this patient, in a country this dense, takes few and rests long. You will not hear it, because it makes no sound. You will not see it, because no one sees anything here. The floaters, who have spent their whole drowning age learning to flood the dark with voices, mostly do not detect it. That silence — that single held quiet in all the noise — is the whole of what it is.
+
+---
+
+## What They All Are
+
+They are, every one of them, *economies of surplus.*
+
+That is the single citizenship of the bottom of the world, and it is the heights' citizenship turned exactly over. Up top, to live was to be a small machine for making water from the difference between hot day and cold night — hoarding, spacing, silent, patient, each citizen a part in a distributed engine that ran on scarcity. Down here, to live is to be a small machine for *surviving the abundance* — spending freely, crowding close, calling endlessly, each citizen a part in the same engine seen from its other end, the end where everything the heights metered out so carefully finally arrives, all at once, too much, and has to be lived inside instead of hunted for.
+
+It is the same engine. That is the thing the cold teaches you, if you follow it all the way down. The dry country and the Sink are not two worlds; they are the top and bottom of one single body breathing — the massif inhaling cold at its heights each night, condensing it, hoarding it in waxen leaves and waxen pelts, and then exhaling it downhill across the whole age, the cold-tide pouring shelf to shelf to shelf until it falls off the last terrace and lies down here in the warm dark and stands. The browsers and the floaters drink the same water. They simply drink it at opposite ends of its long fall — the browsers catching it as it condenses, scarce, in the high clean air; the floaters lying in it after it has finished arriving, drowning, in the low grey murk. The dry hunter defeated sight in a world made of seeing. The listener defeated sound in a world made of hearing. The same problem, solved twice, at the two ends of the one descent — and each solution the perfect photographic negative of the other, because the conditions were the perfect photographic negative of each other, because it is all one place, breathing, the cold going down.
+
+They turn over slowly here too, but not on the dry country's patient scale of decades — the Sink is too warm, too wet, too fed, and everything in it lives fast and dies fast and rots fast back into the black saturated peat that grows the next dark leaf, the surplus churning where the scarcity merely waited. Born in flood, calling in flood, struck silent in flood, returned to peat in flood. The peat loses nothing to the wind — there is no wind to lose it to. It only deepens, age on age, the whole long exhalation of the heights collecting at the bottom and slowly composting itself into more bottom, the floor of the world thickening beneath the standing water while, far above, out of sight forever in the clean white impossible distance, the rock chalks a little thinner each year and the browser folds its neck into the shade and waits for the evening cold to begin, once more, its pour down the long staircases toward the dark.
+
+Stand here at what would be midday, if you could tell. There is no white light to hold a breath against — only the grey, the warm, the unrelenting drip, the booming throats inflating in the standing water, the vertical city of calling built blind in the murk, and somewhere in it, the one silent thing, hanging, listening, pulling a single voice out of the chorus and following it home. The cold the heights made all night is still arriving. It has been arriving for the whole age. It lies down here and it stands, and the loud bright drowning life of the bottom of the world goes on living inside the gift the silent top of the world has spent ten million mornings, soft-footed and silver, learning to make.

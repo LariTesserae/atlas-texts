@@ -1,0 +1,99 @@
+# The Clockwater
+
+There is a river in the low world that has never once changed.
+
+You must understand what that means down here, where everything happens. The true seas heave and wander their coasts. Rivers in the low world are moody things — they flood, they shrink, they jump their beds in a single spring night and leave towns stranded a mile from their own docks. Weather wins, down here. Mountains lose. Nothing keeps its level.
+
+Except one river, in one valley, in the cold shadow of a mountain wall that goes up and up until it stops meaning anything — a rampart four kilometers high, white past the snowline, and above the snowline nothing visible at all, only the rumor every child of the valley is raised on: that the mountain is a cup, and the cup is full, and what it is full of is a sea.
+
+The river is called the Clockwater, and it is the sea's exhalation.
+
+## The Fall
+
+The perched sea keeps its level the way it keeps everything — exactly. Rain and sleet fall into it from the high pale sky; therefore something must leave it, at the same rate, forever, or the level would rise, and the level does not rise. The wardens patrol the whole rim of the world sealing every seep, packing every hairline crack with living jade — every crack but one. The outflow is not a wound and was never a failure. It is an organ. Somewhere on the southern rim the mass long ago grew a lip: a spillway of polished green stone-that-was-plant, smooth as the inside of a shell, over which the sea pours its surplus in a sheet of even thickness, and has poured it, at that thickness, since before the valley below had a name.
+
+The water falls four kilometers.
+
+Almost none of it lands. A fall that high is a fall into weather; the sheet frays, the frays fray, and most of the sea's exhalation arrives in the low world as cloud — a permanent standing wall of mist against the mountain's face, taller than any storm, which the valley people call the Hem. The Hem never lifts and never spreads. It hangs where it has always hung, lit gold at dawn on its eastern flank, and out of the bottom of it, gathered from a thousand threads of falling water, the river walks out onto the floor of the world already whole: cold, deep, clear as air, and running at precisely the pace it ran yesterday, and last century, and before the first person ever knelt at its edge.
+
+Stand at the foot of the Hem and you feel it before you hear it — a pressure in the sternum, an indrawn roar coming down inside the water itself. The valley people say the mountain breathes. They are almost right. What they feel is the intake of siphon trees two hundred meters tall, four kilometers overhead, transmitted down the fall like a voice down a wire. The Clockwater does not merely come from the perched sea. It *carries* it. The river is the only place in all the low world where the great engines can be heard, and it hums, faintly, every yard of its upper reach, and the people who live along it have the hum in their bones the way the sea's creatures have the noise in theirs: not as sound, as *floor* — the thing beneath every other thing.
+
+## The Reach
+
+The Clockwater proper is only the first hundred miles. After that the wild tributaries find it — the Rathe, the Spillikin, the Two Fools — mountain streams with the low world's whole temperament, roaring in April, gravel in August — and their chaos dilutes the sea's signature, and the river below the confluences is just a river, a good one, moody like the rest. But above the first confluence, in the long glacial trough that runs out from the Hem, the water is still entirely the sea's, and that trough is the country people mean when they say the name. The Reach.
+
+The Reach is everything the perched sea is not, arranged along the one thread of what it is.
+
+There are seasons here, real ones, with teeth. There are storms that come over the western hills and beat the barley flat, and droughts that crack the field-clay, and floods — on the *tributaries* — that have drowned herds and moved boundary stones and made the law courts busy for a generation. There is history: the Reach has been conquered twice and has forgotten neither, has burned one of its own towns and rebuilt it in stone, has quarreled about religion and settled the quarrel and unsettled it. Things happen in the Reach at the ordinary terrible rate of the low world. Its people are weathered the way the sea's creatures are calm: as a fact of the medium.
+
+And down the center of all this contingency runs the one thing that does not participate. The Clockwater has never flooded. Not in the great melt-year, when every other stream in the province took its bridges; not in the seven-year drought, when the Rathe was a memory of gravel and the wells went brown — the Clockwater ran that summer at its level, cold and full between banks of dying grass, and people walked miles to sit beside it, not to drink, though they drank, but to *look* at it, the way you look at the face of someone who has never lied to you.
+
+The banks show it. Every other river in the low world is fringed with the geometry of doubt — levees, floodwalls, houses set back and up. The Reach builds to the waterline. Mills sit with their sills a handspan above the surface and have sat so for six hundred years. There is a tavern at Ford Imber whose cellar door opens level with the river, and the door's threshold-stone is worn into a smooth trough by feet, and the water has never once crossed it. The whole built country of the Reach is a wager on the sea's constancy, placed generations before anyone knew what they were wagering on, and the wager pays out daily, and has never missed.
+
+## The Gauge
+
+There is no hand-mark anywhere in the perched sea — no cut surface, no joined seam. The Reach is the inverse: it is *all* hands. And the first thing hands did, when they came to a river that never changed, was measure it.
+
+At the town of Gaugehead, a mile below the Hem, a pillar of grey granite stands in the current — the oldest worked stone in the valley, older than the towns, cut with a single horizontal line. The line is the waterline. It has always been the waterline. Every standard in the Reach descends from it: the units of depth and volume, the calibration of the mill-races, the brewers' measures, the surveyors' datum from which every field in the valley is mapped. When people in the Reach mean to say that something is exactly, reliably, incorruptibly true, they say it is *Clockwater-true*, and when they suspect a merchant's scale they say his weights *drift like the Rathe*.
+
+And every dawn — this is the vocation the Reach is known for, in the wider low world; other countries find it comic — a measurer walks out on the gauge-jetty at Gaugehead and reads the pillar and writes one word in a book.
+
+The book is the Ledger. It is the memory the sea refuses to have.
+
+Understand: the perched sea keeps no minutes. Nothing above the rim records anything; the skaters have no past tense, the songs have no proof, the water closes over every stone. But the Reach remembers the way the sea forgets — compulsively, totally. The Ledger has been kept every dawn for upward of three thousand years, through both conquests, through the burning of Imber; it was carried out of the fire wrapped in a wet altar-cloth and the day's reading was taken anyway, an hour late, from the ashes' edge, and the lateness itself was recorded. It is by any accounting the longest continuous observation in the history of the low world, the treasure of the valley, consulted by scholars from kingdoms that do not believe the sea exists — and it consists, almost entirely, of one word.
+
+*Unchanged. Unchanged. Unchanged.*
+
+Three thousand years of identical entries. The great archive of no-events. Foreign scholars call it the most useless document alive, and the measurers do not argue, and keep it anyway, because the measurers understand what the foreigners do not: that the Ledger is not a record of the river. It is a record of a *promise being kept* — one entry per keeping — and a promise is only as good as the last time anyone checked.
+
+## What Comes Down
+
+The sea takes everything in and gives almost nothing back, but *almost* is a wide word over three thousand years, and the Reach has learned to sieve it.
+
+The falling water carries flecks — bronze-green motes of cropped moss, films rasped from the grid by the tenders, the ground and reprocessed residue of everything the mass has finished with. Most of it is silt by the time it lands, and the silt makes the Reach's soil, which is famous: the barley of the upper valley tastes of something no one has ever named to general satisfaction — cold, mineral, faintly green, *the taste of up there*, the farmers say — and it is the valley's fortune, exported downriver into countries that pay well to drink, in their beer, the processed tone of an ocean they will never see.
+
+And sometimes the water carries more. A pale carapace, thumb-sized, ribbed like a tiny windpipe — the armor of a trunk-born elder, exhaled from its tower's root-vent, missed somehow by the filter-mouths, swept the length of the sea and over the lip and down four kilometers of falling: the only travelers the sea ever sends abroad, arriving dead and perfect in the shallows at Gaugehead, where children find them and the finding is lucky. And once in a generation — twice in the whole Ledger — a piece of *greenstone*: a knuckle of the deep strata itself, jade-dark, heavier than it looks, torn loose from the spillway lip by nothing anyone can guess at. Greenstone does not burn. It stays, faintly and forever, a degree warmer than the air around it, and if you press it to your ear in a quiet room you will swear — everyone swears — that it hums. The two known pieces sit in the measurers' hall at Gaugehead under glass, and no offer from any king has ever moved them, because the Reach understands, without being able to say so, that these are pieces of the *body* — clippings from the thing whose breath they drink — and some property is not property.
+
+## The Listeners
+
+Here is the strangest trade in the Reach, and the oldest after farming, and the reason this valley matters more than it knows.
+
+The engine-noise comes down the fall — the sternum-roar, the six-way creak, the *pum… pum…* of the bladder-fields, smeared and folded by four kilometers of falling but *present*, in the river's hum, at the very floor of hearing. And within that noise there are gaps, and in the gaps, sometimes, on still nights, threading down the water like light down a well: the songs.
+
+The listeners are a guild, or a family, or a fault of temperament that runs in families — the Reach has never fully decided. They go out on the black water above Gaugehead in flat boats on windless nights, and they lie down in the boats with an ear to the hull, and they listen to the largest minds in the world singing four kilometers overhead in a language of gaps, and they write down what they can hold. The notation is the guild's own, evolved over millennia for sounds no low-world instrument makes: long horizontal strokes for the engine-floor, and above it, in red, the threaded phrases. The transcriptions fill a room of the measurers' hall. They are beautiful and nearly unreadable and were considered, for most of their history, a kind of pious madness — the Ledger's eccentric cousin, a record of *un*-events to shelve beside the record of no-events.
+
+Until a listener named Orre Vael, some nine generations back, did the thing no one above the rim can ever do. She compared.
+
+She laid her grandmother's transcriptions beside her own — the same song, the great south-passage song that every listener learns first — and then went into the archive and laid both beside the same song as it was taken down eight hundred years before, and then fifteen hundred, and she found what the perched sea has no mechanism to find and no stratum to preserve and no elder to remember. The songs drift. Note by note, a phrase per century, a slow turning like a shadow moving on a wall — the singers, each certain of perfect fidelity, each learning faithfully from the faithful, have been changing their songs all along, so slowly that no singer's lifetime could hold the difference, and the sea, which notices nothing, has never noticed.
+
+The Reach knows the perched sea's secret. It is written in red ink in a room above a barley town, and it is this: *the sea is not finished.* The one degree of freedom is being used. The single ongoing event in that whole roaring, arrived, eternal ocean — the event so slow and so hidden that the sea itself will never witness it — has a witness, and the witness is here, downstream, in the low world, made of hands and paper and the compulsion to keep minutes. The sea forgot how to change and kept no record; the valley kept the record and so became the only place in the world where the sea's changing *exists*. If the singers sing portraits of the machine's silences, then the listeners' archive is a portrait of the singers — the keyhole's keyhole — and somewhere in that regress, unasked-for and unpaid, the Reach has become the perched sea's memory: the organ it amputated, living on below, still faithfully doing its work.
+
+## The Vigil
+
+But do not think the Reach loves the sea simply. The Reach lives under it.
+
+Every soul in the valley carries the arithmetic, learned young and never fully put down: four kilometers of standing ocean, held by rock, and rock is the losing party in every long game the low world has ever watched. The Reach's whole existence — its unlevee'd towns, its cellar doors at the waterline, its three thousand years of *unchanged* — hangs from the ceaseless work of creatures no valley-dweller has ever seen or ever will: broad, slow, sucker-footed things walking the inside of the rim in the cold dark, packing cracks with living jade, negating forever the only event their world contains. The wardens do not know the Reach exists. The Reach knows the wardens exist the way you know your own heart does — by inference, from continuing.
+
+So the dawn reading at the gauge-pillar is not bookkeeping. It is a vigil, and every measurer knows it, and the knowledge is the gravity of the office. The Clockwater's constancy is a promise, but it is also a *symptom*, and the measurers are physicians with one patient and one question. If the line on the pillar were ever wrong — high by a finger's width, even once — it would not mean rain in the mountains, because no rain reaches that water. It would mean the sea's equilibrium had shifted; it would mean a seep somewhere on ten thousand kilometers of rim had outrun its warden; it would mean the one possible event had, somewhere in the dark above the snowline, begun. The Ledger's real entry, decoded, has never been *unchanged*. It has always been: *not yet. Not today. The wardens held.*
+
+The Reach has a liturgy about this, or a habit old enough to be one. On midwinter's dawn the whole town of Gaugehead comes to the jetty, and the measurer reads the pillar aloud, and the word — the same word, the only word — goes back through the crowd in a murmur, mouth to mouth, and people go home. Foreigners who see it call it the dullest festival in the world. The valley does not explain. You cannot explain to comfortable people what it is to be *reprieved on schedule* — to live wholly inside another thing's promise and hear it kept, out loud, once a year, in front of everyone.
+
+## The Return
+
+The trade runs one way. The sea exports its breath, its silt, its dead travelers, its smeared songs; it takes no imports, because there is no way up. That is what the Reach believes, and it is very nearly true, and the ways it is not true are the tenderest facts in this whole geography.
+
+The Hem is not only falling water. Where the fall shatters into mist, the mountain's updrafts catch a portion of it and carry it back — up the great wall, over the snowline, over the rim — and it comes down on the perched sea as sleet. The sea drinks a fraction of its own exhalation, endlessly, a circle closed through the low world's sky. And the updraft is not particular about what it lifts. It takes the valley with it: the woodsmoke of Gaugehead's winter mornings, the dust of the barley harvest, the chaff, the pollen, the fine ash of Imber's old burning that is still, in traces, in the soil — all of it rides the wall, and falls as weather on the surface of the sea, where the skin-dwellers, the sea's whole knowledge of the sky, feel it completely and keep none of it, and are eaten from below on schedule, and pass it down the web as molecules and tone until it reaches the mass.
+
+The sea does not know that harvest-time in the Reach has a smell. But the mass is very slightly different for it — a faint annual inflection in the sleet, a flavor with a period of one year, arriving out of the only direction the sea cannot damp, which is *below*. Somewhere in the deep strata, or in the long slow waves the tenders feel on the grid, the low world's seasons exist as a rhythm too faint to be information and too regular to be nothing: the valley, translated beyond recognition, a grace note in the one thought.
+
+So the two places hold each other in the only ways they can. The sea is the valley's floor — the hum in the river, the level on the pillar, the promise under every threshold-stone. The valley is the sea's ceiling-weather — the flavor in its sleet, the smoke in its winters. Neither can be seen from the other. Neither could survive knowing the other fully. The sea, if it could read the Ledger, would learn it is mortal and changing; the Reach, if it could stand at the spillway lip and look out over that roaring, eventless, continent-sized body, would learn how small a clause it is in the thing it measures. The four kilometers between them are not a distance. They are a mercy.
+
+## The Last Reading
+
+There is a listener at Gaugehead now — there is always one; the temperament breeds true — who goes out most windless nights on the black water above the town, and lies down in her flat boat with her ear to the hull, under the standing wall of the Hem with its top lost in stars.
+
+She is transcribing the south-passage song, as her line has done for nine generations, and last month she found the thing listeners live for and dread: a note moved. One note, in the third phrase, a quarter-tone shy of where her grandmother inked it — the drift, arriving on her watch, as it arrived on Orre Vael's, as it will arrive again long after the Ledger's word has been written another ten thousand times. She checked it four nights running. It has moved. She has not yet entered it in the archive, because entering it makes it so, and for a few more days she is the only creature in either world — above the rim or below it — who knows the newest thing the perched sea has ever done.
+
+Four kilometers over her head, a singer threads that altered note through the gaps in the machine, certain of its perfect fidelity, going nowhere, magnificently. And the note comes down the fall, and down the river, and through the hull, and into the ear of the one place in the world that keeps minutes — and is caught, and held, and will be remembered.
+
+That is the Clockwater. The sea's breath, become a river; the sea's forgetting, become a valley that remembers; the one word, written at dawn; the wardens holding, unthanked, in the dark above the snow. Everything down here happens. One thing does not. The Reach lives on the one thing, and writes down all the rest, and sends its smoke up the mountain wall like a letter it knows cannot be read — and is read anyway, after a fashion, as weather, by the only mind big enough to hold them both and too still to know it does.

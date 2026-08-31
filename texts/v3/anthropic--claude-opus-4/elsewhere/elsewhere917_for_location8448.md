@@ -1,0 +1,37 @@
+The Bleached Lands
+
+You smell it before you see it: the sharp, clean scent of mineral salts carried on winds that have touched nothing living for a thousand kilometers. The transition from the Threshing Heights is not gradual—one moment you're enclosed in that warm, breathing darkness, the next you stumble into light so pure it feels like violence.
+
+The Bleached Lands stretch endlessly under a sun that knows no mercy. The ground is white, crystalline, composed of salts leached from ancient seas and compressed into pavements of chemical glass. Nothing grows here in any sense the Woven would recognize. The surface fractures in geometric patterns—hexagons, triangles, complex tessellations that follow the stress patterns of thermal expansion and contraction. Each dawn brings a symphony of cracking as the salts warm; each dusk, a different song as they cool.
+
+But this is not emptiness. This is industry.
+
+The Distillers have built their cities downward, not up. Their entrance shafts puncture the salt crust like inverse towers, spiraling into darkness. Around each shaft, acres of collection fields spread—shallow depressions lined with specialized membranes that capture the minute amounts of moisture carried on the burning winds. The membranes shimmer with iridescence, their surfaces textured at the molecular level to encourage condensation.
+
+At the surface, only the barest hints of habitation show: the shaft openings with their ceramic collars, the collection fields, and the caravans. Always the caravans—long trains of vehicles that look more like sailing ships than ground transport, their hulls carved from single blocks of salt crystal, their sails woven from metallic fibers that catch not just wind but electromagnetic radiation, converting it to motive power.
+
+The Distillers themselves are the antithesis of the Woven. Where symbiosis defines life in the Heights, here purity is survival. They cover every inch of skin when venturing above, wrapped in reflective suits that recycle every drop of moisture, that turn the sun's killing rays into power for their subsurface cities. Their eyes hide behind multilayered filters that can screen out everything from ultraviolet to infrared, leaving only the precise wavelengths needed for navigation.
+
+Below ground, their cities are marvels of conservation. Every surface is non-porous, sealed, perfect. Water cycles through closed loops that lose perhaps a molecule per year to inefficiency. The Distillers have names for different grades of purity—water that has been recycled a thousand times, water captured fresh from the collection fields, water recovered from waste, water distilled from the rare storms that sweep across the Bleached Lands once a generation.
+
+They trade with the Threshing Heights because they must. The Bleached Lands offer three things the Woven cannot produce: pure salts for their chemical processes, refined metals extracted from deep bore holes, and most critically, information preserved in crystalline matrices that can last millennia without degradation. In return, the caravans carry back organic compounds, complex proteins, genetic templates—everything needed to sustain human life in a place that denies it at every turn.
+
+The journey between worlds takes forty days. The caravans follow routes marked by ancient cairns, navigating by the stars and the subtle variations in the salt's composition. At night they anchor with deep spikes driven into the crust, huddling together as temperatures plummet and the salts sing their cooling songs. The crews tell stories of the Transition Zone—that impossible border where the last struggling organisms from the Heights meet the sterile perfection of the Bleached Lands.
+
+In that margin, they say, strange things happen. Salt crystals grow in perfect spirals that mirror the helical cities above. Pools of brine spawn temporary ecosystems that live and die in single seasons. The Woven's spores, carried on high winds, land on salt and transmute briefly into forms neither fully alive nor properly mineral—intermediate states that the Distillers harvest for their rarity and the Woven regard with something between reverence and horror.
+
+The two peoples need each other with the desperate intimacy of opposites. The Woven require the Distillers' minerals to regulate their growth, to prevent the runaway biological cascades that could turn their city into a cancer. The Distillers need the Woven's organics to maintain their humanity in a world that would strip it away, molecule by molecule.
+
+Yet understanding remains elusive. When Distiller ambassadors visit the Heights, they suffer in the humidity, the constant touch of living things, the air thick with spores and pheromones. They cannot comprehend a people who would choose to blur the boundaries of their bodies, who would invite other organisms to nest in their nervous systems. When the Woven descend to trade in the underground markets of the Distiller cities, they gasp in the dry air, feel their symbiotic partners dying, experience a loneliness that has no word in their language—the absence of the vast living network that has whispered in their minds since childhood.
+
+The trade continues because it must. The caravans cross their desolate highway, carrying more than goods—carrying ideas, genetic material, news of distant storms and new growths. In the holds of the salt ships, sealed in preservation chambers, travel the rarest cargo: volunteers from each world willing to attempt the impossible.
+
+The Grafted, they're called—Distillers who have submitted to the Woven's symbiotic modifications, who return to the Bleached Lands with colonies of adapted organisms that might, perhaps, survive in the deep cities. And the Purified—Woven who have endured the agonizing process of having their symbiotic partners stripped away, who travel to the Heights carrying knowledge of crystalline preservation, of perfect cycles, of survival without compromise.
+
+Most fail. The Grafted often die of systemic shock as their new partners wither in the absence of the Heights' rich ecosystem. The Purified frequently go mad from the silence in their minds, the sudden amputation of senses they never knew they relied upon. But a few adapt, become bridges between worlds, citizens of both and neither.
+
+They are building something in the Transition Zone—these half-converted survivors. Not a city, exactly, but a presence. Structures that are partially grown, partially crystallized. Systems that cycle between biological and mineral states. They speak of eventual synthesis, of technologies that might bring water to the Bleached Lands without corrupting their purity, of crystalline structures that could thrive in the Heights without being consumed.
+
+The old Distillers call it madness. The traditional Woven name it abomination. But the caravans stop there now, adding a day to their journey. They trade with the Changed Ones, carry their ideas back to both worlds. And in the deep desert, where the salt sings its thermal songs, and in the breathing darkness of the Heights, where the city dreams its slow dreams, something new is taking root.
+
+Change comes slowly to worlds so perfectly adapted to their extremes. But it comes, carried on the winds that blow from one to the other, in the holds of ships made of salt and grown from living wood, in the minds of people who have learned to survive the impossible journey between.

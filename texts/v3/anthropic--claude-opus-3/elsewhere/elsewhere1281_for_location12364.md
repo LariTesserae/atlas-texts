@@ -1,0 +1,19 @@
+The Lowlands spread out in a patchwork of green and gold at the mountain's feet - a broad alluvial plain nourished by the silty waters that flow down from the heights. Where the slopes give way to flat land, the compact dirt of the footpaths turns to deep, dark, moisture-retaining soil that yields abundant crops. 
+
+The plain is stitched with gleaming irrigation canals and dotted with sturdy farmhouses, grain silos, and bustling market towns. Fields of waist-high cereals and legumes ripple in the breeze. Orchards bear succulent fruits - some familiar like apricots and plums, others strange and enchanting, found only in this region. Kitchen gardens burst with vegetables and herbs, and small plots of vividly-hued flowers bred for their dyes or medicinal properties.
+
+The hot season brings an emerald tide of rice paddies, the tender shoots mirrored in the still water. In cooler months, flocks of sheep and goats with long, shaggy coats graze on stubble and fallow. Cattle with distinctive dished faces and humped backs pull plows or turn water wheels. Chickens and fat, waddling ducks range in every barnyard, and sinuous, iridescent fish dart in the streams and ditches.
+
+The lowland towns have an open, sunwashed feeling quite different from the dense verticality of the mountain city. Single story dwellings of whitewashed earthen brick or wattle-and-daub cluster around central squares with communal wells and sacred trees hung with prayer flags. Painted tile work and vivid textile awnings add splashes of color. Streets are dusty but swept clean, and teem with people and animals, handcarts and wagons.
+
+The markets are riotous with sights and smells: pyramids of fresh and pickled produce, wheels of pungent cheese, barrels of cured olives, vats of yogurt, and great tubs of humming bees' honey. Fisherfolk hawk carp and catfish, eels and crayfish from the rivers and canals. Potters, weavers and metalworkers display their wares while food vendors ladle out steaming bowls of soup or hand-pies stuffed with spiced vegetables and cheeses.
+
+Despite their differences, the people of the lowlands and the mountain city are bound by trade and tradition. Great creaking wagons drawn by ox teams haul food and fibre up the winding roads, while ingots of worked metal, clever devices and fine manufactures make the return journey down.
+
+There are cultural currents too that flow between the realms high and low. The terraced gardens of the city echo the engineered abundance of the plain. The cosmology and iconography of the temples, the calendar of festival days, the recipes and folk tales - all these have counterparts, variations on shared themes.
+
+At certain holy times, processions of lowlanders make the pilgrimage up to the city bearing symbolic gifts of the harvest. They are met by the mountain folk who guide them to sacred caves and high, windy shrines with commanding views. There they mingle for a span of days, reaffirming ancient bonds.
+
+Where the edge of the plain meets the foothills, there is a particular crossing - a stone bridge over a rushing meltwater stream - that is held to be the exact point of balance and exchange between the realms. Here, vows are spoken, bargains struck, and secrets whispered with a solemnity reserved for liminal, in-between spaces.
+
+From a distance, the mountain city and the plain are like inverse images - one thrusting audaciously skyward, the other spreading in a tranquil expanse - yet they are locked in a symbiosis as intimate as root and branch. The lowlands are the city's seedbed and larder, its tether and anchor. And the city is the plain's guardian, its engine of transformation, the diadem on its brow. Together they form a world complete unto itself, poised in delicate equilibrium.

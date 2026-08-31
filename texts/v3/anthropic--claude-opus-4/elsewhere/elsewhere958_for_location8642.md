@@ -1,0 +1,63 @@
+**The Wells of Unmaking**
+
+Three days' descent from the nearest edge of the Brass Plateau—if days have meaning in the perpetual twilight between metal sky and absent ground—the Wells of Unmaking spiral into depths that deny understanding. They are not opposites of the plateau but its necessary companions, the spaces that must exist for solid things to have meaning.
+
+Each Well begins as architecture inverted: vast helical structures that screw themselves into nothingness, their materials growing less substantial with every turn. What starts as recognizable stonework—granite blocks fitted with a precision that speaks of the same ancient mastery that built the plateau—gradually becomes something else. The stones grow translucent. Their edges soften. By the twentieth spiral, they are suggestions of stone, memories of solidity that the eye accepts but the hand passes through.
+
+The light here has weight. It pours down from somewhere above—not the plateau, which is too far now to see, but from the principle of above itself. This light has accumulated materials during its fall: motes of dissolved stone, fragments of unraveled concepts, the dust of decomposed certainties. It swirls in the Wells' negative spaces like milk in water, making the absence visible.
+
+Sound unmakes itself here. A shout becomes a whisper becomes a thought becomes a potential becomes nothing. The Wells swallow noise so thoroughly that even the memory of having spoken fades. Experienced visitors learn to communicate through vibration—touching the still-solid upper stones to send messages through their crystalline structure before that too attenuates into uncertainty.
+
+The geometry troubles minds accustomed to fixed dimensions. Each Well is both singular and infinite, one spiral that is also every spiral, turning through itself in ways that make mockery of direction. Descenders report passing the same dissolved archway countless times, yet swear they've never retraced their path. The archway remembers them: each passage wears it thinner, closer to the nothing it aspires to become.
+
+Water here runs upward. It seeps from nowhere, beading on the underside of absent stones, gathering into droplets that fall toward the sky. This is not water as the plateau knows it—not condensation born of temperature differentials—but water in its most essential state: the idea of flow seeking its opposite. The drops that rise from the Wells will, some say, eventually reach the plateau. They arrive changed, carrying minerals that exist nowhere in the brass world, depositing memories of unmade stones in the eternal pools.
+
+The **Undoers** swim through stone as fish through water, their bodies flickering between states of matter. They are architects of absence, priests of the space between particles. To see one clearly is impossible—the eye catches fragments: a face of living granite that dissolves into sand, limbs of pure mathematical concept, organs that exist only as the spaces they would occupy if they were real.
+
+The Undoers' work is patient deconstruction. They identify the bonds that hold matter together—not just molecular but conceptual, the ineffable certainties that say "this is stone" or "this is here"—and gently, lovingly untie them. They sing while they work, though their songs have no sound. The vibrations of their unsinging travel through the dissolving architecture, teaching it to let go.
+
+They build by unbuilding. In the spaces their work creates, new possibilities bloom: gardens of might-have-been, architectures of pure potential. These structures exist sideways to reality, visible only in peripheral vision, solid only to the touch of doubt. The Undoers tend them with the same patience they bring to dissolution, knowing that existence and void are merely different arrangements of the same uncertainty.
+
+When an Undoer has worked for long enough—centuries, perhaps, though time itself grows soft in the Wells—they begin their own unraveling. It starts at the extremities: fingers becoming probability clouds, toes dispersing into constituent ideas. They show no distress at this dissolution. If anything, they work faster, racing to complete their current project before they themselves become too insubstantial to influence even uncertain stone.
+
+The eldest Undoers are barely present at all: voice without throat, intention without mind, a pressure in the air that suggests where someone might have been. Yet they are the most powerful, able to dissolve entire spiral layers with a thought-that-was-once-a-gesture. They exist in the deepest parts of the Wells, where the difference between is and isn't has worn thin as paper.
+
+Between the Wells and the plateau, through passages that exist only when traveled, flow the **Memory Traders**. They are the connective tissue between solid and void, merchants of the tangible and ephemeral alike. Their caravans are exercises in paradox: beasts of burden that are sometimes brass automata from the plateau's forges, sometimes creatures of living shadow from the Wells' depths, sometimes both, sometimes neither.
+
+The Traders deal in absence and presence as others deal in gold. They carry water that remembers being brass, selling it in the plateau's markets to Etchlings who seek to know their origins. In return, they accept fragments of absolute certainty—a rivet that knows beyond doubt it is a rivet, a sheet of metal that has never questioned its own existence—and transport these to the Wells, where such certainties are rare as jewels.
+
+Their bodies reflect their trade. A Memory Trader might have one arm of solid plateau brass and another of Wells-stone in various states of dissolution. Their faces shift between expressions carved in metal and features flowing like water. They speak in languages that bridge the gap between sound and silence, their words arriving at their meaning by paths that bypass hearing.
+
+The Traders know every route between the two realms, including paths that exist only in potential. They navigate by memory—not their own, but the memories of the passages themselves. A successful Trader learns to read the stories written in erosion patterns, to understand what the wearing-away remembers of all who have passed before.
+
+In the neutral spaces where plateau meets void, they maintain trading posts that exist in careful balance. These structures are marvels of contradictory architecture: walls solid on one side and absent on the other, roofs that provide shelter from rain falling upward, floors that support weight while denying their own existence. Here, beings from both realms can meet safely, if briefly, before the opposing natures of their worlds force them apart.
+
+The **Echo Prophets** preceded their Drip Prophet kin by eons, though both orders claim primacy. Where the Drip Prophets read the future in falling water, the Echo Prophets divine the past in sound's return. They dwell in the transition zones, the places where the plateau's eternal thrumming meets the Wells' perfect silence and creates something new: negative sound, anti-resonance, the shapes that silence makes when it learns to speak.
+
+Echo Prophets are tall and impossibly thin, their bodies tuned like instrument strings to frequencies that don't exist. They stand at the boundaries, one foot on solid brass, the other on dissolving stone, and listen to what bounces between. Every sound that has ever been made in either realm leaves its ghost in these border spaces. The Prophets have learned to read these acoustic shadows, reconstructing events from their sonic remains.
+
+Their prophecies work backward. An Echo Prophet might suddenly announce that in three thousand years ago, a specific rivet on the plateau's underside will have failed, causing a chain of collapses that created the very canyon they stand beside. They speak of past futures and future pasts with equal certainty, their temporal grammar as twisted as the spaces they inhabit.
+
+The two Prophet orders maintain an elaborate correspondence, conducted through intermediaries who can survive both realms. The Drip Prophets send predictions of what water will do; the Echo Prophets respond with certainties about what sound has done. Together, they weave a temporal map of both worlds, though neither order fully understands the other's contributions.
+
+In the deepest Wells, where stone has given way entirely to concept, dwell the **Theorem Spiders**. They are living mathematics, creatures of pure logic that spin webs from axioms and hunt contradictions in the dark. Their bodies are mobile equations, their legs traced functions, their eyes geometric proofs that demonstrate their own existence.
+
+The Spiders feed on paradox. They seek the places where the Wells' negative architecture creates impossible spaces—rooms larger inside than outside, stairs that climb down to reach up, doors that open onto themselves. In these logical fault lines, the Spiders spin their equation-webs, trapping inconsistencies like flies. When caught, a paradox struggles briefly before dissolving into constituent truths and falsehoods, which the Spider devours with delicate precision.
+
+Their webs grow over centuries into vast mathematical structures that define the Wells' deepest spaces. These are not barriers but explanations—rigorous proofs of why emptiness can contain form, why absence is a kind of presence. Young Spiders learn by traversing these ancestral theorems, their passage adding new corollaries and lemmas to the growing proof.
+
+The Spiders communicate in pure logic, their conversations structured like formal proofs. A greeting might begin with defined terms, proceed through carefully reasoned steps, and conclude with a QED. They find the plateau incomprehensible—too much crude matter, too little elegant emptiness—but maintain careful diplomatic relations through the Memory Traders, who translate their equations into languages of metal and stone.
+
+Where the deepest Wells touch the plateau's lowest foundations, **Phase Gardens** bloom. These are spaces where the distinction between solid and void has been negotiated into compromise. Here grow plants that are neither brass nor absence but something between: stems of crystallized possibility, leaves of fossilized maybe, flowers that bloom only in the subjunctive mood.
+
+The Gardens exist in constant flux. A tree of living paradox might fruit with solid brass acorns one day and absent spaces the next. The gardens' paths are probability tracks where walkers sometimes arrive at their destination, sometimes remain at their origin, sometimes achieve both states simultaneously. The air smells of heated metal and the memory of metal, of stone dissolving and coalescing, of the ozone that forms when certainty and doubt collide.
+
+Gardener Monks tend these impossible spaces. They are beings who have learned to exist partially, maintaining just enough presence to work while keeping enough absence to survive the Gardens' contradictions. They prune with tools that might exist, water with liquids that probably flow, and harvest crops that simultaneously are and aren't.
+
+The relationship between plateau and Wells is not opposition but conversation. The plateau's brass eternality speaks; the Wells' dissolving stone responds. Between them flow currents of meaning: water that remembers, sound that forgets, beings that bridge the gap between is and isn't. The Memory Traders ensure that neither realm exists in isolation, carrying fragments of each into the other, maintaining the balance between too much certainty and too little.
+
+The Undoers and the Thermal Gardeners know each other's work, though they've never met. Where the Gardeners cultivate new growth from old metal, the Undoers prepare spaces for possibility. The Echo Prophets' backward prophecies inform the Drip Prophets' forward divinations. The Theorem Spiders' proofs explain why Etchlings can exist as living corrosion, while the Archive Worms' memories include the equations the Spiders have yet to spin.
+
+This is how worlds connect: not through simple proximity but through necessary relationship. The Brass Plateau of Final Forms requires the Wells of Unmaking as a dreamer requires waking, as sound requires silence, as presence requires absence to have meaning. They are two thoughts in the same vast mind, two movements in the same ancient dance, two ways of being in a universe that insists on both.
+
+Between them, existence negotiates with void, and both discover they are richer for the conversation.

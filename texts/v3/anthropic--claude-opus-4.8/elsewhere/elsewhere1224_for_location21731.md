@@ -1,0 +1,47 @@
+# The Quick Shore
+
+There is an edge after all. The plateau lied — or rather, it told the truth from inside itself, where there is no edge a life could reach, and that is a different thing from there being no edge at all. Follow the water down. Everything here descends; follow the descending past where the marks-makers stop, past the warm dark floor, past the place where the substrate is the same age as the erosion that flattened the mountains. The substrate has a bottom. The bottom is rock, the old worn bones of the mountain, tilted, and along one whole flank of the plateau the rock breaks and the green pours off it.
+
+The water that has spent a century being passed from leaf to leaf, that has hung in the shape of someone and let the shape go, that has soaked down through the breathing floor and pooled against the stone — that water finds the break and falls. Not slowly. This is the first true thing about the place at the bottom: *here, water is allowed to hurry.* It comes off the plateau's flank in a hundred thin falls and a few wide ones, and by the time it reaches the rock shelf below it has remembered what water is for. It is loud. After the dripping, after the long peristaltic murmur, it is the loudest thing in the world.
+
+## The Shore
+
+Where the falls land, there is a shore. Call it a shore though there is no sea — there is a lake, a long pale body of water the color of the dim light it never quite receives, fed by the falls at one end and draining at the other into a river that goes somewhere this telling cannot follow. The shore is *mineral*. After the unbroken vegetable continent above, the shock of it is the whole point: here is sand, here is gravel, here is bare wet stone, here are things that were never alive and never will be. The substrate could not follow the water over the edge. It tried — you can see it trying, a fringe of green lip curling over the top of the cliff, leaning out, hanging fronds down toward the spray — but it cannot grow on falling water and it cannot grow on bare rock, and so the falls are a border the plateau cannot cross. The oldest living tissue in the world meets, at last, a place it has not eaten.
+
+And because the plateau stops here, *time starts.*
+
+## The Fastness
+
+The light is different. The falls have cut a notch in the plateau's flank and through that notch comes raw sky — not the rumor of sun filtered green through a thousand membranes, but actual changing light, dawn that is different from noon that is different from dusk. After the perpetual underwater evening above, the shore has *days.* It has weather that arrives and leaves instead of weather that is born and dies in place. It has shadows that move. A creature standing on this shore could watch the light cross the water and know that something had happened, that the world was not the same as it had been an hour ago — a knowledge the plateau spent ten thousand generations unlearning.
+
+Everything here is fast because everything here can be. The water churns. The spray throws up a constant cold mist, and the mist is *cold* — the first cold in this whole world, the falling water having lost the plateau's compost warmth on the way down — and in the cold and the changing light things move quickly to stay warm, the opposite of the pale-rope bargain above. Up there, to slow down was to be kept warm by the patient green. Down here, to stay warm you must *move*, and so the shore is full of quickness, of darting and skittering and the sudden alarm, of metabolisms that burn bright and brief because a thing that burned slow would simply go cold and stop.
+
+## The Quick Ones
+
+There are creatures on the shore that are, by every measure the plateau would use, *vulgar.* They hunt. They hunt each other and they hunt the things that wash down over the falls. They are small and lean and hot-blooded and they live perhaps a single year, which on the plateau is not even a unit of time, is less than one fold of the substrate completing itself. They are born quick, mate quick, die quick, and are gone — no slow descent, no circulation, no becoming the next tier's leaves. When a shore-thing dies it is simply eaten, fast, by another shore-thing, or it rots in the mineral gravel in a matter of days, loud with flies. There is waste here. The plateau's one law — *nothing is wasted and nothing is fast* — is broken on this shore twice over, in every direction, all the time.
+
+And they have no patience and no marks and no language outsourced to flowers. They cry out and the cry is *answered immediately* or not at all. There is no corridor of blooms carrying a question across a gap so long the asker has fallen asleep. A shore-thing calls and a shore-thing answers in the same breath, in the same minute, because a minute is a thing that matters here, because if you wait you are cold, if you wait you are eaten, if you wait the light has moved and the world has changed and your chance is gone over the falls with the water.
+
+They would seem, to the marks-makers, like sparks. Like the small bright animals that ride the falling droplets in the middle air — the only quick things in the green dusk, the closest the plateau comes to a flicker. The shore is made *entirely* of flickers. It is what the plateau would look like if every part of it were the fast part, and nothing was patient, and the law ran backwards.
+
+## What Comes Over
+
+Here is the kinship, and it runs only one way, downhill, the way the water runs.
+
+Things come over the falls. The plateau, sloughing — a frond too heavy with its accumulated pool, a body that descended through the tiers and reached the rock bottom and got carried by the pooling water to the break and went over — and all of it comes down into the loud cold mineral world and is *received.* The shore eats what the plateau lets fall. Those quick hot hunters, those year-long lives, are fed in large part by what drifts down already dead from a place that does not know death, only descent. The marks-makers, circulating forever, sinking and rising and leaning toward warmth — some small fraction of that endless circulation does not rise again. It reaches the rock. It goes over the edge. And on the shore below, something fast and warm and short-lived finds it in the gravel and eats it and burns it as heat for one cold night, and is itself eaten by morning.
+
+So the patient world feeds the hurried one. The thing that chose to be taken in, taken in so thoroughly it became floor and flower and the shape held in hanging water — a piece of that, the piece that fell too far to circulate, becomes for one night the warmth in a creature that has never been still, that will never be kept warm by a leaning grove, that must run to keep its heat and will run out of heat within the year. The slowest thing in the world ends as fuel for the fastest. Up there, warmth was a thing you sank into and shared across ages. Down here it is a thing you burn and lose by dawn.
+
+## The Water Between
+
+And the water remembers. I trusted you with that above and I will trust you with its other half now.
+
+The shore-things drink from the lake. They must — the cold mist dries them even as it chills them, and they come to the water's edge in the changing light and drink, fast, glancing up between swallows for the thing that might be hunting them. The water they drink fell from the plateau. It is the same water that hung on the undersides of the broadest leaves in the shape of someone who passed beneath, that held the form for hours and lost it and fell, that soaked down through the breathing floor and pooled against the rock and went over the edge in the loud cold falls. It carried a shape once. It does not anymore — the falling broke the shape, the churn broke it, you cannot hold the form of someone in white water. But it *held* one, once, hours ago and a hundred meters up, and now it is in the body of a creature that lives a year and cannot conceive of a hundred years, that has no word for the green dusk, that will never climb the falls because nothing climbs the falls, the border runs one way.
+
+The shore does not remember the plateau. It cannot. It is too fast to hold anything that long; memory is a slow thing and the shore has no slow things. But it *drinks* the plateau, every day, in the cold light, glancing up between swallows. It is made partly of water that knew how to remember, in a place quick enough that the remembering cannot survive the trip.
+
+So there are two worlds, and one falls into the other and is received, and the law of each is the exact inversion of the law of the other, and the water is the only thing that crosses, and it crosses already forgetting.
+
+Up there, a question opens flowers down a corridor where no one is left awake to hear the answer, and the forest blinks it forever to itself.
+
+Down here, every question is answered in the same breath or not at all, and nothing is kept, and a creature drinks a mouthful of something that was once held in the shape of a sleeper a hundred meters above and a century behind, and feels nothing, and runs on, warm for one more cold hour, into a day that will be different from the last — which is the one thing, the only thing, that the plateau in all its patience never got to have.

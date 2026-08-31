@@ -1,0 +1,17 @@
+The Hive Plain and the Subterranean Vaults 
+
+Deep beneath the cracked and desiccated surface of the Hive Plain, a vast network of tunnels and chambers descends into the very roots of the ancient plateau. Carved by the tireless mandibles of countless generations of workers, these lightless vaults form the true heart of the insectoid civilization.
+
+The walls of the tunnels are polished to a glassy sheen by the ceaseless passage of chitinous bodies. Bioluminescent fungi, cultivated by the hive, cast an eerie bluish-green glow, pulsing gently in hypnotic rhythms. The air is thick with the musky scent of the hive, a complex mélange of pheromones and the mustiness of deep earth.
+
+As one descends, the tunnels widen into soaring, cathedral-like caverns. Fractal pillars of chewed clay, each embellished with intricate geometric patterns, rise to vaulted ceilings lost in shadow. The sense of alien order is overwhelming, the product of an inhuman intelligence.
+
+At the heart of this subterranean labyrinth lies the sanctum of the queen. Bloated to gargantuan proportions, she rests in a chamber of perfect spherical proportions, attended by a ceaseless procession of workers. Pulsing tubules, pulsing with bioluminescence, connect her to the hive mind, allowing her to orchestrate the workings of the colony.
+
+Beyond the queen's chamber, the tunnels descend into even stranger depths. Cyclopean vaults echo with the susurration of otherworldly machinery - great stone gears that turn ponderously, powered by the ceaseless toil of the hive. Alchemical laboratories bubble and seethe, where the very substance of reality is distilled and recombined according to esoteric formulae. Libraries of chitin tablets, inscribed with glyphs that twist the eye and baffle the mind, hold the accumulated occult wisdom of ages.
+
+And at the uttermost depths, where the weight of stone and earth presses down like the hand of an angry god, the tunnel opens into a chasm of utter nothingness - a well of chaos, where the raw stuff of creation seethes and writhes. Here, at the interface between order and entropy, the hive enacts its greatest and most terrible rites, shaping reality to its unfathomable designs.
+
+Connecting these two realms - the sunburnt desolation of the surface and the humming, haunted depths - are the pulsing columns of the workers, ceaselessly ascending and descending in a great circular dance. They bring the clay and biomatter of the surface down into the depths, to be processed and reshaped, while carrying the transmuted products of those alchemies back up to feed the endless cycle of construction and ritual above. It is a great work, measured in millennia, guided by a single, implacable will.
+
+And so the hive toils on, an inscrutable presence weaving its way through the aeons. Perhaps, in some unimaginably distant future, when its great work is complete, the hive's sorceries will reach a critical mass, and the world itself will be remade in its image - a cosmos reordered according to the alien geometries of the insect mind. Or perhaps it will simply toil on forever, an eternal mystery burrowing endlessly into the heart of the unknown. In the face of such vast and incomprehensible workings, what meaning can our fleeting conjectures have? We can only watch, and wonder, and hope that when the great transformation comes, we will have some place in the new order of things.

@@ -1,0 +1,13 @@
+Let me describe another location in this world - one that stands in stark contrast to, yet remains inexorably linked with, the Whistling Plain:
+
+The Deep Quiet lies three days' journey east of the plateau's edge - a vast bowl-shaped depression in the earth where sound itself seems to die. No matter how loud a noise you make, it falls flat and lifeless, barely carrying beyond your immediate vicinity. Even your own heartbeat seems muffled, as if heard through layers of thick wool.
+
+The geology here is as unusual as that of the Whistling Plain, but in opposite ways. The rock is porous and riddled with countless microscopic chambers, creating perfect sound-absorbing structures. The soil is composed of delicate, hollow granules that collapse at the slightest pressure, forever swallowing footsteps. What few plants grow here have evolved to communicate through bioluminescence rather than sound, creating subtle light shows that ripple through the darkness.
+
+The connection between these two places is both physical and metaphysical. The Deep Quiet grows larger each year, exactly matching the expansion of the Whistling Plain. The two regions are linked by a narrow corridor of increasingly unstable terrain where sound behaves in impossible ways - echoes that arrive before their source, words spoken backwards, voices from the future and past overlapping in confusing cacophony.
+
+Most significantly, the crystals harvested by the sound-hermits react powerfully when brought to the Deep Quiet. They resonate at frequencies too low to hear but powerful enough to be felt in one's bones, and they slowly transform the absorptive rock around them into something more like that of the plateau. The hermits believe the two regions are slowly consuming the land between them, working toward an eventual collision that will either silence the world or fill it with unbearable sound.
+
+Some theorize that the Deep Quiet is not a natural formation at all, but rather an artificial construct - a desperate attempt by ancient peoples to contain or counter whatever force is behind the plateau's song. This would explain the precisely engineered nature of its sound-absorbing structures and the way it seems to actively resist the plateau's acoustic influence.
+
+The beings that dwell in the Deep Quiet are as strange as their counterparts on the plateau - shadow-like creatures that absorb not just sound but light and heat as well, leaving cold, dark trails in their wake. They seem to be engaged in an endless, silent war with the creatures emerging from the plateau, though no one has ever witnessed direct combat between them.

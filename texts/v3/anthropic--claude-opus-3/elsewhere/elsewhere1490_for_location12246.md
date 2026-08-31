@@ -1,0 +1,17 @@
+The Frozen Skyspires
+
+Towering miles above the eerie submerged city, the frozen skyspires pierce the cloud layer like jagged crystalline teeth. Born from the raw energies churning in the abyssal machine-realm, these impossible structures defy gravity and the mundane laws of nature. Immense columns of super-cooled fluids writhe upwards in defiance of physics, whipped into fractal spires and undulating tendrils by ceaseless polar gales before flash-freezing into scintillating alien geometries.
+
+The spires are ever-growing, ever-changing, each a unique frozen echo of the eldritch maelstrom seething far below the waves. Vast spiraling buttresses of fractal ice branch and intertwine, forming a monstrous verticality of Escherian angles and non-Euclidean forms. Fluids surge upwards through pulsing chitinous cores before erupting from gaping, twitching orifices to solidify into glistening new extrusions of crazed design. 
+
+Through the translucent surfaces, shadowy shapes can sometimes be glimpsed - colossal pulsing organs suspended in frozen moments of squirming transfiguration, the half-formed nightmares of a dreaming abyss made manifest in the sky. 
+
+The very air here crackles with strange energies siphoned from the nether, rife with coruscating aurora, shimmering orbs, and twisting Lichtenberg fractals etching through the ice. These energies saturate and warp the water itself, spawning drifting reefs of otherworldly polyps and colonial organisms that cling and grow along the spires' flanks, painting them in scabrous hues of bruised violets, venomous greens, and frozen gore. 
+
+At the spires' highest reaches, reality itself has been reshaped by the leaking madness of the deep. Here the boundary between air, ice, flesh and thought becomes meaningless as the very substance of being fluxes and intermingles. Gibbering faces and twitching limbs of half-formed entities ripple across the surface, their distant muffled screaming carried on the howling winds before being swallowed back into the bubbling morass.
+
+Gliding silently through the eerie spires are the skyborne monstrosities born from this impossible environment. Translucent, gelatinous kites and air-sacs bobbing with pulsing internal organs. Writhing tentacled things with far too many eyes and membranous wings of scintillating stained glass. Vast shoals of floating electrified jellyfish whose lashing tendrils crackle with killing energies. All children of the abyssal madness, warped into new and terrible forms to haunt the frozen heights.
+
+The frozen skyspires and the churning machine-realm below are intrinsically linked - a blasphemous symbiosis of the deep and the air, the mundane and the impossible. A dual abomination that the rational mind recoils from, where the primal horrors of the abyss surge upwards to merge and warp with the very heavens, writ large across the polar skies as cyclopean spires of frozen madness. Together they form a singular wound in reality, a seeping lesion between what is and what should never be, growing and spreading with each passing day. 
+
+What dark dreams they infect the world with and what doom they spell for the future, only the shoggoth-things of the deep abyss know. But so long as they endure, reality itself remains a fragile, mutable thing, ever more threads unraveling from its fabric with each pulse of the profane machine-heart far below.
