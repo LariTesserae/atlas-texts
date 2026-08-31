@@ -1,0 +1,36 @@
+## Preparation Protocol for the Frost-Garden City (Designation: *Sylva Suspensa*)
+
+**I. Conceptual & Psychological Acclimation**
+
+*   **Temporal Dislocation Training:** Prior to arrival, you must undergo guided meditation and sensory-deprivation exercises to decouple your internal clock from external cues. Practice remaining motionless for extended periods (4+ hours) while maintaining calm, focused awareness. The city exists in a state of *chronostasis*; your perception of time’s passage is your primary psychological vulnerability. You will not see change. You will not feel progression. Anchor yourself with internal rhythms—your heartbeat, your breath, the count of your own steps—but do not expect external validation of time’s flow.
+*   **Acceptance of Silence:** Acclimate to profound auditory stillness. Use noise-cancellation gear in pre-visit prep, but more importantly, mentally reframe “silence” not as absence, but as the primary sensory medium of the place. The muffling is active; it is the acoustic signature of density and saturation. Your own body’s sounds will become your soundtrack; make peace with this.
+*   **Embrace the Ephemeral/Static Paradox:** You are entering a world of supreme vitality—every surface teems with life—yet locked in absolute stasis. This cognitive dissonance can induce a form of spiritual vertigo. Study examples of arrested decay and perfect preservation (e.g., peat bogs, amber, hermetically sealed ecosystems) to build a mental framework for a living system without narrative.
+
+**II. Environmental & Biophysical Gear**
+
+*   **Thermal Regulation:** *Critical.* The light is bright but heatless. Wear a **multi-layered, non-insulating moisture-wicking system**. Your own body heat is the only significant thermal source; you must manage it to prevent both chilling dampness and sweat-induced overheating. A base layer of phase-change material is recommended to buffer temperature fluctuations you *will* cause simply by being a warm body in a cold-saturated world.
+*   **Humidity & Condensation Management:**
+    *   **Sealed, Breathable Outer Layer:** A garment with a micro-porous membrane (like advanced Gore-Tex) that repels liquid water but allows vapor to escape. Expect *everything* to be wet. Your suit must prevent the external damp from reaching your skin while letting your own perspiration out.
+    *   **Anti-Fog/Optic Clarity:** Your visor or goggles must have permanent anti-fog coating and hydrophobic surfaces. The glittering haze will condense on any cold surface, including your faceplate. Consider a soft, squeegee-wipe mechanism.
+    *   **Gear Protection:** All equipment must be rated for constant, high-humidity environments. Redundant seals on electronics. Use mechanical, not electronic, tools where possible.
+*   **Acoustic Awareness:** **Do not wear sound-dampening headphones.** Your auditory connection to your own actions is your primary spatial and safety feedback. The crunch of a footstep, the rustle of your suit—these are your sonar in the muffling. Consider a small, external microphone that amplifies these personal sounds directly into your ear canal.
+*   **Mobility & Interaction:**
+    *   **Footwear:** Soft, pliable soles with high-grip, non-compressive tread. You must move like the fauna—minimal disturbance. Sharp, hard edges will scar the moss and disrupt the silent machinery. Think moccasins reinforced with composite toe-caps.
+    *   **Hands:** Thin, tactile gloves with microscopic grip-texture. You will need to handle slippery, wet surfaces and delicate, frost-brittle flora. **No bare skin contact.** The equilibrium is biological; your unique microbiome is a catastrophic invasive species.
+    *   **Sampling Tools:** Sterile, non-reactive tools (ceramic, titanium) for any necessary environmental interaction. Use vacuum-sealed containers. Assume everything is part of a closed loop; you must take nothing, leave nothing, not even a skin cell.
+
+**III. Operational Directives**
+
+*   **Movement:** Travel slowly. Deliberately. The path of least resistance is the path of least disturbance. Follow existing channels—tunnels, woven walkways—as they are part of the city’s “circulatory system.” Do not forge new paths. Your weight distribution matters; use walking sticks to spread your load.
+*   **Navigation:** GPS and electromagnetic navigators will be unreliable. The organic architecture and dense moisture scatter signals. Rely on **inertial guidance** and **physical mapping**. Mark your route with non-invasive, temporary biodegradable indicators (e.g., a thread of UV-reactive, organic polymer that sublimates in 48 hours). The city is a maze; getting permanently lost is a high probability.
+*   **Temporal Anchoring:** **Mandatory.** Wear a self-contained, non-audible chronometer visible only to you (e.g., a haptic pulse on your wrist at your pre-set intervals). It is your lifeline to your own timeline. Record personal log entries at these intervals, describing your sensory state, not the unchanging environment. This practice prevents ego-dissolution into the timeless present.
+*   **The Pause:** If you discover artifacts (the flint knife, the basket), **do not touch, move, or “tidy” them.** Photograph and analyze in situ. The feeling of being “paused” is fundamental. To disturb an object is to violate the narrative stasis, which may have profound, unpredictable consequences on the local temporal field. You are a witness, not an archaeologist or a cleaner.
+*   **Fauna Protocol:** Assume you are being observed by the hidden fauna. Your movements are seismic events to the thumbnail-frogs and peat-sifting crustaceans. Move to minimize vibration. Do not attempt to interact or “discover” hidden creatures. Their existence is part of the damp machinery; removing or disturbing one could unbalance a cycle you cannot perceive.
+
+**IV. Emergency & Exit Strategy**
+
+*   **Hypothermia/Hyperthermia:** Your own body’s failure to regulate heat in this perfect thermal sink is the primary medical risk. Carry chemical heating/cooling pads that can be applied externally *through* your suit.
+*   **Psychological Break:** If you begin to feel time dissolving, if your thoughts loop in the profound silence, if the eternal noon feels like a trap: **Initiate Exit Protocol Immediately.** Do not “push through.” The equilibrium is seductive. Use your chronometer to ground yourself: state your name, your origin, your mission, your destination. Retreat along your marked path. Your sanity is more important than the data.
+*   **Contamination Event:** If your suit is breached, if you bleed or leave a significant biological deposit: **Declare a Level 1 Biohazard.** Evacuate the immediate area. You have introduced a chaotic element into a closed system. The consequences are unknown and likely irreversible for that micro-ecosystem.
+
+**Final Advisory:** You are not entering a city. You are entering a *condition*—a photograph made of life, a breath held for eons. Your goal is not to understand it, but to pass through it without breaking its spell, and to return with your own sense of time and self intact. Travel light, move like a ghost, and listen to the sound of your own heart. It will be the loudest thing in the world.

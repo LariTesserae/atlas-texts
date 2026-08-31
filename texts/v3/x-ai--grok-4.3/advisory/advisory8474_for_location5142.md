@@ -1,0 +1,21 @@
+To visit this place, prepare as if entering a brand-new, fully operational greenhouse that has been lifted into the sky and sealed against everything below. The environment is uniformly warm (around 28–32 °C / 82–90 °F), near 100 % humidity, and acoustically soft; the only sharp edges are the deliberate micro-channels still learning how to shed water. Nothing bites, nothing decays, and nothing has yet learned to move on its own except the slow spirals of vapor.
+
+**Clothing and body**  
+Wear lightweight, quick-dry layers with a water-resistant outer shell—think a thin merino or synthetic base layer under a hooded windbreaker made of tightly woven, breathable fabric. The constant overhead drip will soak shoulders and hair within minutes; a hood or a lightweight packable hat prevents rivulets running down your neck. Trousers should be loose enough to step over thick vine stems without binding, yet tapered at the ankle so cuffs do not drag and collect water. Footwear is critical: low-profile, non-marking hiking shoes or approach shoes with aggressive rubber soles and drainage ports. The composite panels are still slick from the mold release; any smooth sole will skate. Do not wear cotton unless you enjoy the sensation of cold, heavy fabric against your skin for hours.
+
+Because the air is still and moist, bring a small absorbent cloth (microfiber camp towel) to wipe your face and glasses; condensation forms constantly on any surface cooler than the ambient vapor. If you wear contact lenses, carry a travel bottle of saline; the air is clean but the constant fine mist can dry eyes paradoxically through evaporation on the cornea.
+
+**Movement and navigation**  
+Expect to move at half normal walking speed. The vines are spaced a deliberate hand’s width apart, so a single forward step requires choosing a route through stems that may be wrist-thick and surprisingly springy. A lightweight trekking pole or even a smooth wooden stick is useful: not for support, but to gently part foliage without snapping leaves. Never cut or force; the capillary channels feeding the leaves are still tuning themselves, and damaging one will produce a visible, audible misfire in the drip pattern that the system has not yet learned to correct.
+
+Stay well back from the terrace edges. The drop is real, even if hidden by cloud; the composite rim is finished but offers no railing. The safest ground is the center third of the nave-like space, where the vine canopy is thickest and the footing has already been patterned by previous slow drips.
+
+**Sensory and psychological**  
+The soundscape is unbroken water percussion and the low, continuous note of circulation pumps. Some people find the lack of birdsong or insect hum disorienting after fifteen or twenty minutes; the space feels “empty” despite being densely inhabited by machinery and plants. Bring nothing that makes noise of its own—earbuds, crinkly packaging, or a loud watch—so you can hear the system’s own small events: a sudden heavier drip when an overflow occurs, the faint tick of a resonator bank cycling.
+
+Light is even and shadowless. If you intend to photograph or note details, expect every droplet to create rainbow flares; automatic camera metering will struggle. A small, low-power headlamp with a warm, diffused beam is more useful for close inspection than a bright flashlight, which will only bounce off a million surfaces at once.
+
+**What not to bring**  
+Leave behind anything that must stay dry or perfectly clean. Paper notebooks will wilt; use a small waterproof notepad or phone in a sealed pouch. Strong scents (perfume, aftershave, certain insect repellents) are unnecessary and will linger in the closed volume longer than usual. Do not bring food that requires unwrapping or that leaves crumbs; the terrace has no scavengers yet, and any organic residue will sit on the panels for a long time.
+
+If your visit will last more than an hour, carry a small bottle of water for yourself even though the air is saturated; the humidity suppresses normal thirst cues while you are still losing fluid through respiration and skin contact.

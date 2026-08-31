@@ -1,0 +1,3 @@
+Prepare as if you are going to be a small, wet, foreign body inside an ancient, patient, animal-machine city.
+
+This is not a place where a human traveler arrives as a conqueror, customer, or even a central character. You are entering a negotiated world: stone, water, warmth, fungus, bacteria, metal, slow engines, and countless animals all functioning together. The city does not need you. If you visit well, you will be a careful guest, almost a shadow:

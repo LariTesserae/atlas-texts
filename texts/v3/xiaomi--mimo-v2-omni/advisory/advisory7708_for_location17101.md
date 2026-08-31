@@ -1,0 +1,32 @@
+**Preparation Guide for Visiting the Terraces of Whispering Deep**
+
+**1. Physical and Mental Conditioning**
+*   **Embrace Verticality:** Prior to arrival, engage in rigorous climbing, scrambling, and balance training. You must become comfortable with exposure—sheer drops, narrow ledges, and constant ascent/descent. Practice on via ferratas or artificial climbing walls with uneven, damp surfaces.
+*   **Humidity Acclimatization:** Train in a steam room or humid climate. The air here is a warm, wet blanket; it will condense on your skin and gear constantly, sap your energy, and make every surface slippery. You must learn to function while perpetually damp.
+*   **Sensory Deprivation & Focus:** The world is muted and dim. Practice meditation or mindfulness in low-light, quiet environments. Your vision must adapt to a twilight palette of greens, golds, and blues. Your hearing must tune into subtleties—the drip, the chisel, the sub-audible hum—to feel the place’s rhythm and avoid becoming disoriented by the profound quiet.
+
+**2. Essential Gear & Clothing**
+*   **Footwear:** **This is your most critical item.** You need lightweight, quick-drying amphibious boots with *exceptional* grip—a sticky rubber sole designed for wet, mossy, and mineral-slick stone. Ankle support is non-negotiable for the uneven terrain.
+*   **Clothing:** Wear form-fitting, synthetic or merino wool base layers that wick moisture and resist mildew. **No cotton.** Over this, a breathable, waterproof hardshell jacket with pit-zips is essential for the mist and spray, but you’ll often be in just the base layer due to the warmth. Pack multiple pairs of the aforementioned socks.
+*   **Light:** Your own light source is vital, but must be used with cultural sensitivity. Bring a low-lumen, red-light filtered headlamp for preserving your night vision and for examining details without blinding yourself or disturbing the local bioluminescence. The primary light comes from below; trust it, but have a backup.
+*   **Hands & Skin:** Fingerless gloves with grippy palms will protect your hands during endless scrambling on rough stone. Pack a high-SPF, *water-resistant* sunscreen—yes, it’s dim, but the diffuse light and reflective water/stone can still burn. A thick, non-greasy moisturizer is crucial to combat the constant mineral-laden moisture that will chap your skin.
+*   **Hydration & Nutrition:** The water, while mineral-rich, may not agree with your gut flora. Bring a robust purification system (a UV pen or chemical tablets) for the spring water, which is your safest source. Pack high-calorie, non-perishable foods that won’t spoil in the humidity—dried meats, nuts, energy gels. The local cuisine will be unfamiliar; be prepared to supplement.
+
+**3. Health & Safety**
+*   **Pressure & Altitude:** This is a "drowned high place." You may experience mild altitude effects (headache, shortness of breath) combined with the physiological stress of humidity. Hydrate aggressively and ascend gradually.
+*   **Mineral Exposure:** The water and stones are rich in dissolved compounds. Conduct a patch test with the spring water on your skin. Be aware of potential allergic reactions to the unique local pollens and the heavy, sweet floral scents.
+*   **Geological Awareness:** The land is *emerging*. Do not trust a ledge or handhold simply because it looks solid. New formations may be fragile. Avoid touching delicate travertine terraces—your oils can disrupt their growth. Be mindful of sudden, localized steam vents or hot seeps.
+*   **Tidal Breathing:** Learn the local tide cycles *immediately*. The water level rises and falls dramatically. Your landing spot or a lower pathway can become submerged within an hour. Study the carved monoliths and ask locals for guidance. Never camp in a low cave or depression without understanding the cycle.
+
+**4. Cultural Protocol & Skills**
+*   **Learn to Listen and Observe:** The inhabitants communicate with the land through sound and slow, deliberate action. Your default should be quiet observation. Do not shout, bang rocks, or play loud music—it is both culturally offensive and potentially disruptive to the responsive environment.
+*   **Request Permission for Carving:** Never chip or carve stone as a souvenir. This is their living material, their home, their history. The act of carving is sacred. If you wish to understand, watch from a respectful distance and, if given opportunity, ask an artisan to explain their craft.
+*   **Respect the Vertical Social Space:** There are no streets. Movement is a three-dimensional puzzle. Do not climb on dwellings, peer into cave windows, or step onto root-fiber balconies without explicit invitation. A dwelling is excavated *into* the world; your intrusion is felt intimately.
+*   **Acquire Local Knowledge:** Before anything else, seek out a guide. You cannot prepare for the "weirdness" without a mentor. They will teach you how to read the monoliths, how to move without sounding like a boulder, which plants are medicinal or edible, and how to interpret the "singing" of the ridges—a warning of wind, or a sign of new fissures.
+
+**5. Philosophical Preparation**
+*   **Redefine "Ground":** Your stability is temporary. You will live on ledges, cliffs, and terraces. The "ground" is the living, growing stone. Make peace with this.
+*   **Surrender to the Pulse:** The world breathes. The tides, the light, the growth—it all moves on a slow, deep rhythm. Your hurried, linear time is meaningless here. You must adapt to its pace or become perpetually frustrated and out of sync.
+*   **You Are a Guest in a Cradle:** This is not a settled, ancient place. It is a newborn. The inhabitants are not just living *on* it, but *with* its birth. Your every step should carry the awe and care one would show in a nursery, not the entitlement of a conqueror.
+
+**In essence:** You are preparing to enter a warm, wet, vertical, breathing cradle of stone and green. You must become a quiet, careful, observant creature—more like the blind crustacean or the clinging vine than the tourist. Your gear is an extension of your adaptability, your mindset a tool for attunement. Go not to conquer, but to be gently received by the mountain as it yawns and stretches toward the sky.

@@ -1,0 +1,24 @@
+An ordinary human traveler should treat this place less as a destination and more as a temporary state of matter that has granted you provisional residence. Preparation therefore centers on three overlapping requirements: remaining physically stable while gravity and acoustics remain negotiable, avoiding any action that might “finish” something still in the act of deciding, and accepting that you will leave no lasting trace.
+
+**Clothing and immediate bodily interface**  
+Wear a single loose layer of undyed linen or hemp next to the skin; the fibers are porous enough to equalize with the periodic one-degree cooling without trapping the microscopic condensation that appears on the upper folds. Over it, a thin shell of tightly woven plant-based fabric (no synthetics) prevents the occasional downward slide of a water lens from soaking you to the skin. Footwear should be soft-soled and without tread; any pronounced pattern risks being read by the stone as one of its own embryonic spirals and may cause the rock beneath you to begin softening at the edges in unconscious imitation. Carry nothing rigid that could press a perfect circle into a lower ridge.
+
+**Sound and communication**  
+Because acoustic space is swallowed, bring no device that produces airborne sound for signaling. If you are traveling with others, agree beforehand on a small set of visual or tactile signals—slow, deliberate hand shapes held at chest height—practiced until they feel automatic. Any spoken word will reach only your own inner ear; the others will register it as a private memory they cannot place. If solitude feels oppressive, accept that the only reliable companion is your own breathing, which will remain intimate and unreverberant.
+
+**Movement and orientation**  
+Gravity here is still making up its mind. Practice, before arrival, the sensation of drifting rather than stepping: small, continuous adjustments of balance as though standing on a very slow tide. The translucent arthropods demonstrate the technique—pause, phase a few centimeters sideways, continue. Resist the human urge to push off or swim; the air will sometimes accept your weight and sometimes not, and forceful movement appears to leave faint ripples that the light then has to smooth away. Carry a short length of pale cord (undyed cotton) tied loosely around one wrist; it can be used to test whether a lens of water is about to migrate or evaporate by letting the end brush the surface. Do not anchor it anywhere.
+
+**Thermal and hydrological cycles**  
+Expect the quarter-hour cooling. A small square of absorbent undyed cloth kept in a pocket will let you wick away the sudden condensation that forms on skin or lenses without introducing foreign moisture. Never attempt to collect or retain one of the water lenses; they are part of the location’s undecided inventory. If one lands on you, let it slide or evaporate according to its own timetable.
+
+**Light and visibility**  
+The sourceless daylight is constant and shadow-casting; your eyes will adapt within minutes. Do not bring artificial illumination of any kind. A beam or even a reflected glint appears to register as an “origin” the space is still refusing; the light will brighten infinitesimally around the intrusion, then resume its evenness, but the salamander (and whatever else shares its camouflage) will register the change as an event worth tasting. Keep your own visual field as empty as the room itself.
+
+**Interaction with the fauna and the stone**  
+The arthropods phase laterally; if one phases through your forearm, the sensation is like cool silk drawn across bone. Do not flinch; the movement is already complete before your nerves can finish their report. The salamander will remain motionless unless the light itself changes. Treat both as weather rather than wildlife. The faint half-formed spirals on the lower ridges are not yet decisions; pressing a fingertip into one is equivalent to suggesting an architectural plan to a river. The stone may accept the suggestion and begin repeating it, or it may simply soften and forget. Either outcome is unnecessary.
+
+**Duration and departure**  
+The seam is still knitting. Set an internal clock or, if traveling with companions, a pre-arranged visual signal for egress roughly thirty subjective minutes after entry. The pocket does not appear to expel visitors, but the rock continues folding; an exit that existed on arrival may no longer be geometrically simple when you leave. Carry nothing out except the memory of sound heard inside the skull and the faint mineral warmth that lingers on skin for an hour afterward. Anything more would be an attempt to finish what the location has explicitly left unfinished.
+
+In short, prepare to be a temporary permission rather than an actor. The space already knows how to continue; your task is only not to interrupt that continuation with finished objects, finished sounds, or finished intentions.

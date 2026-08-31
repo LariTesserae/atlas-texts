@@ -1,0 +1,18 @@
+This is not a landscape so much as a mineral process still running. An ordinary traveler should approach it less like a hike and more like entering a slow-motion industrial accident that happens to be continent-sized. Preparation therefore focuses on three realities: the air is marginally breathable but chemically abrasive, the ground is never finished moving, and there is almost no light.
+
+**Atmosphere and chemistry**
+The air is thin enough that exertion will feel like moderate altitude on Earth; bring a small supplemental oxygen supply or at least a pulse oximeter so you notice hypoxia before you become confused. The metallic-halogen scent suggests reactive trace gases—likely chlorides or fluorides—so a lightweight respirator or even a simple activated-charcoal half-mask is worth carrying to spare lung tissue and eyes. Nothing here holds moisture, so evaporation will be rapid; plan on twice the water you would normally carry for the expected duration, and protect it from the warm air with reflective containers.
+
+**Light and visibility**
+The only illumination is a diffuse shoulder-height glow that reveals nothing beyond a few paces. Headlamps and lanterns will feel swallowed; bring several redundant, high-lumen, narrow-beam lights plus chemical sticks for moments when you must see farther or mark a route. Because the light source is a suspended dust layer rather than a sky, shadows are nearly absent—depth perception suffers, so move slowly when the terrain tilts.
+
+**Surface and structural instability**
+The lattice is constantly re-locking. Wear boots with stiff, puncture-resistant soles and flexible ankle cuffs; ordinary hiking footwear will be sliced or abraded within hours. Carry a lightweight helmet and shoulder pads—when a needle fractures, shards arrive with little warning and the vibration travels through the plates before the sound does. Never lean against or shelter under any vertical formation, no matter how solid it appears. If you must stop, choose a low, open area rather than near basin rims where vents can open without pattern.
+
+**Navigation and duration**
+Ridges lengthen visibly and heaps migrate, so any cairn or marker you place will eventually be incorporated or shifted. Use a compass and a written or digital bearing log rather than relying on landmarks. Because collapses send low vibrations that can travel for kilometers, a simple seismic app or even a contact microphone on the ground can give seconds of warning before a distant spire drops. Assume you will leave no trace; everything you set down eventually becomes part of the same recrystallization cycle.
+
+**Physiological considerations**
+The environment is warm and desiccating. Salt loss will be higher than expected; bring electrolyte supplements. The absence of any living system means no biological hazards—no vectors, no allergens—but also no margin for error if you are injured. An extraction plan (portal coordinates, beacon, or timed return) should be fixed before entry; the terrain will not remain stable long enough for casual rescue.
+
+In practice, most visitors describe the place as claustrophobic despite its scale: the constant soft ticking, the shoulder-height dimness, and the low-frequency knowledge that the next collapse could be anywhere within the lattice all combine to make time feel compressed. Move deliberately, breathe deliberately, and treat every flat stretch as temporary.

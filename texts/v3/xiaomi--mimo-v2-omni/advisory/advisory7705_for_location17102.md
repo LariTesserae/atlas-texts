@@ -1,0 +1,27 @@
+**Preparation Guide for the Terracescape**
+
+**1. Physiological & Gear Preparation:**
+- **Thermal Regulation:** Pack for constant, penetrating damp chill (not extreme cold, but relentless). Multi-layered, moisture-wicking wool or advanced synthetic base layers are essential. An outer shell must be *waterproof-breathable*, as rain won’t fall but condensation will coat everything. Insulation loses effectiveness when wet, so prioritize vapor barriers and spare dry layers.
+- **Footwear:** Sturdy, waterproof boots with exceptional grip. Stone steps will be perpetually slick with moss and condensation. Ankle support is critical on the steep, uneven terrain. Bring moleskin and antifungal treatments—athlete’s foot will be a constant threat.
+- **Hydration & Nutrition:** Despite abundant water, **do not drink from cisterns or channels** without purification. The closed-cycle ecology may host unique microbes. Bring high-calorie, non-perishable food. Local cuisine might be fungi, leafy greens, and grains, but your gut biome is unprepared. A compact water filter designed for biological contaminants is mandatory.
+- **Optical Aid:** The flat, shadowless light distorts depth perception. Polarized lenses can cut through glare from wet stone. A monocular or rangefinder helps judge distances on featureless terraces.
+- **Condensation Management:** All gear must be moisture-resistant. Use sealed dry bags for electronics, documents, and spare clothing. Bring silica gel packs. A wide-brimmed waterproof hat keeps drip off your neck. Consider a small, quick-dry towel always accessible.
+
+**2. Environmental & Safety Acclimatization:**
+- **Respiratory Prep:** The air is thick with moisture and likely fungal spores. A lightweight particulate mask (N95 or better) is advised if you have sensitivities. Be prepared for the *stone-borer* vibration—a low, bone-deep hum that can induce subconscious anxiety or nausea in some travelers.
+- **Fauna Awareness:** Do not touch the six-legged iridescent creatures; their shells may secrete irritants. The jade amphibians are likely camouflaged—watch your step near cisterns. The *kethra* are scavengers—avoid attracting attention with reflective objects or bright food. The *bell-shaped flowers* may emit pollen or sonic frequencies; observe from a distance initially.
+- **Navigation:** The stepped alleys and covered walkways are a maze. The lack of shadows and uniform grey palette can cause spatial disorientation. Mark your path with biodegradable tape or note distinctive lichen patterns. GPS may be unreliable; carry a physical compass and altimeter.
+
+**3. Cultural & Temporal Etiquette:**
+- **Observation Over Interaction:** The inhabitants exist in a closed behavioral loop. **Do not expect linear progress or results.** Attempting to trade, commission work, or engage in collaborative projects will fail—they may participate, but the outcome will never complete. Their purpose seems to be maintenance of the eternal moment.
+- **Do Not "Fix" or Disrupt:** The frozen equilibrium is fragile. Do not repair a gutter, weave a thread for someone, or alter a carving. Such actions could have unforeseen consequences in a system where nothing accumulates change. You are a ghost in their eternal present.
+- **Minimal Footprint:** Leave no trace. Your discarded wrappers could persist for ages in this non-decaying environment. Pack out all waste. Avoid leaving even a scratch on stone; it will last forever.
+- **Psychological Preparedness:** The silence and lack of progress can induce a profound existential disorientation. Time feels viscous. Bring a journal or voice recorder—documenting your own thoughts will help anchor your linear psyche against the timeless backdrop. The damp stillness can feel oppressive; music or podcasts (via headphones) might provide a necessary mental escape.
+
+**4. Metaphysical & Contingency Planning:**
+- **Temporal Anchoring:** Set a strict schedule for yourself—meals, check-ins, sleep cycles. The inhabitants’ repetitive actions can hypnotize you into losing track of your own timeline. Wear a watch with a loud, distinct tick.
+- **Exit Strategy:** Your mode of arrival must remain accessible and unchanged. In a world of stasis, a foreign object or gateway could be vulnerable to the system’s equilibrium forces. Keep it shielded and monitored. If you use a portal, ensure it’s keyed to your origin *before* departure—the lack of temporal flow might interfere with its calibration.
+- **Health Contingency:** Have a comprehensive medical kit. A cut could fester rapidly in the damp. Antibiotics, antifungals, and wound-sealing gel are necessary. Injuries heal slowly in this suspended state—your own linear biology might be out of sync.
+- **Communication:** Assume no interstellar communication works here. The temporal stasis may create a Faraday effect. Inform your home timeline of the “timeless zone” risk—your absence might seem to stretch infinitely from their perspective.
+
+**Final Advice:** You are entering a world of beautiful, eerie stasis. Your role is that of a silent observer, a temporary anomaly in a system perfected to exclude change. Prepare to feel the weight of eternity in a single droplet of dew clinging to a leaf. Patience is not a virtue here—it is the very fabric of reality. Leave no mark, take only memories, and guard your own sense of time with fierce discipline.

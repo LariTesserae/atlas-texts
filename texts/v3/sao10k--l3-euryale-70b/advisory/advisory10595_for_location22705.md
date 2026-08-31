@@ -1,0 +1,17 @@
+To prepare to visit this place, one would need to psychologically steel themselves for a experience that threatens to shatter the perceptions and sanity of the human mind. The atmosphere is permeated with an unnatural, eerie stillness - akin to the heavy, suffocating sensation of being at the bottom of a deep, stagnant well. The colors and shapes do not look quite right, as if the fundamental laws of light, form, and matter are subtly broken.
+
+It's like being submerged in a feverish dream, with reality flickering and phasing in and out of focus. The ancient landscape of red rock transforms itself strangely before the eyes, twisting into organic shapes that seem to be alive. The buildings and streets of the sprawling city are just as alien and incomprehensible, worming their way through cliff faces in knots of stone.
+
+To survive, one must shield their mind against the visual and auditory assault on the senses. Wear dark goggles with polarized lenses to filter out some of the bizarre spectrum. Fit oneself with earplugs to block the atonal, maddening sounds that echo in the canyons. If possible, bring a portable respirator to screen the air, which may contain unknown gases that further subvert cognitive function.
+
+Physically, dress in form-fitting protective coveralls to shield against the thin, frigid air. Wear a tight-fitting skullcap or helmet to press against the temples, to prevent the mind-frying visions from searing into the brain. Bring thermal underwear, thermal boots, and multiple layers to insulate against the chill. Pack skin lotion or body oils to protect the skin from the desiccating wind.
+
+For sustenance, bring a full canteen of water and rations like hard tack or protein bars that don't easily spoil. The local air and water may be tainted by contaminants or unknown bio-chemicals, so avoid ingestion. Pack sanitary wipes and a half-face mask to minimize cross-contamination.
+
+It's unclear whether any life-forms in the canyon system can be safely interacted with or even perceived. Treat all organic movement with extreme caution. Avoid close proximity to the gnarled trees and their clawing branches. Eyes seem to follow your movement from shadowed crevices within the rock. Assume any lizard or mammal is virally or otherwise infected, and keep a safe distance.
+
+The most vital preparation is psychological. Focus one's mind and emotion inwards. Recite prayers or rituals to protect the sanity. Seek out a place of spiritual power among the eroded forms to pray and meditate. Before venturing out, inject a powerful sedative and painkiller to blunt the sensory overload.
+
+Above all else, there must be a will to survive. Eroded forms will try to summon the visitor into their hive mind. Visions of feral hogs conjured from layers of sediment may attack. Existences sloughed into ancient junkyards may animate and assault. REPEAT: ACCION WILL SEEM TO FREEZE WHERE IT WOULD FLOW. EXPECT NOTHING TO CHANGE.
+
+To leave, recognize that the only way out is up and back, tracing your route. Do not follow the rivers through the stone or you risk.Entombed in layers,You could travel millions of years SEDIMENS and come out at the wrong geologic IC HYGEINE and point in time. When you finally claw your way out of the canyon on a log, do not look back.TRHE. Are eough nagative ions from animtape's matter Divider th-enter tecoren DIrexion from that plAce.

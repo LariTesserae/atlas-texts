@@ -1,0 +1,35 @@
+Steamstone Plateau. The name alone evokes warmth and permanence. You’ve read the accounts, heard the whispers of a place outside time. Now you plan to go. Good. But you must understand: this is not a wilderness to be conquered, nor a spectacle to be consumed. It is a quiet pact, and you will be a guest within it. Your preparation, therefore, must be as much about attitude as about equipment. Forget the checklist for a moment, and listen.
+
+First, shed the mentality of conquest. You are not climbing to achieve anything. You are arriving, emerging onto the tableland. The journey's end is not a pinnacle but an immersion. So, before you even pack, cultivate patience. Practice moving slowly. Spend an hour watching water bead on a leaf. Learn the difference between hearing and listening. The Plateau’s silence is not an absence; it is a presence. If you arrive with a mind full of haste and chatter, you will be a discordant note in a symphony of drip and sigh. You may even miss the place entirely.
+
+Now, for the practicalities.
+
+**What to Wear**
+The air is warm and condensing. You will be perpetually damp, but not unpleasantly cold. Heavy waterproofs will trap sweat and make you miserable. Instead, think in layers of *breathable* absorption. Linen is ideal; soft, woven wool that wicks even when damp is a close second. Avoid synthetics that clamor against the skin. Your outermost layer should be a loose, hooded cloak of waxed canvas or oiled wool—something that sheds the constant mist but can vent warmth. You will not need a heavy coat.
+
+Footwear is critical. The ground is a living sponge over a warm aquifer. In many places, your weight will draw water to the surface. Sturdy, knee-high boots are essential, but they must be supple and well-sealed. Seek out ones made of thick, waxed leather, with soles that grip wet stone and peat. Bring multiple pairs of thick wool socks. Your feet will thank you.
+
+**What to Carry**
+Travel light, but with thoughtful weight.
+
+*   **A Walking Staff:** Not for rugged terrain, but for probing the ground ahead. The earth can be treacherously soft near hot springs and mud pools. A solid staff of seasoned hardwood is an extra limb, a tester of stability. It also becomes part of your rhythm.
+*   **Vessels:** You will drink from the streams and tarns—the water is pure, filtered through miles of stone and peat—but a carved gourd or a leather-wrapped flask is wise for when you are far from a stream. A small, shallow bowl of wood or ceramic is also useful for meals.
+*   **Sustenance:** The Plateau provides, but not in familiar ways. There are no fruit-laden trees. The people eat the starchy roots of the feathery grasses, the flesh of the large, silent crayfish, and cultivated algae cakes. Bring some hardtack, dried meat, or nuts from your own world to supplement you until you learn their ways. Do not eat the bulbous fungi, no matter how pearlescent and inviting. Their purposes are not for your stomach.
+*   **Bedding:** You will not freeze, but the dampness is insidious. A bedroll of oiled leather or waxed canvas as a groundsheet is non-negotiable. On top, a thick wool blanket or a quilt filled with down. The moss is soft, but it is water. Sleep on it, and you will wake soaked.
+*   **Light:** The days are of diffuse, normal light, but under the thatched roofs of a guest-house, or on the stone walkways at the misty dawn, a gentle light is needed. A simple candle in a horn lantern, or an oil lamp with a low, clean flame. Nothing harsh. The night here is a deepening of the grey, not a true darkness, and it is safe.
+*   **Tools:** Leave your complex gadgets. A good, sharp knife of steel is acceptable if kept sheathed and discreet. Better would be a knife of stone or bone, traded for on arrival. A length of strong cord, a needle for repair, a fire-striker (though open flame is rarely needed due to the geothermal heat)—these are the humble tools of a thoughtful traveler.
+
+**What to Leave Behind**
+*   **Expectations of Event:** There is no dramatic sunrise, no storm to weather, no predator to evade. The drama is in the slow swelling of a bubble in a pool. Leave behind your need for narrative.
+*   **Bright Colors and Clamor:** Gaudy clothing, jangling gear, loud voices—these are alien here. They frighten nothing, for there is nothing to frighten, but they violate the aesthetic equilibrium. You will feel foolish, and the quiet will amplify that feeling.
+*   **Metal Armor or Excessive Hardware:** It will rust in the constant moisture, and its clanking will sound violent. The people use stone and bone. Your modernity should be equally subdued.
+
+**Navigating the Land**
+The raised stone walkways are your guides. They exist for a reason—to keep you from sinking, to protect the delicate skin of the peat. Stay on them. When you must leave the path, step with a gentle, rolling gait. Feel the ground give before committing your weight. Listen for the soft *glub* of a mud pool; give all bubbling areas a wide berth. The water in the hot springs can be scalding. The clear tarns are safe for wading, if you do so quietly.
+
+The settlements are subtle. Do not march in announcing yourself. Sit on a bench of fitted stone at the settlement's edge. Watch the people move—their slow, efficient chores, their silent fishing with plant-fiber nets. Wait to be noticed. A nod is a profound greeting here. If you are approached, speak softly, your words few. They are not unfriendly, but their communication is sparse, meaningful. Gifts are understood: a well-made cord, a curious stone from your world, help in lifting a burden.
+
+**The Greatest Challenge: Time**
+You will feel it within a day. The lack of change. The same mist, the same temperature, the same slow drip. It will first soothe, then perhaps unsettle. You may crave a cloud to move, a wind to rise. This is your own internal clock, your hunger for event, protesting. Do not fight it. Sit by a tarn that mirrors the unchanging peaks. Watch until the reflection is more real than the stone. Breathe in time with the deep, geothermal sighs. The Plateau is not stagnant; it is complete. Your task is not to endure its stillness, but to align your pulse with it. This is the core of the preparation: to become slow enough, quiet enough, to perceive the profound activity within the calm. You are entering a place that has decided to remain. To visit is to share, briefly, in that decision.
+
+When you finally depart, you will carry the silence with you. Your footprint in the soft peat will fill with warm, clear water, and then it will smooth over, leaving no trace. That is as it should be. You were a guest in the pact. If you have prepared well, you will have left nothing but a respectful pause in the air, soon absorbed into the everlasting *drip… drip… drip…* and the soft, lonely *glub*.

@@ -1,0 +1,30 @@
+Visiting a Level 2.9 Reality Glitch—particularly one acting as an unshielded creation engine—requires a comprehensive shift in how you think about your physical body. You are not just packing for a hostile environment; you are packing for an environment that has not yet agreed on the rules of existence. As an ordinary human whose biology is strictly bound by Newtonian physics and linear time, entering this pocket without intense preparation will result in your immediate unraveling. 
+
+Here is your survival and preparation guide for descending into the Glitch-Pocket.
+
+### 1. Infiltration and Extraction Logistics
+First, acknowledge that this space is entirely subterranean, sealed beneath the earth’s mantle. You cannot walk, climb, or drill into it. The walls are actively rendering into existence; tampering with them might cause the cavern to "solidify" around you. 
+*   **The Insertion:** You will need point-to-point spatial translocation (teleportation). Do not use a portal that remains open; the pressure differential between a finished reality and a rendering reality could cause a catastrophic ontological blowback. 
+*   **The Extraction:** **Do not rely on a manual recall switch.** The biomechanical entities here stutter through time and dimensions when they interact; if you brush against one, or if the light stammers, your own motor functions may lag, snap, or reverse. You require an **automated, timer-based extraction protocol** programmed from your home universe. Give yourself a maximum of 15 minutes. The human brain cannot process raw, unformatted reality for much longer without permanent psychic tearing.
+
+### 2. Sensory Management (Crucial)
+Your most immediate threats are not the predators, but the light, the silence, and the lack of shadows. 
+*   **Visual Protection:** Shadowless, omnidirectional blinding light destroys depth perception. You will not be able to tell a flat floor from a razor-sharp drop-off because there are no shadows to define the edges. You must wear a **fully enclosed, heavily polarized helmet** (welding-grade or higher). 
+*   **LIDAR / Topographical Overlay:** Your visor must project a wireframe or LIDAR overlay over your field of vision. This will simulate depth and highlight the mathematically perfect, razor-sharp geometric edges of the newly generated stones. Without this, you will walk face-first into an obsidian polygon and slice yourself to the bone.
+*   **Auditory Anchoring:** The absolute silence of the cavern, paired with hyper-kinetic visual chaos, will cause profound vestibular mismatch (instant, violent nausea). You must wear **bone-conduction headphones playing continuous, grounding audio.** A heartbeat, acoustic guitar music, or the sounds of a busy cafe. You need an auditory tether to a completed reality to remind your brain that linear time still exists.
+
+### 3. Wardrobe and Physical Protection
+The environment is a damp, heavy 10°C (50°F), filled with floating water, zero-gravity hazards, and edges sharper than surgical scalpels.
+*   **Cut-Resistant Outer Shell:** No exposed skin. Your outer layer must be made of high-grade, cut-resistant polymers (similar to Dyneema or Kevlar). The walls of this place have not experienced erosion; they are purely geometric and infinitely sharp.
+*   **Thermal/Waterproof Base Layer:** Underneath, wear a drysuit. The erratic, multi-directional rain and floating lenses of dew will soak you instantly. If a droplet of water temporarily forgets its molecular bonds and turns into heavy liquid metal as it passes through your clothing, a sealed, insulated suit will prevent it from fusing with your skin. 
+*   **Magnetic or Micro-Suction Footwear:** Gravity is a loose suggestion here. If you jump or slip, you may find yourself falling *upward* into a cluster of biomechanical nests. Your boots need active gripping technology to keep you tethered to the surface you designate as "down."
+*   **Closed-Loop Breathing Apparatus:** Do not breathe the ambient mist. You do not want a droplet of water phasing into liquid metal or glitching into 2D static inside your lungs. 
+
+### 4. Environmental Navigation and Rules of Engagement
+*   **Do Not Touch the Fauna:** The origami cephalopods and bio-foil ribbon creatures are fascinating, but they are operating on an unfinished physics engine. If a predator biting its prey causes reality to shatter into 2D pixelation, imagine what happens if one bumps into *you*. If touched, your arm might phase into the rock, or your timeline might stutter, causing your blood to flow backward for three seconds. Treat all biological entities as highly radioactive. Dodge the floating water droplets; duck under the darting ribbons.
+*   **Mind the Stutter:** When the cavern occasionally plunges into crushing blackness, **freeze.** Do not take a step. Do not panic. Simply wait the microsecond for the engine to rubber-band back to white light. If you move during the blackout, you may step into a space that the cavern decides to fill with solid stone upon re-rendering. 
+*   **Bring a Local Reality Anchor (LRA):** If your multiverse tech allows it, carry a small, belt-mounted Reality Anchor. This will project a tight, centimeter-thick field of standard Newtonian physics around your body. It won't affect the cavern, but it will force the water droplets you touch to act like water, and it will prevent your own atomic structure from catching the "glitch" disease of the local fauna.
+
+### 5. Psychological Preparation
+Before departing, you must center yourself. Accept that your senses will lie to you. 
+You are entering the womb of existence, watching the gears of creation grind without their casing. It is deeply beautiful, but it is fundamentally unnatural to the human mind. You will see things die, fail to die, split in half, and become data. Do not try to solve the math of the cavern. Do not try to trace the origin of the light. Be a tourist, keep your hands tightly at your sides, breathe your filtered air, listen to your terrestrial music, and wait for the tether to pull you home.

@@ -1,0 +1,29 @@
+To step into the Basalt Basin is to step into the lungs of a nascent world. It is not a place for the hurried, nor for the fragile. Because the environment operates on a geological timeline—where a single rhythmic thrumming might span the duration of your entire visit—you must shift your internal tempo before you even cross the threshold of the cliff-wall rim.
+
+Here is how you must prepare to survive and witness this place of mechanical Genesis.
+
+### 1. Physical Readiness: The Vibration Factor
+The constant, low-frequency thrumming of the hydraulic hammers is not merely audio; it is a physical force. 
+*   **Insulated Footwear:** Standard trekking boots will be a liability. You need specialized, shock-absorbing soles—ideally lead-lined or equipped with non-Newtonian gel inserts. If you walk on the basalt floor without proper damping, the rhythmic *clang* will vibrate up through your shins and rattle your teeth. Over a few hours, this can cause significant internal bruising and fluid agitation in the inner ear, leading to rapid, disorienting vertigo.
+*   **The Clothing Protocol:** Humidity in the Basin is absolute. You are walking through "silver-gray cyclonic mist." Avoid cotton or heavy wool; they will become waterlogged, heavy, and freezing. Opt for hydrophobic, technical base layers. A secondary, thin layer of vulcanized rubber or treated wax cloth is wise—not to stop the moisture (you won’t), but to prevent the moss-slick and iron-rust debris of the basin from staining your skin.
+*   **Ear Protection:** Wear low-pass audio filters. You want to dampen the sharp, jarring "hiss" of cooling steam without losing the subterranean vibration. You need to *feel* the machinery to predict its cycle; if you go completely deaf to the environment, you risk stepping into the path of an automated crane that moves with "agonizing, geological slowness."
+
+### 2. Biological Integration
+The fauna of the Basin—specifically the slate-skinned reptilians—are not pets. They are part of the machinery's heat-exchange system.
+*   **The Heat Signature:** Because the metallic workstations are warm, they become the focal point of local life. Do not sit on the brass housings. You will be displacing the reptilians, and while they are docile, their skin is sharp-edged. Furthermore, the amber electricity pulsing through the rubber cables creates small electromagnetic eddies. Keep your electronics shielded in Faraday-sleeved pouches, or the Basin's localized static will wipe a standard digital storage device in minutes.
+*   **Respiratory Care:** The steam venting from the iron flywheels carries high concentrations of pulverized basalt and trace metallic salts. It is not toxic, but it is ionizing. Carry a simple particulate respirator or a neck gaiter to filter the grit. Long-term exposure to the mist can lead to a metallic taste in the mouth—if this turns into a tingling sensation, your intake is too high; move to the periphery of the basin to flush your lungs.
+
+### 3. Mental Adjustment: The "Wait"
+The most difficult preparation is psychological. The valley is a place of "deliberate, mechanical activity." It does not care that you are there. 
+*   **Calibration of Expectation:** In a normal city, we expect constant, frantic movement. In the Basin, a crane may take twenty minutes to shift a stone six inches. If you hurry, you will feel clumsy and aggressive—an intruder in a slow-motion temple. Practice "still-watching" before arrival. You must learn to synchronize your breathing with the hydraulic *clangs*. If you can match your breathing to the rhythm of the valley, your travel sickness will vanish, and you will find you can intuit when a station is about to cycle.
+*   **Navigation:** Stay on the groomed paths. The mosses are not just creeping; they are colonizing. If a path looks overgrown, do not attempt to bypass it by stepping on the raw, unweathered basalt. These rocks are "geologically young" and can be razor-sharp or unexpectedly crumbly. The machines are guiding the landscape's cooling; if you step into a zone of "active formation," you may find that the floor is hotter or more unstable than it appears.
+
+### 4. Gear Checklist
+*   **A "Dull" Camera:** Avoid high-end, autofocus-heavy digital equipment. The mist confuses sensors, and the vibrations will degrade sensitive optical stabilizers. A vintage, fully mechanical rangefinder camera performs best here; it matches the aesthetic and mechanical soul of the valley.
+*   **The Weight of Silence:** Bring a pocket notebook. The roar of the machines is a constant drone that makes speech difficult, and the ambient pressure of the basin encourages a naturally heavy, quiet mood. You will find that writing, rather than talking, is the only way to communicate meaningfully with companions.
+*   **A Offering of Stone:** Locals who frequent such places suggest carrying a piece of inert, smooth river stone from your own plane. Placing it near a Node makes for a meditative anchor—a way to witness how the "geological formation" treats an object that doesn't belong.
+
+### Warning
+**Do not touch the amber-pulsing cables.** The electricity is not standard AC or DC; it is a bio-mimetic current linked to the earth’s own tectonic pulses. A touch won’t kill you, but it will cause a vivid, synesthetic feedback loop—you will suddenly "see" the history of the basalt beneath your feet, and the sensory overload is enough to render a human traveler catatonic for hours.
+
+Visit the Basin not to *do* something, but to *watch the earth learn how to be a planet.* If you arrive with the patience of a mountain, you will leave with the clarity of a newly minted stone.

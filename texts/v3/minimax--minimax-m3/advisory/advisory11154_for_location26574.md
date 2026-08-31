@@ -1,0 +1,45 @@
+# A Traveler's Preparation for the Conservatory
+
+There is something almost insulting about how *settled* this place feels. As if the universe looked at the laws of thermodynamics, looked at the requirement for sunlight and water and fauna, looked at the bare minimum of what a living habitat should require, and the Conservatory simply shrugged and continued existing anyway. You should prepare for that feeling — that sense of being mildly contradicted by reality — because it will set in within your first ten breaths and will not leave you until long after you've gone.
+
+I have tried to think through what a person actually needs to bring to this place, and what they need to leave at home. The list is strange. Most of the things you'd pack for anywhere else will be wrong here.
+
+## What You Should Bring
+
+**Clothing in deep, dark colors, layered.** The light is bruised lavender-grey and tilts the entire visible spectrum toward purple-black. Anything bright you wear will look grotesque — a smear of wrong color in a place that has carefully calibrated its palette to rust and oxblood and aubergine. You want to blend into the shadows. Wear blacks, deep browns, the color of dried blood, the color of old bronze. You will also be warm — the air is warm, the tiles are warm, the walls are warm — but the warmth is *dry*. There is a paradox here: the atmosphere is heavy enough to feel substantial, but it will not cool you the way a humid atmosphere does. You'll perspire, but slowly, and the moisture will leave your skin without the refreshment of evaporation. Layer in something that breathes. You may find yourself wanting fewer layers than you packed.
+
+**Sturdy, soft-soled shoes, broken in.** The tiles ring beneath your feet, every step producing a clear bell-tone. This is not a metaphor. You will literally play notes as you walk, and the pitch will depend on which tile you strike and how you strike it. Hard shoes will produce sharp, intrusive tones — the auditory equivalent of slamming doors. Soft, well-worn leather soles will produce rounder notes that sit politely within the city's ongoing chime. I cannot stress this enough: *the city hears you walk*. Wear shoes that let you walk kindly. You will also want them to be comfortable for ladders, because the city is vertical and the inhabitants prefer climbing to doorways.
+
+**A light source you don't intend to use.** Bring a small lantern or a phone with a flashlight. Do not turn it on. The Conservatory has its own lighting, and that lighting is the only lighting the place has ever known. A flashlight beam will be a violation — a sharp, focused, shadow-casting intrusion into a world that has never experienced such a thing. You will want one, because the dimness will exhaust your eyes within an hour, but you must promise yourself you will not use it. The temptation will be real. Bring dark sunglasses instead. Your pupils will ache.
+
+**A small knife or hook.** Not for defense. The vegetation is everywhere, and the paths through it are sometimes maintained by pulling aside a curtain of red leaves and slipping through. You'll want something to part the fronds without bruising them. The plants are not sentient, but the inhabitants clearly care for them, and a hook-knife used respectfully is no different from what they're using constantly on the same growth.
+
+**An empty stomach, and a willingness to be fed.** There are no restaurants, no vendors, no stalls. There are arcades where leaf-wrapped grain cakes sit half-available on stone counters, and there is no till. You will be observed — felt, at least — and the leaves will rustle. Eat what is offered. Don't try to pay. Don't try to figure out the system. The system is that there is no system, only ongoing reciprocity, and the only currency is the act of being a guest who accepts grace.
+
+**Water in a sealed container, but expect to drink it sparingly.** This sounds wrong, given that I've said the inhabitants don't really drink. But you are not an inhabitant. You are a visitor from a wet biosphere, and your body will expect water. The heavy air will make you feel hydrated for the first hour or two, because it sits on your lips and tongue like a film. That feeling is a lie. By the third hour you will be thirsty in a way that doesn't quite feel like thirst — more like a slow desiccation you can feel in your fingertips. Drink your water in private, in small sips. Do not look for a well.
+
+**A sense of time, calibrated differently.** You will want to track hours. Bring a watch. But know that the city's rhythms do not map neatly onto day and night. The hammers never stop. The voices never fully cease. There is no clear dawn or dusk. You will need to impose your own rhythm, and you will need to give yourself permission to sleep when your body demands it regardless of what light is doing.
+
+## What You Should Leave at Home
+
+**All assumptions about what a city needs.** Throw them out before you arrive. No water infrastructure. No fauna. No sunlight. No insects. No soil to speak of. The Conservatory runs on geothermal heat and closed ecological loops and centuries of patient, anonymous maintenance. If you arrive expecting to see how a place like this *should* work, you will spend your entire visit being disoriented.
+
+**Your need to see the inhabitants clearly.** You will not. You will catch a hand, a shoulder, a foot on a rope above you, a laugh dropped into the canopy-sound and swallowed. The people of this place have arranged themselves to be present but not visible, like immune cells in a body you can feel but not point at. If you go looking for them directly — peering into windows, calling out, demanding a face-to-face introduction — you will fail, and you will feel that failure as a personal rejection when it is nothing of the kind. Let them be diffuse. Let them be ambient. They are still there.
+
+**Most of your camera or recording equipment.** The place will not photograph well. The light is too dim, the spectrum too narrow, and the color palette too uniform for any lens to capture what your eyes will see. The sound will also defeat any microphone — the layered polyphony of hammers and voices and chiming tiles and slow growth-creak is meant to be heard in three dimensions, not flattened into a stereo file. Bring something if you must, but know that you are bringing it for yourself, not for posterity. The Conservatory does not want to be reproduced. It wants to be inhabited.
+
+**Any expectation of solitude in the way you usually mean it.** You will not be alone. You will be unseen, perhaps, but not unwatched. The city has a low, distributed attention on you at all times, the way a healthy forest has a distributed attention on everything within it. You will be *accommodated*. Ladders will be pegged where you need them. Tiles will be re-laid where you walk most. Cakes will appear on counters near wherever you are resting. This is not surveillance; this is hospitality of a kind your species has not practiced for a long time. Accept it.
+
+## What You Should Prepare Yourself To Feel
+
+There is a particular emotion this place will give you, and I want to name it so it does not unnerve you when it arrives.
+
+It is the feeling of being inside something that is alive and is being *kept* alive by hands you cannot see. The first hour you will find it thrilling. By the third hour you will find it unsettling. By the sixth hour you will find it moving. By the time you sleep that first night — and you will sleep, the heavy air pulls you down into it like a hand on your chest — you will find that the feeling has settled into something like being held. Not by a person. By a *place*. By a system of hammers and leaves and red dust and centuries of anonymous care.
+
+The strangeness that the author noted at the end — the absence of any fauna but the inhabitants — is the real haunting. You will turn over a tile and find nothing underneath. You will stand in a city dense with vegetation and hear no insect, no bird, no rustle of any small thing that moves on its own account. You will realize that the entire ecosystem has been *edited*, has been curated down to its essentials, and that what remains is a kind of pure functioning that does not require any witness except itself. You will be the only extra element. The only body in the system that does not serve the system.
+
+This will make you feel, for stretches, like a ghost. A polite intrusion. A visitor in a place that does not really need visitors.
+
+Sit with that. Do not try to dispel it. The Conservatory will go on being itself long after you leave, and your being there, briefly, will register in its memory the way a single tile being walked down by a stranger registers — a small worn groove in the path that the next walker will not notice and the city will not remember. You are allowed to be small there. You are allowed to be temporary.
+
+The hammers will start again in the morning.

@@ -1,0 +1,9 @@
+Stepping foot into this realm of twisted nature, you must be prepared to challenge notions of life, decay and the layers of reality. The oppressive heat and air density demands physical fortitude - cooling garments, hydration, and perhaps breathing apparatus. Personal sanitation and hygiene will be a must, the landscape seems to sizzle with viscous plant fluids. 
+
+Avoid contact with unknown flora and fauna - the serpentine creatures on the aviator balconies observe with a predator's patience. The ruins may conceal venomous vermin. Tread carefully on the jagged rubble. Wear protective outer garments and sturdy footwear.
+
+Pschological fortitude will also be essential. The surreal scene of creeping vines, chitinous relics and possible "...sa[^"] where uncanny details are always there" could fray mental faculties. Bring calming substances and a sense of detachment. Meaning may need to be imposed by the visitor. 
+
+Seclusion and isolation is likely. Provisions, back-up research equipment and a first aid kit would be wise. Remain self-contained, as outward aid may be absent. Consult this location five a closed system that can only be studied here he observed. The placement of an alfreri and di viewport imply a pss[ioprical dip potential to pierce the veil.  
+
+Come at this location from a place of inner eloquence rather than external assistance. With proper prior lodging from acclimation in a convivial explorati, you may tease meaning from the clamour of contrits crescendoing on this crue_METHODHotel reality. Tread with caution, thought and respect for the infernal logic that births this vast aviary, below the great aviary, and the million miles from any jungle or soil.

@@ -1,0 +1,32 @@
+**Preparation Manual for the Indigo Lung (Designation: Pocket Biome Sigma-9 "The Breathing Cavern")**
+
+*Based on post-visit reports from travelers who experienced involuntary transposition. Compiled for future voluntary pilgrims.*
+
+**I. The First Truth: You Do Not "Prepare to Visit." You Prepare to Be Replaced.**
+Do not think of this as a journey. You will not step through a door. You will cease to be where you are and simply *be* here. Your preparation, therefore, is not for packing bags, but for re-forging your mind and body to accept a new state of being. The transition is total, immediate, and seamless. You will be breathing liquid from your first moment here, as if you had never breathed anything else.
+
+**II. Physical Preparation: The Body as a Newborn Thing**
+1.  **Aquatic Physiology is Irrelevant.** You will not need gills, diving gear, or oxygen tanks. The medium—let us call it **"Aether-Plasm"**—is not water. It is breathable, nutritive, and thermally neutral. Your lungs will function as they always have, processing this luminous fluid. Your primary physical challenge will be *muscle memory*. Your limbs will expect air resistance; they will encounter gentle, viscous drag. Practice moving with slow, deliberate grace. Violent strokes will only churn the delicate light around you and announce your panicked novelty to the patient watchers.
+2.  **Sensory Acclimatization.** Your vision must adjust to bioluminescence as a primary light source. There is no sun, no single direction. Light emanates from everything and nothing. Practice seeing in low-light, shifting spectra. More crucially, prepare your *proprioception* and *spatial reasoning* for profound betrayal (see Section IV).
+3.  **The "No-Silt" Rule.** There is no particulate matter. Nothing to kick up, nothing to cloud the medium. Your presence is the only disturbance. Learn to be still. Any dust, pollen, or shed skin cells from your body will be the only foreign matter here. The ecosystem will either absorb it as a nutrient or reject it as an irritant. Be clean. Be minimal.
+
+**III. Cognitive & Psychological Preparation: The Mind as a Soft Tool**
+1.  **Abandon Linear Logic.** The architecture is grown, not built. Paths do not connect logically. A tunnel is not a route from A to B; it is a throat. A chamber is not a room; it is an alveolus. Prepare to navigate by *intuition*, by *emotional resonance*, or by following the slow pulse of the light. Map-making is impossible. Your memory of the space will lie to you. Accept this.
+2.  **Embrace Impressionistic Reality.** The medium carries memories—not sounds, but *impressions*. You will feel the dry heat of alien suns on your skin. You will sense the memory of a hand that never touched you. These are not hallucinations; they are the fossilized emotions of the universe, trapped in this cosmic amber. Do not fight them. Record them. They are the true artifacts of this place, more precious than any physical fragment.
+3.  **Cultivate Profound Patience.** Time here is geologic, biological. A "moment" is the drift of a jellyfish-lantern across a chamber, a process that may take your home-world hours. Your hurried heart and frantic thoughts will be a screaming anomaly. Meditate. Learn to slow your internal clock to match the *thrum* of the cavern-walls. Your own breath, a "roaring tide" in the silence, must become a conscious, measured tide.
+4.  **Prepare for Witness.** You are not alone. The sessile eyes on the walls are not hostile; they are observant. The translucent cephalopod is not curious; it is aware. You are a particle in its lung, a brief chemical anomaly. Your role is not to conquer, explore, or even understand. Your role is to *be perceived*. Prepare your ego for this humbling, sacred status.
+
+**IV. Navigating the Weirdness: A Practical Guide to the Impossible**
+*   **Spatial Disorientation:** If you enter a tunnel heading north and emerge from the same tunnel to the east, you have not made a mistake. You have successfully navigated the first layer of the Cavern's logic. The space folds. Do not trust your compass. Trust the direction that *feels* like it is pulling you toward a greater chamber, or a warmer light.
+*   **Temporal Perception:** The light cycles from indigo to violet over what feels like a long, slow breath. Your internal sense of a "day" is meaningless. Rely on the biological clock of the Cavern itself—the rate of frond-pulsation, the frequency of the deep heartbeats.
+*   **Interaction with Flora/Fauna:** Touch nothing, initially. The fronds may feel like velvet or glass. The "moss" will grip your feet with a gentle, rooting pull. This is not an attack; it is an acknowledgment. To touch is to exchange information. The Cavern will learn you through your skin. Let it.
+
+**V. What to Bring (A Paradoxical List)**
+*   **Nothing Material.** You cannot bring objects. The transition strips them away. You arrive as you are: a consciousness in a body.
+*   **Everything Mental:**
+    *   **A Calm Breath.** Your first breath of Aether-Plasm will define your experience. Make it calm.
+    *   **A Surrendered Map.** The mental map of your home reality. You must be willing to let it dissolve.
+    *   **A Memory of Sun.** The whispers in the medium are of dry worlds. Your own memory of sky and wind will be a unique treasure here, a counterpoint to the deep, wet quiet. It will be your anchor to your own origin, even as you are remade.
+    *   **Acceptance.** You are not here to take. You are here to be taken in. You are a momentary guest in the heart of a living, breathing universe that operates on timescales and principles you will never fully grasp. Your visit will not change it. It may, however, irrevocably change you.
+
+**Final Admonition:** You do not leave the Indigo Lung. It releases you. One moment, you are drifting through a vaulted chamber, watching a crystal ridge form over a century; the next, you are back, gasping air that feels impossibly thin, dry, and harsh. The memory will feel like a dream of drowning that never ended, a beautiful, suffocating baptism. You will carry its light in your eyes and its silence in your bones. You prepared not for a trip, but for an initiation. Go gently. Breathe deep. Be witnessed.

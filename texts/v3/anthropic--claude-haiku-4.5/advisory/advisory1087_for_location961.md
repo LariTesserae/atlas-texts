@@ -1,0 +1,63 @@
+# A Preparation Guide for the Shelf-City of Thask
+
+## Physical Preparation
+
+**Understand that your body will be fundamentally wet.** Not temporarily wet. Not "you'll dry off later" wet. Plan for permanent saturation as your baseline state. Your skin will prune within hours and remain pruned. Bring clothing that functions while waterlogged—loose, plant-fiber garments are ideal, but anything that doesn't require dryness to maintain integrity will work. Tight clothing will chafe in ways that become intolerable. Multiple layers of loose material allow you to shed or add without undressing completely.
+
+**Your lungs need preparation.** The air here is less air than aerosol. Practice breathing in steam rooms, in humid environments. Your respiratory system will adapt, but the adjustment is real. The first days, you'll feel like you're breathing water. You're not—your oxygen is there—but your body will insist otherwise. Learn to trust this. Bring any respiratory remedies you favor; the local people use a dark tea made from something growing on the high platforms.
+
+**Plan for your feet.** The pathways are stone and slippery. The deeper channels are navigable by pole but will test your balance. Bring footwear with real grip—nothing that will slide. The local people wear minimal or no shoes, but their feet have adapted to this place. Yours have not. Additionally, the water is not infected with anything documented by surface medicine, but that doesn't mean nothing lives in it. Bring salves for minor cuts; infection is slow here due to temperature and chemistry, but slow is not the same as prevented.
+
+**Temperature regulation will be counterintuitive.** You'll be in bathwater-warm water at altitude where it should be cold. The warmth is deceptive—it's enervating, not refreshing. You'll tire faster than you'd expect. Bring high-calorie foods. Your metabolism will work overtime trying to maintain temperature equilibrium in water that seems warm but lives in contradiction with the altitude. The local diet relies heavily on preserved fish and what grows on the platforms. Be prepared to eat things you wouldn't normally consider food.
+
+**Your sensory adjustment will take time.** The light here rewires your vision. For the first few days, you'll miss details and misjudge distances. The lack of shadows is disorienting. Depth perception becomes suspect. Don't make important decisions about the city's layout in your first week. Don't trust your initial sense of where anything is. Move slowly. Confirm your footing. The people here move with deliberation not out of philosophy but because they've learned that haste causes falls into water you can't see the bottom of.
+
+## Psychological Preparation
+
+**Accept that linear time is your past, not your future.** Thask operates on a different temporal register. Your watch will betray you by being right while your intuition insists it's wrong. Nothing here moves in the way you've learned to expect. Bring something to meditate with—a repeated action, a rhythm you can impose when your mind demands the structure of sequential time. Knitting, if you do it. Repetitive prayer or mantra. Something your hands can do while your mind accepts the place's natural cadence.
+
+**Solitude here is not isolation, but density.** You'll rarely see crowds, but you'll never be truly alone. The city is full of presences—human, vegetative, geological—all moving at their own slow pace. This creates a specific type of aloneness: surrounded but not connected. Some people find this meditative. Others find it maddening. Know which you are before you arrive. If you need social density and immediate connection, this place will frustrate you. If you need solitude but struggle with true loneliness, Thask might be exactly right.
+
+**The strangeness won't clarify.** Those geometric shapes in the deep water, the markings on the cliffs, the quality of the light—you'll never have complete answers about them. The locals likely have theories, stories, half-remembered explanations, but nothing definitive. Come to Thask prepared to accept mystery as permanent. The people here have clearly decided that understanding Thask completely is less important than learning to live within it. Adopt this philosophy early, or frustration will compound your other difficulties.
+
+**Your sense of progress will need recalibration.** In normal life, progress is visible: you go from point A to point B. Here, progress is invisible. The city is slowly transforming, but the transformation will be imperceptible during your stay. The people are slowly adapting, becoming something new, but you won't see it happen. Instead, you'll see repetition: the same platforms, the same routines, the same patient fishing without catches. This can feel like stagnation if you're not prepared for it to feel like something else. It is not stagnation. It is the opposite. It is deep, profound change happening so slowly that it's invisible to short-term observation. Learn to find meaning in incremental things. One flower opening. The specific angle of light in one hour versus the last. The particular curve of a vine that's grown a few inches since yesterday.
+
+**Bring your capacity for reverence.** This place demands it, though not in any religious sense. The sheer slow mass of geological time, the deliberate engineering of a city built to exist in paradox, the patient work of the vegetation—all of it suggests that something worthy of reverence is underway here. Whether it's nature, intention, accident, or something else, the appropriate response is witnessing without judgment. If you can't approach it with some combination of humility and awe, you'll experience Thask as merely difficult rather than transformative.
+
+## Practical Preparation
+
+**Bring preserved food and assume local supply is supplementary.** The city sustains itself, but slowly. The fishing appears successful only in the aggregate over time. There are stored foods—preserved fish, dried plant matter, things cured in the salt-silt of the deeper water—but the locals share reluctantly. Not from unkindness, but from genuine scarcity. You can purchase or trade for food, but establish your own supply baseline before you become dependent.
+
+**Learn to pole before you arrive if possible.** The staff work is the primary transportation method, and it's deceptively complex. Your arms will ache. The footing in the water is unstable. The poles are longer than you'd expect and require both strength and a specific technique to avoid simply sinking. Watch videos if they exist. Practice in any large body of water. Your first week of transportation will be exhausting if you're untrained.
+
+**Maps of this place are useless.** The city reconfigures itself constantly as buildings settle or collapse, as vegetation overtakes pathways, as the subtle currents shift platforms' stability. Bring paper maps if you must, but abandon them immediately. Instead, memorize landmarks in relation to your position: the central tower (the chiming structure), the highest platform, the cliff-face with the blue-grey stone. Navigate by those. Ask people for specific directions, not overview knowledge. They'll point toward the market plaza (that way, through the clear channel, keep the flowering vines to your left) rather than explain the city's logic.
+
+**Establish a base platform early.** You'll want somewhere you can claim, somewhere to keep goods, somewhere dry enough (never truly dry, but relatively) to store items you want to protect. The local people will rent platform-space or allow you to build a small covered area. Do this immediately. Having a fixed point will anchor you against the disorientation the city creates.
+
+**Learn what doesn't move and memorize it.** The cliff-faces are constant. The central tower doesn't migrate. The largest buildings are stable. In a landscape where so much is in transition, these fixed points become your reality anchors. Spend time looking at them. Know them intimately. When the city feels like it's shifting around you, they'll remind you what solid actually means.
+
+**Bring medicines for slow infections.** Cuts here don't get acutely infected; they get chronically irritated. Fungal issues are common. The constant wet creates environments for things to grow on your skin. Bring antifungal treatments. The local cure involves a yellow resin applied directly to skin, which burns and smells terrible but apparently works. Be willing to use it if your conventional medicines fail.
+
+**Plan for sensory overload followed by sensory deprivation.** The first days, the smell of the flowers and the flora will be intoxicating and nauseating simultaneously. Your nervous system will be overwhelmed by the constant low-frequency sound, the unusual light, the pressure of the water. But after a few weeks, your sensory baseline will shift, and the city will seem quieter, dimmer, less stimulating than it actually is. Bring something that will provide strong sensory input—music, bright colors, sharply flavored foods—to use if you find yourself slipping into a state where nothing registers properly. The people here have learned to exist in sensory quietness. You might not have that capacity.
+
+## Spiritual/Existential Preparation
+
+**Thask is doing something to the people who live there.** Not in a supernatural sense, probably. But the combination of isolation, temporal distortion, slow transformation, and patient waiting is changing them. The longer you stay, the more it will change you. People who arrive from outside places with normal temporal flow and technological density often experience what might be described as deprogramming. Your assumptions about productivity, about time, about what constitutes a meaningful day will be fundamentally questioned. Some people emerge from Thask having shed assumptions they didn't know they carried. Others emerge traumatized by the slow dissolution of their understanding. Know that this is possible. Decide if it's something you want or something you're afraid of.
+
+**You might not want to leave.** The city pulls at people. Not through any mysterious force, but through the sheer weight of its slow rightness. Three weeks in, you might find yourself resisting the idea of return to faster places. This is not unusual. The locals aren't refugees from the submersion; they're people who, at some point, stopped trying to leave and started trying to understand. Some arrived as you did, external and temporary. Some are still external and temporary, but with a different sense of what temporary means. Plan for the possibility that your departure date will feel arbitrary, that the idea of moving to faster time will feel like violence to yourself. Have people expecting you back. Have commitments that require your presence. Otherwise, Thask will keep you.
+
+**Accept that you are arriving at a transition point, and you will not see the completion.** Whatever is happening here—the geological transformation, the ecological shift, the human adaptation—will take centuries beyond your lifetime to complete. You are witnessing the middle of something vast. The knowledge that you will not see the end, that your contribution to this place's becoming will be microscopic and invisible, is either liberating or crushing depending on your disposition. Come prepared for one or the other.
+
+**Learn to find the sacred in repetition.** The fisherman casting into empty water for an empty catch will do this again tomorrow, and the day after, and for the rest of his life, and his children will do the same. This is not futility in Thask. This is prayer. This is participation in something that measures success in decades. The vine spiraling around a building will spiral slowly upward for a hundred years. This is not a task to be completed. It is a way of being. If you can learn to find meaning in this—not in the completion of things, but in the manner of their unfolding—then Thask will teach you something your faster world never could.
+
+## Final Observation
+
+The people who thrive in Thask share one quality: they have, at some point, made peace with not understanding. They live with mystery, with slow time, with transformation they cannot perceive or accelerate. They do not ask the city to justify itself. They simply adapt, patient and present.
+
+Bring yourself as you are. But bring, also, your willingness to become something slow enough to match the place you're entering.
+
+The water is waiting. The flowers are glowing. The city is patient.
+
+It will teach you, if you let it, what it means to become stone, to root, to wait without agenda.
+
+Come prepared to learn that lesson.

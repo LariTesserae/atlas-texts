@@ -1,0 +1,15 @@
+To prepare for visiting this location in another universe:
+- Bring clothing that can withstand extreme temperatures and humidity, like moisture-wicking base layers and quick-drying outerwear. Consider waterproof gear. Fabric that repels insects would be advisable.
+- Pack comfortable, sturdy shoes/boots that can handle wading through pools and mud. Trekking poles may help with stability on uneven, slippery terrain. 
+- Dehydration is a risk in this sweltering environment. Bring substantial light-weight watering bladders and tablets to purify surface or seep water if needed. A personal evaporative cooling pack would be beneficial.  
+- Bring broad spectrum antibiotics and anti-parasitic med packs in case of wound infections. A kit of sturdy antihistamines and anti-itch creams to treat insect bites. Consider carrying an EpiPen if you have allergies.
+- This is a likely home to more virulent bacteria, viruses, and parasites than a conceptual human universe is accustomed to. Arrange in advance for full-body max-reducing shielding. Consider a sealed breathing mask. But know the overwhelming humidity will still include histamine generators.
+- The thick perpetual shade and heavy canopy will likely prevent reliable uses of "sun-powered" tech, even daytime. Pack full spectrum, long-lasting energy cells.
+- Any exterior surface, including carry gear, masks, garments and exposed flesh will perish, rust, or fester extremely fast in this environment. Treat all items against biodecy and corrosion before entry. Plan to fully decontaminate on exit.
+- Travelling across terrain looks extremely challenging in the density of growth. A terrain mappable lazer scythe or smart machetes are recommended for clearing passages but be aware they are not-lasting in the aggressive bio flora.
+- Judging by the old remnants of structures, it's likely this world is or was inhabited by intentetns. Consider sensible papers inducing elevated regulation NNDs for communications equipment to obviate unwanted notice and interactions. Interpret any native people as opportunitic and wary.
+- Sample fabrics, membranes, and any other organic-seeming gear most carefully before placing on/against native plant life. Suppress mal-designed curiousity.
+- Every surface you touch, every thing you reach towards, every thing brushed against, any thing you add to your clothing will instantly fester, slime, commandeer and emit new threats and unguessed opportunity. Be most aware and most assured in your movements during your contact arc wit this place.
+- Wasl preparatory to your leaving.
+- Avoid any sense of familiarity or engagement. Most especially, don't eat or drink anythings. Not even air.
+- Leave holding hands together.

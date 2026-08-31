@@ -1,0 +1,58 @@
+**The place will try to make you a citizen of itself.** Prepare as if you are about to insert a living body into a wound that has already decided how much room it can spare and has concluded the answer is “almost none.” An ordinary human body is an act of vacancy. The pocket treats vacancy as rudeness. Everything else follows from that.
+
+### Physiological and environmental realities
+There is no gas phase. What occupies the volume is a single continuous medium the plants and stone treat as both atmosphere and ocean. You will not surface. You will not find a pocket of anything breathable. Pressure is uniform and intimate rather than crushing; it feels like being held, not like depth. Temperature sits at the cool of forgotten well-water—survivable naked for a short time, hypothermic if you linger without insulation. The medium itself is slightly denser and more viscous than familiar water; swimming strokes waste energy and produce almost no progress. You hang and part.
+
+The vegetation occupies nearly every cubic centimeter that is not already stone or imported fragment. Movement is a continuous act of insisting: you push gelatinous, faintly ribbed masses aside (they yield like living viscera and immediately close), then scrape past fibrous, hair-like stands that abrade skin and catch on fabric, zippers, and hair. Edges of the recent fracture remain sharp under the root-mats. Silt does not settle; it hangs and is rapidly colonized, becoming more plant. Any open volume you create is temporary and politically unwelcome.
+
+Light sources you bring will not behave as expected. The darkness is climatic rather than a simple absence; residual grey stored in some fronds is the only native illumination and it is not enough for vision. Artificial light may be locally absorbed, scattered into useless glow, or simply fail to create the contrast your eyes require. Sound is almost nonexistent except for pressure-shift clicks and the occasional distant knuckle-on-wet-wood of settling stone. Your own heartbeat and the rasp of plants against your suit will be the loudest things.
+
+Geometry refuses to stay closed. A wall followed by touch will return you to a previously encountered artifact on the “wrong” side of a stem that was not there moments earlier. Vertical and horizontal trade places without warning. Nested densities exist: you can push into what feels like the interior of a leaf and find yourself in a slightly cooler, temporally offset version of the same pocket. Time is poorly mixed. A frond you parted may still be parting when you reach back. A thread of silt can become a mature plant while you are still watching it. Clocks, watches, and metabolic timers will desynchronize from one another and from your subjective sense of duration.
+
+If you remain long enough to be subject to the local rules, you will be packed. Not consumed. Included. The plants grow into outlines. Vacancy is filled. An ordinary human body occupying space is, to the pocket, an unfinished sentence.
+
+### Core equipment (assume you can carry only what you can physically transport through the seam)
+- **Closed-circuit rebreather or equivalent isolated breathing system** rated for a non-H₂O, slightly viscous, uniformly pressurized medium. Open-circuit scuba will exhaust itself against the density and leave you with nowhere to vent. The unit must be compact, snag-resistant, and have redundant oxygen sensors and CO₂ scrubbers; you will have no surface interval. Practice donning and emergency procedures while suspended in a packed, zero-visibility tank with assistants pushing kelp and wet fabric against you. Carry at least one spare mouthpiece and a small chemical oxygen candle as last-ditch.
+- **Full-coverage, low-profile thermal skin** (not a bulky wetsuit). Smooth exterior to reduce entanglement. Reinforced palms, knees, and forearms against abrasive fronds and fresh limestone edges. Avoid anything that creates pockets or loops. Hair must be completely covered or shaved. Every strap, buckle, and cable is a potential root-anchor.
+- **Tactile navigation kit**: thin, highly visible (to your own gloves) monofilament line on a compact reel with multiple breakaway anchors that can be set into rock or thick stems. Do not rely on it remaining where you left it. A short, rigid probe (carbon or treated wood) for testing density ahead of your face. No compass, no inertial unit that assumes Euclidean closure, no sonar that expects open water. Your primary map is sequential touch memory plus whatever artifacts you can keep in contact with.
+- **Redundant, low-output chemical light sticks or tritium markers** in case the residual plant-grey is your only reference. Do not bring high-lumen electric lights as primary; they may simply vanish into the climatic dark or attract whatever rarely visits. One small, shielded UV source might reveal residual fluorescence in the plants or artifacts; test it elsewhere first.
+- **Minimal cutting and sampling tools**: ceramic or coated shears, a short folding saw, small vials. You will be tempted to harvest. The plants show no harvest marks for a reason. Cutting creates new surfaces that immediately begin to occupy. Take only what you must and seal it; uncontained samples will try to continue growing inside your kit.
+- **Time and physiology monitors** that do not assume linear chronology. Redundant analog mechanical watches, a simple pulse/respiration counter you operate by feel, and a small analog thermometer. Digital devices will lie. Accept that your subjective duration and the pocket’s “season” will diverge.
+- **Nothing that assumes a surface, an aisle, or an exit that stays put.** No fins (they entangle). No large tanks. No cameras that require aiming. If you bring a recording device, make it a contact microphone or hydrophone that can be pressed against stems and stone; visual recording is nearly useless.
+
+Do not bring food in any form that can be unpacked. Do not bring anything that rusts, dissolves, or germinates. The imported artifacts already present (brick with thumbprint glaze, corroded hinge, nameless tiles, metal ring grown through by a stem) suggest the pocket sometimes swallows fragments of other rooms. Your gear may become the next such fragment.
+
+### Training and bodily preparation
+Spend weeks in sensory-deprivation tanks, then in densely packed artificial kelp or fabric forests suspended in water, practicing movement that is mostly isometric pushing and parting rather than swimming. Train yourself to breathe slowly against chest pressure that never changes. Practice complete darkness with only tactile landmarks that rearrange themselves (have assistants silently relocate objects). Desensitize to claustrophobia until the feeling of being gently but persistently filled is merely information rather than panic.
+
+Learn to hang. Ordinary swimming will exhaust you in minutes. Movement economy is everything: small, deliberate displacements, then stillness while the plants close. Practice identifying textures by touch alone—gelatinous/ribbed versus fibrous/abrasive versus residual-grey (slightly warmer). Learn the difference between “this stem will yield” and “this stem has decided you are now architecture.”
+
+Cardiovascular and thermal conditioning for prolonged cool immersion. You will lose heat steadily. You will also lose the ordinary cues of fatigue because time is thick. Pre-load calories and electrolytes; you will not eat inside.
+
+Psychological inoculation: sit with the knowledge that the place does not want a name, does not recognize you as a visitor, and will treat your continued presence as an opportunity to complete itself. Some travelers report a slow, non-hostile pressure toward inclusion that feels like being remembered by something that has no use for memory. Decide in advance what “too long” means for you, then cut that duration in half.
+
+### Entry
+The seam is in unremarkable low ground—a damp hollow that gives a little underfoot, clay that never quite dried, weeds that hide a recent break. No map marks it. You find it by walking the depression until the earth feels younger than the plants, until limestone and silt show unweathered faces. The opening is not a pool. It is a door that was not a door until the ground split.
+
+Do not jump. Lower yourself. The medium occupies the volume the instant the volume exists. There is no air-lock, no transition. One moment you are in ordinary weather; the next the pressure is even and close and you are already among the first stems. Have a partner or a timed extraction signal if possible, but understand that the ground above will look unchanged. A person can walk over the hollow and never know.
+
+Upon entry, immediately establish three tactile references (a particular artifact, a distinctive fracture edge, a stem with residual grey) and do not assume they will remain in the same topological relationship. Set a very short initial excursion limit—minutes of subjective time, not hours.
+
+### Conduct inside
+Move as little as necessary. Every displacement is an argument the vegetation will patiently win. When you must proceed, part bodies rather than break them. The plants close with a refusal that is not personal. Do not linger in any thinning; “open” water is usually a denser interior of the same occupancy.
+
+Treat artifacts as possible orientation points but do not collect them unless you accept they may continue their own logic inside your kit. The brick, the hinge, the tiles, the ring feel imported. They may be seeds of rooms that will not be allowed to happen. Touching them can shift which version of the pocket you occupy.
+
+If you encounter traces of fauna (mucus track, bite mark already pearling over, shed translucent ridged fragment), assume the visitor that left them moves on a cycle longer than weather and also has to insist. There is no corridor. Give it space you do not have.
+
+Monitor for inclusion: increasing difficulty parting stems, a sense that your suit or skin is being grown into, time slipping so that actions you just performed are still occurring. These are not metaphors. Extract before vacancy becomes impossible.
+
+### Exit
+Leaving requires the seam to remember it is a seam. This is not guaranteed to be instantaneous or spatially consistent with your entry. Follow your line if it still exists. Follow increasing sharpness of fracture edges if the line is gone. Follow any residual sense of “younger stone.” You may surface (if that word still applies) in a slightly different hollow, or the same hollow at a different recentness, or not at all on the first attempt.
+
+Have a pre-arranged surface protocol: a time window after which your partner assumes you are being packed and does **not** enter after you. The pocket is too small for rescue in any ordinary sense. If you feel the density beginning to treat you as a permanent outline, you have already stayed too long.
+
+### After
+Decontaminate as if every surface is still trying to occupy. Plants and silt will attempt to continue growing in air; they usually fail, but not always immediately. Expect temporal hangover—your sense of duration and sequence will be unreliable for hours or days. Do not assume memories of geometry or sequence are accurate. The place does not argue with itself; it simply continues.
+
+An ordinary human can visit. An ordinary human cannot stay. The preparation is less about conquering the environment than about remaining, for a short while, an impolite vacancy the pocket has not yet finished correcting. Pack light. Move less. Leave before you are included. The ground above will look like any damp hollow. That is the only mercy the place offers.

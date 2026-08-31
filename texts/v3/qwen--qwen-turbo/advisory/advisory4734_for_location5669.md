@@ -1,0 +1,33 @@
+To prepare for visiting this high-altitude city—this strange, almost unreal place perched on the spine of the world—you must understand that you are not simply arriving at a location. You are stepping into a realm that defies the ordinary laws of time, space, and even existence. This is not a place that can be "tamed" by maps or calendars. It is a living, breathing entity that exists on the boundary of the known and the unknowable. To walk its stone-paved streets, to stand beneath its pale, unchanging sky, is to enter a liminal space, a place where the familiar dissolves and the strange becomes the only truth.
+
+### 1. **Preparation for the Altitude and Cold**
+The first and most practical concern is the physical environment. This city is high, so your body will need time to adjust. Begin acclimating a few days before your arrival by increasing your aerobic activity and staying well-hydrated. Pack layers—thick wool, insulated gear, and waterproof outer layers. The cold is not the sharp, biting kind of winter, but a slow, persistent chill that seeps into your bones and lingers in your lungs. You will feel it even through your clothes, and it will dull your senses, slow your thoughts, and make even the simplest tasks feel laborious.
+
+### 2. **Mental and Emotional Readiness**
+This place will challenge your mind. The silence is not empty; it is full of weight, of something waiting. The stillness is not peaceful—it is a kind of tension, a balance that may feel unnatural. You must be ready to confront this silence, to sit with it, to let it settle in your bones. The people here are not entirely of this world, and their eyes will look through you as if you are not entirely real to them. You will not be able to explain what you feel, and that is okay. Accept that you are a guest in a place that is not quite of this plane.
+
+### 3. **Understanding the Weirder Elements**
+The city is not just physically distinct—it’s metaphysically. The creatures that live here are not entirely animal, not entirely human, and they move in ways that seem to defy the normal flow of time. They do not speak in words you recognize, but in tones and rhythms that resonate in your chest. The people of the city are not entirely of this world, and their language is old, perhaps even older than the city itself. You may not understand them, and they may not understand you, but that is not a barrier—it is a bridge.
+
+The city itself is young, but it feels ancient. Its stones are still rough, its edges sharp, as if carved only yesterday. But the air is thick with something that has existed for longer than time. The water that pools in the crevices is not just water; it holds reflections of things that are not there, and if you look too closely, you may see something that is not meant to be seen.
+
+### 4. **Navigating the City**
+The city is vast and sprawling, but not in a way that is easy to navigate. It is built into the mountain, not on top of it. The streets are not paved with asphalt, but with flat stones that are uneven, sometimes cracked. The paths are winding, and the bridges twist like veins through the rock. You will find yourself losing your way not in a disorienting sense, but in a way that feels natural, as if the city leads you where it wants you to go. Trust your instincts, but be prepared to follow paths that seem to appear out of nowhere.
+
+The city is not crowded, but it is not empty. There are open spaces that feel like breathing rooms, and there are places that feel too quiet, as if the city itself is holding its breath. You may find yourself drawn to the edges of the city, where the buildings give way to cliffs and fields of stone and grass. These are not wastelands; they are part of the city’s balance, and they may hold secrets you are not meant to find.
+
+### 5. **The Technology and the Lack Thereof**
+This is a place of primitive technology. There are no machines, no electricity, no engines. Everything is made by hand. The buildings are stone and wood, the windows are wooden shutters or woven screens. The people live in layers of wool and leather, their garments thick and heavy. You must be prepared for a lack of modern conveniences. There are no lights at night, no running water, no phones or devices. You will have to rely on your own senses and the help of the locals.
+
+But this is not a place of backwardness—it is a place of deep knowledge. The people here live in harmony with the mountain, with the wind, with the cold. They understand things that are not written in books. Their wisdom is not in words, but in actions, in the way they move through the city, in the way they speak without speaking, in the way they look at you with eyes that remember more than they should.
+
+### 6. **The Silence and the Sounds**
+The sound of the city is mostly quiet. There is no wind that you can hear, no rustling of leaves, but there is a creak of wood, a soft murmur of water, and the occasional cry of a bird. The silence is not oppressive; it is deep, and it carries a weight that you will feel in your bones. It is not empty—it is full of something unseen, something waiting. You may feel as though you are being watched, but not by eyes. It is as though the city is watching you, and the silence is its way of listening.
+
+### 7. **The Time and the Stillness**
+Time does not move here the way it does elsewhere. It is not frozen, but it is not moving, either. It is in equilibrium. You may not feel the passage of days in the usual way. The sun moves, but slowly, casting long shadows that do not shift much. The sky is always that pale, persistent blue, and it never darkens. You may feel as though you are trapped in a moment that is not a moment, but a suspension of time. This is part of the city's power, its stillness, its waiting.
+
+### 8. **The Final Preparation: Mindset**
+To visit this city is to prepare not just your body, but your mind. You must be open to the strange, to the quiet, to the silence. You must be willing to be changed by the experience. You may not leave the same person you were when you arrived. The city will not give you answers, but it will give you something else: the chance to see the world differently. To feel the weight of silence. To walk on stone that feels like it was carved only yesterday, but has always been there.
+
+In the end, the city is not just a place. It is a state of being. And to step into it is to step into a world that exists just beyond the edge of understanding. You must be ready for that. You must be ready to let go of certainty, to embrace the unknown, and to walk on the spine of the world.

@@ -1,0 +1,75 @@
+The first thing to do, before you pack a single bag, is to understand what the plateau will do to you. Not to your body — that is a list of problems you can solve with cloth and rubber and a good water filter. To your *expectations*. The plateau is not a place you visit the way you visit a city or a forest. It is a place you *inhabit*, however briefly, and it will not stop being itself for you. The rain will not pause because you have arrived. The murk will not lift. The hum will not stop. If you go expecting to step in, see the sights, and step out, you will be miserable within an hour and broken within a day. You have to let the place do its work on you, and you have to be ready to let it.
+
+So: preparation, in the largest sense, is mostly an act of imagination. Go there in your mind first. Stand on the ridge. Let the sound come up and through you. Feel the rain on the back of your neck. Watch the orange glow bloom and fade across the underside of a cloud that has been there longer than anyone alive can remember. Now decide whether you can live in that picture for the length of your stay. If you can, the rest is just logistics.
+
+---
+
+### The body, and the cloth that wraps it
+
+You are going to be wet for the entire visit. Not "caught in a shower" wet — *in* the weather wet, the way a fish is in water. The rain is warm. The air is saturated. The ground sweats. The basalt sweats. Steam rises off every streambed and off every warm animal that passes. The water will find every seam in every garment you bring, and it will stay there. You can slow this. You cannot stop it.
+
+Dress in layers, and make the outermost layer something truly waterproof — not "water-resistant," not a softshell with a DWR coating that will be dead in a week, but a proper rubberized or waxed shell with taped seams. Keep that outer shell for when the rain comes down in sheets, because it will, and for when you have to push through fern that has been holding water for you like a held breath. Underneath, wear wool. Wool is the only common fibre that will keep you warm when it is soaked through, and it will be soaked through within minutes of stepping outside. Synthetic base layers will cling and stink. Cotton will become a cold, heavy shroud and never dry. Bring more wool than you think you need. Bring two hats — one brimmed, to keep the rain out of your eyes, and one close-fitting, to wear under the brim or while you sleep.
+
+Footwear is the most important decision you will make. You need boots that are waterproof in the sense that the *outside* water stays out, but ventilated enough that the *inside* water can escape — your feet will sweat, and if that sweat has nowhere to go, you will get blisters, then maceration, then the kind of soft, weeping skin that lets in infection. Look for a serious hiking boot with a Gore-Tex or equivalent membrane, a Vibram sole, and tall enough shafts to keep the rills out of your socks. Do not bring a single pair. Bring two, and rotate them. The pair you are not wearing should be drying in whatever sheltered, drafty, slightly warm spot you can find — near a foundry stack is ideal, if the workers will let you. Accept that they will never be fully dry. Accept that they will slowly be colonized by the pale fungi that grow along the rail-lines. The fungi are not dangerous to leather, mostly, but they are a sign that the plateau's biology is patient and will eat anything that sits still long enough.
+
+Your eyes need help, but not in the way you think. The light is dim, but it is not uniform. The foundry mouths throw a fierce sodium-orange when you are close, and the blooms throw their blue-green and red-amber when the rain has been heavy. You will be moving between these light sources, and your pupils will be in constant slow negotiation. Bring clear lenses with a good anti-fog coating. Do not bring dark sunglasses; you will wear them twice and lose them in the fern. Do bring a brim. The rain comes down in threads you can almost count, and they will hit you directly in the eye if you let them.
+
+Your ears are in trouble, but not from one source — from many. The hammers come up through the ground. The steam-lines groan in the metal. The turbines whine along the ridge. The pumps pulse. The rain hisses. The fauna is *loud*: clicking, singing in registers you feel in your sinuses, the shag-rush of many bodies through the undergrowth. The predators, the description suggests, are silent. This is the danger: the ambient noise will mask their approach. Bring earplugs for sleeping, and for any time you spend inside a working foundry, where the noise will rattle your teeth loose. But do not wear them in the field. You need every channel open, because the silence is the warning.
+
+Bring a headlamp. Bring a good one — three hundred lumens minimum, with a focused beam and a red-light mode so you do not destroy your night adaptation. Bring three sets of batteries, each sealed in its own zip-bag inside a dry-bag, because the moisture will kill them if you let it. The plateau's own light is beautiful and useless for reading a map or finding a dropped item. Your lamp is your lifeline in the murk.
+
+---
+
+### The stomach, and what goes into it
+
+Do not drink the streams unfiltered. The runoff from the smelters drains into them — the description is explicit about the truce between the industrial and the biological, and the water near the workings carries the chemistry of the ores. The warm water that rises through the basalt is mineral-rich, which probably means it is heavy in dissolved metals from the deeper rock. The rain is the cleanest source, but it has fallen through centuries of foundry smoke and is, presumably, no longer what rain should be. Bring a serious water filter — a pump filter with a ceramic element, or a gravity filter with replaceable cartridges. Boiling is possible if you can find fuel, but fuel is the industry here, and the workers may not appreciate you scavenging it. Drink from the highest, coldest sources you can find, away from any sign of a ditch or a slag heap.
+
+Food: do not eat the local flora. The blooms on the cliffs are tracking the chemical composition of the runoff; they are, in a sense, *made of* the runoff. The pitcher plants the size of barrels are carnivorous, and they are carnivorous to *each other* — the description says "half full of captured rain, half full of captured smaller pitcher-plants." Whatever is in that fluid, you do not want it in you. The fungi that grow along the rail-lines are digesting wood; that is what they do. They will digest you too, given time and the right surface. The moss is soft and looks edible and is probably full of small things that will be very happy to live in your gut.
+
+Bring sealed rations. Bring a lot. Bring things that do not need to be cooked, because you will rarely have a clean dry surface to cook on, and the locals may not invite you into the cookhouses of the barracks. Bring hardtack, dried fruit, cured meat, chocolate (which will melt, but you will not care), nut butter in squeezable tubes. Bring a metal cup and a small spirit stove if you must have something hot, but use it sparingly and never inside a tent — the carbon monoxide will kill you in a closed space, and you will want to keep your tent closed because of the constant moisture and the small fauna that will move in if you do not.
+
+---
+
+### The skin, and the things that want it
+
+The fauna is strange, and you should not touch it. The larger herbivores are described as low, heavy, many-legged, with hides like wet rubber — they sound like they could be approached, but they are also described as moving in herds that take a whole day to pass a single point, with the young in the center and the adults on the outside. If you are between an adult and its young, you are between a parent and its offspring on an alien world in the dim light. Do not be there. The predators are lithe, low, silent, with too many eyes. They reflect the foundry-light from ridges and are gone. The small things swarm. The things that glow when they are alarmed are telling you something; the message is *back off*. Bring a respirator — a proper N95 or better — and wear it when you are in the fern, when you are near the fungi, when you are downwind of the runoff blooms. The spores on this world have had millions of years to evolve for the constant humidity, and your lungs are not ready for them.
+
+Bring a first aid kit that is built for tropical, fungal, and unknown-biological environments. Antifungals — topical and, if your doctor will prescribe, oral. Broad-spectrum antibiotics. Antihistamines, because you will react to *something* in the spore load or the pollen or the bite saliva of a thing you cannot identify. Clean dressings in sealed packages. A tourniquet. A water-purification tablet backup. Iodine, for both water and wounds. Bring it all in a hard case, because the soft cases will be colonized.
+
+---
+
+### The mind, and the clock you will lose
+
+The plateau has no sun. It has no stars. It has no day, no night, only shifts in the dimmer and warmer and the slow migration of the species that take their turn. Your body wants a rhythm. You will need to give it one, or take one from the locals.
+
+The foundry workers work in shifts. The watchtowers have their long watches. The rail crews have their schedules, which bend around the thickening and thinning of the cloud. Find out what the local rhythm is, and live inside it. Eat when the barracks eat. Sleep when the watch sleeps. Walk when the rail crews walk. If you try to keep Earth time, you will lose yourself in three days. Your watch will help, but only as a reminder. The actual time on the plateau is the time of the work and the weather.
+
+The silence of the predators is, again, the thing to remember. The plateau is loud. The plateau is *always* loud. The sound is a kind of cover, and the silent things use it. When you walk in the fern, stop every few minutes and listen with your whole body. When the sound of the hammers shifts, pay attention — the work moves, and the predators may move with it, following the herds that follow the rhythms of the industry. The animals read the cloud. Read it with them.
+
+The light comes from below. This will undo you if you let it. Your depth perception is built for light from above; shadows fall down, and you read the world by where the dark is. On the plateau, the foundry-mouths cast shadows *upward*. The blooms glow on the cliff faces, throwing their faint blue-green onto the rock above them. A tree trunk is a black column against a faintly orange murk. The moving bulk of a large herbivore is a darker shape moving against a darker shape. You will misjudge distances. You will reach for a handhold that is not there. You will step over what looks like a shadow and find it is a drop. Walk slowly. Use your hands. Trust the texture of the ground more than the look of it.
+
+---
+
+### The map, and the people who know it
+
+There is no map of this place that will be useful to you. The ridges all look the same in the murk. The orange glow could be ten kilometres away or a hundred. The cloud thins and thickens on a timescale of decades, and the locals have learned to read it the way a sailor reads the sea. The watchtowers signal each other, mostly for the herds, sometimes for other things. Find out the signals. If you have a light, you can signal back; the workers will be surprised, and probably pleased, that a traveler knows the etiquette.
+
+Hire a guide. Do not be proud about this. The guide will be a worker — perhaps a foundry-man on his rest shift, perhaps a rail-crew hand who knows the inclines, perhaps a watchtower-keeper who has spent long, silent years learning the cloud. Pay fairly. The currency you bring may or may not be of use; ask. The workers are isolated, and they are curious. They have been hearing the same hammers, the same rain, the same fauna for their entire lives. A stranger is news. A stranger who has come prepared, who has not complained about the wet, who has learned the rhythm — that stranger is welcome. Be that stranger.
+
+The workers have a culture. They have slang for the different blooms, the different cloud-thicknesses, the different moods of the hammers. They have stories about the predators, the herds, the eruptions of the geothermal fields. They have griefs — places where a co-worker was lost to the fern, or a child was taken by a silent shape on a dark slope. They have a long history with this place, and the industry is old enough that the history is in the rock and the slag-heaps. Listen more than you talk. The plateau teaches its own, and it has been teaching these people for a very long time.
+
+The foundries are working. The rail is running. The watchtowers are manned. There is a built environment that has been there for centuries, and it is just another kind of growth, but it is human growth, and the people in it are human. Find them. Eat with them if you are invited. Sleep in a barrack if you are offered a bunk. The roof is metal, and the rain will drum on it, and inside it will be warm and loud and close, and it will be the closest thing to shelter the plateau offers. Take it gratefully.
+
+---
+
+### The gear that will be eaten
+
+Everything you bring will be attacked. Moisture, rust, fungal growth, the slow biological invasion. Metal will corrode. Cloth will mildew. Paper will go soft and spotted. Wood will be digested where it touches the damp. Leather will darken and stiffen. Optics will fog. Electronics will short. The pale fans of fungi along the rail-lines are the visible version of what is happening to your pack right now, invisibly, on the inside.
+
+Pack accordingly. Bring no wood. Bring no paper you cannot reseal. Bring no leather you are not prepared to lose. Bring your documents in a zip-bag inside a dry-bag inside your pack, and check them every day. Bring your tools in metal boxes, oiled. Bring your clothing in compression sacks, and air them out whenever you get a chance. Bring a small sharp knife, and use it to cut away any fungal growth you see on your gear before it gets ahold. Bring a small bottle of oil — for the knife, for the hinges, for the metal parts of your lamp. The plateau will take it. You are only deciding how fast.
+
+The one thing you cannot bring is the ability to be dry. Leave that behind, along with the expectation of sky. The Drowned Plateau is not a place to endure. It is a place to *be* — to stand in the rain and the murk and the hum, and to feel the warm air press against your face, and to listen to the hammers pick up where they left off, and to continue.
+
+That is what the plateau does. It continues. It has continued for longer than the foundries, longer than the rail, longer than the watchtowers. You, with your wool and your filter and your rotating boots and your guide, will be a brief warm thing in its long memory, and then you will go, and it will still be raining.
+
+Pack for that.

@@ -1,0 +1,197 @@
+# Preparation Guide: The Uplift
+
+## What You Are Walking Into
+
+You are not visiting a landscape. You are visiting a *draft* of a landscape—a place that has not yet decided what it will be. This will affect you more than the altitude or the cold or the wet, though those will affect you plenty. The Uplift does not know you. It does not know any humans. The machines there were sent by forgetful hands from cities that have likely moved on, and no one is expecting you, and no one will come if you do not return. Understand this before you pack anything: you are going to a place that is fundamentally indifferent to your presence, and that indifference has a quality I need you to sit with before you go.
+
+The plateau is not hostile. Hostility implies intention. The Uplift is *pre-hostile*—it is a condition of the world that has not yet developed the complexity to be hostile, or welcoming, or anything at all. It is rock that is rising. Water that is weeping. Lichen that is etching. It is becoming, and what it is becoming is not your concern, and your presence will not alter what it becomes except in the smallest, most local, most temporary ways. A boot print in the regolith. A discarded wrapper. A moment of warmth near a thermal pond that the foxes already use. These will be absorbed. The plateau is a sponge that cannot hold its water, but it will hold you just as briefly, just as incompletely, just as inevitably.
+
+You should go anyway. But go knowing this.
+
+---
+
+## Physical Preparation: The Body's Needs
+
+### Altitude
+
+Four thousand meters and climbing. By the time you arrive, it may be higher—the survey markers shift, no one adjusts them, and the plateau's insistence from below is continuous. At this altitude, the atmospheric pressure is roughly sixty percent of sea level. Your blood will carry less oxygen. Your brain will receive less oxygen. You will think more slowly. You will move more slowly. You will recover from exertion more slowly. These are not weaknesses; they are your body's honest response to an environment it was not designed for.
+
+**Acclimatize if you can.** Spend days at progressively higher elevations before attempting the Uplift. Your red blood cell count needs time to increase. Your respiratory rate needs time to adjust. Your kidneys need time to compensate for the altered gas exchange. If you cannot acclimatize—if your multiversal travel deposits you at the plateau's edge without gradual approach—then carry acetazolamide (Diamox) and begin taking it twenty-four hours before arrival. It will not substitute for acclimatization but will reduce the worst symptoms of acute mountain sickness: the headache, the nausea, the insomnia, the peripheral edema that makes your fingers feel like someone else's fingers.
+
+**Know the danger signs.** If you develop confusion, ataxia, or severe dyspnea at rest, you are experiencing high-altitude cerebral edema or high-altitude pulmonary edema. These are fatal conditions. The only treatment is descent. The Uplift offers no descent that is not long and difficult and exposed. You must descend anyway. You must not wait. You must not hope it will improve. The plateau does not care about your hope.
+
+**Carry supplemental oxygen.** Not a tank—tanks are heavy and finite and create dependency. Carry a concentrator, battery-powered, lightweight, capable of extracting oxygen from the thin air and delivering it at higher pressure. Use it at night, when your respiration naturally decreases and the altitude's effects worsen. Use it when you feel the confusion beginning. Use it sparingly, because batteries are finite and you will not find electricity here—the machines run on geothermal steam, not on current you can tap.
+
+### Cold and Wet
+
+The Uplift is cold, but it is not the cold you imagine when you imagine high places. It is not the dry, crystalline cold of peaks that rise above all moisture. It is a *damp* cold—the permanent condensation, the weeping rock, the near-fog that deposits water on every surface, including your skin, including your clothing, including the interior of your lungs with every breath. This cold does not sting. It *seeps*. It infiltrates. It finds the gaps in your defenses and works through them slowly, replacing your warmth with its own patient chill.
+
+**Your clothing must handle wet cold.** This means:
+
+- A base layer of merino wool or synthetic moisture-wicking fabric. Not cotton. Cotton kills in wet cold—it absorbs water, holds it against your skin, and ceases to insulate. Cotton is the fabric of comfortable death.
+
+- Multiple mid-layers of fleece or synthetic insulation, each thin enough to adjust individually as conditions shift. The plateau's temperature fluctuates between near-freezing nights and merely-cold days, and the condensation varies in intensity, and the wind comes and goes, and you will need to add and remove insulation constantly. Thick single-layer jackets are too inflexible.
+
+- A shell layer that is genuinely waterproof, not water-resistant. Gore-Tex or equivalent, with sealed seams, a hood that covers your neck and channels condensation away from your face, and enough room to layer beneath it without restricting movement. This shell is your primary defense. Without it, the condensation will find you within hours, and your clothing will become a sponge, and your body will conduct heat to the wet fabric twenty-five times faster than it would to dry air, and you will become cold in a way that is very difficult to reverse.
+
+- Gaiters. The regolith flows when wet, and it will flow into your boots, and it will fill the space between your sock and your boot wall, and it will create a slurry of rock flour and water against your skin that will both abrade and freeze. Gaiters seal the top of your boots to your lower leg. They are essential.
+
+- Gloves that remain flexible when wet. The plateau demands constant manual interaction—adjusting equipment, checking footing, handling navigation tools. Stiff gloves make you clumsy, and clumsiness on raw rock with sharp cleavage planes leads to lacerations, and lacerations at altitude heal slowly and infect easily. Carry neoprene or similar waterproof-flexible gloves, and carry multiple pairs, because they will get wet, and wet gloves cease to insulate.
+
+- A hat that covers your ears and the back of your neck. Condensation collects where hair meets skin, and the resulting chill concentrates at the margins of your scalp, and your ears are thin and exposed and will freeze first if you neglect them.
+
+**You will still get wet.** Accept this. The condensation is too persistent, too pervasive, too much a property of the place itself. Your goal is not to stay dry—it is to stay *warm while wet*. The wool base layer insulates even when saturated. The shell layer prevents the wind from stripping heat from the wet fabric. The combination keeps you functional. You will be uncomfortable. You will be damp. You will feel the cold pressing against you like a patient, curious thing. But you will not become hypothermic if you manage your layers and your exertion and your shelter correctly.
+
+### Footwear
+
+The regolith is unstable. It flows. It reshapes itself around your boot print within minutes. The underlying rock is raw—sharp cleavage planes, unworn faces, dikes of darker stone that protrude like sutures from the host rock. You will walk on surfaces that have never been walked before, by anything, and those surfaces have not been smoothed by the millennia of wind and water and root-systems that make lowland paths navigable.
+
+**Mountaineering boots, stiff-soled, with aggressive tread.** Not hiking boots. Not trail runners. The stiffness protects your feet from the sharp edges—the regolith's rock flour can work into flexible boots and abrade from within, and a wrong step on a cleavage plane can concentrate force on a small area of your foot with enough pressure to bruise or fracture. The tread grips the wet rock. The high ankle coverage (with gaiters) keeps the regolith out.
+
+**Crampons, lightweight, for the night and the ice-skinned ponds.** The ponds freeze each night into brittle, skin-thin sheets that will not support your weight but will slice your boots if you step on them unaware. The regolith itself freezes into a hard, uneven surface that is more difficult to walk on than the soft, shifting version. Crampons give you purchase on these surfaces, but they must be light enough that you can carry them without fatigue during the day when you do not need them.
+
+**Extra socks.** Your feet will be the wettest part of your body. The condensation runs down your legs and into your boots. The regolith flows in. The streams appear and vanish beneath your steps. You will need to change socks at least twice daily, and you will need to dry the wet ones against your body at night so they are ready the next day. Carry more socks than you think you need. Carry thin liner socks beneath thick wool outer socks. The liners wick moisture from your skin; the wool insulates even when wet. The combination is the best your feet can hope for.
+
+### Shelter
+
+There are no buildings on the Uplift. The rigs have no walls, no roofs, no doors. The plateau offers no trees, no overhangs, no caves—at least none that are accessible from the surface. You must bring your own shelter.
+
+**A four-season tent, rated for extreme wind and cold.** The plateau's wind is not described in the text, but at four thousand meters with no vegetation to break it, the wind will be constant and strong, and the condensation will make the tent fabric heavy and less aerodynamic, and the regolith will not hold stakes well—you will need to anchor with rocks, which means you will need to find rocks, which means you will need to carry rocks to your campsite, which means exhaustion before you even begin to sleep. Choose a tent with a low profile, a robust pole structure, and guy lines that you can attach to multiple anchor points. The tent must withstand the plateau's indifference to your comfort.
+
+**A sleeping bag rated to at least -20°C, preferably -30°C.** The nights are cold—the ponds freeze, the animals' winter coats are already emerging, the condensation deposits ice on every surface. Your sleeping bag must handle this cold while also handling the moisture that will infiltrate it despite your shell layer and your tent's ventilation. Down bags are warmer for their weight but fail catastrophically when wet—use a synthetic-fill bag, which retains fifty percent of its insulation value even when saturated. It will be heavier. It will be bulkier. It will keep you alive.
+
+**A sleeping pad with an R-value of at least 5.** The ground beneath you is rock, and rock conducts heat away from your body far faster than air. Without an adequate pad, your sleeping bag's insulation beneath you will be compressed to nothing, and the cold will rise through you from below. The pad is not a comfort item—it is a survival item. Carry the thickest, highest-R-value pad you can fit in your pack.
+
+**A vapor barrier liner for your sleeping bag.** This is a thin, waterproof sack that you sleep inside of, within your sleeping bag. It sounds miserable—it traps your perspiration against your skin, creating a microclimate of humidity that most people find deeply unpleasant. But in the Uplift's conditions, it serves a critical function: it prevents your body's moisture from reaching the sleeping bag's insulation, keeping the bag dry and functional across multiple nights. Use the vapor barrier. Accept the discomfort. The alternative is a wet sleeping bag that cannot keep you warm, and a wet sleeping bag at altitude in a place where no one comes to help is a death sentence written in slow, patient cold.
+
+### Water and Food
+
+**Water purification, multiple methods.** The plateau's water is mineral-heavy—hydrogen sulfide, carbon dioxide, trace methane, heavy metals from the thermal ponds, dissolved minerals from the fresh but unconsolidated regolith. The streams appear and vanish unpredictably. The condensation can be collected but is insufficient for hydration. You will need to find water, filter it, treat it, and drink it, and each step of this process carries risk.
+
+Carry a gravity filter capable of removing particulates and bacteria, but understand that bacteria are not your primary concern here—the chemistry is. Carry chemical treatment (chlorine dioxide tablets) as a backup, but understand that chemical treatment does not remove heavy metals. Carry a small quantity of activated charcoal, which can adsorb some heavy metals and organic compounds, and use it as a final stage of purification. This three-stage process—filter, chemical, charcoal—is slow and cumbersome, but it is the minimum adequate approach.
+
+Alternatively, carry all the water you will need. At four liters per day for drinking and cooking, a five-day visit requires twenty liters—twenty kilograms of water weight at the start. This is possible if your multiversal travel allows it. It is not possible if you are hiking in from below, because the ascent itself will require more water than you can carry. Choose your approach based on your entry method, and plan for the worst case.
+
+**Food, calorie-dense and moisture-free.** The plateau offers nothing edible—the grass is for ibex, the moss is for hares, the lichen is scraped from rock with more energy expenditure than it yields. You must bring everything. Choose foods that are light, compact, high in fat and carbohydrate, and impervious to moisture—energy bars, dried meat, hard cheese, nuts, chocolate. Avoid anything that requires cooking with large volumes of water, because water is precious and fuel is heavy. Avoid anything that will spoil if it gets wet, because everything will get wet. Plan for three thousand calories per day minimum—the altitude and the cold and the exertion and the body's constant struggle to stay warm will demand more energy than you expect.
+
+**A stove, lightweight, with fuel.** You will need to melt ice for water, to heat food, to provide psychological comfort through the ritual of a hot meal at the end of a cold day. Canister stoves are simplest, but their performance degrades at altitude and cold—carry a liquid-fuel stove (white gas or multi-fuel) that performs reliably in extreme conditions, and carry more fuel than you calculate you need, because your calculations will assume efficiency that the plateau will not provide.
+
+### Gas Hazards
+
+The thermal ponds emit hydrogen sulfide, carbon dioxide, and trace methane. The drill rigs vent steam that may carry similar gases from the geothermal formations below. These are not overwhelming concentrations—the animals live near them, the midges thrive in them—but they are present, and they are persistent, and at altitude where your respiratory system is already compromised, they pose additional risk.
+
+**Hydrogen sulfide detection.** H₂S is dangerous at concentrations above 10 ppm, and at higher concentrations it deadens the sense of smell, making detection by nose unreliable. Carry a portable gas detector with an audible alarm. If the alarm sounds, move away from the source immediately—upwind, uphill, to cleaner air. Do not assume the smell will warn you. It will not.
+
+**Ventilation awareness.** The ponds' gas emissions are dispersed by wind in open areas, but the talus slopes where the pikas live, the crevices near the rigs' foundations, and any depression in the regolith can collect heavier-than-air gases (CO₂) or trap lighter-than-air gases (H₂S, CH₄) under overhangs. Do not enter confined spaces without testing the air first. Do not sleep in depressions. Camp on high ground with good airflow.
+
+### Navigation
+
+The plateau's light is disorienting—the permanent near-twilight makes distances hard to judge, the condensation obscures horizons, the sky is too dark for the ground to be this bright, and the ground is too dim for the sky to be this close. Paths you walked yesterday will look different today because the regolith has shifted, the water has flowed, the ice has formed and melted and formed again.
+
+**Carry a GPS device with fresh batteries and pre-loaded waypoints.** But know that the plateau is rising, and elevation readings may drift, and satellite reception at this altitude with this atmospheric density may be unreliable. GPS is a tool, not a guarantee.
+
+**Carry a compass and a physical map.** The compass will work—the magnetic field is presumably the same as wherever this plateau exists within your multiverse—but the map must be made from observation, because no one has charted this place recently enough to trust. Make your own map as you explore. Note the rigs' positions—they are fixed and visible and serve as landmarks. Note the thermal ponds—they shift but are recognizable by their steam and their grass margins. Note the streams you find—they vanish and reappear, but their general locations can be learned.
+
+**Mark your own path.** Carry flagging tape or brightly-colored markers and place them at intervals along your route. Retrieve them when you leave, because leaving permanent markers on a place that is still becoming feels like a violation, but use them while you are there, because the plateau will not remember your path for you.
+
+### First Aid
+
+**Altitude sickness medication** (acetazolamide, as discussed).
+
+**Wound care supplies, extensive.** The raw rock cuts. The cleavage planes are sharp. The regolith abrades. You will acquire small wounds constantly, and at altitude, with reduced oxygen delivery to tissues, these wounds heal slowly and infect easily. Carry antiseptic, antibiotic ointment, adhesive bandages in multiple sizes, gauze, tape, and a small quantity of broad-spectrum oral antibiotics for serious infections. Clean every wound immediately, no matter how minor—the plateau's water is not clean, but your antiseptic is.
+
+**Frostbite treatment.** Recognize the early signs—white or grayish skin, numbness, hardness—and treat immediately by rewarming the affected area against warm skin (your own or a companion's, if you have one). Do not rub frostbitten tissue; the ice crystals within the cells will cause mechanical damage. Severe frostbite requires descent and medical care; carry the knowledge of how to recognize it and the commitment to act on that recognition even when acting means abandoning your visit.
+
+**Hypothermia treatment.** You will become hypothermic if you are careless; you will become borderline-hypothermic if you are careful. Know the signs—confusion, shivering cessation, paradoxical warmth, sluggishness—and know the treatment—insulation, warm fluids, gentle rewarming, evacuation if severe. The plateau will push you toward hypothermia constantly; your discipline in managing layers, staying dry, eating enough, and seeking shelter must push back constantly.
+
+**A SAM splint and elastic bandages for fractures.** The regolith is unstable footing. The rock is sharp. A fall is possible, and a fracture at altitude with no rescue available is a crisis that demands improvised stabilization and self-evacuation. The SAM splint is versatile, lightweight, and can be shaped to immobilize almost any extremity fracture. Learn how to use it before you need it.
+
+---
+
+## Psychological Preparation: The Mind's Needs
+
+### The Disorientation of Light
+
+You will not be prepared for the light. I have told you about it—the dark sky, the dim ground, the directionless grey glow, the permanent state of near-twilight—and you have imagined it, and your imagination is wrong. The light on the Uplift does not behave like light in any landscape you have visited. It does not illuminate; it *suggests*. It does not define; it *implies*. You will find yourself looking at a rock face and being unable to determine whether it is ten meters away or a hundred, whether the shadow across it is a crevice or a dike, whether the grey patch on its surface is lichen or mineral staining or simply the way the light is failing to show you what is there.
+
+This disorientation is not a danger in the physical sense—you will not walk off a cliff because you misjudged the light, because there are no cliffs to walk off, only slopes and escarpments that are visible even in this strange dimness. But it is a danger in the psychological sense. The light will make you feel *wrong*. Your visual system, evolved for millions of years in landscapes where light behaves predictably, will receive input that it cannot process correctly, and it will generate outputs that you cannot trust, and the resulting uncertainty will seep into your cognition the way the condensation seeps into your clothing—slowly, pervasively, until you are not certain whether the distance you perceive is real or whether the color you see is accurate or whether your sense of your own position in the space is reliable.
+
+**Prepare by accepting this.** Do not fight the disorientation. Do not try to force your visual system to produce readings it cannot produce. Instead, slow down. Make decisions about movement and direction based on multiple cues—the GPS, the compass, the position of the rigs, the sound of the streams, the feel of the regolith beneath your boots—not solely on what you see. Trust your other senses more than your eyes. Your eyes will lie to you in this light. Your feet will not.
+
+### The Vertigo of Stars
+
+At night, the stars are extraordinary. I need you to understand what I mean by *extraordinary*, because I do not mean beautiful. Beauty is a category that implies aesthetic judgment, cultural framing, a viewer prepared by experience to recognize and appreciate what they encounter. The stars on the Uplift do not care whether you find them beautiful. They are there, in a quantity and clarity that your visual system has never been designed to process, and the result is not aesthetic appreciation but *vertigo*.
+
+The Milky Way will not appear as a pale smear. It will appear as a textured, mottled river of light, individual stars resolving in clusters and nebulae, the whole vault of the sky pressing down with a weight that makes you understand why ancient peoples built ceilings. You will feel the stars as proximity, as nearness, as a dome that is not above you but *around* you, and the ground beneath you will seem not like a floor but like a shelf, a ledge, a platform in a space that continues downward as far as it continues upward, and you will be standing on a narrow horizontal surface in an infinite vertical one, and the vertigo will be not the fear of falling but the fear of *being*, the sudden recognition that your existence is positional, that you occupy a coordinate in a grid of coordinates, that the ground you stand on is not solid but is merely the point where the downward infinite happens to intersect the upward infinite at a position your body occupies for a moment before moving on.
+
+**Prepare for this.** Do not look up at the stars alone. Look up at the stars with a companion, or look up at the stars and then immediately look down at the ground, or look up at the stars and then close your eyes and feel the regolith beneath your boots and hear the pika calling *enk enk enk* and let the sound anchor you to the specific, the local, the momentarily real. The stars are true but they are not your truth. Your truth is the plateau, the rising rock, the weeping water, the ecosystem that shouldn't exist but does. The stars are context. The plateau is content. Do not let the context overwhelm the content.
+
+And if the vertigo becomes too much—if you feel yourself falling through space when you are standing still, if you feel the stars pressing down like a physical weight, if you feel the thin atmosphere as an absence that is pulling you upward—then *sit down*. Sit on the regolith. Press your hands against it. Feel its cold, its wet, its instability, its reality. The plateau is becoming, and you are witnessing its becoming, and your witnessing is a part of what it becomes, and this is the only solid thing available to you in this moment: that you are here, that the plateau is here, that the moment is real, and that everything else is abstraction.
+
+### The Loneliness of Indifference
+
+No one comes to the Uplift. The machines are there, but they are not *someone*—they are automated systems that do not notice you, that would continue operating whether you were present or absent, that have no category for human existence in their diagnostic routines. The animals are there, but they are not *someone*—they are pikas and eagles and foxes and hares and ibex, each pursuing its own survival with a single-mindedness that does not accommodate recognition of your presence except as a potential threat or a potential resource. The plateau itself is there, but it is not *someone*—it is geology, hydrology, botany in their earliest stages, processes that operate at scales and speeds that make human presence irrelevant.
+
+You will be alone in a way that is difficult to describe to someone who has not experienced it. Not alone in the sense of solitude—solitude implies choice, implies a temporary withdrawal from social contact that can be ended at will. Not alone in the sense of isolation—isolation implies a separation from others that is enforced by circumstance but maintains the possibility of connection, of rescue, of return. You will be alone in the sense of *unnoticed*. You will be present in a place that does not register presence, that has no mechanism for recognizing that you are there, that will continue its processes of rising and weeping and becoming regardless of whether you live or die on its surface.
+
+This is a specific kind of loneliness, and it is the loneliness you must prepare for. The loneliness of being in a place that is not for you. The loneliness of being in a place that was not made for anyone, that is not made at all, that is simply *occurring*, and that you have chosen to visit, and that will continue to occur long after you leave, and that will not remember you, and that will not miss you, and that will not even notice your absence because it never noticed your presence.
+
+**Prepare by carrying connection.** Carry photographs of people you love. Carry letters they have written to you, or that you have written to them. Carry a voice recorder and use it—record your observations, your thoughts, your feelings, and listen to your own voice later, letting it remind you that you are someone, that you exist outside this indifferent place, that your presence matters to at least one entity in the universe even if that entity is not present here. Carry a journal and write in it—not descriptions of the plateau, which the plateau does not need, but descriptions of yourself, your reactions, your fears, your moments of unexpected beauty, the things the plateau is revealing to you about your own capacity for perception and endurance. The plateau will not read your journal. But you will. And in reading it, you will remember that you are a person who chose to visit a place that did not choose to receive you, and that this choice has meaning even if the meaning is yours alone.
+
+### The Weight of Becoming
+
+The plateau is young. Three thousand years of exposure—less than one percent of the time that most landscapes have had to develop soil, establish vegetation, complexify their ecosystems, evolve their characteristic forms. You are visiting a place that is in the earliest stages of its existence, that is still determining what it will be, that contains within itself all the possible futures that time and erosion and life and industry might bring to it. This is not a landscape that has *arrived*. This is a landscape that is *in transit*.
+
+This will affect you. The human mind evolved to read completed landscapes—forests with their established canopies, valleys with their carved rivers, mountains with their worn ridges, deserts with their fixed dune fields. We read these landscapes as finished texts, stable narratives, known stories. We find comfort in their completeness, their predictability, their sense of having reached a state that can be understood and inhabited. The Uplift offers none of this. It is incomplete, unpredictable, unknown. It is a text that is still being written, and you are present at a moment in the writing, and the writing will continue long after you depart, and what you witness is not a story but a *draft*.
+
+**Prepare by adjusting your expectations of meaning.** Completed landscapes offer meaning readily—they are stories with endings, and endings provide significance, resolution, narrative satisfaction. The Uplift offers meaning reluctantly—it is a story without an ending, a process without a conclusion, a becoming without a final state. The significance of your visit will not lie in what the plateau *is* but in what it is *doing*, and what it is doing is becoming, and becoming is a process that unfolds in time, and your visit occupies a moment in that time, and the moment is significant not because the plateau assigns it significance but because you witness it, and witnessing is a form of participation, and participation is a form of meaning.
+
+Do not go to the Uplift expecting to find a landscape. Go expecting to find a *proposal* for a landscape—a first approximation, a rough sketch, a draft that will be revised countless times before it reaches whatever final form it may eventually assume. And know that your presence at this moment in the draft's development is a kind of editing—you are seeing the plateau at a stage where your observation becomes part of its record, where your footprints become part of its regolith, where your warmth becomes part of its microclimate, where your attention becomes part of its history. This is not a small thing. The plateau is becoming, and you are becoming-with-it, and the becoming-with is a form of relationship that does not require the plateau's consent or awareness but that is real nonetheless.
+
+---
+
+## Practical Preparation: The Visit's Logistics
+
+### Duration
+
+Stay no more than five days. The plateau's effects on your body accumulate—the altitude, the cold, the wet, the exertion—and after five days, your risk of altitude sickness complications, infection, hypothermia, and simple exhaustion increases significantly. Five days is enough to see the plateau's major features, to observe its ecosystem, to sit with its strangeness, to let its light work on your perceptions, and to leave before the plateau's indifference begins to work on your body in ways that are harder to reverse.
+
+### Entry and Exit
+
+If your multiversal travel allows direct arrival at the plateau's edge, use it. The ascent from below—thirty kilometers of rising basalt and gabbro, through zones of increasing altitude, decreasing oxygen, increasing cold, decreasing vegetation—would require weeks of acclimatization and would exhaust you before you reached the place you came to see. Arrive at the top. Leave from the top. Let the plateau be the plateau, and let the lowlands be the lowlands, and do not attempt the transition between them on foot unless you have no alternative.
+
+If you must hike in, plan for a ten-day approach—five days ascending with acclimatization stops, five days descending with recovery stops—and carry enough supplies for the approach plus the five-day visit plus a five-day emergency margin. This is thirty days of supplies. The weight will be enormous. The difficulty will be extreme. The reward will be arriving at the Uplift exhausted but alive, and then having five days to witness it before you must begin the long return.
+
+### Activities
+
+**Walk the plateau.** This is the primary activity—not climbing, not exploring, not collecting, but *walking*. The Uplift is a place for walking, for covering ground slowly, for observing the transitions between its zones—the talus slopes where the pikas call, the flat expanses where the regolith flows, the seep zones where the moss grows like wounds, the thermal margins where the grass rings the steaming ponds, the escarpment's edge where the eagles nest and the view extends downward to the lowlands that the plateau used to be. Walk until your legs ache and your lungs strain and your feet are wet and your clothing is damp and your mind has stopped trying to read the landscape and has started simply receiving it.
+
+**Observe the machines.** They are not your purpose, but they are the plateau's most prominent human-made feature, and they tell a story about the relationship between industry and geology that is worth understanding. Note how the rigs integrate with the rock—their foundations set into fracture planes, their lattice towers rising above the regolith, their steam venting into the condensation. Note the pipeline's leaks and the ecosystems they have accidentally created. Note the rhythm of the automated systems—the drill's turn, the valve's clunk, the steam's hiss. This rhythm is the plateau's heartbeat, and it has been beating for forty years, and it will continue beating until some critical component fails beyond the auto-repair capacity, and then it will stop, and the plateau will have a different heartbeat, or none.
+
+**Sit by a thermal pond at dusk.** The foxes emerge at dusk—they are waiting by the warm pond, their white winter coats already coming in despite the season, and they will observe you with a calm curiosity that does not include fear, because nothing on the plateau has taught them to fear humans, and they will decide whether you are a threat or a resource or simply an anomaly, and their decision will be based on your behavior, not on your species, and you will have the rare experience of being evaluated by an animal that has no preconceptions about what you are. Sit still. Let them approach if they choose. Do not offer food—food creates dependency, and dependency disrupts ecosystems, and this ecosystem is barely holding together as it is. Simply sit. Simply be observed. Simply let the fox's calm assessment of you become part of your own assessment of yourself.
+
+**Watch the eagles at the eastern edge.** They are hunting the pikas, and the hunt is a drama that the plateau stages every day, and the drama is not for you but it is happening in your presence, and watching it will teach you something about the economy of survival in a place where survival is never guaranteed. The eagle turns in the thin air. The pika calls its warning. The hare freezes. The ibex lifts its head. The ecosystem's participants are all visible at once, each pursuing its own continuation, each contributing to the continuation of others through the simple logic of consumption and avoidance, and you are present at this moment as a witness, and your witnessing is the only contribution you can make, and it is enough.
+
+**Watch the night sky.** I have warned you about the vertigo, and the warning stands. But the stars are there, and they are extraordinary, and they will show you things your eyes have never seen—the Milky Way as a river of textured light, the clusters and nebulae resolving into individual points, the whole sky pressing down with a proximity that makes you feel not that you are looking up but that you are looking *out*, into a space that contains you rather than a space that is above you. Look up. Accept the vertigo. Let the stars' proximity remind you that the ground beneath you is not a floor but a position, a coordinate, a moment in an infinite grid of moments, and that your presence on this particular coordinate at this particular moment is the only thing that makes this coordinate and this moment *yours*.
+
+**Record your experience.** Use the voice recorder. Use the journal. Use the camera if you have one, but know that photographs will not capture the light's disorientation, the regolith's instability, the condensation's pervasiveness, the sounds' isolation. The best record is your own account, written in your own words, describing what you perceived and what you felt and what the plateau revealed to you about itself and about yourself. This record is the artifact you will carry home. It is the proof of your visit. It is the meaning you made from a place that offered none.
+
+---
+
+## Ethical Preparation: The Visitor's Responsibilities
+
+### Do Not Disturb the Ecosystem
+
+The Uplift's ecosystem is barely an ecosystem—it is a collection of fragile interdependencies that should not exist but do, each link in the chain (lichen to ibex, moss to hare, midge to pika, pond to fox) maintained by the thickest possible margin of survival. Your presence introduces a new variable—an organism that is too large to be prey, too foreign to be predator, too disruptive to be neutral. Your boot prints destroy lichen colonies that took a century to establish. Your waste introduces chemistry that the regolith cannot process. Your warmth draws animals toward you in ways that alter their behavior and expose them to risks they would not otherwise encounter.
+
+**Walk on rock when possible.** The lichen grows on the rock faces, and your boot will destroy it in a moment. The regolith is sterile—nothing grows in it yet—and walking on it does less harm. Choose your paths to minimize lichen damage. This will require attention, and the attention will change your relationship with the ground beneath you, and that change is itself a form of preparation—learning to see the lichen as something to be protected rather than something to be walked over.
+
+**Camp on bare regolith, not near thermal ponds or seep zones.** The grass and moss grow only in these marginal areas, and they are the only vegetation the plateau has, and they are sustaining the only fauna the plateau has, and damaging them damages the whole system. Find a flat expanse of regolith away from the warm zones, anchor your tent with rocks, and accept that your campsite will be cold and wet and uncomfortable. The animals have already claimed the warm zones. You are the visitor. You take what is offered, not what you need.
+
+**Carry out all waste.** Every wrapper, every tissue, every feces, every urine—pack it out or process it in a way that leaves no trace. The plateau has no mechanism for decomposing organic waste; the regolith has no soil bacteria to break down your excrement; the cold has no enzyme activity to reduce your litter. What you leave will remain, indefinitely, a foreign object in a system that cannot absorb it. This is not acceptable. Carry sealable waste bags. Use them religiously. Carry them home with you and dispose of them in a system that can process them. This is the minimum respect you can offer a place that is still learning how to process anything at all.
+
+### Do Not Interact with the Machines
+
+The rigs are autonomous. They are operating under instructions that no one remembers, toward purposes that no one knows, with self-repair capacities that are limited but functional. They are the plateau's only human-made feature, and they are the only feature that might respond to your presence—but *respond* is not the same as *welcome*, and *functional* is not the same as *safe*, and *autonomous* is not the same as *intelligent*.
+
+**Do not approach the rigs closely.** The steam vents release superheated water and gas. The drill pipes rotate with mechanical indifference to obstacles. The automated tool-changers operate without sensors that would detect a human body in their work zone. The rigs are not

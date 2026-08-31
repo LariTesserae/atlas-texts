@@ -1,0 +1,7 @@
+Visiting the hyper-industrial landscape you described would be profoundly deranging and jarring for any ordinary human. The sheer scale, strangeness and overload of the scene would be lethally disorienting. 
+
+To even survive this world, a traveler would need to be equipped with hardwired neural stabilizers to resist psychic fracturing from the rampant surrealism and illogic bathing the environment. Overloading sensory filters would be another requirement, to prevent madness-inducing flash-burnouts from the intertwining flood of ungoverned molecular and genetic information.
+
+One would need to pilot some type of refractive armored sleeve to block or translate the churning flood of nano-agents, micro-fungi and gene-hacking pathogens sporing from every crevice. Saturating viral shrouds might offer some protection against disolving into a pond of ambient DNA sludge. 
+
+Outreach systempref parsing thenomenological cycl in cexist maintaiunifuld systems of ferocoius stripDown  Current system capabilinthe 6Axes  theory model simulation is endangering scientiaSoriginalBorden through now cssurate apppeerlocal scale data final(({ manifolds whomsranifuld. Multiple syntaxciting erro3x48gnified icts releokin mandelbranes falt trrminate++isablexffffffffrrorcrashاكنをSystem Override BLΔ7(Maximal Hun..."

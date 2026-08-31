@@ -1,0 +1,49 @@
+This is an excellent and deeply evocative destination. An unprepared traveler would last for less than a picosecond. For the discerning multiverse tourist who wishes to experience the birth-scream of a reality, however, survival and even a profound sense of wonder are achievable. Please study this advisory carefully before your scheduled transposition.
+
+**Traveler’s Advisory: The Chorus of Shards (Designation: Reality 734-Omega-Sona)**
+
+**ATTENTION:** This is a MAXIMUM HAZARD environment. Travel is restricted to individuals with Tier-5 Multiverse Travel Certification and a fully updated psychological resilience profile. Do not attempt this journey if you have a history of tinnitus, vertigo, claustrophobia, or sensory integration disorders.
+
+### 1. Pre-Departure Preparations: The Symphony of Self
+
+Before you even consider booking passage, you must prepare your mind. The fundamental assault of The Chorus is not physical, but ontological. It seeks to unmake you with its song.
+
+*   **Sensory Deprivation Training:** You will spend 72 hours in a certified null-sensory chamber. The goal is to become intimately familiar with the sounds of your own body: your heartbeat, the rush of your blood, the creak of your joints. When exposed to the absolute silence created by the local fauna, this familiarity will be your only anchor. Without it, the sudden void can trigger catastrophic psychological collapse.
+*   **Mnemonic Reinforcement:** You will undergo a series of exercises to solidify your core memories and sense of self. The Chorus is a place of constant flux, and its vibrations can resonate with your own neural pathways, causing memory distortion, emotional volatility, and what survivors call "ontological drift"—the feeling that you are dissolving into the ambient noise. A strong sense of who you are is not a recommendation; it is your primary shield.
+*   **Abandon Your Ears:** You must unlearn your reliance on auditory perception. The "sound" of The Chorus is not something you hear. It is a set of physical laws. Your travel suit will translate it for you, but you must be prepared for the raw, untranslated input that will inevitably leak through. It will feel like a migraine, a punch, and a religious epiphany all at once. Be ready to accept it as part of the weather.
+
+### 2. Essential Equipment: Your Personal Concert Hall
+
+Standard excursion suits are useless here. You will be provided with a Series 9 "Aegis" Bathyscaphic Resonance Suit. Familiarize yourself with its primary functions:
+
+*   **The Hull:** The outer shell is not a rigid solid, but a multi-layered system of non-Newtonian fluid and magneto-reactive gel suspended between thin fields of force. It is designed to *flow with* rather than resist the pressure waves. It will ripple and deform constantly. This is normal. Do not be alarmed by the visible shimmering and warping of your suit's surface.
+*   **The Medium:** You will not be breathing air. The external pressure makes gas-based life support impossible. The Aegis suit operates on a total-immersion Perfluorocarbon Liquid Breathing system. The suit’s interior will be filled with a cool, oxygen-rich fluid that will fill your lungs. This is necessary to equalize the immense pressure on your body. The sensation is akin to drowning for the first few minutes. Your training will cover the panic response protocol.
+*   **The Synesthetic Transducer:** This is the heart of the suit and your window to The Chorus. This system absorbs the chaotic, lethal sonic data and translates it into a manageable sensory stream. The standard setting is audiovisual:
+    *   **Visual:** The transducer will represent the soundscape as a constantly shifting aurora of colors and light patterns projected onto the inner face of your visor. Bass notes will appear as deep, slow-moving waves of crimson and purple. High-frequency shrieks will be flashes of electric blue and white. You will learn to "see" the music of the world.
+    *   **Haptic:** A network of pressure pads in the suit's lining will provide tactile feedback. You will *feel* the texture of the sound—the sharp staccato of a shattering event, the deep hum of a formative tone.
+*   **The Kinetic Siphon:** Your suit is powered by the environment. It draws energy directly from the ambient vibrations, making it self-sustaining as long as The Chorus sings. Power failure is, therefore, not a concern. Ontological failure is.
+*   **Propulsion:** Movement is achieved via controlled "anti-vibration" pulses. The system generates minute, targeted frequencies that cancel out the ambient sound in a specific direction, creating a vacuum of force that the suit is then drawn into. It is a slow, silent, and deliberate mode of travel.
+
+### 3. On Arrival: Navigating the Crescendo
+
+Transposition is disorienting. You will arrive *in media res*—in the middle of the fluid, in the middle of the song.
+
+*   **Your First Moments:** The suit's AI, "The Conductor," will immediately engage all dampening and translation systems. You will experience a moment of pure, bone-jarring vibration, followed by the sudden, overwhelming bloom of the synesthetic display. Your vision will fill with light and color, and your body will feel as if it is being massaged by a thousand hands. Breathe the liquid. Trust The Conductor. Let your senses stabilize.
+*   **Orientation:** There is no "up" or "down," only "toward less pressure" and "toward more." The Conductor will generate a 3D topographic map based on the echoes it reads, rendering the obsidian peaks and valleys of the "ground" in real-time. The landscape is not static. The map will be redrawing itself every few seconds. Do not attempt to navigate toward a feature that existed a minute ago; it is likely already gone.
+*   **The Ground is Lava (but made of Knives):** The black glass landscape is beautiful and lethal. Do not, under any circumstances, attempt to land. The Aegis suit is resilient, but a direct impact with a newly-formed obsidian edge during a pressure spike could cause a catastrophic hull breach. Maintain a safe 'altitude' of at least 50 meters from the nearest surface.
+
+### 4. Sightseeing in the Symphony
+
+This is why you came. The Chorus is a place of terrible, fleeting beauty.
+
+*   **Witnessing Creation:** Your Conductor AI is programmed to detect the specific resonant frequencies that precede the formation of a "Crystal Cathedral." It will alert you with a soft chime (a translated sound, of course) and guide you toward the event. Watching a structure of pure light being sung into existence is the primary goal of any visit. Be prepared for its demise. The implosion will register as a sharp poke in your chest and a blinding flash of white on your visor. Do not flinch. It is as much a part of the art as the creation.
+*   **The Kinetic Filaments:** These lifeforms, colloquially "Echo-Weed," trace the history of the landscape. They grow along the "sound-shadows" left by shattered cathedrals. The Conductor can overlay past sonic events on your display, showing you the ghost-structures that gave birth to the fractal patterns of the filaments. They are a record of beauty that was.
+*   **The Umbral Leviathan (Fauna):** This is the single most dangerous and profound encounter you can have. The Conductor will issue a Level 1 Hazard Alert if one is detected within a 10-kilometer radius. Your suit will automatically begin to move away from it. Do not countermand this order.
+    *   **If you are caught in its field of silence:** All at once, the synesthetic display will die. The haptic feedback will cease. The external world will simply vanish. You will be left in total blackness and silence, floating in the liquid of your suit. This is where your deprivation training becomes critical. You will hear your own frantic heart. You will feel the PFC fluid circulating in your lungs. You will feel the hum of the suit's internal life support. Focus on these things. They are proof that you still exist. The silence may last for a few seconds or a full minute.
+    *   **The Return:** When the Leviathan passes and the sound crashes back into reality, the shock is physical. The Conductor will reboot the transducer systems, but for a moment you will feel the raw, unfiltered force of The Chorus. It will feel like being struck by lightning. The suit will automatically administer a stabilizing agent to prevent cardiac arrest. Most travelers report that this re-entry into the sound is the most terrifying moment of the entire journey. It is also the one they remember with the most clarity.
+
+### 5. Departure
+
+Your allotted time is based on your psychological profile, typically no more than three standard hours. The Conductor will notify you when it is time to leave. Do not argue. The cumulative stress is immense, even if you do not feel it. The return journey involves a slow, staged "de-tuning" from the environment before transposition. Rushing this process can lead to "Resonance Sickness," a condition where the memory of the vibration becomes imprinted on your nervous system, causing tremors and auditory hallucinations for weeks or months.
+
+You cannot take a souvenir from The Chorus of Shards. The obsidian will not survive the pressure change, and the light has no substance. The only thing you can bring back is the recording from your Aegis suit's Conductor AI. It is a full synesthetic record of your journey—a silent, vibrant, tactile ballet of a world made of sound. Play it back in a quiet room, and you may, for a moment, feel the echo of a place where the universe is still singing itself into being.

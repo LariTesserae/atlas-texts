@@ -1,0 +1,27 @@
+To prepare for a place like this, you must first abandon the very concept of preparation as you understand it. There is no equipment to pack, no physical conditioning to undertake. This is not a journey through space, but a shift in perception. Your preparation is entirely internal—a dismantling and reassembly of your fundamental assumptions about existence.
+
+**1. Relearning Arrival:**
+You must sit with the paradox of the prompt. You do not *go* to this place; you *awaken* to having always been there. Your preparation, then, is to become lucid within a dream you are already having. Practice mindfulness of the deepest, most persistent layers of your own being—the rhythm of your breath, the hum of your cells, the weight of your own body. This place is the macrocosm of that internal, ever-present state. To find it, stop searching outward. Begin the journey by traveling inward, past thought and memory, to the silent, pressurized core of your own awareness.
+
+**2. Adapting Your Senses:**
+Your human senses are liabilities here. They are tuned for a world of surface, light, and airborne sound.
+*   **Sight:** Prepare for the death of the horizon and the familiar scale of vision. Practice seeing in the dark. Not with night-vision goggles, which rely on amplifying scarce light, but with the mind's eye. Learn to appreciate the negative space of darkness, to infer presence from the subtlest absence of the black, to feel shapes with your gaze rather than merely observe them. Understand that what you see here will be your own nervous system projecting phosphenes into the void.
+*   **Sound:** Train yourself to *listen* with your body. The pressure-sound is a vibration that will travel through the fluid of your ears, the bones of your skull. Focus on the sub-audible—the hum of a refrigerator, the deep thrum of a distant engine. Learn to feel sound as a tactile phenomenon. The "groan of bedrock" will be a slow, deep ache in your joints, a resonance in your teeth.
+*   **Touch & Proprioception:** Your skin will be your primary organ of navigation. The cold is not an adversary; it is the medium. Acclimate yourself to the feeling of a thick, defining cold that does not numb but *clarifies* the boundary between you and everything else. The pressure is your new gravity, your constant companion. Imagine wearing a full-body suit that fits so perfectly it becomes your skin. That is the relationship you must cultivate with the omnipresent weight.
+
+**3. Surrendering to a Different Time:**
+This is the most critical preparation. Your biological and social clocks are useless here.
+*   **Practice Geological Patience:** Sit with a stone. Watch a glacier move (in a time-lapse). Read about tectonic drift. Ingrain in yourself the scale of processes measured in millennia. Your heartbeat, your breath, your fleeting thoughts—these are the frantic, meaningless bursts of the "smaller creatures" here. You must learn to identify with the slow, the settled, the profoundly old. Your sense of urgency will be a source of terrible, isolating anxiety. Let it go.
+*   **Embrace the Eternal Present:** There is no weather here, no day/night cycle, no seasonal change. Time is not a river; it is a depth. Prepare by meditating on the concept of a single, sustained moment. This is not stagnation; it is a density of existence so packed that change occurs at the molecular level, invisible to the hurried eye.
+
+**4. Redefining "Life" and "Self":**
+You are entering an ecology of process, not of spectacle.
+*   **Abandon the Charismatic Megafauna Mindset:** Do not expect grand vistas or dramatic hunts. The monumental creature described is a background event, a slow eclipse. The true drama is in the sediment, in the viral bloom, in the silent recycling of matter. Prepare to find fascination in the microscopic and the chemical. Read about extremophiles, about chemosynthetic vent communities. Understand that "life" here is a dense, biochemical conversation, and you are eavesdropping on a language of enzymes and gradients.
+*   **Dissolve the Boundary of Self:** In a world where "nothing is wasted" and every grain is occupied, the human concept of a discrete, individual self is an absurdity. You are not a visitor *to* this place; you are a temporary, complex eddy *within* its perpetual flow. Your preparation is to meditate on interdependence—on how your body is a colony of cells, how your breath exchanges atoms with the air, how you are constituted by the food you eat and the water you drink. Here, that truth is the entire reality.
+
+**Final Preparation:**
+Let go of the desire to *do*. You cannot explore this place. You can only *be* in it. Your mission is not to map or to sample, but to *understand*. The understanding will not come in facts or data points, but in a profound, somatic realization: that you are a momentary arrangement of the universe's matter and energy, experiencing a brief, focused consciousness in a place that is the universe's default state—patient, dense, dark, and eternally busy with the work of becoming.
+
+Your greatest tool is not a device, but a mantra: **"I am already here. I have always been here. I need only wake up."**
+
+Then, close your eyes. Feel the weight of the blanket you never knew was there. And listen, with your bones, for the slow groan of the world settling around you. You are home.

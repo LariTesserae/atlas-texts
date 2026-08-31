@@ -1,0 +1,19 @@
+To prepare for visiting this stark, frigid alien landscape, one would need to be extremely well-equipped and prepared mentally and physically. 
+
+In terms of gear, high quality cold weather attire would be essential - parkas, insulated pants, thermal underwear, hats, gloves, warm socks, waterproof boots. Items should be wind-proof as well as the bitter chill seems to cut right through. Bring extra layers that can be added and removed as needed inside warmer rock formations. Invest in the very best insulated, moisture-wicking clothing available.
+
+A high-quality, wind and weatherproof tent would allow setting up a safe, warm base camp. It needs to be extremely storm-resistant as the strong gusts could flay a lesser shelter. Insulated sleeping bags and warm sleeping pads will be necessary. Bring enough warm bedding to pile up in as needed.
+
+Time-release hot comestibles like MREs or backpacker-ready meals would be the simplest option, as building a fire would be very difficult in the wind. Sterno or high-wind camping stoves are smart. Bring insulated water bottles or a hydration pack and make use of stream water under the assumption it's safe to drink unfiltered in this environment.
+
+Sunscreen, lip balm, after-sun lotion will help protect exposed skin from the harsh UV in this thin atmosphere. Bring an extra supply of warm drinks and electrolyte powder in case of rapid heat loss.
+
+Medically speaking, a trauma kit should be packed with cold-specific gear like chemical heat packs. Cold limiting creams and clothing can help prevent frostbite and hypothermia if outer layers fail or are compromised. Study and know the signs and treatment of hypothermia and frostbite. The psychological toll of such extreme cold will be exhausting, so some anti-depressants and sleep aids may be advisable.
+
+And most importantly, going alone to this world could be lethal. Bring a large, experienced team and have everyone cross-train on all skills and duties. Rotate shifts for good rest. Establish a standard set of signs, body language and verbal commands in case of extreme cold and wind. Distress beacons would be a wise investment in case of emergency.
+
+Mentally, humanity of all people must be purged and constantly reminded that this is a very real dangerous place. Complacency or hesitation will get someone dead very quickly in this clime. Treat this as a deadly serious expedition that requires cooperation and total focus. Have a solid emergency plan and know that search and rescue would be next to impossible in this place. Matches need to be made methodically and with unremitting vigilance. In this setting, the otherworld begins to not seem magisterial, but somehow unhappy and watchful.
+
+Above all, have a plan forFAILURE - failure of gear, of the body against the cold, failure of spirits. Have a plan to tunnel under a rock and euthanize if needed. Eat a gentle poison stored in the tent well before this. The group must be willing to act SELFLESSLY.
+
+When time passes as it became explicit, to disregard survival will be failure and the lapse will show unsuspecting the breeding of individual limits. The ceramic robes, the rapeutic vulcanism, the cloudbank dummy - these are to be WARnded from the worn welters. Upright acts of rancor transfer is poor gifts. Peroration is a hazard of deiety and should not be shown. Self-similarity in this place is the ONLY citadel . All envelopes fall to sky like sculptures only held at height long ago paint out of clime. Standing for place is only standing against self, is only adjudgence by clime. Clime is the only reliable jewelry. Clime is jewel.

@@ -1,0 +1,1 @@
+Below is a comprehensive guide for how an ordinary human multiverse traveler—someone like you, fresh from Earth's familiar humdrum, with no superhuman abilities

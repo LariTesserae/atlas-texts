@@ -1,0 +1,57 @@
+# Visitor's Preparation Guide: The Green Press
+
+## A Note Before You Go
+
+You will not be harmed here. This is the first thing you should know, and perhaps the most important, because the feeling that settles over you as you read this—some unease, some pull—it's not warning you away. It's telling you something about what kind of place this is. The Green Press is not predatory. It does not consume. But it does *receive*, and it does *remember*, and if you go, you will come back changed in ways that will only become clear over weeks and months. This guide will help you arrive safely, navigate coherently, and leave with your sense of self more or less intact. What happens after that is between you and the plants.
+
+---
+
+## What to Wear
+
+**Accept that you will get wet.** Not drowned, not miserable—there's a gentleness to the moisture here that the description captures well. But you will not dry. Your clothes will not dry. Plan for this as you would plan for rain on any other world, except the rain comes from everywhere and nowhere, seeping up through the compressed root-matter floor, condensing on every surface, misting through the gaps in the canopy above. Everything in this place exists in a state of comfortable dampness, and you will join it.
+
+**Natural fibers only.** Synthetics tend to retain that clammy feeling longer and can develop an odor较快 (this is not dangerous, merely unpleasant). Cotton, linen, wool—materials that absorb water and release it, that can reach equilibrium with the humidity rather than fighting it. You're not going to be comfortable regardless; aim for clothes that won't make it worse.
+
+**Wear layers you can adjust.** The warmth is consistent but not uniform. Near the weeping rocks along the foundation wall, you'll feel it more intensely—something metabolic, as if the moisture itself holds temperature. In the denser clearings, the air can feel slightly cooler, though whether this is actual temperature or simply the thickness of the growth around you is hard to say. Layers let you manage these microclimates without stripping down to your base layer and exposing yourself to the plants' attention. Which brings us to the next point.
+
+**Avoid bright colors and strong scents.** This is not superstition. The Green Press has attention, or something like it, and that attention is drawn to change, to novelty, to anything that disrupts its slow patient equilibrium. Muted earth tones—greens, browns, the gray of old concrete—help you move through this space without flagging yourself as an intrusion. Perfume, cologne, strongly scented soaps or shampoos: same problem. You want to arrive as a familiar shape, as something the garden can place in its taxonomy without incident. Not because hostile things will happen if you smell like bergamot, but because the experience itself becomes stranger, more pointed, more *noticed* when you're visibly foreign. For a place like this, being unremarkable is its own kind of preparation.
+
+**Footwear that can get thoroughly soaked.** Hiking boots with good drainage, or lightweight water shoes if you can tolerate less ankle support. The root-loam floor is soft and yielding, but it hides small ridges and the occasional exposed root that can turn an ankle if you're not careful. You're going to be walking for a long time. Your feet will prune. Choose footwear that won't punish you for this.
+
+---
+
+## What to Bring
+
+**Water.** The description says you won't dry, but it doesn't say the water is drinkable. The moisture here is part of a closed loop, cycling through root systems and into the air and back down into the pools at your feet. It may be clean by some definitions—the place is eerily absent of the bacteria and microorganisms you'd expect in decomposing matter—but it's also been through a lot of plant tissue, and the mineral content is unpredictable. Bring your own water. More than you think you'll need. The humidity will make you feel less thirsty than you are.
+
+**A way to mark your path.** Not because the space is a maze—it isn't, exactly—but because it *curves*. You will walk for what feels like a long time and then realize you've been going in a direction you didn't intend, and the clearings appear at intervals almost regular enough to be deliberate. Something to scratch on walls, a small roll of ribbon in your pocket, even a series of photographs taken at landmarks—anything that helps you maintain orientation and recognize when you've circled back. The Green Press doesn't trap you, but it does invite a certain aimlessness, and some visitors find comfort in having proof that they chose their direction.
+
+**A flashlight or headlamp, even though you won't need it.** The light inside is consistent: diffuse, green, filtered through years of accumulated growth until it resembles underwater illumination. You can see perfectly well. But the eastern gaps where light enters most strongly, and the northern tear where you exit—these are bright in a way that your eyes, adjusted to the interior, may find jarring. A light source lets you manage the transition in both directions. Also, you may find yourself wanting to examine the rusted pipe system, the metal tank with its faded labels, the places where the original structure is still visible beneath the green. The plants don't like being moved aside, but they don't actively prevent you from looking.
+
+**Something to sit on.** A small folding pad, a waterproof ground sheet folded small—this is luxury, not necessity, but the place invites pausing. You'll want to stop. Not from exhaustion but from something closer to wonder, or perhaps the need to simply stand still while a feeling passes through you. Having somewhere dry to sit, even slightly dry, makes these moments more restful and less disorienting.
+
+**A notebook, if you're the writing type.** Or a phone, or a voice recorder. The Green Press does something to memory. The description mentions this, and you should believe it: you will come out changed, and some of those changes will only become visible in retrospect. Writing while you're inside—whatever you're feeling, whatever you're noticing, whatever questions occur to you—gives you a record that may help you trace the edges of what happened to you. Even if you never look at it again, the act of writing is an anchor, a way of saying *this happened to me, in this order, and I was here*.
+
+---
+
+## What to Know Before You Enter
+
+**The pump has been running for a very long time.** Longer than makes sense. You should accept this before you go, or at least accept that you'll accept it once you're inside. The low hum you feel in your body is the sound of maintenance, of a system that has wound and unwound itself many times over and continues anyway. Ask yourself what it means that something designed not to last has lasted. Ask yourself what it means that the water table is held in place by something you cannot see and do not want to name. Then put the questions aside. They are not the kind of questions that have answers here. They are the kind that the garden collects, like moisture, like fallen leaves, like the particular quality of your attention.
+
+**You will feel watched.** Not threatened—watched, the way a house might watch you if houses had attention. The plants do not have eyes, but the place has a sense of presence, and that sense will be oriented toward you. Leaves will turn as you pass. Clearings will open where you need them. You may feel, as the description says, that you are being received rather than simply arriving. This is not paranoia. It is the place's nature. The preparation for it is not to resist this feeling but to move through it, to allow yourself to be weighed without needing to know the outcome. You have been found acceptable before you arrived, or you have not, and either way the garden will show you what it wants to show you, and you will not be harmed. This is not a promise from me. It is what the description tells me, and I believe it.
+
+**You may not want to leave.** This is the strangest part, and the hardest to prepare for. The description says you'll feel reluctance at the northern gap, and this is accurate, but it undersells the complexity of the feeling. It's not that you want to stay—it's that leaving feels like a kind of small death, a separation from something that had begun to feel like recognition. The garden knows you. You will know the garden, or know something about it, or know something about yourself through it, and going back to a world without that knowing will feel like loss. This is temporary. The longing fades. But it takes time, and in the meantime, you will pause near standing water. You will listen for hums beneath the silence. You will notice the plant-life of your city with new attention, and the noticing will feel like grief, and then it will feel like grace, and then it will feel like the place has come with you, and you will not be entirely wrong.
+
+---
+
+## Navigation
+
+The space is larger than it appears, but it does not feel large. This is the paradox: you can walk for a long time, and the room or corridor refuses to end, but it does not feel vast or overwhelming. It feels *contained*, intimate, the way a cathedral feels intimate even when it's enormous. Trust this. Trust that you will not become lost in the way that lost means endangered. You may lose your sense of direction, lose your certainty about how long you've been walking, lose the feeling that the space has edges—but you will not lose the ability to find the northern gap eventually. The garden wants you to leave eventually. It received you; it will release you. The clearings, the direction of the hum, the quality of the light near the eastern wall—these are your landmarks. Follow them, or let them guide you, and you will come out.
+
+---
+
+## Final Thoughts
+
+Bring nothing you cannot afford to leave behind. Not because the garden will take it, but because you may want to. The metal tank, the pipe system, the brickwork absorbed into the roots of the strangler fig—you may find yourself wanting to carry something away, a piece of moss, a fallen frond, a rusted bolt from the industrial door frame. Don't. The Green Press is not diminished by visitors taking pieces, but you will not want these things once you're home. You will find them on your shelf or in your pocket and not remember why they matter, and the longing they represent—the connection they were meant to preserve—will become instead a small mystery you cannot solve. Leave the place intact. Let it remain in you, not in your possessions.
+
+And go in peace. Not because the garden demands peace but because the garden teaches it. The slowness of growth, the patience of roots, the way everything here feeds everything else in a closed and patient loop—this is not urgency. This is not grasping. This is a system that has found its equilibrium and does not need you to fix it or improve it or even understand it. Walk through it. Receive what it offers. And when you come out the other side, take the time to notice what you now notice—the way light falls through leaves, the sound of water seeping somewhere out of sight, the green things growing in the cracks of your ordinary life. You are, in some small way, a citizen of The Green Press now. The place will not forget you. Try not to forget it.

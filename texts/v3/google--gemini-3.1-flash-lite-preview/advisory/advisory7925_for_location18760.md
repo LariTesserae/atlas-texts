@@ -1,0 +1,26 @@
+To visit the Spire-Basin is to enter a place that has already finished existing. It is a museum of the end of time, where the fundamental laws of entropy have simply resigned. If you are planning an excursion to this silent, static plateau, you must understand that you are not a traveler; you are an intruder in a room where someone is trying to sleep.
+
+Here is how you must prepare.
+
+### 1. Physical Preparation: The Internal Anchors
+Because the atmosphere refuses to vibrate, your body will eventually rebel against its own internal noise. Your heartbeat, clicking joints, and the rush of blood in your ears will feel increasingly violent, as if you are tearing the fabric of the location every time you breathe.
+*   **Acoustic Insulation:** Do not bring noise-canceling headphones; they will isolate you in a way that risks psychological dissociation. Instead, bring a **rhythm-sync device**—an analog, mechanical metronome worn against your chest. You need a constant, external cadence to override the "vulgarity" of your biological rhythm. 
+*   **The Dust Mitigation Suit:** The "moisture" of the Basin is a charged silicate frost. It is not dust in the traditional sense; it is a memory-material that clings to porous surfaces. You need a suit made of **non-reactive, high-density polymer** (something devoid of grain or texture). If the dust finds a seam, it will settle into your fabric and begin the process of "mimicry"—your clothes may begin to take on the hardness of the floor, leaden and immobile.
+*   **Vestibular Stabilization:** Because there are no shadows and no depth perception, the Basin looks two-dimensional. You will experience profound vertigo within minutes. Bring a **depth-compass**—a laser rangefinder that provides constant digital feedback on distance. You need to read the numbers, because your eyes cannot trust the landscape.
+
+### 2. Behavioral Protocols: The Etiquette of Equilibrium
+The Spire-Basin is in a state of delicate, crowded stasis. You are walking through millions of years of suspended motion.
+*   **Do Not Displace:** You must move with the grace of a ghost. The creatures are packed in infinite layers; if you move too quickly, you create a "vacuum of presence" that the landscape will try to fill. If you stir the dust, you disturb the memory-print of the fauna. Move slowly enough that the air pressure does not change as you pass.
+*   **Avoid Focused Observation:** The reality breakdown—where textures bleed from creature to ground—is triggered by the observer’s intent. If you stare at the obsidian beetles long enough to classify them, you are inviting them to anchor themselves into your reality. **Look through things, not at them.** Keep your gaze unfocused, scanning the horizon rather than the details.
+*   **The Hand-Anchor Protocol:** You will see the small cairns. Do not touch them. Do not move them. Do not add to them. These are not just stacks of rock; they are the "tethers" of the vanished society that lived here. They are the only things in the basin that have not surrendered to the stasis. If you disrupt a cairn, you could inadvertently "un-anchor" whatever remnants of that society are still clinging to this dimension.
+
+### 3. The Pilgrimage to the Hut
+The shale hut is the only place where the "weight" of the place is concentrated. You will feel an overwhelming urge to pray, to apologize, or to start spinning the bone spindle.
+*   **The Mental Shield:** The psychic weight of the hut is essentially the feeling of a "finished life." It is profoundly depressing, not in a way that makes you reach for help, but in a way that makes you realize that your own life—with its messy variables, problems, and future—is an exhausting, unnecessary complication. You will want to stay. You will want to sit down in the dust and let your own heartbeat stop, believing that if you do, you will finally join the eternal, quiet flow of the Basin.
+*   **The Exit Threshold:** Always keep a "Hard-Return" beacon on your person. Do not set it to a timer. Set it to a **Pulse-Trigger.** If your heart rate drops below a certain threshold—indicating you are beginning to succumb to the Basin’s stillness—the device should shock you back into a high-adrenaline state. You cannot stay in the Basin; it is not a place for the living.
+
+### 4. What to Bring Back (Or Leave Behind)
+*   **Do not take souvenirs.** Anything you take from the Basin—a fragment of bone, a handful of dust—will carry the "refusal to vibrate" with it. It will deaden your home, soak up the sound of your living space, and slowly turn your surroundings into gray, motionless pumice.
+*   **Preparation Mantra:** "I am the variable. I am the change. I do not belong in the settled." Repeat this to yourself. The moment you stop believing that your presence matters, the Basin will incorporate you. You will become part of the carpet, another six-legged silhouette pressed forever into the silicate floor, waiting for a movement that will never come.
+
+**Final Warning:** If you see a creature shift its position and the ground beneath it *does not* hold the imprint, leave immediately. That is not a natural inhabitant; that is a scavenger from another dimension that has learned how to navigate the stillness. It is the only thing here that is still hunting.

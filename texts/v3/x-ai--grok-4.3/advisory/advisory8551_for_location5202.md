@@ -1,0 +1,26 @@
+To step onto this plateau as an ordinary human is to enter a single vast organism that has forgotten how to stop metabolizing. Preparation must therefore treat the body as a foreign object the environment will immediately try to dissolve, warm, and listen to. The goal is not to conquer the dark or the wet but to become legible to them without becoming food or noise.
+
+### Bodily and Sensory Conditioning
+Spend weeks beforehand sleeping in environments that are both warm (30–32 °C) and at 95–100 % humidity so the constant film of condensation on skin and clothing does not produce psychological panic. Train the ears and skin: practice locating moving sources in complete darkness using only low-frequency vibration and air-pressure shifts. Simple bone-conduction headphones playing a steady reference tone will help you notice when the plateau’s own 4–8 Hz engine thrum changes around you.
+
+Your eyes are almost useless here. Any bright light will turn the faint green seams and the bioluminescent leaf glyphs into blinding after-images and will advertise your location to every pressure-sensitive creature for hundreds of meters. Carry only filtered headlamps (amber or deep red, <5 lumens) and learn to keep them off most of the time. Night-vision devices that amplify the existing catalytic glow are better than white light; they let you read the faint geometry of rounded ridges without erasing the vegetation’s own signals.
+
+### Moisture and Surface Management
+The rock weeps continuously and reabsorbs within hours, so every surface is either slick or already beginning to film again. Choose footwear with soft, high-friction soles (think climbing approach shoes rather than stiff boots) and gaiters that prevent water from running straight into your cuffs. All fabrics should be thin, synthetic, and quick-drying; cotton becomes a cold sponge even at skin temperature. Pack small, quick-evaporating towels and a lightweight hammock or suspended pad—never sleep directly on the stone. The shallow bowls that look like resting places will drink the warmth from your body and then refill around you.
+
+### Acoustic and Vibrational Etiquette
+The entire plateau hears through the stone and the mist. Any sharp sound (zipper, spoken word, snapping twig) travels farther than you expect. Move in a deliberate, rolling gait that matches the low-frequency pulse already present; many of the larger fauna time their own migrations to that rhythm and will treat an arrhythmic newcomer as either threat or prey. If you must speak, do it in sub-vocal tones or through pre-arranged clicks transmitted by tapping on rock rather than air. Carry a small ceramic or wooden clapper you can use to answer the infrasonic calls of grazing herds; a roughly correct reply will often cause them to flow around you instead of through you.
+
+### Flora Interaction
+The vein-ribbed leaves are thin enough to tear with a fingertip yet dense enough to hide sinkholes and rail remnants. Do not cut paths; push them aside slowly so the disturbance ripples propagate like readable script rather than alarm. The bioluminescence is a pressure response, not a threat, but sustained glowing can draw small, fast-moving chitinous hunters. If a patch begins to brighten underfoot, freeze for three or four heartbeats until it fades.
+
+### Industrial Remnants and Vapors
+The intake towers, trestles, and dome rims are not inert. They still exhale metallic aerosols warm enough to feel on the face. A simple particulate mask (P100 or better) is essential; the vapors carry both machine oil residues and dissolved minerals that will coat lung tissue. Never enter a vent column directly—the sudden temperature jump can trigger disorientation, and the sweeter scent is a sign the local root networks are feeding the engines at that moment. Map the locations of the largest relics by the change in vibration they produce; they function as acoustic landmarks in the otherwise featureless dark.
+
+### Fauna and Movement
+Assume most creatures are navigating by the exact pressure signature your footfalls and breathing create. Travel at the same slow, continuous speed as the grazing mats rather than in bursts. If you hear a sudden wet tearing sound that stops, do not investigate; that is the acoustic signature of a hunter that has already shifted its attention. Carry a single, low-mass deterrent that produces a broad-spectrum vibration (a spring-loaded device that thumps the stone once) rather than anything that flashes or screams.
+
+### Psychological and Return Considerations
+The plateau has no horizon and no true silence. After roughly six hours the absence of visual edges begins to erode distance judgment and short-term memory. Mark your path with small, inert ceramic tags that neither glow nor ring; they are the only objects the local metabolisms do not immediately incorporate. Before departure, spend at least one full sleep cycle back in ordinary gravity and daylight; the body will otherwise continue expecting the plateau’s slow pulse for days afterward, producing vertigo on ordinary flat ground.
+
+In short, arrive already half-dissolved into the conditions: warm, wet, acoustically transparent, and moving at the speed of water seeping through basalt. The plateau will then treat you as one more slow exchange of heat and motion rather than an intruder.

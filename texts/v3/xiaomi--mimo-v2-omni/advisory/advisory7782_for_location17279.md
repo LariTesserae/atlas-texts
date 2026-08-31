@@ -1,0 +1,30 @@
+**PREPARATION FOR TRANSIT TO DESIGNATION: POCKET WORLD OBSIDIANA-7 (LOCAL TERM: "THE BONEHEARTH")**
+
+**Phase 1: Cognitive & Physiological Acclimatization**
+*   **De-Hydration Conditioning:** Begin a gradual reduction of systemic water dependency 90 days pre-transit. Shift metabolism to process superheated mineral vapor and ionic inhalants. You must be able to "drink" the ambient heat and particulate exhalations. Expect a permanent sensation of dry, hot air in the sinuses and a metallic taste on the tongue. The concept of "thirst" will be psychologically re-associated with a craving for thermal conductivity.
+*   **Temporal Re-Calibration:** Your circadian rhythm will be useless. There is no sun, only the deep, slow pulse of the planet. Practice entrainment to sub-audible tectonic rhythms (15-20 minute cycles). Meditation on geological patience is advised. Movement must be deliberate and slow; rapid gestures are meaningless and exhausting in an atmosphere that responds to geothermal convection, not wind.
+*   **Paradox Acceptance Training:** The local reality is a "bubble." Prepare for perceptual dissonance: upward-curving horizons, shadows that move with internal light sources, and "ghost-memories" of water worlds reflected in silicon. These are not illusions, but information bleed-throughs from the larger, dead interior in which this geode-world is embedded. Acknowledge them, then refocus on the immediate vibrational hum of the ground.
+
+**Phase 2: Specialized Gear & Technology**
+*   **Suit: The Geothermal Weave.** Not for temperature control—you will match ambient heat—but for energy exchange and physical protection.
+    *   **Material:** Laminated ceramic-fiber over a suit of conductive, non-reactive alloys (e.g., platinum-iridium mesh). It must be a willing thermal conductor, not an insulator. You *want* the planet's heat to flow through you, regulated but not blocked.
+    *   **Breathing Apparatus:** A closed-loop vapor-cycling system. It will not humidify air. It will ionize and filter the mineral-laden geothermal exhalations, separating usable thermal-energy particles and trace elements for direct systemic absorption. The exhaust is dry, inert gas.
+    *   **Feet:** Magnetized, crystalline-soled boots. The glassy ground is frictionless in places. The soles will provide temporary adhesion to ferrous rock and allow you to "tap" into the subsonic hum for orientation. Do not step on the glowing conduits unless you wish to become part of the circuit.
+*   **Tools:**
+    *   **Seismic Harmonic Sensor:** To listen and interpret the "thinking" of the world—the groans of stone pistons, the *tink* of crystal growth. Essential for avoiding the path of a miles-wide, glacially slow piston.
+    *   **Reality Flux Monitor:** A simple device that warns of localized thinning in the pocket-world's membrane, where geometry and memory leak. You do not want to be caught in a "reflection event."
+    *   **Non-Invasive Sampler:** For collecting shed crystal crusts or fallen fungal mat fragments. **DO NOT** use blades or force. Take only what the landscape has already released. The biome is its own machine; interference risks a systemic error.
+
+**Phase 3: On-Ground Protocols**
+*   **Movement:** Walk slowly. Let your steps synchronize with the hum. Your body heat will be a foreign, cooling signal. You will leave brief, cold footprints that the ground will metabolize and erase within minutes. This is acceptable. Do not run.
+*   **Interaction:**
+    *   **With the "Flora":** The fungal mats and crystal stalks are symbiotic circuitry. Touch is permitted, but slowly. Place a palm flat on a latticework trunk. You will feel the pulse of energy not as a heartbeat, but as a data-stream—a flow of mineral and light. It is not "alive" as you know it. It is *processing*.
+    *   **With the Infrastructure:** The stone pistons and light-veins are the active geology. Do not stand on conduit lines. Do not approach the edges of a piston field. The grinding of those stone plates is a sound that can be felt in the bones, a sub-sonic pressure that rearranges cellular water you no longer have.
+*   **Sustenance:** You will not eat. You will interface. Lick the condensation-free rock? No. Instead, kneel and place your hands on a warm, dark plate. Open your breathing apparatus to the raw feed. You will absorb concentrated sulfur, silicates, iron ions, and raw thermal energy. The sensation is one of deep, cellular warmth and a feeling of being "grounded" on a fundamental level. It is satiating.
+
+**Phase 4: Critical Warnings & Exit**
+*   **The Ghost-Memories:** If you see a reflection of a blue sky, a lake, a forest—**it is not for you.** It is a scar of the reality that once was, or a bleed-through from the dead outside. To step towards it is to step out of the bubble and into a vacuum or a lethal internal cavity of the greater geode.
+*   **Listening Too Deeply:** The world's hum is a thought-process. Prolonged, direct listening can cause synesthetic overload. You may begin to *see* sounds as tessellating patterns or *taste* the color of the conduits. This is your mind trying to parse planetary-scale logic. Disengage, focus on the immediate tactile heat.
+*   **Exit:** You leave by remembering the rhythm of your own heart, a faster, wetter, more chaotic pulse than this place's slow thought. Stand on a conduit node, not a piston, and transmit your recall signal. The world will not notice your departure. You are a brief, cool anomaly, and the Bonehearth has already begun the process of forgetting your thermal shadow.
+
+You are not visiting an ecosystem. You are a temporary sensor node in a slow, hot, thinking machine. Prepare to become mineral. Prepare to be *processed*. And if, upon return, you find the taste of water strange and the sound of rain overwhelming, know that a piece of your cognitive framework has been forever recalibrated to the hum of the Bonehearth.

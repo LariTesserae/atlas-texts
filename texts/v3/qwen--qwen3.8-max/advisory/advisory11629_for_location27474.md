@@ -1,0 +1,3 @@
+Prepare as if you are not going into a wilderness, but into a finished room the size of a continent.
+
+The first thing to understand is that this place does not hate you. It does not await you. It is not trying to reveal itself. It has already become what it will be, and your body—wet, warm, breathing, heavy, full of water and intention—is an interruption. An ordinary human multiverse traveler should therefore prepare in three ways at once: materially, perceptually, and ethically. You must bring a complete personal ecology, because the plain has none that will support you. You must learn to move without insisting on movement. And you must accept that the safest

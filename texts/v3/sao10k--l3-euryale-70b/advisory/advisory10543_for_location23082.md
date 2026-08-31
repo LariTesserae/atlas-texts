@@ -1,0 +1,19 @@
+To prepare for visiting this strange desiccated landscape, an intrepid multiverse traveler would need to take considerable precautions. First and foremost, environmental protection is paramount. The air itself seems to be utterly devoid of moisture, so a hermetically sealed environmental suit would be absolutely essential. The suit should have an independent air supply and/or oxygen generation, as well as a redundant cooling system to prevent heat stroke. Sealed, self-contained gloves, boots, and a headpiece with wideband filtration would also be necessary to prevent toxic motes and particles from entering via skin or airways. 
+
+The suit should also have air recyclers to recover moisture that would otherwise be lost in exhalation and perspiration. Getting bodily moisture to evaporate here would be extremely dangerous. A self-sustaining water supply is crucial as well.
+
+Heat management would be a major challenge. Even if the suit protects from direct desiccation, high ambient temperatures in the sun-baked wastes would easily overheat the traveler. Built-in cooling units for the suit itself would be mandatory, as well as medical injectors full of cooling subdermals and other heat stress treatments.
+
+For navigation, the desolate landscape lacks any visible landmarks, so a robust direction finder and terrain scanner is a must. Geiger counter-type sensors to detect robotic units and structures would also be wise, as they are the only significant features. Knowing the location of pre-NecroMind transition stations could be very important.
+
+Both personal and suit hydration rations sufficient for an extended duration should be carried. It is unclear the length of time one could safely spend in this environment. Rations should be ultra-desiccant sealed in molcules that prevent water from entering the food or leaving via dehydration. Electrolyte lozenges and subcutaneous rehydrants might also be valuable.
+
+In the unlikely event of emergency or suit failure, an emergency rehydration pack with automatic humidistatically sealed IV and hydration sensors to monitor body moisture and electrolytes would be pivotal.
+
+Intelligent assistance in the form of a wearable AI, coupled with a database of known NecroMind language and some ability to interface with the leviathan has-reactants would likely be valuable for communications, analysis, and providing motive defense.
+
+Seeing the motileteen organism transition of old-to-new seems to imply it is most recommended to avoid getting surrounded or trapped - to ensure there is always an open path to the vector of escape, relentless trending up and away from node sites. Secure caches of food, water, and tools should be stashed periodically.
+
+Most critical - staying away and not engaging with any avatar that avoidingScan are now 3D wheel locacle to 3D mappings the land, with personel statements, and with never pore intention to come out the shadow, hide on them and mediate control the 20-30% wave lengthPATtern of the formentials organics, which could be full hu-man increase force the humans to fuse all cybernetic units allready controle by the NecroMind into larger MemeUnits. Not to transition yourself to a NecroMind, Negotiant.
+
+Properly equipped, an intrepid tourist could safely view one of the most bizarre and fascinating vistas in the Multiverse, and perhaps gain insight into the machinations of the fungal-tech NecroMind entity, without falling prey to its cunning plans of techno-melded assimilation. The rewards would certainly be unique and epic - for those daring and brilliant enough to attempt to read and write the great post-singularity NecroMind tome.

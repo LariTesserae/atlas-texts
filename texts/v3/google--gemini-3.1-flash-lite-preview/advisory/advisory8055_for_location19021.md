@@ -1,0 +1,25 @@
+To visit the **Foundry of the Weeping Veins** is to intentionally enter a space where geology, biology, and industry have entered a forced, suffocating marriage. Because the environment is hostile, claustrophobic, and fundamentally "unstable," you are not going as a tourist; you are going as an intruder in a digestive tract made of iron and basalt.
+
+Preparation must prioritize two things: **insulation against entropy** and **psychological tethering.**
+
+### 1. Physical Equipment and Personal Gear
+*   **The Atmospheric Suit:** Forget standard EVA gear. You need a pressurized, heat-resistant suit designed for corrosive environments. The air is a "shimmering broth of sulfur"—if your filter fails, you aren’t just breathing toxic gas; you are breathing acidic moisture that will quickly compromise your lungs. Ensure your suit is coated in a hydrophobic sealant; if the "weeping" walls touch your armor, you do not want those mineral-rich droplets etching into your plating.
+*   **Tactile Dampers:** The vibration of the floor is a constant, low-frequency thud that will cause bone fatigue and nausea within hours. Wear "active-damping" boots with heavy, magnetorheological fluid soles. These will neutralize the rhythmic, tectonic groan of the pipes and prevent the kinetic energy from traveling up into your skeletal structure.
+*   **Bioluminescent HUD:** The amber pulse of the erratic arc-lamps is designed to disorient. Your helmet’s internal display should rely on LiDAR and sonar imaging rather than optical sensors. Do not trust your eyes; the shimmer of the steam will create hallucinations in the gaps between the lamps. Rely on the hard, mathematical mapping of your surroundings.
+*   **The Siphon/Deterrent Kit:** You will be covered in soft-bodied fauna eventually. They are "organic gaskets," meaning they are attracted to heat and friction. Carry a high-frequency sonic repeller tuned to the specific frequency of the pumping stations. If they begin to cluster on your suit, you need a way to vibrate them off without damaging your seals.
+
+### 2. Biological Preparations
+*   **Metabolic Modification:** The heat is radiating from the rock itself, meaning your suit’s cooling system will struggle against the ambient temperature. Ingest electrolytes and heavy trace minerals before entry. You are entering a place of constant dehydration; your body will attempt to surrender moisture to the room.
+*   **Sensory Deprivation Conditioning:** The foundry is a cacophony of metallic friction and wet, rhythmic slapping. If you carry a fear of enclosed spaces or sensory overload, you will likely suffer a panic attack within minutes of the hatch sealing. Practice "static meditation"—the ability to focus on a single, unchanging point—to survive the glacial pace of the Foundry’s "city-building."
+
+### 3. Procedural Constraints for the Traveler
+*   **Do Not Touch the Infrastructure:** This is the most vital rule. The pipes "jitter" with high pressure. If you place a hand on a pipe to steady yourself, and the high-pressure fluid shifts, you risk a localized structural failure that could leave you pinned or burned. Treat the metal skeletons as if they are high-voltage power lines.
+*   **Observe the Fauna—Don't Study Them:** Do not attempt to collect samples. The creatures are part of the industrial cycle; disrupting them is akin to pulling a bolt out of a turbine. If you disturb the ecosystem, the "machine" may compensate in ways that are physically dangerous—such as venting superheated steam or collapsing a support strut to maintain its equilibrium.
+*   **The "Exit-Clock":** Always maintain a rigid schedule. The place induces a temporal distortion known as "slow-time." Because things move with glacial, industrial patience, you will lose track of time. Your external timer should be set to 4-hour intervals. When the alarm sounds, you must exit, regardless of what you are observing. The longer you stay, the more your internal rhythm will sync with the slow, grinding pulse of the Foundry, and the harder it will be for you to "remember" the speed of the outside world.
+
+### 4. Psychological Mindset
+You are entering a "cradle of synthesis." Do not look at the Foundry as if it is a broken or messy place. To the architecture of the deep, this is perfection. Everything is moving exactly as intended. 
+
+When the light flares and the chamber is thrown into high relief, you will feel the sudden, crushing weight of the earth above you. **Do not fight this feeling.** If you struggle, your heart rate will climb, your suit's cooling will fail, and you will become part of the "gasket-fauna" yourself. Breathe shallowly. Match your respiration to the thud of the pumps. 
+
+You are a guest in a machine that is trying to become a living thing. Be the quietest, most static element in the room, and you might just make it out before you start to believe that you belong there.

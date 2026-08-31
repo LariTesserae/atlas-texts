@@ -1,0 +1,47 @@
+Prepare as though you are entering a clock that has finished telling time but refuses to stop ticking.
+
+**The Breath Before You Arrive**
+
+This is not “high altitude” in the ordinary sense. The air is not merely absent; it is *present* as a kind of pressure, a clarity that lets every molecule announce itself. Your lungs will feel like they are drinking glass. Begin acclimatization at intermediate elevations at least ten days before arrival—do not trust a rapid ascent. The hollow will not forgive haste. Carry supplemental oxygen not as an emergency reserve but as a baseline prosthetic: a small, silent concentrator with a nasal cannula, because at this elevation your blood will whisper for it before you feel the panic. Take acetazolamide, yes, but understand that the danger here is not mountain sickness alone; it is the *illusion of transparency*. The air is so clear, the light so revealing, that you will feel invincible right up until you are not. Move as if underwater—slow, deliberate, with long pauses. Your heartbeat will sound enormous in the silence; learn to hear it as information, not alarm.
+
+**Dressing for Density and Damp**
+
+You must be slim. The hollow is filled with frost-shattered needles—granite and mica-schist packed so tightly you will turn sideways to pass. A bulky expedition parka will snag, trap you, and exhaust you. Wear a form-fitting thermal architecture: aerogel-insulated base layers in synthetic silk-weight, articulated at knees and elbows, coated with a hydrophobic membrane that rejects rather than absorbs. The damp here does not flow; it *clings*. Beads of condensation form on north-facing stone and hover, suspended, before freezing into architecture. They will seek your warmth and crystallize against any exposed skin or gear. Grease your face—cheekbones, nose bridge, eyelids—with a thin layer of petroleum jelly, not to moisturize but to create a sacrificial boundary between your heat and their ice. Protect your eyes with polarized goggles that are not merely UV-blocking but polarization-intense; the brightness is clinical, originless, scattered from every pale surface. Without artificial shadow, your brain will flatten the spire-forest into a blinding plane and you will misstep.
+
+The cold is deep and permanent, but the hollow is sheltered—wind skims the rim and leaves. You do not need wind-blocking bulk; you need thermal mass that works in stillness. Heated garments are risky—batteries fail in this cold, and the silence is too complete to tolerate a mechanical hum. Rely instead on layered merino-synthetic blends, chemical warmers in pockets close to arteries, and the discipline of constant, gentle motion. Do not sit long on the stone floor; the spires settle in microscopic increments, and the cold will enter through your seat.
+
+**Moving Through the Needle-Forest**
+
+Your pack must be collapsible, frameless, worn high and tight. You are threading a ribcage of mineral form—some spires waist-high, others rising above your head, rounded and chipped by centuries of frost. Wear abrasion-resistant pants with articulated knees; schist and granite will tear ordinary fabric. Use a collapsible carbon-fiber staff—not for support alone, but as a measuring rod and a gentle probe to test whether a spire is settled or unsettled. Listen. The place is mostly absence, but if you wait, you may hear the faint high tick of a droplet freezing, or the distant, soft sound like a door closing as frost-heave shifts a column millimeters downward. Give every spire space; do not lean. They are not dead, only slow.
+
+Navigation is intuitive but deceptive. The hollow is small—forty paces across—but the density makes it feel infinite. There are no trees, no landmarks except the artifacts themselves: a low cairn of flat stacked slate near the center, no taller than a seated person; a broken ring wall, curved and interrupted; a shallow niche chipped at eye level in one wall, holding nothing but shadow and a single icicle that never falls. These are arranged with a regularity that feels measured, facing inward toward an empty center. Use them as bearings, but do not disturb them. Do not add your own stone; the coherence of the place is its strangest feature. The moisture comes without source. The light reflects without origin. The structures converse across emptiness. To alter the arrangement is to speak into a conversation you do not understand.
+
+**Water and Sustenance in a Non-Flowing World**
+
+There are no rivers. There are no pools. The water is suspended, breathing in and out of rock, transforming without traveling. You cannot drink from this place easily, and you should not try to harvest it aggressively—scraping frost is possible, but the crystals grow only millimeters overnight, and the sublimation cycle means what you collect may vanish from your container as quickly as it arrived. Carry all the water you need: at least four liters for a brief stay, more if you linger, because the dry clarity of the air will pull moisture from your breath and skin relentlessly. Your food should be dense, fatty, requiring no preparation—nuts, rendered fats, hard cheeses if your biology permits, energy blocks. Metabolism runs high in cold and altitude; do not ration aggressively. Eat before you feel hungry.
+
+If you must harvest, hold a cold metal plate near the beads on the north-facing spires; let the condensation freeze upon it, then scrape gently with a ceramic blade (metal may adhere). Store it in an insulated flask close to your body, allowing sublimation to become liquid slowly, in private. But treat this as ritual, not supply.
+
+**The Psychology of Completion**
+
+This place is not abandoned. It is *finished*. There is a difference. Abandonment implies a departure, a waiting for return. The hollow has arrived at itself. It exists in balance—erosion has given up on changing it quickly; the spires are settled; the artifacts are occasional, faint, single-buildings in a plural of absence. You will feel this. The silence is not empty but *full*—full of microscopic adjustments, of ice maintaining its form, of stone being exactly what it is.
+
+Prepare your mind as carefully as your gear. Bring one small object from your home multiverse—something with weight, texture, and narrative. Hold it when the coherence begins to feel like observation. The hollow’s structures face each other across the spire-forest in a pattern that suggests conversation without content; sitting among them, you may feel you are being measured by something that has no eyes. Maintain a journal—paper, not electronic, because screens will feel obscene in this mineral light. Write to externalize your thoughts, because in the absence of fauna, of rustle, of any other consciousness, your own mind will become deafening.
+
+Do not seek a center. The cairns face inward, but there is nothing in the middle—only you, threading between ribs of stone. Do not try to “complete” the pattern by standing in the middle. The niche holds an icicle that never falls; do not touch it. Its persistence is part of the architecture.
+
+**Light, Shadow, and Rest**
+
+There is no dusk here. The hollow is open to a bright, featureless sky, and the pale stone scatters illumination so thoroughly that shadows are ghostly, barely permitted. Your circadian rhythm will dissolve. You must manufacture darkness. Carry a low, slim bivouac shelter—silvered outside, black within, with an opaque rainfly—that can be anchored between spires with ice screws (carry your own; do not drill into artifacts). Sleep in shifts if you are not alone, but understand that solitude is the default state. The brightness is not warm; it is clinical, crystalline. Without artificial shadow, your eyes will strain, your brain will refuse to believe in time passing.
+
+Polarized goggles should come off only inside your shelter. Outside, keep them on. The reflection from every surface—ice beads, quartzite, schist—will burn your retinas with cumulative patience.
+
+**Sensory Discipline**
+
+The air smells of nothing—no rot, no growth, only the cold mineral breath of stone and the faint metallic hint of ice. Your other senses will heighten to fill the absence. You will hear your own blood. You will feel the vibration of a spire settling like a low chord in your bones. Do not play music. Do not introduce sound that claims space. The hollow permits only its own processes. If you must communicate with companions, use hand signals; voices feel like violations here, though they are not forbidden—merely inappropriate, like shouting in a library where all the books are made of ice.
+
+**Exit Without Echo**
+
+Leave the same way you entered: sideways through the needle-forest, careful not to brush the spires, not leaving footprints (there is no soil to hold them, only frost), and not carrying away stone. Ice will sublimate; rock is too heavy, and more importantly, it belongs to the coherence. The hollow will close behind you without echo. You will carry the memory of having been inside a mechanism that does not need you—precise, damp, brilliantly lit, and utterly, patiently itself.
+
+Go slowly. Dress thin. Watch the light. Listen for the tick of freezing water. And do not expect the place to notice you have left. It was never waiting for you to arrive.

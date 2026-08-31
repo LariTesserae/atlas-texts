@@ -1,0 +1,18 @@
+An ordinary human visitor should treat this place less like a destination and more like an organ they are briefly permitted to enter. Preparation begins with the recognition that the environment is not hostile so much as indifferent to the speed and fragility of human physiology.
+
+**Thermal and moisture management.**  
+The air and every surface sit at near-freezing temperatures while remaining saturated. A standard wetsuit or lightweight drysuit with integrated insulation is the minimum; the suit must allow slow crawling without tearing, because every passage is a living conduit. Bring spare gloves and foot coverings—the constant film of water will wick heat away through any gap. A small, sealed cache of chemical heat packs is useful for emergencies, though the lattice itself will eventually absorb their warmth.
+
+**Navigation and body mechanics.**  
+Ceilings are low and the lattice has no corridors in the human sense; it only has temporary channels maintained by the passage of the small, furred residents. Train yourself to move in a continuous, unhurried flow—pushing stems aside rather than forcing gaps—so the tissue can reseal behind you instead of collapsing onto your back. Knee and elbow pads are advisable. Because growth is perceptible only over decades, any damage you cause will remain visible for a long time; consider carrying thin, flexible spreaders (essentially padded tent poles) to hold space open temporarily rather than cutting.
+
+**Sensory adjustment.**  
+Vision is nearly useless. Carry a headlamp with an extremely dim, warm-red setting only for the first few minutes while you orient, then turn it off. Your eyes will adapt to the violet-grey bioluminescence, but only if you give them time—roughly the length of one slow pulse cycle. The subsonic vocalizations travel through the water-saturated matrix and into your skeleton; many people find this produces a low-grade nausea or a sensation of internal pressure. Simple foam earplugs can damp the airborne component while leaving bone conduction intact, which most travelers prefer once they realize the sound is information rather than threat.
+
+**Biological caution.**  
+The lattice maintains its temperature and activity through engineered organelles that continue functioning at low entropy. These are not sterile. A lightweight positive-pressure mask with a basic HEPA or nanofiber filter reduces the chance of inhaling active cells or their aerosols. Gloves should be nitrile or equivalent; bare skin contact is not immediately dangerous, but the cytoplasmic bridges can adhere to organic matter and begin slow exchange. Do not leave any object behind—fabrics or tools left in place for more than a few hours begin to show microscopic surface pitting as the tissue attempts to incorporate or replace them.
+
+**Temporal and psychological framing.**  
+Subjective time here runs differently. Human impatience will make the space feel claustrophobic; visitors who force a human pace exhaust themselves and damage the lattice. Plan to move at the speed of the dripping water—deliberate, repetitive, unhurried. If you begin to feel the lattice is “watching” or that passages are shifting behind you, recognize this as a normal psychological response to an environment whose processes are orders of magnitude slower than your own metabolism. A simple timer that chimes softly every fifteen subjective minutes helps some travelers maintain orientation.
+
+In short, arrive already cold, already wet, already prepared to be slow. The lattice does not need to be conquered or mapped; it only needs to be permitted to remain what it is while you pass through it.

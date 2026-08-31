@@ -1,0 +1,27 @@
+To traverse the **Cistern-City of the Verdant Weave** is to step into the lungs of a giant, clockwork garden. As an ordinary human, you are entering an environment that does not recognize your biology; it treats you as an outlier, an unintegrated particle in a system of absolute, relentless utility. 
+
+Here is how you must prepare to survive and navigate this dense, pulsing biome:
+
+### 1. Physiological Preparation (The Body)
+*   **The Copper Throat:** The taste of copper and chlorophyll suggests an air rich in mineral particulates and high-oxygen vapor. Bring a **high-filtration respirator** designed for industrial, damp environments. You do not want this "soup" settling in your lungs; the humidity is not just water, it is a nutrient-rich slurry that will cause fungal growth in the human respiratory tract within days.
+*   **Thermal Regulation:** The basin is a heat-sink. Because the city vents steam, you will experience sudden, localized spikes of high-pressure heat. Wear **a light, moisture-wicking undersuit** (synthetic, not cotton) to keep your skin from macerating in the humidity. Avoid heavy outer layers; you need to feel the vibrations of the floor through your feet to understand where the "machinery" is cycling.
+*   **Mineral Defense:** The "weeping" condensation is mineral-heavy and likely acidic or caustic enough to irritate skin over time. Keep your skin covered with **non-reactive, oil-treated fabrics**. Exposed skin will eventually feel a stinging tingle, the sensation of the city trying to "mineralize" your pores.
+
+### 2. Equipment (The Toolkit)
+*   **Footgear:** Standard hiking boots will fail you. You need **flat-soled, flexible footwear** with high-friction, rubberized tread (think rock-climbing approach shoes). The ground is a calcified sponge—it is springy, yielding, and perpetually slick. You must land flat-footed to distribute your weight, or you risk breaking through the pith "floorboards" into the pressurized circulatory veins below.
+*   **Tactile Mapping:** Since the architecture is grown, not built, there are no straight lines or corners. Traditional GPS will be useless due to the canopy density and subterranean interference. Bring a **haptic pulse-sensor**—a device that clips to your boot and reads the rhythm of the tectonic machinery. If the ground tension increases, you are walking toward a "pump" junction that is about to vent steam; move away immediately.
+*   **Vibration Damping:** The constant *thrum* of the plant-organs will cause inner-ear fatigue and, eventually, disorientation. Pack **industrial-grade earplugs, but with a center channel** to allow for equalization of pressure. You need to dampen the drone without losing your sense of balance.
+
+### 3. Navigation and Etiquette
+*   **Respect the "Slow-Motion Labor":** This city is not a place of leisure; it is a factory. The plant-valves and bark-pistons have zero awareness of human size. Do not lean on or brace yourself against "structural" bark. If you hear a high-pitched hiss, that is a leaf-valve clearing excess heat; do not stand in the line of discharge. 
+*   **Do Not Touch the Gastropods:** The slow-moving, shell-fused creatures you see are the maintenance crew. They are cleaning the conduits. They are also, effectively, living sandpaper. A brush with one will leave your skin shredded by mineral edges.
+*   **The Rule of the Canopy:** Never attempt to climb to the top tier of the canopy. The pressure is higher there, and the air-flow is designed for photosynthetic synthesis, not respiration. Stick to the “middle tiers” where the shafts of light are most consistent and the humidity is tempered by the constant filtration process.
+
+### 4. Psychological Conditioning
+*   **Abandon Urgency:** You will feel a natural, human desire to hurry—the noise and the heat will trigger your fight-or-flight response. You must override this. The Cistern-City operates on a timescale of centuries. If you run, you are more likely to trip or stumble into a pressurized fluid-vent. Move with the rhythm of the pipes—a slow, deliberate, heavy-footed gait. 
+*   **The "Living" Reality:** You must accept that the walls are watching you in a biochemical sense. You are an intruder in a digestive tract. Keep your belongings tucked in tight; anything loose—a dangling cord, a loose strap—will be snagged by the grasping, oiled-leather fronds and eventually incorporated into the architecture. You may well walk past a "wall" and recognize the strap of a watch you lost hours ago, now calcified into the trunk of a tree.
+
+### 5. Emergency Protocol
+If you find yourself in the path of a "tectonic pulse"—the moment when the ground shifts to accommodate a growth spurt or fluid reallocation—**drop to the ground and curl into a fetal position.** Do not attempt to run. The floor will turn into a fluid-like state as the roots shift. If you are prone, you will simply rise and fall with the biome; if you are standing, you will be thrown or caught in the shearing force of the opening pith-surfaces.
+
+**The Golden Rule:** Leave the city as you found it. Do not attempt to harvest the fluids or cut the valves. The Verdant Weave is a self-regulating closed loop. Disrupt one pipe, and the entire block-scale machine may begin to labor, venting massive amounts of steam or flooding the lower levels to compensate for the "injury." You are entering a clockwork god; walk softly, and do not attempt to tune the gears.

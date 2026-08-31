@@ -1,0 +1,20 @@
+You do not visit this place; you insert yourself into it, and you do so only on its terms. The crack at the summit is not a doorway but a wound that has healed around its own scar tissue, and you are a splinter trying to pass without triggering rejection. Preparation is not a matter of equipment alone, though your gear matters. It is a matter of becoming as close to inert as a living human can be. The equilibrium inside is sovereign, absolute, and hungry—not for flesh, but for stasis. Anything that moves, changes, or deviates is an irritant the pocket will eventually digest into silence.
+
+Here is how you prepare.
+
+### 1. The Approach: Surviving the Violence Outside
+Before you confront the stillness, you must survive the *Violence* of the upper atmosphere. The highest tooth is not a mountain; it is a blade aimed at the jet stream, and the crack at its breech is narrower than a thrown shoulder at its widest. You will not march up this peak. You will climb a frozen spiral of sunglare and hypoxia, where vertigo is not a sensation but the native language.
+
+**Condition yourself for extreme altitude.** The air inside the pocket is alpine and thin enough to make your head ring; if you arrive already gasping, the interior will finish you. Pre-acclimatize until you can function at altitudes where consciousness frays. Bring supplemental oxygen for the approach, but plan to abandon the tank at the threshold. You cannot fit through the breech with bulky apparatus, and more importantly, active machinery does not age well here.
+
+Cache a survival station just below the breech: a thermal shell, additional O2, and a tether anchor. You may exit the pocket stunned, temporally disoriented, or physically locked by cramp; you will need immediate warmth and rich air within arm’s reach of the exit.
+
+### 2. Encapsulation: The Drysuit as Second Skin
+Inside, there is no empty space. Every plane is occupied by a solid impasto of horny, lip-like tissue, oxidized steel, and vulcanized rubber. You will not stand. You will not sit. You will be held, pressed on all sides by a matrix that is warm, matte, faintly oily, and dry as parchment. The growth has reached the exact limit of the cavity and stopped; it will yield to your intrusion only grudgingly, and it will touch *everything*.
+
+Wear a full-body drysuit: slick, low-friction, impermeable, and compressible. No hard shells, no backpacks, no protruding buckles. The crack is too narrow, and the interior too saturated, to accommodate your gear. Everything must be strapped flush to your body or left behind. Talc the exterior of the suit so you do not drag against the growth. Seal your hair inside a lycra hood. Your hands must be sheathed in thin silicone or neoprene gloves; the organisms are oily, and their chemistry is alien. You do not want that oil on your skin for prolonged contact, nor do you want to introduce the oils of your skin to them.
+
+Beneath the drysuit, wear an insulating layer that wicks without requiring evaporation. Evaporation is a luxury of moving air, and the air inside does not stir. If you sweat, the moisture will pool against your skin, raising the risk of hypothermia and introducing biological moisture into a system that has never known a droplet of water. Fast for twenty-four hours before entry. Void your bladder and bowels completely. If necessary, use a catheter and a sealed collection bag. Urine is a fluid this place has no protocol to absorb; you are entering a sealed terrarium, and you must not leak.
+
+### 3. Respiration: Silent Scrubbers
+The atmosphere tastes of copper, camphor, and cold stone. It is thin, but more than that, it is *finished*—a sealed breath. Do not assume you can simply breathe it. The mineral bloom dusting the desiccated surfaces is not mold, not rust, but a precipitate of closed chemistry; inhaling it is unwise. The camph

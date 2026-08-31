@@ -1,0 +1,64 @@
+Before you step through the portal, understand this: the Sinkhole Basin is not merely a place of heat, humidity, and endless green. It is a steady-state universe. Nothing there changes but you. Every second you spend inside it, your body will be the only thing metabolizing, sweating, aging. The Basin will simply watch, and wait, and drip. Prepare accordingly.
+
+### 1. Descent and Ascent — The Immaculate Walls
+You will arrive at the rim. The drop is sheer. The basalt is polished to a vitreous finish, offering no handholds, no cracks, no scree. There is only one way down: you must bring your own ingress.
+
+- **Rappelling is mandatory.** A full vertical kit: harness, descender, carabiners, helmet, gloves. The wall is a flawless plane, so even a minor slip becomes a pendulum. Ascenders and a chest harness are essential for the return.
+- **Anchors are a dilemma.** The rim itself is raw, embryonic stone. Traditional cams and nuts will scar it and may slip on the glassy surface. The most ethical and reliable method is a deadweight anchor back from the edge: a large water bladder or sandbag that can be left on the rim, with a static line thrown over. Test the pull with your full weight before committing. If you must bolt, use minimal-impact removable bolts, but know that the Basin’s aesthetic is its own kind of sacred. Some travelers use a tensegrity tripod at the edge to offset the rope from the lip—advisable because a rope running directly over that polished stone can saw through under tension.
+- **Rope length:** The basin is hundreds of meters deep. Pack at least 300 meters of static line, plus dynamic rope for a lead if needed. Knot the end; there is no floor to serve as a stopper.
+- **Backup plan:** A mechanical ascender and a secondary line left in place. You do not want to free-jumar on a single rope while exhausted. The vegetation below will not support a rescue anchor.
+
+### 2. Clothing and Protection — Dressing for a Green Sun
+The light here is not directional. It does not cast shadows; it permeates. It is equatorial sun funnelled through a living diffuser, and it will scorch your retinas and skin even when you feel no direct heat.
+
+- **Eyes:** Photochromic glacier glasses are the minimum. The brightest setting is interior daylight with no shady reprieve. If you’re light-sensitive, consider a welding-goggle tint (shade 5). Bring a backup pair—humidity fogs everything.
+- **Skin:** Full-coverage, loose-fitting clothing is non-negotiable. The fabric must be UV-opaque (UPF 50+), but you’ll be drenched within minutes. Look for ultralight, hydrophobic weave that dries fast yet blocks light. A sun hoodie, long pants, high gaiter, and full-finger gloves. A wide-brimmed hat alone is useless; the radiance comes from below and beside you as well. A neck drape that tucks into your collar is better.
+- **Heat management:** The ambient temperature sits above body warmth, likely 38–42°C (100–108°F), and humidity is at saturation. Sweat cannot evaporate. Your body’s cooling system will fail. You cannot rely on passive breathability. Carry an active cooling vest—the kind with phase-change packs or a battery-powered liquid circulation system. If that fails, your exposure limit drops to perhaps 30 minutes before heat exhaustion sets in. Plan all movements around this thermal budget.
+- **Footwear:** The ground is a sponge thick as a mattress. Ankle support is vital. Wear high-top approach shoes or light boots with a stiff shank and deeply lugged soles. If you sink, you twist. Consider miniature collapsible snowshoes to distribute your weight across the root-moss mat; they will also prevent you from crushing through into unseen voids.
+
+### 3. Movement — The Living Tissue
+You do not walk in the Basin; you wade. The vegetation is a single, interlocked organism. There are no paths, no gaps. Every step will require you to press through overlapping fronds, epiphytes, and aerial roots that rebound like memory foam.
+
+- **No cutting.** The biography of this place is built on instant reabsorption. If you hack a stem with a machete, the wound will likely seal over in a sticky exudate, and the cut piece will be subsumed into the floor while you watch. The mat doesn’t rot—it recycles. Your blade will only create a momentary, scarring insult. Instead, use your hands to part foliage gently, moving through with a swimming motion, twisting your shoulders. The plants are supple, not woody; they will give.
+- **Traction and hidden traps:** The spongy floor undulates over what were once stone steps, curved walls, a circular well. The artifacts are buried shallowly. A foot can punch through a thin root bridge into a stone basin filled with condensation. Test each step with a trekking pole—preferably one with a blunt, wide basket. That pole will also help you part foliage without touching it directly, in case of irritant sap.
+- **Navigation:** There is no distant point of reference once inside. The light is uniform, no shadows to orient by. The walls may be invisible beyond a few dozen meters. Bring a compass and an altimeter watch, but also lay a physical guideline from your descent point—a luminous, non-biodegradable cord paid out as you move. This cord is your only certainty. Mark the entrance wall direction on it. Also, count your steps; the ground will erase your footprints within minutes as the mat rebounds.
+
+### 4. Hydration and Nutrition
+The air is waterlogged, but you are constantly losing fluids through sweat that drips off you without cooling. Dehydration can sneak up.
+
+- **Carry all your water.** The condensation that beads on every leaf is temptingly pure in appearance, but it is the exudate of a single vast organism. It likely contains terpenes, latexes, or other secondary metabolites that could be toxic or hallucinogenic. Assume it will cause gastrointestinal distress or worse. A portable water filter or chemical treatment won’t remove dissolved organic compounds.
+- **Electrolytes are critical.** You are essentially living in a steam bath. Bring oral rehydration salts and use them prophylactically.
+- **Food:** The plants are not edible for a human; they are built of lignin and cellulose in forms we can’t digest. There is no fruit, no seed, no animal. Your energy expenditure pushing through dense growth will be enormous. Pack high-calorie, ready-to-eat foods that don’t require cooking (you won’t want to light a stove in that saturated air, and an open flame might interact unpredictably with the plant volatiles). Gel packs, energy bars, and freeze-dried meals eaten dry will suffice.
+
+### 5. Shelter and Rest — No Night, No Floor
+The day is perpetual here. The skylight’s sun may be equatorial—perhaps it never sets, or the Basin is so deep it captures light at all hours. You will not see nightfall. To sleep, you must create your own darkness and your own dry space.
+
+- **Hammock is the only floor.** The ground organism is damp, living, and likely to grow over anything left still. A freestanding tent would crush the moss and be soaked through by morning. String a lightweight hammock between two of the sturdier lignified columns (test them by pulling; some are only vines, but many are thick as trunks). Use tree-hugger straps to avoid girdling the bark-analogues. Above the hammock, rig a waterproof tarp in an A-frame. Even with no rain, the constant condensation will drip from the canopy far above. A tarp also provides a small pocket of slightly drier, stiller air.
+- **Sleep system:** A vapor-barrier liner inside your sleeping bag is essential to keep your sweat from saturating the insulation. A bag rated for 10°C (50°F) is adequate, as the heat is constant; you might even sleep on top of it. Your main insulation will be from the bag’s UV-protective function. A blackout eye mask and silicone earplugs are mandatory. The steady drip is a metronomic whisper, hypnotic but liable to trigger auditory hallucinations if you focus on it too long.
+- **Waste:** The Basin recycles everything. Do not urinate or defecate on the mat. Carry a sealable wag bag system and pack out all solid waste. Urine can be collected in a bottle, but be careful: the ammoniac smell might trigger a localized plant response. Pack it out.
+
+### 6. Health and First Aid — The Unchanging Threat
+Medical risks here are subtle because nothing attacks you. The danger is the place’s refusal to change while your body fails.
+
+- **Heat illness:** Watch for cessation of sweating, headache, confusion. Your active cooling vest is your lifeline. If it stops working, you must begin an immediate, non-rushed retreat. Climb out before symptoms advance; the vertical ascent will be punishing, and heatstroke on a rope is fatal.
+- **Skin maceration:** Constant wetness will soften your skin, leading to painful splits and fungal infections. Dry your feet whenever you stop; apply antifungal powder preemptively. Check your fingers, the webs of your toes, groin.
+- **Contact dermatitis:** The plants likely contain defensive chemicals. Wear your gloves and long sleeves always. If you touch sap, wash immediately with water from your own supply and apply corticosteroid cream.
+- **Respiratory:** The air is thick with volatile organic compounds, possibly pollen or spores from the perpetual growth. A lightweight N95 mask or even a damp bandana over the nose and mouth can filter some of these if you feel tightness in the chest or have allergic reactions. There is no animal dander, but mould spores may be present in the mat.
+- **Eyes:** Even with glasses, the omnidirectional brightness may cause photokeratitis (snowblindness). Blink often, use lubricating drops. If vision blurs or gritty sensation starts, retreat to closed eyes inside your hammock tarp.
+
+### 7. Psychological Preparation — The Living Photograph
+The Basin is a steady-state sensory assault. It will erode your sense of time and self.
+
+- **Time dilation:** Without a day-night cycle or weather, minutes slide into hours. Wear a durable watch with an alarm, and set it to mark intervals—every 30 minutes, check your position and thermal status. Do not trust your internal clock.
+- **Monotony and pattern recognition:** The vegetation exhibits a recurring archetype, a five-fingered leaf form that repeats across phyla. Your brain will start to see faces, geometries, messages. The synchrony of the condensation drops can feel like a silent communication. This is pareidolia induced by sensory uniformity. Acknowledge it as a neurological glitch. Talk aloud to yourself, sing, or keep a voice recorder. The place’s silence can make you frightened of your own noise.
+- **Claustrophobia and agoraphobia paradox:** The basin is town-sized, yet the dense, closing foliage can feel suffocating, while the unbroken green and lack of shadows can give a terrifying sense of infinite, unstructured space. Have a focal object: a small, non-green object from your home reality—a red bandana, a blue carabiner—to rest your eyes on. It will be a point of sanity in the emerald monotone.
+- **The artifacts:** The built structures, those stone remnants, are not for you. They are part of the organism now. Do not attempt to excavate or analyze them by force. The bromeliad in the circular well, the moss-clad steps, are exactly where they belong. Observe with respect. Their presence should fill you with a sense of deep time, not curiosity to pry. They are fragments of an order that was absorbed—do not test whether the same could happen to you.
+
+### 8. Code of Conduct — Entering an Equilibrium
+You are a temporary, high-entropy intrusion into a perfectly closed loop. Move as softly as your body allows.
+
+- **Leave nothing.** No biodegradable stakes, no cotton threads, no spit. Your skin cells sloughing off are already a geological event here. Keep all waste sealed.
+- **Take nothing.** Not a leaf, not a droplet. The system has no theft; any removal creates a permanent scar in the weave.
+- **Minimize contact.** Plan your route ahead using rim observation if possible. Identify a single descent path, a small explorable radius, and a line back. Do not roam. The Basin’s beauty is best absorbed in stillness. Find a place to sit (on your pack, not the ground) and simply listen to the liquid whisper. The most profound experience is to let the place be exactly what it is: a world without entropy, in which you are the only moving part.
+
+Finally, before you go, sit on the rim for a full hour. Acclimate your mind to the light, the heat, the smell. The Basin does not reward hurry. It will still be there, unaltered, when you are ready. And when you ascend, wet and exhausted, back to the rim, you will carry its stillness in your cells for a long while. Travel well.

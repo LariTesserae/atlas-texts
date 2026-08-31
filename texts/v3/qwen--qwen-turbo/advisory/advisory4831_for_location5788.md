@@ -1,0 +1,31 @@
+To prepare for visiting the Labyrinth of Breath, one must abandon almost everything they know about the world. This is not a place to be entered with the same mindset that guides you through a forest or a city. This is a realm where the laws of nature are not broken, but rearranged — not so much as a challenge to your understanding, but as a redefinition of what "understanding" even means. To walk here is to walk through the breath of a living system, and to be a part of that system, no matter how unwillingly.
+
+### Physical Preparation
+
+**Clothing:** You will need to wear something that allows for maximum flexibility and breathability, but also serves as a barrier. The air is heavy, damp, and clinging, as if it is not just made of mist, but of something more viscous, something that may resist the body’s natural boundaries. Think of garments that are lightweight yet dense — like a second skin, but not too tight. Breathable fabrics that allow for moisture to pass through, yet hold up to the occasional touch of the bioluminescent rivers. Avoid anything that is too synthetic; the land may sense and react to it.
+
+**Footwear:** The ground is not a floor, but a living, breathing thing. The terrain is in constant flux, shifting as if the world is in the process of forming. You need to be prepared for uneven surfaces, soft mounds of moss and clay, and sudden sinkholes of water that may appear and disappear. Your shoes should be sturdy, but flexible — think of something that allows you to feel the ground, but also protects you from the possible hazards of the terrain. You may not be able to rely on traditional navigation, so consider carrying a small, collapsible staff or a long pole to test the ground in front of you.
+
+**Water and Food:** The water here is not just water. It is liquid memory, and while it may be safe, it may also carry the echoes of things that are not meant for human consumption. You must bring your own supplies. The food, too, is not conventional. The vegetation is not just plants — it is a living machine, a system, and it may or may not be edible. Do not taste anything unless you are certain. The plants are not passive. They are scanning, they are organizing, and they may be trying to communicate with you.
+
+### Mental and Emotional Preparation
+
+**Expect the Unexplainable:** This place will defy your sense of logic. You will see things that make no sense, and the world will feel as though it is watching you. You must be ready to confront the possibility that your own perceptions may be changing. Time here is not linear. The past and the future are not separate. You may feel as though you have been here before, or that you are about to be somewhere else. Do not be alarmed. This is not hallucination. It is something deeper — the land is remembering itself, and you are part of that memory.
+
+**Let Go of Certainty:** The Labyrinth of Breath is a place of becoming, not of being. It is not a static landscape, but a living system in motion. You must be willing to adapt, to change, to allow the place to shape you as much as you shape it. You may not find a clear path, but you may find a way. You may not find answers, but you may find the questions. The key is not to fight the strangeness, but to move with it.
+
+**Be Aware of the Observers:** The fauna here is not traditional. It is not bound by the same rules that govern creatures in other places. Some are translucent, some are made of light, some are made of sound. They are not dangerous in a violent way, but they are not harmless either. They may be watching you, or they may be watching something else. You must be aware of their presence, and you must be mindful of how you interact with them. Do not make sudden movements. Do not speak too loudly. The air is a medium, and it carries more than just breath.
+
+### Spiritual and Metaphysical Preparation
+
+**Carry a Mirror (or a Reflection):** The air is not just air. It is a medium, a current that carries whispers, dreams, and forgotten languages. There is a chance that you may lose yourself in the reflection of this place. Your own reflection may not be your own. You may see something else in your eyes, or you may feel as though you are looking at a version of yourself that has not yet become. A mirror — not just for your face, but for your mind — may be necessary to ground you.
+
+**Bring a Map (or a Map That Doesn’t Exist):** There are no paths, no clear markers. The terrain is in flux. But there are forms that suggest something like urban development — gears, metal plates, towers made of living bark. These are not traditional structures, but they are part of a system. You may not be able to navigate using conventional maps, but you may be able to follow patterns. The place is not just a labyrinth; it is a network. You may find that the best way to move is to listen, not to look. The low hum of the land, the vibrations in the air, and the subtle changes in the bioluminescent rivers may guide you in ways that logic cannot.
+
+**Prepare for the Unseen:** This place is not empty. It is not silent. It is filled with life, though not in the way you expect. You may not hear the creatures, but you may feel their presence. You may not see them, but you may feel their gaze. You may not understand their movements, but you may feel their intentions. The Labyrinth of Breath is a place where perception is not just a function of the senses, but of the mind, the body, and the spirit.
+
+### Final Notes
+
+This is not a place to be entered lightly. It is not a place you can simply “visit.” It is a place that visits you, that becomes part of you, that redefines what it means to be in a place. You will leave changed, not just in memory, but in being. You will carry the breath of the land with you, and it may carry you in return.
+
+So, prepare not for a journey, but for a transformation. Bring what you need, but be ready to let go. And when you step into the Labyrinth of Breath, do so with the humility of a traveler, and the courage of a being who is not yet sure what they are.

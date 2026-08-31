@@ -1,0 +1,23 @@
+**Preparation for the High Plateau**
+
+An ordinary traveler arriving here for the first time should expect a place that feels less like a landscape and more like the inside of a very large, very slow machine. The absence of a horizon and the uniform pale stone create immediate, persistent disorientation; your eyes will keep trying to find edges that do not exist. Treat the first hours after arrival as acclimatization rather than exploration.
+
+**Clothing and thermal management**  
+The temperature sits just above freezing and stays there. Breath fogs but moisture never ices. Bring layered wool or synthetic insulation that breathes; you will be walking for hours between settlements, and sweat will chill you quickly once you stop. A light waterproof shell is useful for the slow cloud banks that occasionally descend to ground level. Footwear should have stiff, grippy soles—hairline fractures are everywhere and some have been worn into shallow troughs by condensation cycles. Avoid anything with aggressive tread that might catch on the smooth interiors of older fractures.
+
+**Water discipline**  
+The veins and basins cycle on their own schedule. Carry at least two days’ water regardless; the intervals between visible moisture are long enough that you can easily misjudge them. The plant thickets release water on multi-day rhythms, but their hollow segments are not reliable sources and the leaves appear to concentrate minerals that may not be palatable. Collect from the cleanest temporary basins only after watching a full contraction cycle of nearby vegetation; this gives you a rough idea of when the next dry period will begin.
+
+**Navigation and orientation**  
+Compasses work but feel oddly sluggish. The settlements themselves are the only practical landmarks; their low walls cast virtually no shadow, so you cannot use them for orientation by sun angle. Carry a simple pedometer or count your own paces and mark them against known distances between ruins. The shearing events (where a patch of stone or a thicket briefly doubles) can erase subtle reference points you were using. Tie small, bright markers to your pack or belt and drop them at intervals when crossing open stone; they remain visible longer than memory does under these conditions.
+
+**Psychological and perceptual preparation**  
+The quiet is total except for the slow drip of returning water and the dry rustle of leaves. Most travelers find this initially peaceful and then, after a day or two, strangely oppressive. The visual doubling events produce no auditory cue and can be mildly nauseating if they affect a large area in your forward field of view. Practice looking slightly away from anything you are studying so that when an offset occurs you are not staring directly at the discrepancy. The plateau’s scale also compresses time perception; many visitors report underestimating how long they have been walking. Carry a mechanical watch that does not rely on external signals and check it against your own hunger and fatigue rather than the unchanging light.
+
+**Shelter and movement between sites**  
+The ruined settlements offer windbreaks but no roofs. A low-profile tarp or bivy that can be anchored to the existing stone courses works well. Because the cities are spaced hours or days apart, plan each leg as a self-contained journey rather than assuming you will reach the next shelter before nightfall. The vegetation thickets are too widely separated to serve as waypoints; treat them as landmarks only, not as shelter or resource nodes.
+
+**Interaction with the environment**  
+Do not attempt to alter the fractures or harvest the plants beyond taking small amounts of condensate for testing. The shearing phenomenon appears indifferent to human presence, but several travelers have noted that repeated close observation of a single patch seems to increase the frequency of events in that area. Keep curiosity measured. The complete absence of animals means there is no background movement to break up the visual field; this intensifies the sense that the stone is the only permanent thing present.
+
+In short, prepare as though you are crossing a cold desert that occasionally rearranges its own surface geometry by a few centimeters. The key skills are patience with water timing, refusal to trust visual continuity without verification, and acceptance that you will walk farther than the empty horizon suggests.

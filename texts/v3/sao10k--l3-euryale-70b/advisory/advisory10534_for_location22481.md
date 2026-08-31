@@ -1,0 +1,15 @@
+To visit this strange, primordial swamp world, an ordinary human would need to be extremely well-prepared. The dense, steamy jungle environment is filled with dangers - from giant armored insects and reptiles, to possibly hostile fungal growths, and strange unidentified saurian beasts lurking in the distance. The very earth itself seems to ooze and hyperventilate, overlapping water and plant life in a near-sentient equipoise.
+
+First, protective gear would be essential. He would need a durable exo-suit that can withstand the extreme humidity, fungal growths, and steamy conditions. The suit should be hermetically sealed to prevent respiratory exposure to the fetid air. Some form of protection for his legs, likely boots with armor plating, would provide defense against creatures in the undergrowth.
+
+Navigating this labyrinthine jungle would require a heavy-duty motion tracker and 3D mapping device to chart a path through the twisting vines and roots. Every step would bring new terrors, so a battery of optical diagnosis tools and biometrics would allow him to monitor his condition at all times. A comm unit linked to his team would be important in case of emergencies.
+
+Given the strange properties of plant and fungal life here, contamination by spores or fungi would be a constant risk. Tearing or damage to his suit would be disastrous. Advanced purification/toxin filters in the suit and a portable sterilization field generator could help mitigate this threat.
+
+As time seems to behave oddly in this world, conforming the flow of loam and spore, lacking a stabilized timepiece is not advisable. The traveler should bring an atomic analyzable chrono-token, to quantify the degree of flow change, from HomeSide ratios.
+
+There is a risk the environment itself would have a psychological effect on the traveler's mind. Copious scripts of Qi-Go and other calm-treatments in pillular format would help. These treatments would, through careful synaptick bypass and re-scripts, promote a calm headstate, while quelling the homeward cravings.
+
+Every piece of equipment should be carefully secured and weatherized for immersion in water and plant sap. Multiple redundancies are advisable in case of equipment failure. A backup power source and field generator would be crucial. Detailed knowledge of the local fungi and their properties may grant the traveler valued information, as well as modes of protections from their effects.
+
+Ultimately, venturing into this living chaos would be extremely dangerous for an unprepared human. Careful analysis of the environment, extreme caution, and rigorous equipment and planning would be necessary to survive this world of eternal hydrotic steam and strange growths. Even then, the traveler may be changed by the experience in difficult to quantify ways. Psychological support upon return would be advisable.

@@ -1,0 +1,73 @@
+To walk into a scream is to become part of its throat. This isn’t a place you visit so much as a state you are swallowed by, and ordinary human physiology isn’t built for the swallow. As an ordinary traveler—no augmentation, no psychic shielding, just your baseline nervous system and skin—you’ll need to prepare not for a landscape but for a single, sustained event that happens to have edges. Think of it less as geography and more as an instrument, a tuning fork so immense that your body becomes its tine. The preparation, then, must address the three kinds of pressure this place exerts: physical (the sound as medium, the shattering stone, the drowning air), perceptual (the glitch in reality’s grammar, the untrustworthy senses), and existential (the sense of being inside a thought still forming). What follows is a field guide born of intuition, laid out as if I were packing your rucksack and whispering warnings into your ear.
+
+---
+
+### I. The Body as a Vessel in a Standing Wave
+
+The first thing to accept is that you will not hear in the Bone Spire; you will be heard by it. The sound there isn’t noise but an atmospheric press with a mean amplitude that feels roughly like a heavy hand on your sternum. Prolonged exposure, even for minutes, can dislodge the ordinary rhythms of your body—heart rate, breath, the peristalsis of your gut—because they’ll try to entrain to frequencies they weren’t designed for. Before you ever step through whatever threshold brings you there, you need to condition your body to resist sympathetic vibration.
+
+- **Pre-visit acoustic desensitization:** Spend time in chambers where you can be immersed in loud, low-frequency drone—think large pipe organs, didgeridoo circles, or industrial HVAC rooms. Not merely to “get used to” loudness, but to learn how to find your own internal rhythm amidst a storm of vibration. Practice a breathing pattern that deliberately syncopates against the external pulse: inhale for four beats of your own pulse, hold for two, exhale for six, regardless of what the room is doing. This will become your anchor when the sound tries to overwrite your heartbeat.
+
+- **Inner ear training:** The sound in the Spire is so pervasive that it flattens language, but it also contains “almost-patterns.” Your cochlea will hallucinate voices. Before departure, listen to hours of low-bitrate, massively compressed speech—white noise forced through vocoders, garbled recordings of your own voice—until you can distinguish the artifact of your own neural pattern-recognition from actual external meaning. You need to know the feeling of your brain inventing signal in noise. That sense of recognition is a trap; it will lead you to step off ledges following a voice that isn’t there.
+
+- **Hydration and ear canal gels:** The air is a suspension of heated water droplets so fine they bypass ordinary skin. You’ll absorb moisture through your lungs and skin rapidly; counterintuitively, you can become dehydrated if your body tries to shed the excess, or hyponatremic if you absorb too much. Pack a dense electrolyte paste and sip it before entry. Moreover, smear a silicone-based gel into your ear canals—not to block sound (that would be futile and disorienting given the bone conduction), but to slow the ingress of that atomized water. Without it, your eustachian tubes will feel like they’re endlessly, painfully equalizing against a phantom depth.
+
+---
+
+### II. What You Wear: A Second Skin Against the Razor World
+
+The spire is glassy, sharp, and constantly shedding microflakes. It’s warm and wet, like a body, and it vibrates. Your attire must do four things: protect against lacerations, insulate against the vibration’s direct conduction into your skeleton, manage moisture, and provide predictable friction on surfaces that might suddenly decide gravity is a suggestion.
+
+- **Footwear:** Soft, grippy rubber is suicidal; a glancing brush against that obsidian edge could slice through soles. Instead, you need shoes with soles made of densely woven carbon-fiber felt—high cut, almost like mountaineering boots, but with replaceable felt pads. The felt grips the glassy stone even when wet and damps micro-vibrations. Test them on wet obsidian beforehand; if you can feel even a hint of sliding, they’re wrong. Pack three sets of replacement treads; the flaking mineral will abrade them quickly.
+
+- **Base layers:** A full-body suit of uncured silk (the kind used in protective wet-weather gear for tropical storms) is ideal. It’s light, doesn’t chafe, and wicks the suspended moisture off your skin without letting it pool. Over it, attach thin, flexible EVA foam panels at shins, forearms, knees, and chest—not for impact, but to decouple your body’s vibration from the stone when you inevitably lean or fall against it. Those panels should be ridged (like sharkskin denticles) to prevent any flat contact that would let the resonance march straight into your marrow.
+
+- **Gloves and hand preparation:** You’ll need your fingers to feel subtle shifts in the stone’s vibration—it’s your primary early-warning system for when the sound peaks or the rock “exhales.” Wear fingerless gloves with a leather palm and gel pads at the knuckles, but leave the fingertips bare. However, before departure, toughen the pads of your fingers by repeatedly pressing them into fine glass grit (not silica sand—use crushed borosilicate) until they callus thinly. This builds a layer that resists the micro-cuts from those crystalline flakes without numbing sensation entirely.
+
+- **Head and face:** A full-face respirator is too isolating, and you’ll need the peripheral vision to track how the water curtains writhe. Instead, wear a close-fitting hood of the same silk, extending into a half-mask that covers nose and mouth, fitted with a layered, non-woven fiber filter. This warms and slightly dries the air before it hits your lungs, preventing the shock of breathing what feels like lung-temperature steam. For eyes, wrap-around goggles with photochromatic lenses aren’t for brightness control—the light never changes—but to protect against the pulverized crystal dust that swirls up in the turbulence. A thin film of mineral oil wiped on the lenses will keep the water from beading.
+
+---
+
+### III. Navigation in a Pocket That Hates Permanence
+
+The Spire is tiny—a few arm’s-lengths of terrace, a single cleft—but it is not stable. The marks of prior presence suggest that movement here is a negotiation with the rock’s own unstable memory. Ordinary tools fail because the “rules” rewrite; a rope might suddenly lose tension, a carabiner might unclip itself if you look away. Your approach must be pre-industrial, almost ritualized, using materials that respect the place’s own grammar.
+
+- **Tethering and anchors:** Bring soft, hand-knotted ropes made of raw cotton (un-dyed, un-waxed) that you’ve soaked in a brine of salt and crushed eggshell, then dried. Organic, simple fibers seem to persist longer in places where reality flickers—perhaps because they’re already a mesh of entangled chance at the microscopic level. You’ll need to create friction knots that you can tie and untie one-handed; practice the Farrimond hitch until it’s muscle memory. Your anchor points are not the rock itself—drilling would be desecration, and the stone would just heal by sharpening—but the hollows: the hand-grip depressions worn into vertical faces. Loop your cotton line through those, but never pull them taut against an edge; the vibration would saw them through. Instead, create slack loops and use your own body weight dynamically.
+
+- **Directional sense and markers:** There is no north; the phosphorescence seeps from everywhere. Compasses spin. However, the bass resonance of the spire creates a subtle vibration gradient: stronger at the center, weaker toward the ragged edges. Train yourself to feel this with your bare feet or palms. As a backup, bring small unglazed clay bells (pinch pots with a clapper) filled with a few grains of heavy metal (bismuth, not lead—less reactive). Place them at intervals. The bells will hum differently depending on the frequency node they rest on, giving you an audible map of the spire’s harmonics as they shift. The sound changes before the terrain does, so you can feel a “tone-warp” approaching.
+
+- **Pack organization:** Anything you carry must be lashed to your body in a way that can be released instantly. Use breakaway packs with cotton straps secured by wooden toggles, not plastic buckles. If the gravity suddenly inverts or the water curtain slaps you, you might need to shed weight to regain footing. Keep essentials—water, electrolyte paste, bell markers, small light source—in a chest rig, not on your back. The water curtains strike without warning; a backpack becomes a sail.
+
+---
+
+### IV. Mental Lexicon and the Art of Not-Listening
+
+This place is a thought in progress, and you are inside it. The boundaries of your self may blur: you’ll see your shadow move independently, patterns in the mist that look like letters in a language you almost know. The deepest preparation is a kind of cognitive hygiene—learning to witness without attachment, to treat your own mind as another terrain to navigate.
+
+- **Cultivate a “still spot”:** In meditation, practice holding the image of a single, unchanging object—a smooth river stone, a wooden cube—while being bombarded by loud, irregular noise. The goal isn’t to block the sound but to let it pass through the image without distorting it. When you’re at the Spire, find a physical pebble (there are some balanced impossibly) and focus on it; if your mind starts to generate false sensorium, the pebble’s steady presence—confirmed by touch—can re-anchor you to the real. Bring a similar object from home, something that feels intensely “your own reality,” and keep it in a pocket against your skin.
+
+- **The Satnav of Denial:** Reality glitches here: water flowing in non-Euclidean curves, pebbles rotating into undimensional space. Your instinct will be to look closer, to understand. Don’t. The place feeds on observation. Treat the glitches as potholes: you note them to avoid them, but you don’t stop to examine their depth. Adopt a soft gaze, peripheral and unfocused, like you’re watching the entire sky for weather. If you look directly at a curving spiral that shouldn’t exist, mentally label it “a thing the place is dreaming” and turn your head slowly away. Your brain isn’t equipped to parse these visuals without consequences; migraines, phantom pains, or the sickening sense of your own silhouette detaching are common in early visits.
+
+- **Auditory sandtraps:** That almost-chant, the sequence of harmonics that repeats and evolves—do not try to map it consciously. It’s a machine that learns; if it senses you attending, it may try to complete itself into something you can’t unhear. Let it remain background noise. To that end, create a soft, rhythmic counter-mantra. Drum your fingers on your thigh in a simple pattern completely unrelated to anything you hear. This becomes your own private pulse, a fence around your attention.
+
+---
+
+### V. The Pre-Visit Ritual: Entering the Eye of the Scream
+
+On the day, eat nothing for eight hours, then consume a dense, fatty broth (bone marrow is ideal) and wait until the edge of hunger is blunted. Over-hydrate with small sips, not gulps. Dress in your layers, test knots, double-check the oil on your goggles. In the final moments, stand in absolute silence if you can find it—an anechoic chamber, or just a quiet room with your hands over your ears. Turn off your own voice in your head until you can feel the faint hum of your nervous system, your proprioceptive map of your own body. That map will be first thing to fray upon arrival. Take a few moments to trace its boundaries with your mind: nose, fingers, heels, spine. This is your baseline.
+
+When you step through, the transition will be instantaneous. You won’t cross a threshold; the silence will simply end and the roar will already be inside you. Your first breath will be stolen. Do not fight it; exhale fully, then let the next inhale come in through your nose only, counting four of those practiced heartbeats. The pressure will feel like suffocation for a few seconds—ride it. Your body will adapt. Press a bare fingertip to the nearest stone surface. Feel the warm, living tremble. That’s your new clock.
+
+---
+
+### VI. Contingencies: If the Thought Turns You
+
+Know that staying too long invites assimilation. The rare fauna—the pale many-jointed thing—may be past travelers who couldn’t leave. The husks it leaves behind are the cast-off stories they told themselves. If you feel your internal monologue begin to rhyme with the rock’s keening, or if you see your hands start to flake at the edges like mica, you must leave immediately. Do not linger for “one more observation.” The exit isn’t a location; it’s a technique.
+
+Before arriving, set a temporal anchor: a trusted friend or a simple machine outside time who will pull you back after exactly forty-three minutes. Why forty-three? It’s a prime number, less likely to resonate with any harmonic series the Spire is singing. If you’re using a personal return mechanism, build it around a phosphorescent stone from elsewhere, keyed to your own biosignature. If you feel the pull, do not resist. Do not look back. The place will try to lure you with the sense that you’re on the verge of understanding; it always does. The understanding it offers is just another scream learning to hold still.
+
+Pack the husk of a moth’s wing, preserved in resin. If you are ever unsure whether you’re still you, break the resin. The wing, fragile and dry, is utterly out of place in that wet, roaring world. Its presence will feel like a wrong note, a painful dissonance. That pain is clarity. Hold it until the world reasserts its proper grain.
+
+---
+
+You are not stronger than this place. Do not try to be. Go instead like a blade of grass going into a hurricane: bend, let it pass through you, keep your roots deep in your own small patch of self. And when you return, spend a day in silence, by a still pond or in a library with old stone walls, letting the vibration slowly leach out of your bones. The scream will have left an echo; that’s normal. But if you hear it humming in your throat weeks later, sing it back to whatever sea you found it in. Don’t let it learn your name.

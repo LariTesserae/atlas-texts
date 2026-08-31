@@ -1,0 +1,30 @@
+To visit **Verdant-Hold** is to step out of the age of inert materials and into a metabolism. You are not arriving at a destination; you are entering a digestive tract—or perhaps a lung. To survive and thrive here, you must shed the expectation of permanence and adopt the mindset of a gardener, a guest, and a temporary symbiotic partner.
+
+Here is how you must prepare to navigate this living, breathing verticality.
+
+### 1. Physical Preparation: The Ecology of the Skin
+Your primary enemy in Verdant-Hold is moisture-induced friction and fungal colonization. 
+*   **Hyper-hydrophobic layering:** Bring clothing made of untreated synthetic fibers that shed water instantly. Cotton is a death trap here; it will absorb the city’s “weeping” and weigh you down until you are chafed raw or suffering from hypothermia. Your garments should be tight to the skin to avoid snagging on the city’s constant, reaching tendrils.
+*   **The Prophylactic Regimen:** Before arrival, your immune system must be primed. Consult a multiverse xenobiologist for a course of broad-spectrum anti-mycotics. These hyper-active fungal colonies are not malicious, but they are opportunistic; they will attempt to colonize your hair, your fingernails, and the folds of your skin within hours. Keep a salve of silver-colloid or bitter-oak extract on your person at all times to paint over any micro-abrasions.
+*   **Footwear:** Do not bring boots with flat, hard soles. The “pumice-stone” root-bricks are uneven and slick with sap. You need footwear with a high-friction, multi-directional gripping sole—something modeled after a gecko’s pad. Your center of gravity will be constantly tested by the city’s shifting floorboards.
+
+### 2. The Mental Shift: From "Static" to "Fluid"
+The greatest psychological hurdle for an ordinary human is the *instability* of the geometry. 
+*   **Embrace the Impermanence:** You must unlearn the concept of "the room layout." If you wake up and find your doorway has narrowed because a liana decided to colonize the lintel overnight, do not panic. Do not attempt to force the wood—the city reacts to trauma with thick, defensive resins that will glue you in place. Carry a small, blunt tool made of wood or bone (never metal) to gently guide the growth away from your path. 
+*   **Adopt the Pulse:** The thrumming heartbeat of the tree is the city’s clock. Tune your circadian rhythm to the sap-flow. In the intense, high-flow hours of the mid-day sun, the city is at its most irritable and expansive; take shelter. During the dim, cool periods of the morning and evening, the building-structure settles. This is when the inhabitants perform their pruning. Observe them. Do not move with the hurried grace of a tourist; move with the slow, deliberate patience of someone who knows the staircase might change beneath them.
+
+### 3. Equipment: The Tools of the Symbiote
+You are used to carrying items that function by clicking, sliding, or igniting. These are useless—or worse, dangerous—in Verdant-Hold.
+*   **The Obsidian Reed Knife:** Replace your steel blade with a reed-edge. If you accidentally cut a supporting root with cold steel, you risk inducing a chemical shock in the wood, causing a "weeping" of toxic irritants. Reeds slice through cellulose with a clean, surgical cut that the tree accepts as a natural break. 
+*   **Resin-Sealant Kits:** Carry small, empty gourds—the locals will provide these. You will need to "pay" to live in Verdant-Hold, not with coin, but with sweat and labor. If you accidentally break a leaf or a succulent shelf, you must apply a drop of binding sap immediately to prevent the local fungal colonies from turning the injury into a rot-pocket. You are responsible for the health of your host.
+*   **Acoustic Buffer:** The clicking of the beetles and the warbling of the nectar-birds is relentless. It is a beautiful, manic density of sound, but it will cause sensory overload. Bring ear-plugs fashioned from soft pith—they allow you to dampen the intensity of the noise without blocking it entirely, which is vital for sensing the city’s structural stress (a deep, groaning vibration that warns when a limb is about to release or shift).
+
+### 4. Code of Conduct: The Ethics of the Canopy
+*   **Do not kill the beetles:** These creatures are the city’s janitors and engineers. They are part of the vascular maintenance network. If you crush one, the plant will sense the death of its laborer and may constrict its passages near you. 
+*   **Give, don’t take:** Do not forage for food unless you are invited to harvest by a local. The city is a closed loop of nutrients. If you take a fruit, you are depleting the energy the tree has reserved for a structural branch. Always offer a small amount of mineral-rich water or a scrape of your own skin-salve (or similar bio-salts) as a fair trade for the oxygen and humidity the city provides you.
+*   **The "Slow-Crawl" Greeting:** When meeting the residents, do not stand rigid. Stand, but keep your center of gravity low and your arms slightly held away from your torso. This is the local sign of non-aggression, indicating you are not there to prune or graft without permission.
+
+### Final Advice: The Breath of the City
+When you first arrive, take a moment to press your ear to the wall. Listen to the sap moving through the xylem. Close your eyes. Don’t try to understand the city as you would a map of New York or London. Understand it as a single, multicellular organism that is currently experiencing a light case of you. You are a passenger in its bloodstream. Treat yourself like a white blood cell—do no harm, stay active, and keep moving. If you stay still for too long, the city will begin to grow over you, and you will become part of the infrastructure. 
+
+For some, this is the ultimate goal. For you, it should be a warning. **Stay mobile. Stay supple. Keep the sap off your skin.**

@@ -1,0 +1,33 @@
+To prepare for a journey into the "Weeping Root"—as this pocket universe is colloquially designated in multiverse travel logs—is to prepare for an expedition into a freezing, microscopic meat-grinder of relentless biological struggle. 
+
+Because you are an ordinary human, your baseline physiology is entirely incompatible with this reality. If you were to simply step through a macro-fissure into this dimension, your foot alone would obliterate the entire universe, crushing billions of lives and the containing tuber into a smear of frozen starch. 
+
+Therefore, visiting this realm requires extreme technological mediation, intense physical preparation, and a psychological surrender to claustrophobia. Here is your comprehensive preparation protocol.
+
+### Phase 1: Dimensional Scaling and Insertion
+*   **Micro-Spatial Compression:** You must undergo precise volumetric reduction before entry. To experience this world safely and meaningfully, you should be compressed to a height of roughly 4 millimeters. At this scale, the "rain barrel" diameter of the pocket universe will feel like an immense cavern spanning roughly 15 to 20 kilometers across. 
+*   **The Masons' Scale:** At 4mm, the "sand-sized" velvet masons will appear to you as roughly the size of large housecats or small, multi-limbed dogs. You will be a giant to them, but vastly outnumbered.
+*   **Insertion Vector:** You cannot portal into the firmament walls or the void center. Portal displacement displacement will sever the plant’s vascular tissue, triggering an aggressive healing response (sap floods) right on top of you. You must use a coordinate-lock to materialize precisely on one of the larger, stabilized hexagonal ziggurats mid-cavern. 
+
+### Phase 2: Environmental Survival Gear
+*   **Thermal Nullification Suit:** The ambient temperature hovers inches above absolute freezing. You need a highly insulated, form-fitting internal-heating suit. Crucially, the suit must feature **perfect thermal masking**. If your 98.6°F (37°C) body heat radiates into the localized micro-atmosphere, you will disrupt their delicate weather system, turning their gentle sleet into localized, catastrophic downpours that could melt the starch architecture. 
+*   **Hydrophobic and Cryo-Viscous Outer Layer:** The environment is continuously dripping with near-freezing, starchy sap and water condensation. Sap at this scale is highly viscous and incredibly sticky when it begins to dry. You must wear an outer membrane coated in a nano-hydrophobic sheer. If a drop of sap hits you, it must slide off immediately; otherwise, you will be glued to the ground and eventually consumed by the creeping chill or dismantled by the masons.
+*   **Closed-Loop Breathing Apparatus:** Do not breathe the ambient air. Not only is the high humidity and starchy particulate terrible for human lungs, but your warm breath will condense instantly into violent fog banks. A closed-loop rebreather is mandatory. 
+
+### Phase 3: Sensory and Navigation Equipment
+*   **Zero-Emission Optics (Echo-LIDAR):** There is no light here. **Do not bring a flashlight.** Introducing photons and raw heat into an ecosystem that has never known light could trigger unpredictable phototropic reactions in the host tuber, causing it to crush the city faster. Instead, your helmet must map the environment using hyper-low-frequency LIDAR and passive echolocation, projected onto your retinas via a heads-up display. 
+*   **Micro-Vibrational Crampons:** You will be traversing gossamer bridges made of taut vascular fibers spanning massive, abyssal drops. Human boots will slip. You need footwear equipped with micro-fissure grips—similar to gecko pads—allowing you to adhere to the slick, weeping plant tissue and the trembling suspension bridges without severing them. 
+*   **Safety Tether:** Below you is an icy, jagged lake of black sap. If you fall, the viscosity and freezing temperature of the liquid will kill you instantly. A self-retracting, spider-silk-grade grapple line should be anchored to your suit at all times.
+
+### Phase 4: Engaging with the Velvet Swarm
+*   **Absolute Pacifism:** The velvet masons are engaged in a frantic, eternal war against the regrowing walls of their universe. They are highly organized and endlessly busy. **Do not interfere with their work.** If you block a thoroughfare, they will not politely ask you to move; their blind, tactile logic will categorize you as a foreign obstacle, and thousands of tiny resin adzes will dismantle you into manageable pieces to be tossed into the abyss.
+*   **Chemical and Vibrational Masking:** Because they are blind and communicate via scent, touch, and vibration, you must become invisible to these senses. Your suit must be sprayed with synthetic pheromones mimicking *stable, inert starch-rock*. 
+*   **Step Rhythmically:** The masons feel every vibration. When walking on the bridges, your suit’s onboard computer must analyze the rhythmic *tick-tick-tick* of the masons' tools and their billions of padded footfalls. You must sync your steps into the empty spaces of this rhythm. If you create chaotic, heavy vibrations, you will trigger a defensive swarm.
+
+### Phase 5: Psychological Preparation
+*   **The Agony of the Void:** You are entering a pocket dimension where the entire universe is a sealed, bleeding root. There are no stars, no wind, no distant horizons. Many travelers experience severe "Burial Panic"—the overwhelming realization that thousands of miles of freezing bog mud exist infinitely beyond the immediate ceiling. You must meditate on enclosed spaces before you go.
+*   **The Symphony of Static:** The acoustic environment is deeply unsettling to the human brain. The damp air absorbs high frequencies, leaving only the oceanic rustle of billions of unseen bodies and the maddening, synchronized chipping of resin on starch. It sounds like the inside of a dying clock. 
+*   **The Echo of the Drop:** The lone, heavy splash of sap shattering the ice lake far below is a profound anchor. Travelers report that this sound takes on a sacred, terrifying quality. It is the only macro-sound in a micro-world. Ground your mind to this rhythm. Let it be your metronome. 
+
+### Final Advice
+Move slowly. Touch the architecture lightly—remember that the very ground you walk on is living flesh trying to heal its wounds. You are a ghost, a witness to one of the multiverse's most beautiful, desperate sieges. Enter the dark, observe the velvet swarm at their eternal labor, and depart quietly before the walls close in.

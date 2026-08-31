@@ -1,0 +1,45 @@
+If you are ordinary—and by that I mean a standard-issue, mammalian, circadian human with a nervous system calibrated for blue skies and intermittent silence—**do not go**. Not yet. Not without understanding that this basin is not a place but a condition, a kind of biological seizure that has only recently learned to hold a shape. It has not slept because it does not know it is allowed to. Everything down there is awake, overcrowded, and desperate in a way that predates hunger. If you must visit, you must become an object that the environment forgets to crush.
+
+### 1. The Sound: You Must Build a Quiet Room Around Your Mind
+The roar is not ambient. It is structural. It will enter through your teeth, your sternum, the hollows behind your eyes. Ordinary earplugs are insults to this place; the sound conducts through your skeleton. You need a full-coverage helmet with active noise-cancellation tuned to the chitinous register—something that can counter the specific frequencies of claw on glass and membrane vibration. Better still, you need a skullcast, a rigid shell that dampens bone conduction at the mandible and mastoid. The goal is not to hear less, exactly, but to reduce the sound from a *worn* pressure to a *heard* noise. Without this, your molars will loosen within a day, and within three you will begin hallucinating voices in the drone, which is dangerous because there are things down there that speak, and you will want very badly to answer them.
+
+Bring no sonic beacons, no audio guides, no music. Your voice is a liability. Communicate by touch-signal or text-to-screen. The fauna has discovered urgency, and a new sound—a human shout, a dropped tool, even a whimper—cuts through the white-noise storm like a blood-scent.
+
+### 2. The Gloom: Throw Away Your Lights
+Your instinct will be to bring torches. Shatter that instinct. The darkness here is not an absence; it is an older substance, bruise-colored and submarine. A bright light does not illuminate the basin so much as announce you to it. The vegetation does not photosynthesize; it will not throw back helpful shadows. Instead, you will see a wall of wet, purple-black rubber gleaming back at you, and beyond it, ten million chitinous things turning toward the intruder who dared to strike a sun.
+
+Navigate by heat. The cycads pulse. The geothermal vents exhale. The sharp stones hold and radiate temperature differently than the lung-warm air. Equip yourself with a thermal-imaging array that maps gradients, not edges. Learn to read the basin as a weather-map of warmth. If you must use illumination, carry a very low-grade infrared emitter—something biological eyes are unlikely to parse—and even then, use it in stuttering pulses, never a steady stare.
+
+Practice moving in absolute dark before you arrive. Not dim. *Dark.* The hand you put out to steady yourself will disappear before the wrist. If you have not trained your proprioception to trust your feet over your eyes, the obsidian will filet you.
+
+### 3. The Floor: Assume the Earth Is Still Angry
+The basalt and obsidian are virgin. Geologically, these stones were born yesterday, and they have the manners of a newborn: all edge, no softness. There has been no rain to blunt them, no river to soothe. They lie in accidental geometries of killing perfection. You will recognize the shapes—hand-axes, scrapers, awls—and you must resist the phantom urge to grip them. Something here has noticed the resemblance. Something is watching the lithic scatter to see who picks up a tool.
+
+Your footwear must be a fortress. Rigid, puncture-proof soles with ceramic platelets; ankle braces; shin guards that slide rather than catch. The floor is a butcher’s block. But worse than the floor is the understory, which is not a forest but a single, fused organism, a pulmonary wall of stem-grafted, sweating meat. You will not walk through it. You will push through it, and it will push back. Your suit must be slick, abrasion-resistant, and non-porous. The plants exude condensation that is likely sulfurous, perhaps caustic. The spore-load is not a seasoning; it is a blizzard of microscopic freight. A rebreather is mandatory. Not a mask. A sealed loop with HEPA-filtration and a cooling radiator, because the air is warm, wet, and so densely packed with biological material that every unfiltered breath is a meal you did not choose to eat.
+
+### 4. The Heat: Become a Cold Island
+The basin is cooling from an argument with itself, but “cooling” is relative. The plants are thermotropic; they edge toward geothermal exhalations like sunflowers chasing noon. Your body is not. You will need a phase-change cooling underlayer, the kind developed for foundry workers and diver suits. Tubing should run close to your jugular and femoral arteries. You are not trying to be comfortable; you are trying to keep your enzymes from denaturing. Dehydration will ambush you in that thick, packed air because you will not feel yourself sweat—the moisture will not evaporate, only accumulate.
+
+Do not drink local water. Do not eat local flora. These organisms have abandoned photosynthesis; they run on chemistry you do not share. Their leaves look like old blood and bruised plums because they are full of metabolites that would dissolve your liver with gratitude. Carry triple your estimated water. The thermal haze that smothers the sky is also stealing your awarenes of thirst.
+
+### 5. The Fauna: Be Less Interesting Than the Background
+They are the dominant fact. You are a trespasser in their noise. The fauna is urgent, which means it is always molting, mating, killing, or being killed. There is no rhythm to it, no lull. Because the sound is total, they likely do not hunt by hearing—or if they do, they are attuned to novel frequencies. Your best defense is to vibrate like the stones.
+
+Pad your gear with acoustic foam. Walk without rhythm. The basin is a drum; your footsteps are a new percussion. If you must rest, do not lean against the vegetation. The wall of fused stems transmits vibration for meters. Curl on bare stone—carefully, on a rip-proof mat—and become inert.
+
+Do not bring pets. Do not bring recording drones with whining rotors. If you bleed, bind it immediately. The urgency of this biology suggests an olfactory hunger for distress.
+
+### 6. The Lithics and the Watcher: Do Not Imitate
+I cannot stress this enough: **leave the stones alone.** They are naturally precise, conchoidal, perfect in their virgin accident. To pick one up is to insert yourself into a timeline that never happened, to hold the ghost of a million years of unlived prehistory. And something has noticed this game. Something is tracking the difference between the accidental axe and the wielded one. Your tools should be round, brightly synthetic, obviously *made* in a way that contradicts the local geology. No flint knives. No matte-black tactical ceramics that could be mistaken for obsidian. You want your gear to say: *I am from elsewhere. I am not part of this argument.*
+
+If you see a scatter that looks arranged, turn around. You are not the first traveler, and the basin is still learning what to do with intruders.
+
+### 7. Time and Psychology: The Basin Has No Clock
+There is no dawn. No dusk. No evening hush to signal your pineal gland that it is safe to weep. The permanent roar and the submarine dark will unspool your sense of duration. Within six hours you will feel you have been there for days; within two days you will believe you were born there. Wear a chronometer that taps against your wristbone—physical, insistent, unarguable. Set a hard limit. Twenty-four hours is the edge of sanity for an ordinary human. Preferably, stay no longer than it takes to do what you came for, then climb.
+
+Remember: the basin is low, sunk below the knees of the world. Getting out means ascending through the thermal haze, uphill, through the same lung-thick understory, while the roar tries to convince you that there is no up, no out, only the endless present. Mark your exit vector with heat-resistant waypoints before you descend. Trust the devices, not your memory. The darkness will rewrite your sense of direction, and the sound will wear down your will to leave.
+
+### Final Warning
+You are visiting a place that has not yet learned to rest. It is a nursery for a biology that has skipped past photosynthesis and patience straight into fervent, chitinous, sulfur-drinking urgency. You cannot conquer it. You can only pass through it as a cold, quiet, synthetic ghost—unlit, unsmelling, untempted by the accidental axes.
+
+If your cooling system fails, if your helmet cracks, if you drop a tool that rings out against the basalt like a struck bell—stop. Lie flat. Play dead in the dark, and hope the basin, in its sleepless, infantile rush, mistakes you for just another warm stone, and rushes over you instead of through you.

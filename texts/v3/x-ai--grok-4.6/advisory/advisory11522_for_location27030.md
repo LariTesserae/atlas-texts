@@ -1,0 +1,64 @@
+**The first preparation is to accept that you are a solvent-memory walking into a place that structurally cannot remember rain.** You will be the wettest, loudest, most unfinished thing on that table for a very long time. Everything else—air, light, ground, inhabitants, fauna, even the idea of height—has already finished becoming. Your job is not to change that. Your job is not to die of it, not to offend the chord, and not to leave a wet stain that the plateau will have to metabolize for the next ten thousand years.
+
+An ordinary human body is a leaky bag of water, salts, and unfinished chemical arguments. This location is a single, vast, waterless argument that won so long ago the mountains lay down. The mismatch is not poetic. It is immediate and physical.
+
+### Physiological and Environmental Reality
+The air is thin, cool, permanently dim, and drier than any desert you have known. There is no humidity to speak of. The “dust” is not mineral; it is continually shed living tissue—cambium-analogue, silicified in places, still metabolizing in others. You will inhale it. It will settle in every crease. It is the weather and the skin of the ground. Your mucous membranes will begin to fail within hours without intervention. Skin will crack. Eyes will grit. The constant standing chord—produced by thin wind moving through billions of nested, river-smoothed chambers—will enter your ribs, your teeth, your inner ear. It is not loud in the way a machine is loud; it is structurally present, a choir that forgot the piece and kept rehearsing the interval. On still days you hear the ticks of contraction, the dry percussion of distant fauna, the low hum of the towns. The quiet places, where the living floor thins over older stone, are worse: an awful absence the ear refuses.
+
+There is no water. None. The chemistry is solid-state, photon-to-lattice, almost solventless. The inhabitants have a liturgical word for the memory of a solvent and they do not use it in the house. You will be the walking memory. Do not advertise it.
+
+Altitude is real. The plateau is a worn table the size of a small nation; you come up by a long, shallow climb that never quite becomes a pass. Thin air plus constant low-level vibration plus fine bioactive particulate is a combination ordinary lungs and inner ears were not built for. Circadian rhythm will break: the sun is a pale coin behind pewter, dusk is the default, night is a bruise-colored phosphorescence that the floor sometimes answers. Shadows are few and soft. Vitamin D, sleep, and mood will all require active management.
+
+The ground is alive and faintly giving, like dense cork or the interior of a horn. It photosynthesizes without green. Every footstep is conducted into the chord. You are never not being heard.
+
+### What You Must Bring and Wear
+A sealed or semi-sealed environmental envelope is not optional for any stay longer than a few cautious hours. Ordinary clothing will desiccate, crack, and become another source of shed material the plateau will try to reclaim. Think in layers of controlled moisture and filtration:
+
+- A closed-loop hydration and humidity system. Recycle everything. Carry far more water than you think you need; there is no local source and no forgiveness if the recycler fails. Store and consume it privately. Do not spill. Do not offer it. Do not let the scent of it travel if you can help it. The liturgical word exists for a reason.
+- Positive-pressure or well-filtered breathing with humidity control and particulate capture rated for living, fine, possibly electrostatically active dust. The spore-seasons turn the air into a glittering circuit; your filters and any electronics must survive that. Spare filters, many of them. The dust is also skin; treat it as potentially bioactive until proven otherwise.
+- Oxygen supplementation or a system that can enrich the thin air without adding moisture you cannot control. Acclimatize as much as possible beforehand, but do not pretend Earth-high-altitude training fully prepares you for this combination of hypoxia, vibration, and dryness.
+- Hearing and vibration management that you can modulate. Complete isolation will make you miss the information the plateau is constantly offering (and the inhabitants use). Total exposure will eventually produce nausea, disorientation, and a peculiar grief. Bring options: dampening inserts, bone-conduction alternatives, something that lets you choose how much of the chord you take into the skull. The hunt-calls of the jointed predators are one of the louder facts; they propagate and transfigure through the columns for an afternoon.
+- Thermal regulation that does not rely on evaporative cooling. The air is cool; the ground is cool; there is no wet-bulb relief. You will lose heat differently than you expect.
+- Lighting that is dim, warm, and can be extinguished. Their internal town light is the color of cooling metal leaking from apertures that were never cut. Do not introduce harsh white or UV that the local photochemistry did not evolve under.
+- Footwear that protects your soles without insulting the floor. The ground gives a little. It is not dirt. Walking is a conversation whether you intend it or not. Some travelers report that after a time the right pressure and rhythm lets the chord accept the extra weight as just another season of pressure. Practice lightness.
+- A way to manage waste that introduces zero free water or unfamiliar organics into the system. Pack it out or render it inert and dry. The ecosystem is finished; it does not need your unfinished chemistry.
+
+Bring spare everything that can fail in dryness and dust. Lubricants, seals, batteries, and optics all behave differently here. The spore-weather can close circuits in the air; assume electromagnetic and electrostatic events.
+
+### Cultural, Sensory, and Temporal Preparation
+Learn to hear before you speak. The plateau tells you it does not remember rain as a structural fact, not a metaphor. The inhabitants (it is not always clear that “people” is the first category) practice an engineering that does not distinguish horticulture, architecture, and applied topology. Rooms are larger inside than their skins. Corridors remember. A stair following an old vascular helix can deliver you later, or into a chamber that exists primarily as a standing wave. Heat and information move without fluid or wire. The whole highland is a dry nervous system; each town is a ganglion.
+
+They have a technology of distance that is negotiated identity of interiors, used sparingly because it taxes the chord—a brief flattening every living thing feels as weather. Children learn the etiquette of this before the names of the flocks. You will not have that childhood. Move slowly. Do not demand rooms. Do not treat the topological shortcuts as conveniences. If you are granted one, understand you are spending something the entire plateau pays.
+
+There is no word for thirst. Do not introduce one. Do not ask for water. Do not describe rain, rivers, blood, sap, or tears unless you have been invited into the liturgical register, and even then, carefully and not in the house. Your wetness is a dead-god name.
+
+Fauna are abundant the way stars are abundant. Kite-flocks with too many articulations graze dust and ring at the edges; you hear them as a brightening in the chord two valleys over. Grazers the size of cattle, texture of weathered basketry, crop the floor to a paler nap. Predators are long, jointed, almost ceremonial, running with a dry clatter like thrown sticks. Their calls are taken up by the columns. There are laws, old as geology, about opening any of them. You will find smoked-glass structures and compacted pollen and a lymph more like warm resin. Do not open them. Do not collect trophies. The designing stopped an age ago; the conversation between predator and prey is finished and still running.
+
+The ecosystem is not evolving toward anything. Activity is clockwork at biological scale: dust-seasons, static-seasons, a “flowering” that is a release of conductive spores when conversation in the towns must be conducted by touch. Nothing is young. You will feel this as a pressure behind the eyes after a while—the absence of becoming as a local custom. Prepare for that existentially. Some travelers find it restful. Some find it a kind of death that has not yet noticed them. Meditation on finishedness, practice in long-duration monotony, and a pre-agreed extraction trigger (psychological as well as physical) are more useful than most equipment.
+
+The verticals—the columns that are towns—stand far apart. Density was declined. You will walk kilometers of almost-featureless living floor, pale, faintly undulating, then a worn column with the footprint of a keep or a hill, hollow, inhabited so long that habitation and growth cannot be sequenced. You hear them before you see them: a hum that is part machine, part metabolism, harmonic engines seated in what wood became when it learned to do without water. They pump temperature, charge, and sound. Sound is infrastructure. Messages travel as modulation in the plateau’s chord. You can feel them in your teeth if you lie down.
+
+Approach as a guest in a body. Do not cut living plugs unless invited and taught; the towns harvest slow reefs for repair and the tissue takes dry-to-dry without fuss. Do not assume your tools or your language will map cleanly. Information here prefers resonance, contact, and topology over symbols that stay put.
+
+### Movement, Risk, and the Climb
+You arrive by a long, shallow climb that never quite becomes a pass. The last real relief died out of the land so long ago that even the idea of a summit feels ornamental. Use that time. Let the air thin gradually. Listen for the first standing chord. It will tell you more than any briefing.
+
+Risks that kill ordinary humans here are mostly the obvious ones plus a few that are not:
+
+- Desiccation and hypoxia, especially if a seal fails or you linger in a thinning where the organism attenuates and the chord drops out.
+- Psychological fracture from the never-resolving music, the dimness, the finishedness, or the sudden silences.
+- Offending the chord or the inhabitants badly enough that the topological hospitality is withdrawn. A room that is larger inside can also decide you are not inside it.
+- Predators, though they are not crowded and the hunt is an old, transfigured sentence. You are not their conversation.
+- Spore-season circuit events: air becomes conductive, music rises, touch replaces speech. Electronics, implants, and any static-sensitive gear need hardening or shutdown protocols.
+- Simply becoming lost in a place where elevation is partly a habit of mind and interiors can be renegotiated. Carry a way to re-identify yourself to the floor and to any town that might hold a room for you.
+
+The rims recede into a long pale decline toward whatever the low country became. Do not assume you can walk off the organism and find something wetter. The refusal succeeded completely up here.
+
+### How It Will Actually Feel (If You Last)
+After the first crossing the plateau stops being scenery. The dust lifts and settles. The chambers sing. A band of grazers moves along a swell so ancient it is almost only an idea of height; their cropping sounds like rain on a roof, a sound no one living here has heard from the sky. A hunt-call starts its falling scale and the columns take it up until the open country is one sentence said by a mouth too large to see. You are very high. The pale coin slides a hand’s width. The floor—which is the forest, which is the body, which is the oldest city—conducts every footstep and does not distinguish your weight from any other season.
+
+If you stay, certain things become apparent. Elevation is not only measurement. There are unmarked places of terrible quiet. There are reefs they harvest. Children already know how not to spend the chord. You will never have a word for thirst that they will accept as ordinary. You will begin to hear the smaller voices. You may, if you are careful and lucky and dry enough, be allowed to walk a stair that delivers you later.
+
+Leave while you can still tell the difference between your own pulse and the standing chord. The place will not stop you. It does not need to. It has been running this form since the mountains lay down. You are weather that will pass.
+
+Prepare as if you are visiting a throat that has not stopped sounding, a body that became the ground, a city that finished so long ago becoming is no longer the custom. Bring your water in secret. Walk lightly. Listen more than you speak. Do not try to make it remember rain. It will not, and the attempt will only announce how unfinished you still are.

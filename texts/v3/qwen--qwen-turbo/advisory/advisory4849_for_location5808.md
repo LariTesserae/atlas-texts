@@ -1,0 +1,33 @@
+To prepare for visiting the place that exists on the edge of a world that has forgotten itself, you must first understand that this is not a journey through space, but a descent into an interior state. It is not a location in the conventional sense, but a convergence of memory, stillness, and presence. You cannot approach it with the tools of the ordinary world—maps, compasses, or even the sense of direction. You cannot arrive in the way you arrive at a city, a mountain, or a forest. You must arrive as you arrive in a dream, or as you arrive when you remember something you never knew you had.
+
+### 1. **Leave Behind the Tools of the Human Mind**
+You must leave behind all the assumptions and instruments of your ordinary life. No GPS, no books, no language, no symbols. You must arrive without expectation. This is not a place to be "discovered" but a place that discovers you. You must be willing to unlearn. You must surrender the idea that you are in control. The place will not welcome you with signs or signals. It will not offer directions. It will not answer your questions. It will only be.
+
+### 2. **Prepare the Body for Stillness**
+The body must be ready. The place is not a place of movement. It is not a place where you can run, climb, or walk. You will not be able to move as you do in the familiar world. The ground is not a surface you step on, but a presence you are held by. Your limbs may feel light, or heavy, or indifferent. You may feel as if you are floating, or as if you are being cradled. You must be prepared for your body to behave in ways you do not understand. You may need to move as the plants move—slowly, deliberately, in time with the land. Your breath may change, your heartbeat may slow. You must not fight it.
+
+### 3. **Empty the Mind of Purpose**
+This place has no purpose. It is not a destination, not a goal, not a test. It is not a place you can use. You cannot take anything from it, nor can you leave anything behind. It does not care for your desires, your fears, your ambitions. It does not judge. It does not remember. It only exists. To enter, you must be willing to let go of the need to understand. You must arrive with no questions, no plans, no desire to "get something" from the experience. You must be willing to be *there*, without the need to *do* anything. This is the hardest part. The mind is trained to seek, to analyze, to interpret. Here, you must surrender that instinct.
+
+### 4. **Prepare for the Absence of Sound**
+The silence here is not empty. It is full. It is not the absence of noise, but the presence of something deeper. You may hear the sound of water, the soft drip, the whisper of fronds, the low hum of the land. These are not sounds in the way you know them. They are vibrations, rhythms, pulses that resonate in your bones. You must be ready to listen not with your ears, but with your entire being. You may find that your thoughts become quieter, or that your inner voice fades. You may lose the sense of your own thoughts. This is not a loss. It is a shift. You are not being silenced, but being *held* in a space where thought is not required.
+
+### 5. **Accept the Absence of Time**
+Time does not flow here. It does not move in the way you know. It is not linear, not progressive. It is not a river, but a pool. You may feel as though you have been here for minutes, or for years. You may not be able to tell the difference. You must be willing to exist in this state. You must not try to measure it, to quantify it, to make sense of it. You must simply be. The place does not care how long you stay. It does not expect you to leave. It does not want you to remember. It remembers you.
+
+### 6. **Beware of the Familiar**
+This place is not alien, but it is not familiar, either. It is not strange in the way of the unknown, but in the way of something that has always been, but never been known. You may see things that remind you of your childhood, your dreams, your memories. But they are not the same. The water is not water, the plants are not plants, the air is not air. You must not try to name them. You must not impose your own meaning. You must not try to fit them into your understanding. This is not a place to be analyzed. It is a place to be *felt*.
+
+### 7. **Bring Only Your Presence**
+You must bring nothing else. No clothes, no tools, no companions. You must arrive as you are, as you were, as you are in the core of your being. You must not carry the weight of your past, your future, your identity. You must arrive as a question, not as an answer. The place does not need you to be anything. It only needs you to be *there*.
+
+### 8. **Understand That You Will Not Leave the Same**
+When you leave this place, you will not leave in the way you entered. You will not return with a story, a map, a photograph. You will return with something deeper. You will return with a memory that is not a memory. You will return with a sense of having been somewhere that you cannot explain, and that you cannot return to. This is not a place you can visit again. It is not a place you can return to. It is not a place you can describe. It is a place that has been with you, even before you knew it.
+
+### 9. **Be Prepared for the Unspoken**
+This place does not speak. It does not communicate in words, or in signals, or in symbols. It communicates in the way the stars do, in the way the earth does, in the way the breath does. It speaks in presence. It speaks in silence. It speaks in the weight of your own stillness. You must be ready to listen, not with your mind, but with your soul. You must be ready to speak, not with your voice, but with your being. And when you do, you will not be answered. You will be *understood*.
+
+### 10. **Remember That You Are Already There**
+You do not need to go. This place is not somewhere else. It is not a distant world, a hidden realm, or a forgotten dimension. It is not an illusion. It is not a dream. It is not a myth. It is the space between being and becoming, between remembering and forgetting. It is the place you have always been. You have always been here. You are here now. You are here, and you have always been. You are not going to visit this place. You are returning to it. You are not arriving. You are remembering.
+
+So when you are ready, when you are still, when you are quiet, when you are empty, when you are not looking for anything—when you are simply *there*—this place will open to you. And when it does, you will not need to prepare. Because you already are.

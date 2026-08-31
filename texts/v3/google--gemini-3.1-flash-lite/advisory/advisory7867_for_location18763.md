@@ -1,0 +1,28 @@
+Visiting the High Plateau of the Calcified Sigh is not a journey of exploration; it is a exercise in profound, terrifying stillness. Because the physics of this place have "clicked" into a locked state, to enter it is to become a variable in a system that has spent eons perfecting the absence of change. 
+
+If you intent to cross this threshold, you must prepare not for an adventure, but for a meditation on the cessation of causality.
+
+### 1. Physical Preparation: The Suit of Absolute Neutrality
+The air, sharp with ionized flint and devoid of moisture, will desiccate a human body in seconds. You are not just walking into a high-altitude zone; you are walking into a vacuum of hydration.
+
+*   **The Exoskeleton:** You require a pressure suit, but one built for extreme structural integrity rather than warmth. The atmosphere here is thin and abrasive; it will scour your skin like fine-grit sandpaper. Your suit must be sealed at the molecular level.
+*   **Acoustic Damping:** Because you will hear the "tension" of the plateau—the high-frequency vibration of a trillion locked limbs—your suit must be lined with acoustic dampeners or active-noise cancellation technology. If you listen to this sound unprotected, it will eventually cause your inner ear to resonate with the plateau’s static frequency, leading to permanent sensory vertigo or, worse, a sympathetic lock of your own nervous system.
+*   **Hydration/Nutrition:** Do not plan to eat or drink while on the plateau. Opening a seal to ingest water would introduce moisture to the environment, potentially causing a localized "thaw" in the frozen physics. Any moisture you introduce may cause the surrounding silicate fauna to shudder or shift in a violent, crystalline explosion. Store your nutrients; go in dry, and leave as quickly as your stamina allows.
+
+### 2. Psychological Conditioning: The Ego-Collapse
+The Plateau is the "End" of everything. To witness the creatures frozen in a mid-strike pose, locked for ten millennia, is to confront the terrifying reality that your presence is the only "active" variable in an otherwise finished universe.
+
+*   **The Shadow-Sanity Protocol:** Your brain will attempt to reconcile the non-Euclidean shadows—shadows that point to the zenith or disappear entirely. This is a common point of cognitive collapse for travelers. Perform daily mnemonic grounding exercises. Remind yourself: *The shadows are an error in the local logic, not a defect in my perception.*
+*   **The Constraint of Motion:** You must learn to move like a ghost, or more accurately, like a sculptor. If you move too quickly, you risk disturbing the "tension" of the crust. If you shatter the stillness, you shatter the lock. To "break" a piece of the scenery is to risk a kinetic feedback loop; if a falling pebble suddenly gains momentum, the stuttering time-lock might collapse around you, pinning you forever into the mineral landscape. Move with agonizing, deliberate slow-motion. You must *be* the environment.
+
+### 3. Equipment: Specialized Gear
+*   **The Non-Kinetic Anchor:** Carry a tethering device that uses magnetic dampening to ensure you do not inadvertently disturb the fauna. You need to remain slightly elevated, perhaps through light-impact boots that distribute your weight across a wide surface area to avoid cracking the mineral crust.
+*   **A "Ghost-Light" Beacon:** Since standard light bounces in ways that might confuse your depth perception due to the weird light-source alignment, carry a low-intensity, diffuse bio-luminescent beacon. Bright, clinical LED lights will only cast confusing shadows. A soft, ambient light will help you navigate the "tooth-like" huts without feeling as if the world is tipping over.
+*   **The Marker of Transit:** Bring a non-reactive metal stake. You will need to place it as a waypoint. In a place where you are the only thing moving, you will lose your internal compass within an hour. By leaving markers, you create a "thread" to lead you back out of the stillness.
+
+### 4. The Rules of Engagement
+*   **Do not touch the fauna.** The silicate creatures are holding the architecture of this world in place. One touch, one shifted shell, one disturbed mosaic, and the "stutter" of time might release. You do not want to be near a creature that has been gathering potential energy for ten thousand years if it suddenly decides to complete its strike.
+*   **Maintain your cadence.** Your heartbeat will feel like a drum in the absolute silence. Consciously slow your breathing. If you allow yourself to panic—if your pulse spikes—you will find the physical air around you difficult to navigate. The plateau feeds on the stillness; if you bring chaos, the plateau will attempt to "calcify" you to balance the equation.
+*   **The Exit Strategy:** Always mark your entry point with high-visibility markers that persist regardless of shadow-math. When you feel the weight of the silence start to feel like a "home," or when the shadows start to make perfect sense to your subconscious, it is time to leave. That comfort is not peace; it is the beginning of your own permanent installation into the crust.
+
+**Final Warning:** You are a ghost passing through a tomb. The Plateau of the Calcified Sigh does not exist to be observed. It exists to remain. Treat it with the same indifference it treats you. If you show it you are alive, it may decide to stop your pulse, just to keep its collection complete.

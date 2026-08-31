@@ -1,0 +1,85 @@
+# Preparing for the Kettle
+
+Understand first what kind of journey this is. You are not visiting a landscape. You are visiting a *room* — one room, complete, hidden under a dead black barrens, warm by the standards of its world and cold by any of yours, dark in a way your body has never experienced and may not forgive quickly. Everything you prepare should serve three disciplines, and you should start practicing them weeks before you leave: **silence, blindness, and the reading of warmth.** The kettle will test all three within your first hour below the rim.
+
+## Training your body before you go
+
+**Learn to walk blind.** Not metaphorically — put on a blindfold in your own home and live in it for full days. Walk uneven ground blindfolded: soft ground, forest floor, sand. The kettle's floor is ankle-deep living felt, compressible and springy, and it will be invisible to you. Your ankles and knees need to learn the gait now: feet lifted clear, weight committed slowly, no shuffling drag. Practice until you can cross a cluttered room without touching anything, because down there a wrong step is not a stubbed toe — it is a handspan of mat crushed that someone tends, or a shin against a column that drips and flexes and belongs to the room's economy.
+
+**Train your skin as an instrument.** The compass of the kettle is temperature. The people navigate by the gradient of warmth — *that way, a flank; that way, the seep; that way, home* — and you must learn it too. Drill it: blindfolded, find a warm object across a room by the heat on your face alone. Learn to detect a degree or two of difference on your cheek, your palms, the backs of your hands. This is a learnable sense and it is the single most important skill you will carry below the rim.
+
+**Practice silence as a physical discipline.** The first law of the kettle is quiet, and it is not a custom — it is closer to a physics the town cooperates with. Children there learn stillness before speech. You will need to: walk without footfall on soft ground, handle every object you own without a click or a rasp, breathe through your nose in cold air without whistling, and speak at a volume the locals describe as *below the breath of your host* — a murmur you can sustain for hours. Practice eating quietly. This sounds trivial until you realize that in the kettle, a crunching bite of hard tack is a public event.
+
+**Prepare your mind for the pressure.** The great ones breathe below hearing, and that infrasound does things to a human nervous system: chest tightness, unease, awe, the unshakable sense of being watched, sudden inexplicable emotion. This is not mystical and it is not danger. It is acoustics acting on your sternum and your inner ear. Learn its name before you go, because the first time it rolls through you in total darkness, unnamed, it will feel like the presence of God or of death, and you need to be able to say to yourself: *this is a house-sized animal, breathing, three hundred paces off. The dread is physics.* In time — the locals are proof — it becomes company. You will eventually find silence without it strangely empty.
+
+**Expect your eyes to lie to you.** In absolute darkness, the visual system generates its own noise: phosphenes, drifting false lights, shapes that are not there. Travelers in caves know this. Do not trust any light you see below the rim unless it is a lamp flame or the blue of the bright water. Do not walk toward phantom lights. Tell your hosts if it disturbs you — they will understand; they grew up watching their own minds spark in the dark.
+
+## The kit: rebuild everything for quiet
+
+Here is the rule that will govern your packing: **nothing that rings, nothing that crinkles, nothing that shines unbidden.**
+
+Modern travel gear is catastrophically loud by kettle standards. Go through your kit item by item. Retire every zipper, or bind the pulls in leather so they cannot jingle. Velcro is a shout — replace it with toggles, ties, and wrap-closures. Buckles must be padded or replaced with knots and soft shackles. No hard-shell ripstop that swishes when you move; choose brushed, soft-faced, silent fabrics, wool and fur analogs. Repackage all food out of crinkling wrappers into soft leather or cloth bags. Choose soft, mild foods; leave the hardtack and dried crunch at home. Your cookware is wood and horn. Your water container is a soft flask, not a bottle that ticks and pops in the cold. Anything metal you must carry — needle, blade, awl — travels wrapped in felt, the way the locals wrap their precious cold-hammered copper, because metal rings, and ringing is forbidden.
+
+You need **two complete clothing systems**, because you are crossing two different climates at one rim:
+
+- **For the barrens above:** deep polar kit for absolute, dry, killing cold and a wind that is the land's only resident. Windproof outer shell, serious insulation, face coverage, mittens over liner gloves, the best insulated footwear you can obtain, and a vapor-management plan — sweat is the enemy in dry cold. Goggles against blowing ice grit.
+- **For the kettle below:** damp-cold kit. Below the rim the air is wet, the mist hangs at knee height, condensation beads on everything and freezes in place. Wool and fur that insulate when damp. A shedding outer layer against the column-drip and the rime. Nothing cotton. Plan to change at the rim itself — you will descend out of dry wind into wet stillness, and the clothing that saved you above will rime solid below.
+
+Other essentials:
+
+- **A lamp, and the discipline to match it.** Bring a small, shieldable flame lamp — and plan to acquire the local clay dish, fish oil, and felt wick as soon as you arrive, because the lamp below is not a convenience: it is hearth, clock, passport, and canary. Ration it as they do, one flame to a dwelling. If you carry an electric light for true emergencies, seal it deep in your bag, disclose it to your hosts, and never, ever turn it on against the mat. That floor has never once in its existence been touched by light, and it does not want any. Do not be the first hand to strike it.
+- **Tethers for everything.** The mat swallows what falls: footprints gone in a week, dropped tools digested into the felt, old huts composted under the town. Lanyard your knife, your needle-case, your lamp striker. Nothing you drop down there is lost — it is *taken*.
+- **Rope, quietly rigged.** For the descent: soft line, knots instead of hardware, every metal piece wrapped. Also a short personal tether for clipping yourself to your sleeping platform during the bright water, when the seep rises through the mat.
+- **Gifts.** The town works in stone, bone, antler, fish leather, and a little treasured copper reserved for needles and small blades. Fine steel needles, awls, and small wrapped blades will be received as treasure — quiet treasure, pre-wrapped in felt, presented with both hands and a murmur. Cordage, salt, and patience are also currency. Do not bring anything that shines, chimes, or beeps.
+- **Medical kit weighted toward the real risks:** frostbite and cold injury for above; trench foot, sprains, and wound care for below. Take the wound care seriously — the mat is a warm, wet, chemistry-fed living skin, and you are an off-world immune system. Keep every cut covered, clean, and away from the mat and the seep water. Antiseptic is not optional.
+- **A silent watch or other clock.** No ticking. In endless dark, with a calendar made of events rather than days, you will need your own rhythm to stay sane — regular sleep, regular lamp ritual — until you decide to surrender to the town's time instead.
+
+## The crossing of the barrens
+
+You are on your own above the rim. The people's maps end there; no one will guide you across the black gravel, and no one will come looking for you in the wind. Plan the surface leg as a fully self-sufficient polar journey in darkness: redundant navigation (test whether a compass even works in this world early; carry star knowledge if the night is clear, and dead-reckoning discipline if it is not), fuel carried rather than gathered, and a cache placed for your return.
+
+Treat the cold as the primary predator — but not the only one. The wind may be the barrens' only resident, yet hunters *pass through*: something out there follows the great ones over the rim, rarely, and kills. You will likely never see it. Travel as though you could.
+
+**Finding the kettle** is an exercise in reading absence. From above it is nothing: a dark hollow, a breath of mist. You are looking for the place where the wind hesitates. Signs: a faint warmth riding the edge of the gale; mist lifting and shearing off into the dark; a mineral-animal smell so faint you'll doubt it; a zone where the wind's voice drops; gravel that is raw, freshly slumped, ice-cored, still shedding pebbles that click down into nothing. That clicking is your last warning. The edge is sharp because it is young — within living memory this was a buried hill of dead ice, and it melted, and let go. **Every edge here is still deciding what it wants to be.** Probe every step near the rim. Rope up before the final approach. Mark your entry point carefully and visibly for your return — you will not find it again by luck.
+
+**Descend by the ramps, not the raw edge.** The great ones come over the rim somehow, and where a house-sized animal passes, the ground is crushed into something like a road. Find those slumped, worn routes. Go down slowly, one hand on the wall, and keep your skin-compass awake: the gradient works both ways, and if warmth is rising toward you on the ramp, something enormous is climbing it. Yield. Step off onto the mat-side, go still, and let it pass. You will feel it long before you touch it — pressure in the chest, then heat on the face, then the slow weather of its breath. That first encounter, on a dark ramp in the ice, will be one of the strangest moments of your life. Let it be.
+
+Somewhere on the way down — at the first stillness — the wind will stop, cut off clean as a door closing. That is the moment you arrive. Change your outer layer there if you can. Then descend the rest into the wet dark, into the rime-sugared air, with your lamp shielded low and your voice already turned down to its kettle register.
+
+## Arrival and the etiquette of being found
+
+Stop. Stand still on the mat for a long while and let the room re-teach your senses. Feel the give of the floor. Locate the nearest column by its drip. Turn your face slowly until you find a gradient — warmth on one cheek — and understand that you have just read your first sentence in the local language.
+
+Do not go striding across the intervals looking for huts. The settlement is a constellation, not a cluster — a hut here against a sleeper's lee flank, two huts a hundred paces of empty dark away — and shouting is not how one announces oneself. Make soft, ordinary noise: your footsteps, your breath, a low word. They will find you; a room this quiet notices everything. When a hand touches your arm out of the dark, do not flinch — expect touch to be part of how people speak to you here, and accept it as courtesy.
+
+Then live by the three disciplines:
+
+- **Quiet.** Paths are felted; mallets are bone; speech stays below your host's breath. If you must ask a question across a distance, don't. Walk over. Ask your hosts early what the signal conventions are — whether a soft tap on a hollow column is communication or trespass — and obey whatever they tell you.
+- **Light.** One small flame, shielded, never against the mat, doused at the first sign of the bright water. When the seep pulses and the floor begins to glow faint blue, every lamp in the kettle goes out. Yours too, instantly, without being asked.
+- **Warmth.** This is the one outsiders never guess: warmth is property. Every heat-shadow and warm seam is someone's livelihood — the lee flank where a hut stands, the melt-halo where the mat grows fastest, grooming-rights to a hide. You cannot simply camp where it is warm. Ask. Accept the cold spot you're given at first with grace; it is how everyone starts.
+
+## Living in the room
+
+**Stay on the felted paths.** Learn their texture underfoot — compacted, slightly firmer than the wild mat. If you lose the path, stop. Do not wander the intervals; in a sound-swallowing room, a lost person who keeps moving is nearly impossible to find. Sit on your pack, keep your lamp ember-low, and wait. Ask your hosts on your first day what their lost-protocol is. They will have one; they will be pleased you asked, and it tells them you understand what kind of place you are in.
+
+**Guard your body against the slow wet cold.** Brush rime off your clothing before entering a hut, or it melts and soaks you. Dry your footgear near, not in, the warmth. Watch your feet for the white waxy signs of immersion damage. Drink only water your hosts show you — the seep is mineral-heavy with iron and sulfur, and they know which threads run sweet. Eat what you are given; do not graze the mat, whatever its smell. When the fish-pulse comes and the water threads with blind white fish, you will fish by feel in the dark with your hands, and it will be one of the great pleasures of your stay.
+
+**Keep a rhythm.** Sleep and wake by your own clock until the town's event-calendar — arrivals, pulses, the rare immense convergence of a death — absorbs you. Lie on the floor of your host's hut on the bright-water nights with everyone else, lamp out, and watch the only weather of light this world produces: the whole floor glowing dim blue, the columns standing in it like reeds in a moonlight that has forgotten the moon. The great ones shift and grunt in their subsonic register on those nights. Stow your gear up on the raised platform before you lie down — the bright water is also high water.
+
+## The great ones
+
+You do not see them; you navigate by them, and eventually you love them, and both of those things will happen faster than you expect. The protocols:
+
+- **Never startle one.** Approach slowly, from where it can sense you, warm-handed, murmuring. The social contract is grooming: picking the ice from between the plates of its hide. Learn the technique from a local and offer it as your rent and your introduction. They tolerate this the way a hillside tolerates weather, which is to say completely, and that tolerance is the foundation of the entire town. Treat it as sacred, because it is.
+- **Never sleep or linger where one might choose to lie down.** Huts stand against flanks already settled. A rising great one is one of the loudest events in the kettle and is discussed in whispers for days; everything here moves slowly and then suddenly, and a house-sized body deciding to stand is not something you want to be beneath.
+- **Do not kill them.** This is the second law, older than the town, and you will feel why the first time you stand in the steam-halo of a sleeper with the mat growing fast and warm around it and small pale lives grooming its hide. A living flank is worth more than any carcass. If one dies while you are there — of age, or of the rare hunter over the rim — everything changes: the whole scattered constellation converges into a single body for the only time in its life, the butchering takes days and becomes the calendar, and you will work, and you will be fed, and you will see the entire town's faces by lamplight at once. It is an honor and an exhaustion. Note also that a carcass may draw things down from the barrens; stay near the people during those days.
+
+## Dangers, plainly
+
+The rim and the young, slumping walls; the barrens cold and its rare passing hunters; falling in at the edge in the dark; losing the path in the intervals; offending by noise, light, or taking warmth unasked; wounds left open against the mat; the seep's moods and rising water; a startled or rising great one; fire in felt architecture; and your own mind in the first weeks — the dark, the pressure, the phantom lights, the grief for the sun. All of it is manageable. None of it is forgiving of carelessness.
+
+## Leaving
+
+Give notice. Gifts given quietly, grooming-rights honored to the last day, your lamp and wicks left behind with someone who needs them. Ascend by the ramp you marked, feel ahead of you for warmth on the route, and at the top, pause before you step out into the wind — because the wind will feel like violence now, and the loud bright world you came from will seem, for a while, vulgar and unbearable. You will speak too loudly for weeks. You will reach for walls in the dark. You will miss the pressure of enormous slow breathing against your sternum the way you would miss a person's hand.
+
+That is how you know the preparation worked: you went in as a creature of eyes and came out as a creature of warmth, and the kettle — hidden, complete, young, already old with its own layers — let you. From the barrens above, as you walk away, it is already nothing again: a cold dark hollow, a breath of mist at the rim. You could pass it within twenty paces and never know. You will know.

@@ -1,0 +1,3 @@
+## Preparing to Visit the High Dry Dark
+
+If you are an ordinary human multiverse traveler, the first thing to understand is that this place is not hostile in the way a predator is hostile. It is not malicious, not poisonous by design, not waiting to kill you. It is simply not made for you. It has no water, no breathable biosphere, no familiar weather, no daylight, no stable ground, no living reference points. You will be entering a warm, thin, dry, dark mineral country that

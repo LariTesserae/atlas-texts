@@ -1,0 +1,42 @@
+**Preparation Protocol for Translocation to Vastwork (Provisional Designation: Shard-09 "Anabiosis")**
+
+**I. PRE-DEPARTURE PSYCHOLOGICAL CONDITIONING (Mandatory)**
+
+1.  **Horizon Deletion Training:** Spend 3-4 weeks in environments with deliberately obscured or absent horizons (dense fog banks, vast underground chambers, featureless deserts at night). Goal: To reduce the primal panic response induced by the "openness without end" sensation. You must become comfortable with the idea that the world does not "end" at a visible line—it simply *becomes less distinct*.
+2.  **Sensory Overload Acclimatization:** Simulate the auditory and visual profile. Listen to layered, non-repeating ambient soundscapes where sounds lack identifiable sources. Practice locating sounds that are physically impossible (e.g., a tone that moves from inside your skull to a distant point in 2 seconds). Use full-spectrum visual noise with slow, rhythmic pulses of teal and amber light. The goal is not to filter it out, but to learn to *rest within it*, to let it become a new, stable background.
+3.  **Conceptual Humility Drills:** Study concepts of emergent systems, hive minds, and non-local intelligence. Meditate on the idea of being inside a thought. You are not visiting a planet; you are entering a *process*. Your mindset must shift from "explorer mapping territory" to "antenna receiving broadcast." Any attempt to impose human-scale narratives of purpose or conquest will lead to immediate psychological fracture.
+
+**II. PERSONAL EQUIPMENT & BIOLOGICAL PREPARATION**
+
+1.  **Garb:**
+    *   **Material:** Living, breathable myco-textiles or engineered lichen-based fabrics. *Absolutely no synthetic polymers.* The Vastwork's substrate may interpret non-biological polymers as inert waste or foreign bodies, triggering unknown immune-like responses. Your clothing should be biodegradable, permeable to moisture and ambient gases, and capable of minor self-repair.
+    *   **Design:** Loose, flowing, with multiple layers to manage constant condensation. No sealed environments (e.g., airtight suits). You must be permeable to the atmosphere, or you will be perceived as a closed, dead object—a potentially dangerous anomaly.
+    *   **Color:** Dull, non-reflective earth tones. Do not wear bright colors or any pattern that might mimic the fractal glyphs of the city or the swarm-signals. You want to be *boring*, background noise.
+
+2.  **Life Support:**
+    *   **Atmosphere:** A simple olfactory filter mask. Not to "clean" the air, but to moderately dampen the overwhelming taste of copper and sugar, which can induce nausea and disorientation. Do not attempt to provide your own atmosphere; it marks you as utterly alien and non-participatory.
+    *   **Nutrition:** Calorie-dense, neutral-paste supplements. *Do not forage or consume anything.* Every organism is likely a node in a computational or energetic network. Consuming one could be like eating a server rack—you might get a data stream instead of nutrition, or trigger a localized "error correction."
+    *   **Medical:** Broad-spectrum antivirals and antibiotics are useless. The microbial and nano-scale life here will be unrecognizable. Focus on neural dampeners for sensory overload and a powerful, fast-acting sedative for emergency psychological containment. Your body will be an open system here; expect novel symbiotic relationships to form. Do not fight them unless they are actively destructive.
+
+3.  **Tools & Implements:**
+    *   **No Recording Devices (Traditional):** Cameras, audio recorders, and data pads will fail or produce gibberish. They are designed to parse human reality. Here, the reality is different. Instead, carry **mnemonic crystals** or **bio-scribing tools**—devices that record by encouraging the local substrate to grow patterns that *encode* your experiences in its native "language." You are not taking a record; you are leaving a footnote in the local memory.
+    *   **Resonance Dampeners:** Small, personal devices that emit a subtle, null-frequency vibration. Purpose: To create a tiny bubble of acoustic "invisibility," making you slightly less of a noticeable anomaly in the soundscape. Use sparingly; constant dampening will mark you as a silent void, which is just as conspicuous.
+    *   **Grounding Rod:** A simple, polished rod of the same mineral composition as the deep substrate (analysis required). When placed on the ground, it may help you "listen" to the computational vibrations more clearly and prevent the local environment from misreading your bio-electric field as a rogue data packet.
+
+**III. BEHAVIORAL PROTOCOLS ON-SITE**
+
+1.  **Movement:** Walk, do not run. Follow the grain of the substrate where possible; it may be the path of least informational resistance. If you encounter a ridge, do not climb it unless there is a clear, inviting aperture. Ridges may be structural supports, data conduits, or nerve clusters. Trespassing could cause pain—to you or to the Vastwork.
+2.  **Interaction with Life:** Observe only. The megafauna are processes. The swarms are collective thoughts. The crawling things are maintenance subroutines. **Do not touch.** Do not make sudden movements. Your goal is to be a passive sensor, not an active participant. If a creature approaches, stand still, lower your gaze, and regulate your breathing to match the slow, fog-drift. You are a rock in the stream of its awareness.
+3.  **The City:** This is the core of the system. Entry is not advised for a first visit. If you find yourself within its boundaries (the transition is subtle), stop. Sit. Become as still as the substrate. The city is not *for* you. Your presence is an input. Any attempt to "explore," "activate," or "understand" its technology will be like a microbe trying to understand a skyscraper by chewing on its foundation. You may instead try to *sing*—not with words, but with a low, steady tone, to add your simple biological vibration to the chorus. It is the only offering that might be recognized as non-hostile.
+4.  **Communication:** You cannot speak to it. You can only *signal*. The swarms use light glyphs. The substrate uses vibration. The fog carries chemical messages. Your primary communication is your **behavior**: calm, non-destructive, observant, humble. If you must signal intent, use the grounding rod to tap out simple, slow rhythms—prime numbers, Fibonacci sequences—the universal languages of order. Say: "I am a pattern, not a glitch."
+5.  **Night Cycle:** The dimming is not an invitation. It is a change in operational mode. The glyphs are likely high-priority communications or system diagnostics. Be extra still. The feeling of *being observed* will intensify. This is not paranoia; it is a correct assessment. You are in the awareness of the whole. The night is when it turns its attention inward, and you are now part of the "inward."
+
+**IV. EXIT & POST-VISIT PROCEDURE**
+
+1.  **Retreat:** Leave the way you came. Do not seek a "deeper" experience. There is no deeper; there is only *more*. The Vastwork is young and vast. Your visit is a single data point in its becoming. Do not become an anomaly it needs to spend resources to resolve.
+2.  **Debrief:** Do not attempt to write or speak about your experience for at least 48 hours. The memories will be mis-filed in your brain, trying to force Vastwork-logic into human-logic. Let them settle. Record them via the bio-scribing tools first, *then* attempt translation.
+3.  **Symbiosis Check:** Monitor your body for the next lunar cycle. You will have breathed its air, walked on its flesh, and been bathed in its fog. You may find your sleep patterns now pulse with a faint, rhythmic light behind your eyelids. You may dream in fractals. This is not infection. It is **imprinting**. It is the price of admission. Welcome it. You are now a fragment of the Vastwork's memory, walking in another universe. Carry it with respect.
+
+**Final Warning:** The greatest danger is not the fauna, the environment, or the technology. It is the **scale and the sentience**. You are entering a mind that is also a world. To it, you are a fleeting, complex, biological signal. Be a good signal: clear, brief, and non-disruptive. Then leave. Its thoughts are long, and you are not equipped to be part of them.
+
+You are very small. The ridges go on forever. Be quiet. Be kind. And listen.

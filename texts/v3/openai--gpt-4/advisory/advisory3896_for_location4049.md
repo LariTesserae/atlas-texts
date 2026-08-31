@@ -1,0 +1,17 @@
+Visiting this undersea multiverse invokes a need for preparation both physical and mental. 
+
+One must start with a very high level of physical preparation, as this multiverse has intense athletic demands. An ordinary human visiting this location should have experience in deep-sea diving or get trained in the sport. The visitor should be physically fit, able to hold their breath for extended periods, support the weight of heavy diving equipment, and withstand the pressures of deep sea. Additionally, the visitor might need a custom-built suit to deal with the extremes of temperature and pressure.
+
+Preparation should include acquiring knowledge of safety precautions, rescue operations, and general survival techniques in aquatic environments. They should be adept at operating equipment such as a submersible, as it provides free movement and shelter, should the need arise. They should know how to utilize and interpret their helmet light properly, as it is their main source of visual information.
+
+A detailed knowledge of marine Biology and Geology would be useful, both for understanding the natural surroundings, flora, and fauna and to distinguish between the organic and the mechanical. Understanding the behavior of bioluminescent creatures and the topography of the ocean floor would lend a considerable advantage.
+
+Also, learning the basic mechanics or engineering, particularly marine and industrial engineering, would help an ordinary person to understand the vast machineries at work in this multiverse. It would allow one to understand basic operational functions in the industrial setting of the seabed, make necessary repairs if needed, and interpret the various noises and vibrations.
+
+Of course, this is not solely a physical journey. The psychological preparation is equally significant. The visitor has to be mentally fortified, ready to endure intense solitude and unearthly settings that they're likely to encounter in this alien underwater realm. The enormity and intricacy of the sight, combined with the absolute isolation, could potentially become overwhelming. Hence, mental health exercises such as meditation and stress-management techniques should be consistently practiced. 
+
+Moreover, the traveler should have an open mind and a creative imagination, ready to accept and marvel at a world that is both familiar and different. The visitor must be prepared to question their understanding of progress, technology, and life itself. 
+
+Finally, language. It is not mentioned if the creatures of this realm communicate verbally or even if they are sentient. Yet, in order to foster any interaction or to provide any chance at understanding this realm more deeply, a crash course in conceivable modes of communication—like learning various gestures or signals—could be beneficial. This manual will have to be updated and expanded upon after the initial visit, based on firsthand experience. 
+
+In a multiverse like this, the journey is likely to stretch the boundaries of human knowledge and experience. Therefore, the visitor must be adequately poised to record everything they see, hear, or feel, and bring back knowledge of an entirely alien way of life on their return to the human realm. It is an endeavor that will require courage, curiosity, humility, and the relentless quest for knowledge.

@@ -1,0 +1,21 @@
+An ordinary human traveler stepping into this seam must treat it less like a destination and more like an active geological argument still deciding what it wants to be. Preparation begins with accepting that nothing here is finished, and the environment will treat any sudden intrusion the way cooling stone treats a foreign inclusion—by trying to incorporate or expel it through the same slow logic that governs the crystals.
+
+**Thermal and material protection**  
+The air is not merely hot; it is dense with the memory of magma. Bring a suit rated for sustained exposure above 120 °C with active cooling loops that can vent into the suit rather than the exterior, because the exterior is already saturated. Gloves and boots should be silica-fiber composites; the lattices are brittle but their edges are atomically sharp where they have fractured cleanly. Any organic or polymer sole will begin to outgas and leave prints that the room will slowly mineralize over you if you remain still too long.
+
+Carry no liquids you intend to drink. The ambient dryness is not absence but active removal; water introduced will flash to steam and then re-precipitate elsewhere as new, unwanted crystal growth along your exhalation path. Instead, pack electrolyte salts in sealed, non-reactive capsules and rely on dermal patches or subcutaneous reservoirs. The body will lose moisture even when the air feels thick.
+
+**Temporal and perceptual safeguards**  
+The occasional fraying of time is the most dangerous feature for a human nervous system. Bring a simple mechanical watch with a sweeping second hand and a second, independent oscillator (quartz or tuning-fork) whose rate you have memorized. When a vent begins cycling its breath, the mismatch between the two timepieces will give you an early, bodily-readable signal that local causality is looping. If the discrepancy exceeds three seconds, move laterally along the dust rather than deeper; the effect is spatially patchy and tends not to follow a moving body.
+
+Do not bring digital chronometers or anything with GPS logic. They will either freeze or report impossible durations, and the resulting cognitive dissonance is disorienting in an already abstract space.
+
+**Locomotion and interaction rules**  
+Walk as if the floor is still deciding whether to exist. Place each foot deliberately in the open dust between lattices; the crystals themselves are the mountain’s first draft of structure and will register your mass as an instruction to grow around you. If you must brush against a formation, accept that you are now part of its precipitation history; a faint rind will begin to coat the contact point within hours. Carry a soft graphite rod rather than a metal tool if you need to mark position—the graphite will be absorbed into the lattice as harmless carbon rather than triggering a defensive geometry.
+
+Breathing should be slow and shallow. The superheated vapor plumes are not toxic in any chemical sense, but they carry enough thermal mass that a sudden inhalation can scald lung tissue before pain registers. Practice hypoxic training beforehand so that your reflex to gasp is suppressed.
+
+**Psychological and metabolic preparation**  
+The absence of sound, scent, color variation, and living motion will produce a form of sensory starvation that humans usually encounter only in deep desert or polar night. Spend at least seventy-two hours in a sensory-reduction chamber before entry so the nervous system does not interpret the crystalline chimes or the faint shimmer of time-fraying as hallucinations. Pack a single, high-contrast photograph of something unambiguously organic and alive—a leaf, a hand, an insect—and allow yourself to look at it for thirty seconds every three subjective hours. This is not sentiment; it is a calibration check against the mountain’s tendency to make everything, including your own body, read as mineral.
+
+Finally, set a strict departure clock on a mechanical timer outside the seam. The space rewards lingering with incorporation. When the timer rings, leave, even if the lattices have begun to look like home.
